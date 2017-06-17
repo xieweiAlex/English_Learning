@@ -3,16 +3,16 @@
 --- post Forest
 
 form/adapt habit
-you are progressing
+you are **progressing**
 I stand with what I said
 I spent lots of time / it took me lots of time  
 exceed expectation
 concise & precise 
 
 constipation 
-diarrhoea 
+**diarrhoea** 
 
-It's imperative we all stand up to Trump's drift to authoritarianism.
+It's **imperativ**e we all stand up to Trump's drift to authoritarianism.
 
 I count down on you no matter what they say 
 such an awesome villain 

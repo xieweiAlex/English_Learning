@@ -7,7 +7,7 @@ the only constraint stopping you from robbing each of them is that **adjacent ho
 having one in our own body can really **bring us down **. 
 
 using guard instead of the typical **pyramid of doom** of nested if statements
-If Apple responded to Xcode/SDK issues even 1/10th as well it responds to Swift issues, developers would swoon.
+If Apple responded to Xcode/SDK issues even 1/10th as well it responds to Swift issues, developers would **swoon**.
 
 had to be treated by paramedics 
 

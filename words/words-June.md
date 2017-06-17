@@ -1,4 +1,51 @@
 
+here’s a **recap** of your week on Hired.
+
+**command palette**
+
+I think I found the **culprit**.
+
+**downside** 
+**I chose what I am being.**
+**authentic herself**. 
+I'm **rambling**
+People are afraid of talking about it because there are so much **stigma** associate with this. 
+the length of a film should be directly **related to** the endurance of the human **bladder**.  
+as they **melt** the years **away** 
+
+**Woodpecker** fights to the death to protect its eggs from a snake
+
+This dog was **dangling** from the balcony 
+
+We put the coin **underneath** of the bottle  
+I'm thinking about a **philanthropy strategy**. 
+
+Trump was recently granted a **long-coveted** trademark by the Chinese government. 
+
+She **groan** with **grief** 
+
+I'd come back **swinging** 
+
+because you're driving like a **reckless idiot** 
+that would **trivialize** the problem.
+
+I am sickened by this **despicable act**
+
+Don't stop **rubbing** my head till I fall asleep please
+
+**entice**
+
+**hot air balloon** 
+we are living in 2017 while this guy is living 3017 
+**Declutter** 
+
+Add flavor to your **pitcher**
+Keep a gallon **jug** nearby.
+
+The idea was firstly **transpose** the matrix and then flip it **symmetrically**.
+
+Possible, but pretty **improbable**. **Herpes** can certainly be spread this way
+
 that's **pretty much** about it. 
 
 **parenthesis**
@@ -50,7 +97,7 @@ you might **end up being** confused
 
 The more I researched, the more shocked and **outraged** I became at the **extent** of her lies.
 
-The **Defector** Who Fooled the World
+The **Defector** Who Fooled the World 
 How to **measure** your technical skills 
 Find All **Anagrams** in a String
 
