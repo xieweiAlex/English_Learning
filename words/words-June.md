@@ -1,3 +1,122 @@
+his doctor come over every other Thursday
+there is a low population density 
+
+Every day, I say to myself, I don't have much time here on Earth, how can I make the greatest positive impact?
+
+I always thought one day someone would connect the whole world, but I never thought it would be us
+
+He's a Puli
+sometimes this process takes a bit longer than one would anticipate
+
+so fingers crossed you have better luck this time around
+
+Now mighter than ever. 
+It's crazy, it's mind blowing 
+make sure you understand thoroughly
+You've to use your own discretion. 
+quanttitve, that are measureable 
+
+the dissertation also included developing a system that works in revers. 
+
+10 POPULAR SONG PIANO MASHUP
+
+there is an anecdote
+I didn't know beforehand 
+Find your groove
+Suez Canal
+
+stop being dump on internet. 
+
+Let me get this straight, women wear fake hair, lash, nails, contacts, botox and boobs... but twant a real man? 
+
+Pretty straight forward & accurate 
+
+mummy
+This is how the mummification process works
+
+
+You will know that your work helped a child with Type I **Diabetes** go to his first **slumber** party by himself
+
+they couldn't understand our **predicament**
+They want me to fight China. It’s gonna be a **massacre**
+
+**Miscellaneous** GCD Fun
+there are lots of corruption and **nepotism** 
+**knockoff** handbag 
+
+it looks like it **imploded**. 
+**grumbling** about the **drought** 
+John brought a guest to supper
+**horn honks**
+the strict zero-tolerance policy you've **enacted**. 
+the indoor fire space is very **snazzy** 
+I could still **take you in** for picking up a **hitchhiker**
+she shopped for **groceries** twice a week
+
+What do you got back here 
+Step out of the vehicle. 
+taillight's out 
+That's for sure. 
+come on, hop in. 
+After a massive hatch **detonation**. 
+Fair enough. 
+xx, xx and xx scattered after the hatch implosion. 
+
+There is a gun under the tarp 
+I'll take two of them hostage. 
+When they arrive, I'll ambush them 
+They'll send scout party to investigage 
+You're putting our lives in danger. 
+why are you lying to me, Sayid? 
+I shouldn't have disagreed with you. 
+Am I interrupting something? 
+You never mad soup for me. 
+the other castaways 
+I'm not abandoning him 
+
+chattering over radio
+Someone posted your bail 
+what would you like to find out? 
+It's pretty much about everything 
+I've his autopsy report 
+you contested the divorce 
+spinal surgeon
+Just swell 
+I'll bring your some antiseptic later
+They scratched you up pretty bad, didn't they? 
+I'll take off your cuffs 
+I wonder what turned your that corner? 
+Your father has been sober for 50 days 
+door creak 
+
+key to the cross-Straits relations
+
+sit against that table 
+I'm a repo woman. 
+you're going to start hallucinating. 
+Your head is probably sore, your throat is raw 
+through that intercom
+I open the door then I leave the tray 
+electricity hums
+let it go, Jack. 
+is not being obsessive
+You were losing your **grip**
+why the hell she would call you? 
+I don't think you're stupid, Jack. I think you are stubborn. 
+I wanna know who he is? 
+metal clanking 
+rooster crows
+what the hell are you? 
+exhaling deeply
+
+So I guess I'm out of the book club 
+jet roaing overhead 
+
+Core Motion: Process accelerometer, gyroscope, pedometer, and environment-related events.
+
+The gist is to create a fully functioning app
+
+Trump has been conning people his entire adult life 
 
 here’s a **recap** of your week on Hired.
 
