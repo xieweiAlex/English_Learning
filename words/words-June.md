@@ -1,3 +1,132 @@
+
+Because he's a fucking **moron**
+Elephant caught on CCTV picking up **rubbish**...
+Who's the **messiest**? 
+
+I thought you were nothing more than a **dumb hick** 
+can we just **get over with it**? 
+the last six years of your sentence has been **commuted**
+he is **altar** boy here 
+**Two birds, one stone. **
+you don't want more lives on your **conscience** 
+**wear you down** until you ... 
+Juliet **bears** a **striking resemblance** to your ex-wife? 
+You agreed to give most of it to the **militia**/**Maffia**? 
+**free will** is all we've really got, right?  
+I would go to london and begin to **repent** 
+but it was **given**, **nonetheless** 
+You speak to me **as I were** you brother
+Sure we are, just need to take a little **detour** first. 
+
+We're **hauling** rocks and ..
+
+We’re Not Ready for the Next **Epidemic**
+
+% and /. These two **operators** can be helpful for **matrix traversal** problems
+
+The **Sudoku** board could be **partially filled**
+
+**sudoku puzzles**
+
+Now, it's time to **swab**
+
+Thank you for registering to become a **bone marrow** donor
+
+He died in heart attack 2009 without any registered next of
+**kin**
+
+**Diameter** of Binary Tree
+
+the multiple-location **conceit** meant that sense8 was also one of the most expensive shows on television. 
+
+**denominator**
+
+**Convex hull** problem. 
+**Erect** the Fence
+
+You cannot cut the rope to **enclose trees**
+
+**Convex Polygon**
+
+that will make the offer much more **compelling**
+
+You would be **amenable** for **coercion** 
+he told me I had to clean my own **mess**
+**I messed up** 
+I **could've save** them 
+Jack is not going back, **they've got him**.  
+
+But **first thing first**, I have to take care Mr. Eko
+That **sub** is back, we have a situation now. 
+keys **jingle** in lock 
+door **clangs** open 
+sound in a little **stuffy** there 
+**damn right** I am smiling, cause we've got **tickets** to leave here
+I **snag** the keys 
+Yeah, But I felt the **jolt**, i can take it 
+No, I'm actually **impressed**. 
+Well, **wipe** the stars **out of** your eyes 
+The **warden** will **reach out** your wife 
+**Textbook con** 
+Well **howdy**, warden 
+
+So What brings you to the **sewing** shop, boss? 
+What do you **weigh**? 
+(**muffled**) Let me out now! 
+No, you've to go to the **sternum**, the **sternum**. 
+I'm **scottish**, cheers 
+You know what a **pacemaker** is? 
+Just give me a **holler**. 
+So **quit asking** me. 
+**Put** some clothes **on**, damn it. 
+
+Speaking **indistinctly**. 
+You **conned** me. 
+door **bangs** open 
+I need you to **clamp** under the **liver**. 
+10 **mils** is a lots of **greenback** man. 
+
+
+**scoffs**
+is that made the sky **purple**? 
+**cop**
+You **screwed up**, john. 
+how to **brag** in a resume 
+
+**supportive leadership**
+
+Returns the index of the first occurrence of **needle** in **haystack**
+
+You save the word by **apocalypse**
+Occupational hazard ;)
+
+We have been **obsessed** with xxx since the very begining
+
+Facebook is committed to providing reasonable **accommodations** for candidates
+Let's party, tag your **fussy** team here 
+
+Sports cars are usually **aerodynamically** shaped
+but high **maneuverability** and light weight are **requisite**
+
+**numeral system**
+**numeral keys**
+
+You are playing the following **Nim Game** with your friend
+
+**exclusive or**
+
+**Grokking** the System Design Interview
+
+At this time we have received several assignments back that have set our candidate caliber very high
+
+Don't get me wrong, I don't say skill doesn't matter. 
+don't ever look down on ordinary people 
+The car then loses control and slams into the median before swerving into the SUV. 
+The incident appears to escalate when the motorcyclist kicks the car. 
+
+Brute force
+
+the people there still left behind 
 his doctor come over every other Thursday
 there is a low population density 
 
@@ -5,7 +134,7 @@ Every day, I say to myself, I don't have much time here on Earth, how can I make
 
 I always thought one day someone would connect the whole world, but I never thought it would be us
 
-He's a Puli
+He's a **Puli**
 sometimes this process takes a bit longer than one would anticipate
 
 so fingers crossed you have better luck this time around
