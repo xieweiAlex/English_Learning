@@ -1,3 +1,40 @@
+And as you know, much of carnage was due to the bursting of a real estate bubble — fueled by subprime loans.
+
+if you stop by New Jersey 
+I had my first asthma in China. 
+By the end of the day all I could do was focus on pushing air in and out of my lungs. 
+
+Gave me medicine for a cold I didn't have, an EKG for a lung issue? They sucked every fen and every mao from me they could. 
+I told them to give me inhaler and let me go. 
+the slid me the bill. 
+I squinted at the paper, trying to lesson the blow. 
+
+Given a binary tree, check whether it is a mirror of itself (ie, symmetric around its center).
+
+This bald eagle just **swooped in**. A beautiful symbol of our freedom. Happy Independence Day from Alaska!
+
+**meh** 
+
+He’s a fake president, **utterly** **unfit** in every way for the position and an embarrassment to the country
+
+If Donald Trump were a real president, he’d behave with a **dignity** and seriousness becoming the office. He wouldn’t waste his time writing **puerile** tweets, **insulting** his critics, making baseless **accusations**, lying left and right, **waging** war against the “mainstream” news media and generally making a fool of himself.
+
+**Spotted** in SF yesterday
+I **spotted** him in the crowd.
+
+**plurals** 
+
+Calm down your **tilt**. 
+
+Asian Fetish
+
+we can see that the result depends on the **divisibility** of a number by 9
+
+An **asterisk** indicates that the field is required.
+
+Time is most precious **asset** to everyone. 
+
+you may want to display this pattern in a fixed font for better legibility)
 
 The amount of knowledge and cultural exchange is **unparalleled**.
 
