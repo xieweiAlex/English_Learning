@@ -1,3 +1,270 @@
+The disease has **metastasized** widely throughout his body
+He tells jokes I’ve heard a hundred times and fills in **biographical** details that are entirely new to me. 
+
+On a warm, clear afternoon in the Berkeley hills, we sit outside on the **patio**. 
+he says, his eyes **welling up**
+
+he is such a **spaz**, man. 
+**promissory note**
+
+be sure to call them first to confirm a **Notary Public** is available
+
+UPS (United **Parcel** Service)
+
+A nation without **dissident** is like a pot without a single drop of honey left inside. 
+
+Some turn to **dust** or to gold 
+
+be my guest -> 请随意 
+scram 
+I'm gonna **pee** anyway. 
+we're going to take a **leak**. 
+Yeah, well, so are we. 
+Okay, **tarzan**. So now you're back. 
+I didn't join them. I **infiltrated** them. 
+You're **undercover** with others. 
+I **snuck** into Ben's tent and kidnapped him. 
+I'm not a murder. Neither am I. 
+**damn it**. 
+**hammering**. 
+Glad I can help. 
+John, you got a minute? 
+You're still **crippled** by the memories of the man you used to be. 
+A ship - **freighter**
+About 80 **nautical** miles west of here. 
+In an **ocean trench** 4 miles deep. 
+I thought it's fool's **errand**. 
+So I grabbed my **chute** and I **bailed**. 
+
+Check out **applets** on our companion website. 
+
+**caravan** analogy. 
+
+because it’s helped us align on my most meaningful growth trajectories.
+Although values may be personal, it’s helpful to share them with your manager for additional alignment
+I love this framework because the “Key Results” make it easy to take action and measure progress.
+After you craft your OKR 
+
+mail.yahoo.com	canonical name = login.yahoo.com.
+
+And I am not willing to string people along, either. 
+
+In this example, the client host is located on the campus of Polytechnic University in Brooklyn
+
+The queried DNS server can be a root DNS server, a top-level-domain DNS server, an authoritative DNS server, or an intermediate DNS server
+
+From the DNS client’s standpoint
+
+Chinese proverb
+
+The impact of climate change is very clear at Glacier
+
+propagation delay. 
+
+Fat girls who wear crop tops be looking like winnie the pooh. 
+smart doggo 
+resemblance is uncanny. 
+Calling your man daddy or sir is for amateur. 
+Step it up. 
+'**Lieutenant**'.... '**Mein Fuhrer**'
+
+
+You'll not **lick** me. 
+
+**Coaxial cable** 
+	* two concentric copper 
+**fiber optic cable** 
+
+**First aid kit**
+No, it's just a **precaution**
+You weren't around when I lost the **bet**. 
+So you **exempt**. 
+**camping** 
+Everyone loves **marshmallows**. 
+How **daft** do you think I am? 
+This isn't a camping trip. 
+next time you wana break up with someone, don't join a **monastery**. 
+you're too **bloody scared**. 
+I'm afraid you're beyond **penance**, Desmond. 
+I will continue pretending as long as you give me the money. 
+when you baby was **conceived**. 
+the **fetus** is healthy and was conceived on island. 
+He was **sterile** before they got here. 
+
+From **nuts and bolts** view. 
+I felt so **puny** in Shanghai as **skyscrapers** are everywhere
+**Exotic cars** (can even see them in small towns)
+
+The magical power of **Porsche** 😂😂
+
+Give you beloved pet a massage while getting ride of all the unwanted hair  😍😍😍
+
+xxx are working for the cobra. 
+stop being such a wuss and dive in. 
+what exactly is a perimeter sweep? 
+you should put the shovel away and save yourself some trouble. 
+the beach is eroding. 
+I find out what he is emotionally invested in, and I exploit it. 
+Are we done here? this place gives me creeps. 
+Can you use your psychic power? 
+it might torn us apart. 
+diamond 
+shouting (submarine blew up)
+Banish me? 
+But the consenus was half a mile down the beach. 
+I don't do amend 
+I'm really sorry I called you rotund. 
+why they you and me and drag us into jungle. 
+why you terrorizing us? 
+What do  you think I'll do if you don't? 
+She is under my protection. 
+That's orange juice with a considerable amount of tranquilizer mixed in. 
+I had the day off. 
+Without the serum, she would've died. 
+I'm alreay on my own, jack. 
+I've got a tarp, couple of blanket. 
+that makes you one of us. 
+
+
+Trump and Macron react very differently when this band plays a Daft Punk medley at the Bastille Day parade
+
+I made a vow to myself. 
+
+I've heard a lot about Vim, both pros and cons
+The statement yy is a synonym for y_
+
+
+## Open language 
+* 10 cool dady in tv series 
+	* Peerenting 
+		* Softie
+		* Goofy: 傻傻笨笨，可爱的。米老鼠的伙伴高飞狗的名字就是Goofy。
+	* Tough on the outside, soft on the inside
+		* He is the patriarch of the family
+		* Step-dad/step-father
+		* Love his kids to pieces 
+	* Loving and wise dad
+		* He was always giving his kids words of wisdom
+		* A great sense of humor
+	* Burt is a guy’s guy
+		* A man's man
+		* Come out of the closet
+		* But Burt turned out to be very supportive and protective of his son
+	* He is a good guy caught in a bad situation
+		* He wants to make sure his family is set for life
+	* He is presiding over a brood of unruly boys
+		* He is a kid dad
+	* He is a wise fool and always accident-prone
+		* Accident-prone
+		* Wise fool
+* handsome 
+	* He is very good-looking
+	* Cute
+		* 不过这个词只适用于女性形容男性。
+	* Right back at ya/you too man：彼此彼此
+	* Hunky 
+		* hunk 
+		* He's so hunky
+		* He's a hunk
+		* Muscular
+	* Dashing通常形容有魅力、儒雅、成熟的帅哥。
+		* George Clooney is so dashing
+		* He's got a dashing smile
+	* Dapper和dashing很像，都是精致的帅。
+		* 不过dapper更年轻一些、也更突出很会穿着打扮
+		* He always looks so dapper
+		* Well-dressed: 会打扮、打扮精致的
+	* Rugged的典型代表是007Daniel Craig.
+		* Lumberjack
+		* Lumbersexual: 新潮词，形容粗旷的帅哥
+		* Full beard
+	* manly
+		* 很 man is Chinglish 
+		* Come on, man up! 像个男人样！
+		* Masculine：阳刚的
+	* Adam问Jenny心目中的Prince Charming 
+		* Intellectual: 有思想的 
+* See you when I see you
+	* Catch you/ya later! 
+	* Ok, until next time.
+		* Ok, till next time.
+	* Peace out!
+		* Peace（和平）也可以用来道别。听起来酷酷的。不过用在正式的场合就不合适了。
+* 好时髦！条纹格纹圆点...英语怎么说？
+	* Prints: 印花、花样，不一定有规律
+	* Patterns: 有规律的印花、图案
+	* 服饰上的条纹不是line, 而是stripes. 
+		* Stripes: 条纹, 统称
+		* Horizontal stripes: 横条纹
+		* Vertical stripes: 竖条纹
+		* Pin stripes: 牙签条纹，就是非常细的竖条纹
+		* Nautical stripes
+	* Slimming: 显瘦
+	* Makes you look fat ❌显胖，但这样说太直接了
+	* Flattering: 有美化效果的、让你显得更美的
+		* Not flattering: 上身效果不太好
+		* Stripes don't look very flattering on me.
+		* Stripes look so flattering on you!
+	* Plaid: 格子、大格子、交错格子
+		* Plaid: 格子、大格子、交错格子
+			* 注意ai的发音是/æ/, 不是/aɪ/， [plæd]
+		* Checkered: 有格子的、格纹的
+	* Florals：花
+		* Floral: 印花的统称
+		* Liberty: 小碎花
+		* Paisley: 佩斯利涡旋纹花、腰果花
+		* Leopard: 豹纹、美洲豹
+		* Cheetah: 猎豹纹
+		* Camouflage: 迷彩
+## 千万别用black, white形容皮肤黑白！
+* https://mp.weixin.qq.com/s?__biz=MjM5OTMwMjYyMw==&mid=2651794497&idx=1&sn=d91cbc6a56fa9b2f05569fcc7952c4ec&chksm=bcc608f18bb181e72406a84ae9881754a13f1f0f973cee0795787e3b706cbd0a63046d1bcee2&scene=0&key=6369de1f1404898967298fbf77310ff4bdd50df0a38aee9412b208b2142c9427b88a14bc507456d630955bdf6fa120d1b1138227fc00e144e6312906c3b1b081535373fe79ff65a5f63efcb76fd69e5f&ascene=0&uin=NDcyNDk3OTM1&devicetype=iMac+MacBookPro11%2C4+OSX+OSX+10.12.5+build(16F73)&version=12020810&nettype=WIFI&fontScale=100&pass_ticket=ojhAvYwbvNeTIRZteLIl3KCNxYzyfHvmu0d4%2Ft44dwiWN9OJJmubM9%2BcsTPOSETW
+* Tan (名词)
+	* Tanned (形容词)
+	* You have/got a (sun) tan. 你晒黑了
+	* You look tanned.
+	* I get tanned easily 
+	* I've got dark skin: 我天生皮肤黑
+
+
+
+
+
+At this moment when our democratic institutions are in peril, ending #netneutrality protections would be devastating.
+
+but tilapia is cheap and plentiful 
+a genus of xxx fish 
+
+don't ever look down on ordinary people. 
+
+Families like theirs don't always get a lot of **credit**
+
+but helping provide things like insulin, leather and makeup ingredients that also come from cattle
+
+A lot of cattle are fertilized through artificial insemination.
+
+I had lunch today with the Norman family on their 2,500 acre cattle ranch in South Dakota.
+
+I was raised in foster care. 
+you are gonna call off your engagement and go. 
+tell me john, did it hurt? 
+you're a hypocrite, a pharisee. 
+do I have your word on that 
+he was on to you
+uncuff him 
+you seem to have some communion with this island, that makes you important 
+
+
+The cylinder is the part of the engine where combustion takes place.
+A misfiring cylinder can cause a proportional loss of power
+
+
+that is great for both novice and experienced drivers
+drivers can push the limit through high-speed corners and feel a rush of adrenaline
+We must warn you though: speed can become addictive
+
+All i can imagine is big orgy in park.
+
+Mount Zhumulangma
 
 we got a **compass bearing**
 **What makes you think** I have interest in helping you. 
