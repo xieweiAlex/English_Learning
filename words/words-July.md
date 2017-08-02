@@ -1,3 +1,140 @@
+You might not be surprised to learn that most formerly incarcerated men and women are petrified to discuss their background with prospective employers
+
+Only two years ago were people complaining about Facebook being 100MB. Now it’s a whopping 354MB!
+
+
+
+
+Why people don't like it? -- Why wouldn't people like it? 
+
+The **siege** of Herbalife
+
+What's that for? - **radiation**. 
+
+I **feel for** you, john, I really do. 
+You keep heading the **dead ends**. 
+**Bailiff**, please take the **defendant** into **custody**. 
+**Do you know who I am**? 
+And I'm going to **renew** my **overrulling** of your **objection**. 
+**Until after** the **alleged** crimes she is being charged with. 
+He is to be viewed as a **character witness** only. 
+**proceed**! 
+Could you please tell the ladies and gentlemen of the **jury**. 
+I was hurt pretty badly, in fact, **if it weren't for her**, I **would have never made it** to the shore. 
+This is my **trial**. 
+I want you to help me **bust him out**. 
+Wanna play some **backgammon**? - you're on. 
+Just **give me you word** you are not gonna do anything to her. - **You have my word**. 
+What? the **boathouse** down by the dock? 
+If Hugo knows, everybody knows. 
+You've arranged this meeting so you could **blackmail** me? 
+It's **extortion**. - **Protection racket**
+Can that be **amended**? 
+You're a **fugitive**, 
+I'm responsible for the **well-being** of this island. 
+This court is now in **recess**. 
+My key witness said she got **cold feet**. 
+quit **posturing** and let's get to it. 
+I just want this **to be over**. 
+10 years **probation** and you **stay put**. 
+Your lawyer gave me the **heads-up**. 
+He **owed me** one. 
+I've to **get over** to the hospital. 
+I just **put him down** for nap. 
+Your **perception** of how long your friends have been gone is not necessary how they've actully been gone. 
+Have you finished with your **crunches**? 
+it's an **amnesia**
+
+Hongkong's housing situation is so **dire**. 
+
+sit tight, we'll be there 
+You're trying to **get tossed into** the **nuthouse**? 
+I just fell behind, I guess 
+it was water under the bridge, man. 
+
+**touche**! 
+So much for **camaraderie**. 
+
+**gender neutral** 
+
+**Given** they could get new jobs by just **showing up** at the local coffee shop, I was **stunned** by the CFO’s reply
+you really have to want to work here or you **ought to** leave
+And because we’re **inundated** with resumes from people who want to work for us, he sees no reason to change.
+These new CEOs would also act as a brake to **temper** the founder’s **excesses**
+Yet technology cycles have become a **treadmill**, and to survive startups need to be on a continuous innovation cycle
+and in the last five years over 200 other Unicorns have **emerged**, and most still have their founders at the **helm**.
+they stayed just long enough to **pump up** their resumes and left for much better paying jobs
+And because fewer senior engineers considered it a great place to work, the company’s initial technology advantage has started to **erode**.
+
+**lactose intolerance**
+
+He is not who **we thought he was**. 
+Ben is inside in the **brig**.  
+No matter how much time you spend on this island, you just never get tired of this view. 
+You mind if I join you? 
+The **paramedics** are **strapping** me to a **gurney**
+**Gag** in my mouth 
+He was becoming a **nuisance** 
+I **conned** him into giving me one of his kidneys. 
+He never **got over** it. 
+**Unless** you carry your father's body in your back, john. Don't bother. 
+**gagging** and coughing. 
+Julet is a **mole**. 
+**Three days from now**, ther's gonna be a **raid** on the beach. 
+
+We ask that you stay within the **confines** of your new living **quarters**. 
+I'm a **janitor**? 
+I thought you were dead. 
+The **pylons** were not set to a **lethal** level. 
+Sorry, I have to deal with this now, John. 
+Our **excursion** will have to wait. 
+We're having some **skirmishes** with the **natives**. 
+
+You just **make it all up**. 
+You're **putting on a show** for me. 
+We're **jamming** it. 
+I'm a good **paddler**. 
+I'm really good at **Canoeing**. 
+
+you told us the looking glass was **inoperable**, flooded. 
+I can be there by **dawn**. 
+The tents are marked by **white coral**. 
+E.R: emergency room 
+
+**Ever since** you got that tape from Lock, you are acting as a **sleepwalker**. 
+I **aren't** **asking for** permission.  
+Why are you **sticking up** for Sawyer, he'd never do it for you. 
+So you **screwing** jack yet? 
+So why are you going back? - **Karma**. 
+get out of this **ditch**, john. 
+that's for taking the kid of raft. 
+
+Will you excuse us, please? 
+Don't you **pity** me. 
+Still pulling people out of **wreckage**. 
+
+**Attorney General** Jeff Sessions has **adamantly** favored holding suspects in **Guantánamo Bay**
+
+Sean Spicer’s **tenure** as White House press secretary gave him national **prominence** beyond the normal reach of the job.
+
+Mr. Spicer quit after telling President Trump he **vehemently** disagreed with the **appointment**
+
+Verizon **Throttling** Netflix Traffic as Part of Temporary Video Optimization Test
+
+Don't let them **intimidate** you. 
+
+What about tomrrow, **Karate** class. 
+actually, we talked about **adoption**. 
+Jeff Sessions take the job, get into the job, **recuses** himself. 
+I'm still **stunned** at how Donal Trump can make the most **daming** **admission**. 
+
+I've found **solidity** a difficult language to learn. Too ambitious, too much **at stake**, to many **caveats**.
+
+Bad programmers can't **muddle through**. We are all bad programmers...
+
+you'll get the details **at a glance**. 
+Then **snooze** them until **a right time** or place. 
+
 The disease has **metastasized** widely throughout his body
 He tells jokes I’ve heard a hundred times and fills in **biographical** details that are entirely new to me. 
 
@@ -16,7 +153,7 @@ A nation without **dissident** is like a pot without a single drop of honey left
 Some turn to **dust** or to gold 
 
 be my guest -> 请随意 
-scram 
+**scram** 
 I'm gonna **pee** anyway. 
 we're going to take a **leak**. 
 Yeah, well, so are we. 
@@ -40,34 +177,35 @@ Check out **applets** on our companion website.
 
 **caravan** analogy. 
 
-because it’s helped us align on my most meaningful growth trajectories.
-Although values may be personal, it’s helpful to share them with your manager for additional alignment
-I love this framework because the “Key Results” make it easy to take action and measure progress.
-After you craft your OKR 
+because it’s helped us align on my most meaningful growth **trajectories**.
+Although values may be personal, it’s helpful to share them with your manager for additional **alignment**
+I love this framework because the “Key Results” make it easy to take action and **measure progress**.
+After you **craft** your OKR 
 
-mail.yahoo.com	canonical name = login.yahoo.com.
+mail.yahoo.com	**canonical** name = login.yahoo.com.
 
-And I am not willing to string people along, either. 
+And I am not willing to **string people along**, either. 
 
-In this example, the client host is located on the campus of Polytechnic University in Brooklyn
+In this example, the client host is located on the campus of **Polytechnic University** in Brooklyn
 
-The queried DNS server can be a root DNS server, a top-level-domain DNS server, an authoritative DNS server, or an intermediate DNS server
+The queried DNS server can be a root DNS server, a top-level-domain DNS server, an **authoritative** DNS server, or an **intermediate** DNS server
 
-From the DNS client’s standpoint
+From the DNS client’s **standpoint**
 
-Chinese proverb
+Chinese **proverb**
 
-The impact of climate change is very clear at Glacier
+The impact of climate change is very clear at **Glacier**
 
-propagation delay. 
+**propagation delay**. 
 
-Fat girls who wear crop tops be looking like winnie the pooh. 
-smart doggo 
-resemblance is uncanny. 
-Calling your man daddy or sir is for amateur. 
+Fat girls who wear **crop tops** be looking like **winnie the pooh**. 
+the lower part of which is high enough to expose the waist, **navel** or some of the **midriff**
+smart **doggo** 
+a dozen officers had been lying **doggo** for hours
+resemblance is **uncanny**. 
+Calling your man daddy or sir is for **amateur**. 
 Step it up. 
 '**Lieutenant**'.... '**Mein Fuhrer**'
-
 
 You'll not **lick** me. 
 
@@ -229,16 +367,16 @@ The statement yy is a synonym for y_
 
 
 
-At this moment when our democratic institutions are in peril, ending #netneutrality protections would be devastating.
+At this moment when our democratic institutions are in **peril**, ending #netneutrality protections would be **devastating**.
 
-but tilapia is cheap and plentiful 
-a genus of xxx fish 
+but **tilapia** is cheap and plentiful 
+a **genus** of xxx fish 
 
-don't ever look down on ordinary people. 
+don't ever **look down** on ordinary people. 
 
 Families like theirs don't always get a lot of **credit**
 
-but helping provide things like insulin, leather and makeup ingredients that also come from cattle
+but helping provide things like **insulin**, leather and makeup ingredients that also come from **cattle**
 
 A lot of cattle are fertilized through artificial insemination.
 
@@ -253,18 +391,16 @@ he was on to you
 uncuff him 
 you seem to have some communion with this island, that makes you important 
 
-
-The cylinder is the part of the engine where combustion takes place.
-A misfiring cylinder can cause a proportional loss of power
-
+The cylinder is the part of the engine where **combustion** takes place.
+A misfiring cylinder can cause a **proportional** loss of power
 
 that is great for both novice and experienced drivers
 drivers can push the limit through high-speed corners and feel a rush of adrenaline
 We must warn you though: speed can become addictive
 
-All i can imagine is big orgy in park.
+All i can imagine is big **orgy** in park.
 
-Mount Zhumulangma
+Mount **Zhumulangma**
 
 we got a **compass bearing**
 **What makes you think** I have interest in helping you. 
