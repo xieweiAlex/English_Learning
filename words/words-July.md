@@ -1,13 +1,27 @@
-You might not be surprised to learn that most formerly incarcerated men and women are petrified to discuss their background with prospective employers
-
-Only two years ago were people complaining about Facebook being 100MB. Now it’s a whopping 354MB!
 
 
+run, **rhino**/hippo, run!  
 
+welcome to your **humble abode**. 
+I was just looking for some **gauze**. 
+If you need to talk, **I'm around**. 
+**stammers** - I'm not doing this, we're done. 
+To spare me the **pretense** that you're actually offended. 
+You find you have a **full-blown** **insurrection** on your hands. 
+Let me out here, give me some **semblance** of freedom. 
+If they still want me, **they would've** **stormed** this **camp** long ago. 
+This is the man whose boat parked **offshore**. 
+who's the man in the **blindfold**.  
+static **hissing**. 
+I'm trying to render it **inert**. 
+
+You might not be surprised to learn that most formerly **incarcerated** men and women are **petrified** to discuss their background with prospective employers
+
+Only two years ago were people complaining about Facebook being 100MB. Now it’s a **whopping** 354MB!
 
 Why people don't like it? -- Why wouldn't people like it? 
 
-The **siege** of Herbalife
+The **siege** of **Herbalife**
 
 What's that for? - **radiation**. 
 
