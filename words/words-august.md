@@ -1,4 +1,4 @@
-why I left academia: part I ?   
+why I left **academia**: part I ?   
 
 Clients: may be **intermittently** connected.   
 **interprocess communication**.   
@@ -50,15 +50,13 @@ I'd like to present a **counterproposal**.
 She is a **pawn**, nothing more.    
 Once you let your **grief** became anger, it will **never go away**.   
   
-  
-  
-They stockpiled food stores that they distributed to mitigate local famine and floods.   
-Each pyramid sentenced ten thousand farmers to thirty years of hard excruciating labor  
-people perceived AT&T with the same technological reverence as they do with Google today   
-Our four Pharaohs effectively rule over almost all gates to the Nile River of your time: The Internet.  
-even the ones in incognito.   
-Facebook spends billions of dollars to ensure you’re perpetually distracted and addicted  
-Quitting would cause withdrawals  
-Now with the acquisition of Wholefoods ($13B), he’s conquered perishables.   
-As a woman, you’re deterring romantic rivals from poaching your relationship partner.  
+They **stockpiled** food stores that they distributed to **mitigate** local **famine** and floods.   
+Each **pyramid** sentenced ten thousand farmers to thirty years of hard **excruciating** labor  
+people perceived AT&T with the same technological **reverence** as they do with Google today   
+Our four **Pharaohs** effectively rule over almost all gates to the **Nile River** of your time: The Internet.  
+even the ones in **incognito**.   
+Facebook spends billions of dollars to ensure you’re **perpetually** distracted and addicted  
+Quitting would cause **withdrawals**  
+Now with the **acquisition** of Wholefoods ($13B), he’s **conquered** **perishables**.   
+As a woman, you’re **deterring** romantic **rivals** from **poaching** your relationship partner.  
   
