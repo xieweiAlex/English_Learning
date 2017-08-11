@@ -1,3 +1,34 @@
+Everyone sweeps the floor. 
+
+Stop staying up until 3 am. 
+
+In honor of Sir Nicholas Winton and to remember all those who were killed during the holocaust. 
+
+
+pistachios
+Can we drop this masquerade 
+
+Anti-Money Laundering
+
+Anti-Money LaunderingHe passed out. - You fainted? 
+I've got some cramping, dehydrated, nausea. 
+It's your appendix, Jack. 
+Has it ruptured? 
+We need to create a sterile environment. 
+We can use the lidocaine to numb the area. 
+Flat on your back with my hand in your abdominal cavity? 
+tarps razor. 
+Take your meds, hurly. 
+I don't neeed a stretcher, I can walk 50 feet. 
+fair enough 
+But I have a restraining order. 
+
+
+
+
+
+Click here to look up your citation. 
+
 why I left **academia**: part I ?   
 
 Clients: may be **intermittently** connected.   
