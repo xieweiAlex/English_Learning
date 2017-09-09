@@ -1,10 +1,111 @@
-catfish nugget 
-Who knows what happened underneath. 
 
+Acne vulgaris (or simply acne) is a long-term skin disease that occurs when hair follicles become clogged with dead skin cells and oil from the skin. Acne is characterized by areas of blackheads, whiteheads, pimples, and greasy skin, and may result in scarring. The resulting appearance can lead to anxiety, reduced self-esteem and, in extreme cases, depression or thoughts of suicide.  
+
+
+the late 1990s with the release of his sophomore album My Way (1997), which spawned his first U.S. Billboard Hot 100 number-one single.  
+Usher has won numerous awards and accolades including 18 Billboard Music Awards and 8 Grammy Awards.  
+  
+Google searches for "deep learning" by country. (And yes, this is in spite of the GFW)  
+  
+John Gruber: woefully ignorant  
+  
+You need to speak in the layperson's terminology  
+Verbatim exchange  
+Yes, that's correct, the tumor is benign  
+  
+Scotland plans to make petrol and diesel cars obsolete by 2032  
+  
+No bill is perfect, but inaction now is unacceptable  
+  
+you're all set.  
+  
+20 billion barrels oil/day  
+  
+Steering wheel is wearing.  
+  
+  
+Mass Sheep Herding, New Zealand  
+Speak for yourself, peasant.  
+Actually the inventer of the parachute tested it for the first time by jumping of the Eiffel tower... And it malfunctioned.  
+A sun possessed  
+  
+  
+you’ll hear things like, “Ray’s jumpshot is God-given.”  
+Listen: God doesn’t care whether or not you make your next jump shot.  
+You’ll be gasping for air, hunched over  
+But you still have an 18-year NBA career ahead of you.  
+champagne & champion  
+Yes, there will be a sense of validation and vindication when you raise the trophy above your head, remembering everyone who ever said you wouldn’t amount to anything.  
+Four-year benchwarmer.  
+You have achieved exactly what you set out to do. But you’re still restless.  
+So why do you feel this way? Isn’t this what you worked so hard for?  
+This is what success looks like for you. You’re the kind of guy who goes to the dentist the morning after winning an NBA title.  
+I write to you as a man who is completely at peace with himself.  
+The hell you experience when you get off that bus will be temporary  
+Most people will never really get to know the real you. But they’ll know your work.  
+  
+  
+  
+  
+  
+  
+With this tip you can avoid unnecessary lengthening and cut straight to the points you want to make.  
+  
+The best way to build a solid, sophisticate vocabulary is to read voraciously.  
+  
+when no one knew that lucifer was born.  
+  
+The numbers have value because we believe they have value, just like any other fiat currency.  
+A system that lets a group of computers maintain a ledger.  
+  
+It’s going to be another triple-digit temperature scorcher today.  
+This is a perfect spot for kids to get acquainted with swimming.  
+Take the Plunge!  
+  
+  
+  
+And it's replicated so that it's very secure and hard to tamper with.  
+How they therefore promise to transfer our economic systems in radical ways.  
+Not have recourses if things go wrong.  
+Reviews, ratings, checkmarks: these are the attestations about our identities that we cobbled together today and use to lower uncertainty.  
+But the problem is they're very fragmented.  
+  
+  
+  
+  
+It is like really bad jet lag.  
+Really bad je lag doesn't make you hemorrhage, Daniel.  
+You had the equivalent of three doses of horse tranquilizer in your system.  
+Got your meds for you.  
+You have friends in trouble, let's get them safety and save the dirty linen for later.  
+Meet us at the long beach marina, slip 23.  
+Shut up and keep paddling  
+You are drenched.  
+I'm afraid I'm not following you.  
+thunder rumbling.  
+That's why I became an anthropologist.  
+His claim to fame came later.  
+When he refuse to acknowledge the resurrection.  
+Who will be the recipient of the deceased upon arrival.  
+Security found this while screening your cargo.  
+We are not going to guam, are we?  
+The next thing I know, i'm in the lagoon.  
+  
+  
+  
+  
+We need our engineers to be versatile  
+  
+Benefits gravy train.  
+   
+  
+catfish nugget  
+Who knows what happened underneath.  
+  
 I Got **Scammed** By A Silicon Valley Startup  
-  
+   
 Overcome Sleep **Inertia**  
-  
+   
 Not if someone **backs me up**.  
 John's **casket** is outside in a **carpet van**.  
 He got shot by a **dart**.  
@@ -22,9 +123,9 @@ what if I sent you to the bomb and you'll just **detonate** it?
 Daniel's **benefactor**.  
 Someone other than the girl you just **professed** you love for?  
 I'm your best chance at **disarming** that bomb.  
-  
+   
 **Demographics** - Gender  
-  
+   
 Yes. If this works out, energy becomes very **fungible** and we could more easily move energy from renewable sources like wind and **hydroelectric**  
 those tend to lose 30 or 40 percent of the energy when you **put them in and out** of the battery  
 Bill, this sounds amazing. But we’ve all heard big promises in the past, and none have **panned out**.  
@@ -32,19 +133,19 @@ How do we know this isn’t one of those **too-good-to-be-true** things
 Here you have an industry that’s been totally **bottlenecked**, right?  
 An **Ionic** battery doesn't smoke, flame, or **explode**, even after being **impaled** by a **screwdriver** and then cut in half with a **paper cutter**.  
 They’re all going to be **interconnected**  
-  
+   
 Chinese is a **tonal** language.  
 NO **inflection** in Chinese.  
 The borrowed Chinese words were mostly **nouns**.  
-  
+   
 **Violent clashes** have taken place in Panchkula  
 Earlier, his **devotees** **smashed** cars and set media vans **alight**, saying he was innocent.  
-  
+   
 Those are not **mutually exlusive**, I still love JS.  
 iOS is too **over-saturated**, I'm macOS only.  
 I got the **simile** here, but I don't think Typescript is that bad.  
 Nobody cooks at home in **Bangkok**.  
-  
+   
 a converted TV room that smells **faintly** of cat urine.  
 the Oakleys **pin up** the green **fabric** that serves as the **backdrop** so **Fluffy** doesn’t ruin it  
 The course provides practical advice on **tackling** **daunting** subjects and on beating **procrastination**, and the lessons **engagingly** blend **neuroscience** and **common sense**.  
@@ -52,13 +153,13 @@ This is home-brew, not Harvard. And it has worked. **Spectacularly**.
 Her own feelings of inadequacy give her empathy for students who feel hopeless.  
 As a **youngster**, she was not a **diligent** student  
 I **flunked** my way through elementary, middle school and high school math and science  
-  
+   
 “If my mind can **conceive** it, and my heart can believe it - then I can achieve it.” - Muhammad Ali  
-  
+   
 A scene in central London, the morning after a **bomb raid**, 1940.  
-  
+   
 USTSV give 10% **commision** for recommendation.  
-  
+   
 I'm not at the **liberty** to **divulge** the identity of my client.  
 If you won't **comply**, then I'm going to have to come back with the **sheriff**.  
 I really think we have **far more** **pressing matters**.  
@@ -304,5 +405,5 @@ Quitting would cause **withdrawals**
 Now with the **acquisition** of Wholefoods ($13B), he’s **conquered** **perishables**.  
 As a woman, you’re **deterring** romantic **rivals** from **poaching** your relationship partner.  
    
-
-
+  
+  
