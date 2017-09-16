@@ -1,4 +1,3 @@
---- 4th week  
   
 It's hard to argue that Swift is a full-fledged functional language, but it has the basics.  
   
@@ -59,7 +58,6 @@ scout them, their locations and their weapons
 go ahead, open it.  
 you want a ride?  
 ran off  
----  
   
   
 Miscellaneous  
@@ -71,7 +69,6 @@ upbeat music
 hunch over  
 slouch  
   
---- first week  
   
 * We blew last time, it doesn't mean we will blow this time.  
 * the hardwork is required and will be rewarded  

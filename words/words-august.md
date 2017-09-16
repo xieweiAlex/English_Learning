@@ -1,106 +1,92 @@
 
-Acne vulgaris (or simply acne) is a long-term skin disease that occurs when hair follicles become clogged with dead skin cells and oil from the skin. Acne is characterized by areas of blackheads, whiteheads, pimples, and greasy skin, and may result in scarring. The resulting appearance can lead to anxiety, reduced self-esteem and, in extreme cases, depression or thoughts of suicide.  
+**Acne vulgaris** (or simply acne) is a long-term skin disease that occurs when **hair follicles** become clogged with dead skin cells and oil from the skin. Acne is characterized by areas of blackheads, whiteheads, pimples, and greasy skin, and may result in scarring. The resulting appearance can lead to anxiety, reduced self-esteem and, in extreme cases, depression or thoughts of suicide.  
 
 
-the late 1990s with the release of his sophomore album My Way (1997), which spawned his first U.S. Billboard Hot 100 number-one single.  
-Usher has won numerous awards and accolades including 18 Billboard Music Awards and 8 Grammy Awards.  
+the late 1990s with the release of his **sophomore** album My Way (1997), which **spawned** his first U.S. **Billboard** Hot 100 number-one single.  
+Usher has won **numerous** awards and **accolades** including 18 Billboard Music Awards and 8 Grammy Awards.  
   
-Google searches for "deep learning" by country. (And yes, this is in spite of the GFW)  
+Google searches for "deep learning" by country. (And yes, this is **in spite of** the GFW)  
   
-John Gruber: woefully ignorant  
+John Gruber: **woefully ignorant**  
   
-You need to speak in the layperson's terminology  
-Verbatim exchange  
-Yes, that's correct, the tumor is benign  
+You need to speak in the **layperson**'s terminology  
+**Verbatim exchange**  
+Yes, that's correct, the **tumor** is **benign**  
   
-Scotland plans to make petrol and diesel cars obsolete by 2032  
+Scotland plans to make **petrol** and **diesel** cars **obsolete** by 2032  
   
-No bill is perfect, but inaction now is unacceptable  
+No bill is perfect, but **inaction** now is unacceptable  
   
-you're all set.  
+you're **all set**.  
   
-20 billion barrels oil/day  
+20 billion **barrels** oil/day  
   
-Steering wheel is wearing.  
+**Steering wheel** is **wearing**.  
   
+Mass **Sheep Herding**, New Zealand  
+Speak for yourself, **peasant**.  
+Actually the inventer of the **parachute** tested it for the first time by jumping of the **Eiffel tower**... And it **malfunctioned**.  
+A sun **possessed**  
   
-Mass Sheep Herding, New Zealand  
-Speak for yourself, peasant.  
-Actually the inventer of the parachute tested it for the first time by jumping of the Eiffel tower... And it malfunctioned.  
-A sun possessed  
-  
-  
-you’ll hear things like, “Ray’s jumpshot is God-given.”  
-Listen: God doesn’t care whether or not you make your next jump shot.  
-You’ll be gasping for air, hunched over  
-But you still have an 18-year NBA career ahead of you.  
-champagne & champion  
-Yes, there will be a sense of validation and vindication when you raise the trophy above your head, remembering everyone who ever said you wouldn’t amount to anything.  
-Four-year benchwarmer.  
-You have achieved exactly what you set out to do. But you’re still restless.  
-So why do you feel this way? Isn’t this what you worked so hard for?  
-This is what success looks like for you. You’re the kind of guy who goes to the dentist the morning after winning an NBA title.  
-I write to you as a man who is completely at peace with himself.  
-The hell you experience when you get off that bus will be temporary  
-Most people will never really get to know the real you. But they’ll know your work.  
+you’ll hear things like, “Ray’s **jumpshot** is **God-given**.”  
+Listen: God doesn’t care **whether or not** you make your next jump shot.  
+You’ll be **gasping** for air, **hunched over**  
+But you still have an 18-year NBA career **ahead of you**.  
+**champagne** & **champion**  
+Yes, there will be a sense of **validation** and **vindication** when you raise the **trophy** **above your head**, remembering everyone who ever said you wouldn’t **amount to anything**.  
+Four-year **benchwarmer**.  
+You have achieved exactly what you **set out** to do. But you’re still **restless**.  
+So why do you feel this way? **Isn’t this what you worked so hard for**?  
+This is what success looks like for you. **You’re the kind of guy** who goes to the dentist the morning after winning an NBA title.  
+I write to you as a man who is completely **at peace with himself**.  
+The **hell** you experience when you **get off** that bus will be **temporary**  
+Most people will never really get to know the real you. But **they’ll know your work**.  
   
   
+With this tip you can avoid unnecessary **lengthening** and **cut straight to the points** you want to make.  
   
+The best way to build a solid, **sophisticate** vocabulary is to read **voraciously**.  
   
+when no one knew that **lucifer** was born.  
   
+The numbers have value because we believe they have value, just like any other **fiat currency**.  
+A system that lets a group of computers maintain a **ledger**.  
   
-With this tip you can avoid unnecessary lengthening and cut straight to the points you want to make.  
+It’s going to be another **triple-digit** temperature **scorcher** today.  
+This is a perfect **spot** for kids to get **acquainted** with swimming.  
+**Take the Plunge**!  
   
-The best way to build a solid, sophisticate vocabulary is to read voraciously.  
+And it's **replicated** so that it's very secure and hard to **tamper** with.  
+How they therefore promise to transfer our economic systems in **radical** ways.  
+Not have **recourses** if things **go wrong**.  
+Reviews, ratings, **checkmarks**: these are the **attestations** about our **identities** that we **cobbled together** today and use to **lower uncertainty**.  
+But the problem is they're very **fragmented**.  
+**fragrant**  
   
-when no one knew that lucifer was born.  
+It is like really bad **jet lag**.  
+Really bad **je lag** doesn't make you **hemorrhage**, Daniel.  
+You had the **equivalent** of three **doses** of horse **tranquilizer** in your system.  
+Got your **meds** for you.  
+You have friends in trouble, let's get them safety and save the **dirty linen** for later.  
+Meet us at the long beach **marina**, slip 23.  
+Shut up and keep **paddling**  
+You are **drenched**.  
+I'm afraid **I'm not following you**.  
+thunder **rumbling**.  
+That's why I became an **anthropologist**.  
+His claim to **fame** came later.  
+When he refuse to acknowledge the **resurrection**.  
+Who will be the **recipient** of the **deceased** upon arrival.  
+Security found this while screening your **cargo**.  
+We are not going to **guam**, are we?  
+The next thing I know, I'm in the **lagoon**.  
   
-The numbers have value because we believe they have value, just like any other fiat currency.  
-A system that lets a group of computers maintain a ledger.  
+We need our engineers to be **versatile**  
   
-It’s going to be another triple-digit temperature scorcher today.  
-This is a perfect spot for kids to get acquainted with swimming.  
-Take the Plunge!  
-  
-  
-  
-And it's replicated so that it's very secure and hard to tamper with.  
-How they therefore promise to transfer our economic systems in radical ways.  
-Not have recourses if things go wrong.  
-Reviews, ratings, checkmarks: these are the attestations about our identities that we cobbled together today and use to lower uncertainty.  
-But the problem is they're very fragmented.  
-  
-  
-  
-  
-It is like really bad jet lag.  
-Really bad je lag doesn't make you hemorrhage, Daniel.  
-You had the equivalent of three doses of horse tranquilizer in your system.  
-Got your meds for you.  
-You have friends in trouble, let's get them safety and save the dirty linen for later.  
-Meet us at the long beach marina, slip 23.  
-Shut up and keep paddling  
-You are drenched.  
-I'm afraid I'm not following you.  
-thunder rumbling.  
-That's why I became an anthropologist.  
-His claim to fame came later.  
-When he refuse to acknowledge the resurrection.  
-Who will be the recipient of the deceased upon arrival.  
-Security found this while screening your cargo.  
-We are not going to guam, are we?  
-The next thing I know, i'm in the lagoon.  
-  
-  
-  
-  
-We need our engineers to be versatile  
-  
-Benefits gravy train.  
-   
-  
-catfish nugget  
-Who knows what happened underneath.  
+Benefits **gravy train**.  
+
+**catfish nugget**  
+Who knows what happened **underneath**.  
   
 I Got **Scammed** By A Silicon Valley Startup  
    
@@ -116,7 +102,7 @@ Dude, the cops they're on a **stakeout**.
 WE **shouldn't have** lied.  
 You don't have to be a **wiseass**.  
 You can stop worring about the stories and the **deceptions**.  
-What you need is a **irrelevant**.  
+What you need is **irrelevant**.  
 Who is **in charge** here.  
 Caught these three **by the creek**.  
 what if I sent you to the bomb and you'll just **detonate** it?  
@@ -129,7 +115,7 @@ I'm your best chance at **disarming** that bomb.
 Yes. If this works out, energy becomes very **fungible** and we could more easily move energy from renewable sources like wind and **hydroelectric**  
 those tend to lose 30 or 40 percent of the energy when you **put them in and out** of the battery  
 Bill, this sounds amazing. But we’ve all heard big promises in the past, and none have **panned out**.  
-How do we know this isn’t one of those **too-good-to-be-true** things  
+How do we know this isn’t one of those **too-good-to-be-true** things?    
 Here you have an industry that’s been totally **bottlenecked**, right?  
 An **Ionic** battery doesn't smoke, flame, or **explode**, even after being **impaled** by a **screwdriver** and then cut in half with a **paper cutter**.  
 They’re all going to be **interconnected**  
@@ -150,13 +136,13 @@ a converted TV room that smells **faintly** of cat urine.
 the Oakleys **pin up** the green **fabric** that serves as the **backdrop** so **Fluffy** doesn’t ruin it  
 The course provides practical advice on **tackling** **daunting** subjects and on beating **procrastination**, and the lessons **engagingly** blend **neuroscience** and **common sense**.  
 This is home-brew, not Harvard. And it has worked. **Spectacularly**.  
-Her own feelings of inadequacy give her empathy for students who feel hopeless.  
+Her own feelings of **inadequacy** give her empathy for students who feel **hopeless**.  
 As a **youngster**, she was not a **diligent** student  
 I **flunked** my way through elementary, middle school and high school math and science  
    
 “If my mind can **conceive** it, and my heart can believe it - then I can achieve it.” - Muhammad Ali  
    
-A scene in central London, the morning after a **bomb raid**, 1940.  
+A scene in central **London**, the morning after a **bomb raid**, 1940.  
    
 USTSV give 10% **commision** for recommendation.  
    
@@ -171,28 +157,26 @@ don't **dillydally**.
 This guy is **terrific**  
 You know they are **schemers**.  
    
-My aunt gave a copy of World **Almanac** and that's **heaven** to me.  
+My aunt gave a copy of **World Almanac** and that's **heaven** to me.  
 **Just you know why you are doing what you are doing, that's good enough**.  
 I look for something that does give them a **moat** around.  
 Well I thought it was a **prodigy**.  
 Why you paid **enormous** respect to a young man with a **crew-cut** who won't eat vegetables  
 He's so **cerebral** you see.  
    
-   
 But earlier this month came news of a potential game changer, from **no less** a tech **luminary** than Bill Joy.  
 and a **visionary** who was working on the Internet of Things two decades ago.  
 **alkaline accumulator**  
 As Joy explains it, **Ionic**’s innovations combine the advantages of the familiar **alkaline** batteries we buy at the **drugstore** (cheap, safe, and reliable) with those of the more expensive, **fire-prone** **lithium** batteries in our computers and phones (powerful, rechargeable, and more earth-friendly).  
-followed up on his famous WIRED essay about a future **techno-apocalypse**  
+followed up on his famous WIRED **essay** about a future **techno-apocalypse**  
 Yeah, that’s **fair**. I think this is a **black swan**  
 Then you pour in a liquid so that the **ions** can move around.  
 Films form, things go into [the] solution and run around and react with each other—you have safety issues like the battery catching fire.  
 But in this battery, you have no liquid. You have just a **plastic**, a **polymer**, that replaces the liquid, so it’s solid.  
-It also turns out that this polymer just happens to be essentially a **fire retardant** material  
+It also turns out that this **polymer** just happens to be **essentially** a **fire retardant** material  
 They use **zinc** and **manganese dioxide**  
 To power mobile devices like **camcorders**, [the industry] went to **lithium** chemistry  
 But I don’t have a word for this new breakthrough, a solid that **conducts** ions at room temperature  
-   
    
 This is a **trip wire**, move it and... **boom**.  
 Hugo and... James, would you mind **if I spoke** to Jack alone?  
@@ -204,14 +188,14 @@ Well, **I'll tell you what**.
 I don't think I'm getting across the... **direness** of the cirumstance.  
 Switches and **knobs clicking**.  
 As you've not doubt **surmised**, station six or 'Orchid', is not a **botanical** research unit.  
-This... is the vault.  
+This... is the **vault**.  
 **Great care must be taking** to avoid leaving **inorganic** material inside the **chamber**.  
-For your own safety, metallic objects must never be placed within the **vault**.  
+For your own safety, **metallic** objects must never be placed within the **vault**.  
 Anything that's not **bolted down**, **toss it out**.  
 That'd kill a lot of innocent people, Ben. If you are thinking I'm **bluffing**, need I remind you of how your daughter looked as she bled out  
 **Facedown** in the grass.  
 Because **circumstance** has changed.  
-Are you really going to **pretent** that you don't know who I am?  
+Are you really going to **pretend** that you don't know who I am?  
 Sometimes, good command decisions get **compromised** by bad emotional response.  
 If I were you, I **duck**.  
 You'll find your way, John. You always do.  
