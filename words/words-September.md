@@ -1,3 +1,6 @@
+
+I’m devastated. I’m sorry.
+
 @Schwarzenegger discusses how gerrymandering affects Congress -- and a potential solution
 
 Hello Hugo, you **got a minute**?  
@@ -61,37 +64,34 @@ This island has a number of deceased individuals residing on it.
 He is the man who chartered the boat you'll be getting on next week.  
 Toss him.  
 I can make time.  
-I just have an errant to run, I'll be right back.  
-Welcome to the meeting, twitchy.  
-I will meet you in the motor pool.  
-Afraid I'll stage a coup?  
-all right, let's get started.  
-Mind if I join you? - Please.  
-one of these days, sooner or later, I'm going to find a loophole, my friend.  
-Ben told me that he strangled you.  
-That's my recollection, Yes.  
-All right, here's your sedatives.  
-you wanna stay here and whine about it.  
-Unlock the damn cuffs.  
+I just have an errand to run, I'll be right back.  
+Welcome to the meeting, **twitchy**.  
+I **will meet you** in the **motor pool**.  
+Afraid I'll **stage a coup**?  
+all right, **let's get started**.  
+**Mind if I join you**? - Please.  
+one of these days, sooner or later, I'm going to find a **loophole**, my friend.  
+Ben told me that he **strangled** you.  
+That's my **recollection**, Yes.  
+All right, here's your **sedatives**.  
+you wanna stay here and **whine** about it.  
+Unlock the **damn cuffs**.  
+  
+We still don’t know what the full **ramifications** will be.  
+Many consumers have **scrambled** to try to protect themselves  
+Months before the hack itself, Equifax could easily have **patched** the hole in its system that hackers **exploited**, but it simply didn’t.  
+These private institutions **hoover** up our data, often without our knowledge and consent, and then sell it off to banks, landlords and even prospective employers.  
+because none of us can refuse to be a part of this system and **opt out** if we don’t like how we’re being treated.  
+The United States government is, of course, not **impervious** to data breaches, nor does it have a perfect track record of **fending them off**.  
   
   
+Giant Equifax data **breach**: 143 million people could be affected.  
+Getting revenge on people who have **wronged** her.  
   
-  
-We still don’t know what the full ramifications will be.  
-Many consumers have scrambled to try to protect themselves  
-Months before the hack itself, Equifax could easily have patched the hole in its system that hackers exploited, but it simply didn’t.  
-These private institutions hoover up our data, often without our knowledge and consent, and then sell it off to banks, landlords and even prospective employers.  
-because none of us can refuse to be a part of this system and opt out if we don’t like how we’re being treated.  
-The United States government is, of course, not impervious to data breaches, nor does it have a perfect track record of fending them off.  
-  
-  
-Giant Equifax data breach: 143 million people could be affected.  
-Getting revenge on people who have wronged her.  
-  
-As soon as it got dark outside a small group of people according to police started vandalizing property and causing trouble.  
+As soon as it got dark outside a small group of people according to police started **vandalizing** property and causing trouble.  
   
 and his friend, Gates, a **sophomore** at Harvard  
-Over the years, the PC has transformed from a hobbyist’s toy to an **indispensable** tool that continues to change the world  
+Over the years, the PC has transformed from a **hobbyist**’s toy to an **indispensable** tool that continues to change the world  
 **Hobbyists** are **ecstatic**, despite the fact that, even with BASIC, there is little you can actually do with the Altair  
 But after months of **salvos** (VimGolf **one-upmanship**, **gratuitous** references to this Stack Overflow question) no clear victor has **emerged**.  
 So last week, I set out to see what the Triplebyte data has to say on the issue. Take this with a **grain of salt** (**correlation** does not imply **causation**)  
@@ -116,12 +116,12 @@ XXXX congratulations you can be a **jackass** in four different languages now
 Seattle is a cleaner city with a lot of natural beauty. Even in the urban center, you are surrounded by mountains, water, and **lush** vegetation that creates a relaxing atmosphere  
 There are a lot of tech companies in Seattle but the community lacks the **edgy** **vitality** and **churn** of the Bay Area.  
 The tech scene is less **frenetic**.  
-Seattle's restaurants have excellent execution and diversity but they tend to have a slightly more casual ambiance.  
-San Francisco has a more extroverted culture  
-San Francisco has a more international, cosmopolitan, high-fashion feel to it, a bit like Manhattan  
-Most people will assume San Francisco wins hands down here given Seattle's reputation as a rainy and gloomy outpost.  
+Seattle's restaurants have excellent execution and diversity but they tend to have a slightly more **casual ambiance**.  
+San Francisco has a more **extroverted** culture  
+San Francisco has a more international, **cosmopolitan**, high-fashion feel to it, a bit like **Manhattan**  
+Most people will assume San Francisco wins **hands down** here given Seattle's reputation as a rainy and **gloomy outpost**.  
 It is hard to make friends here compared to the bay area where so many people are transplants.  
-They do not want to mingle with you  
+They do not want to **mingle** with you  
    
 I skate to where the **puck** is going to be, not where it has been.  
    
