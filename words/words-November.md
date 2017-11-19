@@ -1,4 +1,40 @@
 
+Dramatic footage has captured the moment an **off-duty** police officer **wrestled** a motorist to the ground, after he **lunged** at another driver he **apparently** thought was driving too slowly.
+
+The **trolls** always **trolling** people.  
+
+Silicon Valley is a **suburban** **sprawl**, far from ideal for **clubbing**.  
+Even San Francisco is relatively **tame** compared to New York, Chicago or Los Angeles.  
+"We are all in the **gutter**, but some of us are looking at starts."  
+
+**Bumble** began monetizing via in-app purchases only in August 2016 and will cross $100 million in sales this year, a figure that--aided by the introduction of **tailored**, **hyperlocal advertising**--is **projected** to double in 2018.
+In June 2014, she sued Tinder for sexual harassment, **alleging** that her ex-boss and ex-boyfriend Justin Mateen called her a "whore" and "gold digger" and **bombarded** her with threatening and **derogatory** text messages, which she attached to her complaint.  
+There's no question who the founder of Bumble is. Rather than **sulk** about Tinder, Herd decided to compete against it. In doing so, she **belatedly** entered one of the most crowded and established digital fields (over 90% of online dating startups fail) and nonetheless quickly **carved** out a **lucrative** space by focusing on the needs of one segment: women.
+**Dream on** -- I'm not for hire 
+She did **pitch** him on Merci
+
+The **scarce** resource in a big company is executive attention.  
+They have a consistent quality. They are **untrammelled** by experiences at other companies.  
+You wouldn't hire a **florist** to build the Brooklyn Bridge. Don't hire any engineering manager who hasn't paid his **dues** as an engineer.  
+
+The **Maldives** is a tropical nation in the Indian Ocean **composed** of 26 ring-shaped **atolls**, which are made up of more than 1,000 coral islands. It’s known for its beaches, blue **lagoons** and **extensive reefs**. The capital, Malé, has a busy fish market, restaurants and shops on the main road, Majeedhee Magu, and 17th-century Hukuru Miskiy (also known as Friday Mosque) made of carved white coral.
+
+The Spark is quiet and small and somewhat **innocuous**.  
+
+Given a binary tree, return the **zigzag** level order **traversal** of its nodes' values. (ie, from left to right, then right to left for the next level and alternate between).
+
+* **abide** 
+	* abide by the contract
+	* abide by the law 
+	* Panama reiterated that it will strictly abide by the one-China principle and resolutely oppose any action that is contrary to this principle
+	* The two presidents underlined a political basis, which is to respect each other's core interests and abide by the one-China principle
+
+You know where can I get some **grub** from here?  
+
+By the way, some people think you are being played by certain world leaders who are using your ego, **vanity** and **narcissism** against you.  
+
+**zimbabwe** crisis: Army **seizes** **broadcaster** but denies **coup**.   
+
 No. This one actually lives in the **looney bin**.  
 I was nice **bumping into** you.  
 **bump into**: 无意中遇到、碰到  
@@ -51,4 +87,4 @@ You **would've** shot me already.
 **alligator** **hissing**.  
 Now we will take a risk here to get the **calf** out.  
   
-  
+
