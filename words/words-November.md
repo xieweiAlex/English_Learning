@@ -1,4 +1,31 @@
 
+That's accurate.  
+Obvious awesome **goatee**.  
+
+**Me as well**. 
+
+**Spoofer**
+
+National Elite Kickboxing Academy 
+
+The Oregon state government is largely supported by personal income and corporate excise taxes.  Local governments and schools are largely funded by property taxes.  Oregon is one of only five states in the nation that levies no sales or use tax.
+Oregon’s “kicker law,” underscores Oregon’s distaste for taxes  
+
+
+Underwear and midriffs may not be visible. Cut-off tops, halter tops, strapless tops, tank tops with spaghetti straps, pajama pants and short shorts/skirts/dresses (inseam less than 4 inches) may not be worn to school.  
+
+Tesla fired 700 workers last month and required them to sign a separation agreement that bars them from badmouthing the company or the executives who fired them
+
+Apparently still euphoric from the recognition by the Nobel Prize committee, he added: "It's hard to be unpleasant after winning a prize like that."
+Rita Lucas' attorney in Chicago, Jim Rubens, also declined to comment on the matter Friday, saying he was trying to help his client preserve her privacy, which was in short supply after the revelation of her skill as a clairvoyant.
+
+
+Barcode Scanners -- Ergonomic, Elegant and Rugged
+You can find thousands of snappy how-to videos that inspire new ideas in beauty, food and DIY and chat live with others while watching them. 
+
+
+Do a brain dump and shake out all of those niggling to-dos.  
+
 Dramatic footage has captured the moment an **off-duty** police officer **wrestled** a motorist to the ground, after he **lunged** at another driver he **apparently** thought was driving too slowly.
 
 The **trolls** always **trolling** people.  
