@@ -1,4 +1,15 @@
+---- Second Week 
+I encourage everyone to heed the advice and orders of local and state officials.  
+
+
 --- First week 
+Let's count the money we have looted today.  
+large intestine
+ 
+Dirt and grime is on the fabric of the seatbelt causing it to retract slower than normal
+the retractor itself is locked 
+
+
 Slower traffic use turnouts 
 
 My friends were like what are your future plans? -- It's just a visualization for someboday really resourceful. 
