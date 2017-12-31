@@ -1,11 +1,40 @@
-  
 --- Fifth week  
-**dick joke** 
-Socially **inept** person. 
-It's not a failure, it's just **pre success**. - I like that **reframing**. 
+  
+Sometimes I need a break from all those assholes **leering** at me.  
+He's such a **starfucker**.  
+So you're rested and **rejuvenated**?  
+You **dumped** me for someone younger and prettier.  
+And then that was her biggest **selling poinnt**.  
+I heard about Chalie, not **particulars**.  
+I need you to **backstop** me with my **parole office**.  
+I know he **snuck out** last night.  
+He hit a **squeaky** **flooboard** and went out from the window.  
+There was an access to an **attic**, in one of the rooms.  
+He **clocked** you?  - Probably, I'm **terrible at this**.  
+I'm wondering he knew he'd been **followed**, was tring to **ply off** my suspicious.  
+At first I thought it was like the **norwegian**, right?  
+He said you shouldn't **exert** yourself.  
+**New bail**?  
+Oh, cousin Pete, you really think **goading** me is going to work?  
+You want to **perjure** yourself, that's one thing.  
+We both have children, well, the old way was "**wayward**".  
+Had a children **out of wedlock**.  
+I know what you're doing, trying to **tug** at my **heartstring**, using your grandchildren as **props**.  
+**payback**, the're mad about losing the Persikof **bond** yesterday.  
+So are we in a **feud** with A&B?  
+Now we need **collateral** to secure the bond.  
+Have you had it **appraised**?  
+**Impressive**  
+Wow, you really hold a **grudge**.  
+  
+  
+  
+**dick joke**  
+Socially **inept** person.  
+It's not a failure, it's just **pre success**. - I like that **reframing**.  
 Failure is an option, look at the **hyperloop**.  
 That's not a good way to start out a **pitch**.  
-
+  
 You're not even **up** for **parole** for another two years.  
 You **got to** hide.  
 I had a mon only **around** when she didn't **have a needle in her arm**.  
@@ -28,7 +57,7 @@ If he's **on the run**, he should be **staying low**.
 I **worshipped** you and you weren't very nice to me.  
 He is a **felon**.  
 He's not violent. He's facing **tax evasion** charges.  
-  
+   
 That was a **lousy** plan.  
 It was a good plan **right up** to the point.  
 You're **mistaken**.  
@@ -36,24 +65,24 @@ You're **mistaken**.
 Are you just **checkening out** again?  
 I know this is a weird suggestion, but can we **start over**?  
 I'm going to take your brother's hand at a **bolt cutter**, **snip off** a finger.  
-  
+   
 --- Fourth week  
 It seems **daunting** because everybody executes a copy of code...  
 **Cypto faucet**  
 Why do we **fidget**?  
 Is there an earthquake or I'm just an obnoxious person?  
-  
+   
 Genius is right on the **brinks of insanity**  
 in favor, against, **abstention**  
-  
+   
 Each block is added to the chain in **chronological** order.  
 Italian playboy Gianluca Vacchi who **boasted** of his **luxury** life on his instagram has his yacht and homes **seized** by **bailiffs**... and the internet is **delight**.  
-  
+   
 --- Third Week  
 Snow says when her garage was **burglarized** the total loss was nearly $15,000. She **set up** an alert on Craigslist and got a hit 30 days later. She arranged for the police to meet the thief at a **pawnshop**.  
-  
+   
 **Thwart** Wi-Fi Thieves with Better Security.  
-  
+   
 block.one, a **Cayman** Islands **exempted** company  
    
 With more than 30 years experience in software engineering and 20 years experience in consulting, Mesnier is a **sought-after** industry expert in distributed computing, solution architecture, and technology strategy.  
