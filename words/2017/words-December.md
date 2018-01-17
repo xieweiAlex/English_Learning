@@ -1,5 +1,8 @@
---- Fifth week  
   
+   
+   
+--- Fifth week  
+   
 Sometimes I need a break from all those assholes **leering** at me.  
 He's such a **starfucker**.  
 So you're rested and **rejuvenated**?  
@@ -26,15 +29,15 @@ Now we need **collateral** to secure the bond.
 Have you had it **appraised**?  
 **Impressive**  
 Wow, you really hold a **grudge**.  
-  
-  
-  
+   
+   
+   
 **dick joke**  
 Socially **inept** person.  
 It's not a failure, it's just **pre success**. - I like that **reframing**.  
 Failure is an option, look at the **hyperloop**.  
 That's not a good way to start out a **pitch**.  
-  
+   
 You're not even **up** for **parole** for another two years.  
 You **got to** hide.  
 I had a mon only **around** when she didn't **have a needle in her arm**.  
