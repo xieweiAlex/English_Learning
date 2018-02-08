@@ -1,3 +1,4 @@
+
 Click on the coin to join our **Discord Chat**
 
 Germany has become one of Facebook's most important **hubs** for content **moderation**.  
