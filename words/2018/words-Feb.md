@@ -1,6 +1,34 @@
+Legends don't take bath, they use deodorant.  
+I want to cordially invite you to the All-Hands Meeting this Friday.
+
+A delicious salad with natural, **chili-lime** chicken breast, **romaine lettuce**, **cheddar cheese**, black beans, **corn**, **grape tomatoes**, **cilantro**, and **jicama**. Served with **tortilla strips**, **chipotle ranch dressing** and a lime **wedge** on the side.
+ 
+We know something is wrong from the **deviated route**. We don’t know what happened in the **cockpit**.  
+
+**Picasso** 
+
+The new **paramount leader**, Xi Jinping, will **spearhead** a **resurgence** of economic reform, and probably some **political easing** as well.  
+Mao’s body will be **hauled out** of Tiananmen Square **on his watch**.  
+But my **hunch** on this return to China.  
+Xi’s mother chooses to live in Shenzhen, the most **capitalist** **enclave** in the country.  
+Even government ministers complain that he **squandered** his 10 years as leader.  
+**Ferrari**
+Ling feared a scandal and reportedly began a **cover-up**.  
+He went to the **morgue**, according to the account I got from one Chinese official, and looked at the body — and then coldly denied that it was his son.  
+**mortuary**
+
+In 2016, Google DeepMind’s AlphaGo **thrashed** champion Lee Sedol at the ancient board game Go after **poring** over millions of positions from tens of thousands of human games.
+
+And of course, many practitioners hope to eventually build up to artificial general intelligence, an **ill-defined** but **captivating** goal in which a machine could think like a person, with the **versatility** to attack many different kinds of problems.  
+
+
+**Avocado**
 
 --- 2nd week
-the housing **bust** caused them to decline a bit, but then they resumed their steady rise from **nuts** to **crazy** to **batshit insane**.  
+There’s been one **hiccup** since it opened last year: Apple employees keep smacking into the glass.
+
+
+The housing **bust** caused them to decline a bit, but then they resumed their steady rise from **nuts** to **crazy** to **batshit insane**.  
 I've been through several cycles here and what I've observed is that it doesn't drop **uniformly**.  
 Presumably, people who were just slightly priced out of the inner core can now afford to move just a **smidge** closer, people who were in **exurbs** can move to **suburbs**, etc. And things find a new **equilibrium**.  
 The **lion’s share** of VC money spent in the US is spent here  
