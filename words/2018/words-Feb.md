@@ -1,5 +1,20 @@
-Legends don't take bath, they use deodorant.  
-I want to cordially invite you to the All-Hands Meeting this Friday.
+Jimmy Kimmel might be America's conscience but he'll still do anything for a laugh. 
+Hit the jackpot 
+
+Xi Jinping and the Perils of One-Person Rule in China.  
+I did this all in my little, trusty notebook, and I figured I would share this with the wider community to spur on some thought about the media we use in programming and the interaction we have with that media
+
+President cites Zhou Enlai's dedication to rejuvenation. 
+
+New ideas have to connect with what's already there, like pieces of jigsaw puzzle. 
+
+I hope reading this was illuminating for you!
+
+Dow drops 500 points on news of Trump's steel tariffs.  
+
+Legends don't take bath, they use **deodorant**.  
+
+I want to **cordially** invite you to the All-Hands Meeting this Friday.
 
 A delicious salad with natural, **chili-lime** chicken breast, **romaine lettuce**, **cheddar cheese**, black beans, **corn**, **grape tomatoes**, **cilantro**, and **jicama**. Served with **tortilla strips**, **chipotle ranch dressing** and a lime **wedge** on the side.
  
