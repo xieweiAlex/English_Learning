@@ -1,5 +1,4 @@
    
-## Open language  
 * 10 cool dady in tv series  
 	* Peerenting  
 		* Softie  

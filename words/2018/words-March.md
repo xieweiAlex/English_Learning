@@ -1,3 +1,32 @@
+distillation 
+get you down 
+snotty 
+
+column 
+fit the stereotype 
+straight-A student 
+destined 
+backstories 
+gravitate 
+savvy
+betting on you. 
+baby steps 
+subdue 
+machiavellian 
+
+
+
+PEANUT SHRIMP WITH NORI BROWN RICE
+All the classic flavors you crave. This salad comes with seared shrimp, chopped romaine, shredded napa cabbage, spiralized carrots and kohlrabi, julienne red bell peppers, sliced cucumbers, mint, a nori and sesame oil brown rice, and roasted peanuts on top. Comes with a peanut dressing. Served cold!
+
+Spicy fried shrimp rolled up in nori with seaweed salad, carrot, spring mix and spicy mayo served with ginger, wasabi & soy sauce on the side.
+
+
+acronym of GOF 
+
+Inversion of Control (Ioc)
+cohesion 
+
 Of course, they will **behead** you as a **deserter**.  
   
 Big tech platforms — Amazon, Facebook, Google — control a large and growing share of our **commerce** and communications, and the scope and degree of their **dominance** poses real **hazards**.  
