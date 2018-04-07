@@ -1,4 +1,128 @@
 
+Lunch today is a **pasta** bar (with a salad bar, too!). Dessert is **tiramisu**!  
+
+Snow **leopard cub** **pestering** his mom 🐆  
+
+Apple is **moving on from** Intel because Intel isn’t moving anywhere  
+Intel’s **stagnation**.  
+  
+It’s been a tough year for Facebook. The social networking **juggernaut** found itself **engulfed** by controversies over fake news, electoral interference, privacy violations, and a broad **backlash** to smartphone addiction.  
+Behind Facebook’s hard year is a **collision** between the company’s values, ambitions, business model, and **mind-boggling** scale.  
+A more open world can make it easier for governments to undermine each other’s elections from **afar**.  
+  
+As most of you are aware, the City has moved the homeless **encampment** from across the street.  
+  
+He was often **lunging** into meetings uninvited, claiming territory for himself at the conference table. Constantly **stoned**, with a huge **leonine** mane, Erlich was the comic distillation of Silicon Valley’s insulated **pomposity**.  
+  
+If the string contains **extraneous** characters, adjust it accordingly.  
+  
+By signing below, I declare under penalty of **perjury** that I am over 18 years of age and all above information is correct and I am the legal owner of this bicycle. 
+  
+buy **croissant**  
+  
+OL  
+------  
+have a horse in the race -> don't really care  
+reputable  
+proves  
+all the same  
+hard drugs  
+gateway drug  
+slippery slope  
+measure  
+the cat's already out of the bag -> out of control  
+de facto -> Actually  
+de jure -> law  
+the dominoes will fall -> dominoes effect  
+get with the program  
+taxation  
+lenient  
+meth  
+logical fallacy  
+sin tax  
+  
+  
+  
+  
+Not just for the threat, but fo that hackneyed mobster dialogue.  
+  
+That social norm is just something that has evolved over time  
+  
+OL  
+---  
+Up in arms  
+giveaway  
+flat tax  
+income bracket  
+regressive || progressive  
+shoulder more of the burden  
+on paper  
+get squeezed  
+Creative Accounting  
+Bean counters  
+loopholes  
+cook the books  
+tax evasion  
+Uncle Sam  
+incentive  
+taxing  
+and how  
+  
+crucifixion  
+sacred  
+Crunch the numbers  
+fudge the numbers  
+cut someone a check  
+  
+  
+Wait - a soup AND a salad for lunch, so classic, yet so revolutionary! Featuring Fra'mani **Rosemary** Ham and Diestel Turkey with **romaine**, tomato, egg, Point Reyes Blue Cheese & Whole Grain **Mustard** Vinaigrette. Soup: chicken stock, pureed tortilla chips, pureed tomato, infused epazote (Mexican basil), **shredded** chicken, corn, tomatoes. Don't forget - this is a two part meal!Salad has red pepper flakes.  
+   
+FedEx is the latest major logistics company to lock in an order for Tesla’s forthcoming Semi electric Class 8 trailer trucks  
+  
+Gimbap, kimbap  
+Why do my muscles feel **sore** after exercising?  
+**Calves aching** after exercise  
+delayed onset muscle soreness (DOMS)  
+  
+12cm **flaccid**~ 14cm erect...  
+  
+My father was a drinker, a **fiend**.  
+  
+For economy-class passengers, most of that time is spent squeezed into a narrow seat that doesn't fully **recline**.  
+  
+Mark Zuckerberg Has No Way Out of Facebook's **Quagmire**.  
+  
+The **adrenaline** of the **lens**, but I think when the camera is off, I'm really just a **middle-aged** Asian man.  
+Weird i was just watching **a bunch of** ken jeong videos  
+  
+most people have their Excel set up to read Shift JIS, and when you give them UTF8, they get **mojibake**.  
+You will also find Desknets and Garoon which are **homegrown** solutions for the usual calendar and other administrative operations.  
+They often have **comically** awful bugs, such as Garoon ...  
+though Japan has a **sizable** Slack following as well.  
+and a **tendency** to trust local brands  
+In Silicon Valley I’ve often seen people buy technical books that are **renowned** and **lining** their **shelves** with them to seem **well-educated**, which is also funny.  
+This is most likely a result of the Japanese university system, whereby your major and your future job often have little correlation.  
+Sooner or later you will reach a situation where your experience or opinion differs from that of a Japanese coworker, and more than a few will **invariably** fall back on the easiest and most **versatile** of **conversation-enders**: “ah, this must be a cultural difference.” （文化の違い）  
+  
+Wonder what the Uber driving system was thinking at this moment. We know that it didn't try to stop or **swerve**. The woman is visible at this point.  
+  
+They’re like **vultures** out there sometimes. When it’s like a 2-to-1 ratio, they’re definitely competing  
+I definitely feel that way. I don’t really notice it when I’m **walking around**, but when we are out at night I definitely feel like there’s a ton of guys trying to **hit on** us.  
+It's **shrunk** quite a bit.  
+You're a **douche bag**.  
+  
+**TONKOTSU** **TREPPER** RAMEN BOWL  
+**Bouncy** and **chewy** wheat ramen noodles, spinach leaves, bean sprouts, sliced chashu pork belly, sliced green onions, hard boiled **quail** eggs, sesame seeds, sliced **radish**, and a rich **tonkotsu** (pork-based) **broth**.  
+  
+**BOMBAY** CHICKEN AND **SPELT** BOWL  
+The addition of wholesome grains to this salad will fuel your the rest of your afternoon! This deconstructed curried chicken salad includes **red cabbage**, sliced chicken breast, shaved apples, yellow bell peppers, crumbled **feta**, and a **cilantro** **sprig** **garnish**. Comes with **arugula** and features rainbow carrots and spelt mixed with a meyer lemon olive oil dressing. Comes with a spicy curry **vinaigrette**. Served cold!  
+  
+And I felt I was stuck, I was **stagnant**.  
+  
+**Gaijin** Engineer in Tokyo  
+Please **refrain** from drawing an **excessive** amount of conclusions from an **anecdote**, but also do not dismiss it.  
+  
+  
 You took me for some **back-ally** **sally**.  
 Knowledge is my **trade**, my lady.  
 Did you bring the **dagger** **by any chance**?  
@@ -6,31 +130,31 @@ I bet on Ser Jame in the **jousting**.
 When the knight of Flower **unseated** him, I lost this dagger.  
 There's only so much I can **stomach** in a day.  
 And he let me **rot** at the wall all the same.  
-It's a luck thing none of them have trained by a **master-at-arms** like you Ser Rodrik
+It's a luck thing none of them have trained by a **master-at-arms** like you Ser Rodrik  
 The **mere** suggestion that the queen's brother tried to kill your boy would be considered **treason**.  
 Then what are you **raving** about?  
-I think we can **outfox** a 10-year-old
+I think we can **outfox** a 10-year-old  
 They can write a **ballad** of us: "The war for Cersei's **cunt**."  
 **Lance** through heart.  
-He came running at me, this **high-born** **lad**. 
+He came running at me, this **high-born** **lad**.  
 **Caved** in his **breastplate**.  
 His wife would make him miserable, his sons would be **ingrates**.  
-Who named you? Some **halfwit** with a **stutter**?   
+Who named you? Some **halfwit** with a **stutter**?  
 It must wound your pride, huh? Standing out there like a glorified **sentry**.  
 One of the **outlaws** in the **brotherhood**.  
 You were only a **squire**, 16 years old.  
 You killed Simon Toyne as a counter **riposte**.  
-Did he **plead** for a **reprieve**?   
+Did he **plead** for a **reprieve**?  
 Pay **tribute** or fight.  
 But something to think about while you're drinking your wine down there, enjoy your **brothels**.  
 Do you think I'm **plump**?  
 I don't believe that giants and **ghouls** and white walkers are **lurking** beyond the wall.  
 I travel a bit on the **grubby** side, my lord.  
-
-According to the 2015 American Community Survey, in this group there were roughly 134 men for every 100 women in San Jose. That's a big **disparity**!
-Kristine Kilanski is a sociologist at Stanford studying **boomtowns** with **distorted** gender ratios.
-Kilanski lived in an oil **boomtown** for her research.  
   
+According to the 2015 American Community Survey, in this group there were roughly 134 men for every 100 women in San Jose. That's a big **disparity**!  
+Kristine Kilanski is a sociologist at Stanford studying **boomtowns** with **distorted** gender ratios.  
+Kilanski lived in an oil **boomtown** for her research.  
+   
 A Couple of **tavern** **wenches** to warm our beds tonight.  
 My sister married the new king and my **repulsive** nephew will be king after him.  
 A mind needs books like a sword needs a **whetstone**.  
@@ -52,12 +176,12 @@ It's **primitive**, no better than the **hill tribes**.
 Experienced solders instead of a **mob** of **peasants** who've never held **pikes** in their lives.  
 The **hound** does whatever the prince tells him to do.  
 And who were you hoping to **skewer** with Needle?  
-  
+   
 An **occupational disease** is any chronic ailment that occurs as a result of work or occupational activity.  
-  
+   
 He wants to **contain** North Korea.  
 Our present is a **pathological** liar.  
-  
+   
 **Decriminalising** the selling of sex – so that only buyers are breaking the law.  
    
 Week2  
