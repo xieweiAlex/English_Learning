@@ -1,3 +1,7 @@
+they put their dream on hold.  
+The point is not to concede the interviewer said.
+
+Western Allies argued they were **essential** to **deter** the future use of **illegal munitions**.  
 
 **Endurance** (also related to **sufferance**, **resilience**, constitution, **fortitude**, and **hardiness**) is the ability of an **organism** to **exert** itself and remain active for a long period of time, as well as its ability to resist, **withstand**, recover from, and have **immunity** to trauma, wounds, or **fatigue**. It is usually used in **aerobic** or **anaerobic** exercise. The definition of 'long' varies according to the type of **exertion** – minutes for high intensity anaerobic exercise, hours or days for low intensity aerobic exercise. Training for endurance can have a negative impact on the ability to exert strength unless an individual also undertakes resistance training to **counteract** this effect.
 
@@ -125,5 +129,4 @@ Do the motorcycle riders a favor and put the orange **cone** in the space.
 Surgeon general issues rare advisory: more people should carry **opioid** **overdose** **antidote**.  
 Authorities are searching for a man who **burglarized** his parents home in San Jose on Wednesday, stole a **shotgun** and left behind a 20-page manifesto.  
 A family in San Jose said they came back home from vacation to find that their **estranged** son, Dustin Hamilton  
-   
    
