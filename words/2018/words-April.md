@@ -1,5 +1,55 @@
-they put their dream on hold.  
-The point is not to concede the interviewer said.
+
+
+Week3 
+-----
+**Tramping** through the trees in the rain, **day after day**.  
+Stannis has the personality of **lobster**.  
+You got to what to be done, but you don't **gloat** over it.  
+They don't have  **siege** weapons.  
+It's a **neat** little trick you do.  
+They go from town to town, **looting** and burning.  
+How long do the people of the Seven Kingdoms stand behind their **absentee** King.  
+I refused to ask out of **spite**.  
+You hear me? Send a **raven** and put an end to it.  
+When I was 10, I **stuffed** my uncle's boots with **goatshit**. When confronted with my crime, I **blamed** a **squire**, poor boy was **flogged**.  
+I milked my **eel** into a pot of turtle **stew**.  
+Once I brought a **jackass** and a **honeycomb** into a **brothel**.    
+These men, were they flying a **Sigil**? a banner? 
+Why should Ser Gregor turn **brigand**?  The man is an **anointed** knight.  
+A **bold** move, my lord. And admirable.  
+But is it wise to **yank** the **lion's tail**?  
+
+I fell in love with you watching Casablanca, back row of the drive in show in the **flickering** light 
+
+The new list should be made by **splicing** together the nodes of the first two lists  
+
+WTF!!! Just give him **paracetamol**.  
+
+Intel and Qualcomm have **the lion’s share** of the processor market, but some companies are trying to **whittle down** their dependency on those **institutions**.  
+
+You increase the chance that the person will hear about the thing from people in their immediate **vicinity**.  
+**Word of mouth**  
+Whois is dead as Europe hands DNS overlord ICANN its **arse**
+ICANN: Internet Corporation for Assigned Names and Numbers
+Can we still have a GDPR **moratorium**, asks US domain-name body
+The letter also has **harsh** words for ICANN's proposed **interim** solution, criticizing its **vagueness** and **noting** it needs to include **explicit** wording about what can be done with registrant data, as well as introduce **auditing** and **compliance** functions to make sure the data isn't being **abused**.
+So we need to **dig into** the **justifications** in terms of our **bylaws** and mission and **remit**.  
+It is very important for us to have a **moratorium** and be able to say to our contracted parties 'if you implement this model, you will be in full compliance'," he noted. "We need some kind of **relief**.  
+only taking the GDPR requirements seriously six months ago when there has been a clear two-year **lead time** 
+One company that is caught in the middle of the dispute is **sanguine** about the possible death of the service.  
+
+In a grand hotel **ballroom** on Tuesday, Huawei executives laid out a **soaring** vision for the future.  
+Last week, the company laid off five American employees, including William B. Plummer, the executive who was the face of its **Sisyphean** efforts to win over Washington.  
+Huawei has also been **dialing back** its political **outreach** in the United States, these people said — which could end a decade of mostly **fruitless** efforts to **dispel** Washington’s **accusations** that the company has ties to the Chinese government.
+Huawei’s troubles in the United States have been **mounting** since 2012, when a **congressional** report warned that its gear could be used to spy on Americans or to destabilize American telecom networks. The company spent $1.2 million on lobbying that year. Last year, it spent $60,000 on such efforts.
+
+I can guarantee that Russia has not **tampered** with the site.  
+
+Double layer **non-stick** **ceramic** **coating*  
+the soft touch **ergonomic** handle allows you to control the pan with comfort and **ease**.   
+
+they put their dream **on hold**.  
+The point is not to **concede** the interviewer said.
 
 Western Allies argued they were **essential** to **deter** the future use of **illegal munitions**.  
 
@@ -59,18 +109,6 @@ As a vim user, I protected by the **heresy** of Emacs death.
 There's paint and a **respirator** on her desk.  
 **respire**
 
-OL
----
-set out  
-beyond our wildest dreams 
-onto something  
-stripped away  
-photogenic  
-bare minimum  
-mundane 
-hazing  
-hassling 
-bratty
 
 My friends were all so jealous that I got to meet the prime Minister  
 One of the best parts about my job is that I get to work from home.  
