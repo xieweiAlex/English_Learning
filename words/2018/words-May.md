@@ -1,3 +1,58 @@
+
+I command the council to make all necessary arrangements for my **coronation**, I wish to be **crowned** within the **fortnight**.    
+Today I shall accept **oaths** of **fealty** from my loyal **councilors**.    
+To rule as **Regent** until the **heir** come of age.   
+Your son has no **claim** to the **throne**.  
+You **condemn** yourself with your own mouth, Lord Stark.  
+Why is it no one ever trusts the **eunuch**?  
+If that's true, then **slit** my throat and be done with it.  
+Bring me a **horn** of **ale**, Snow.  
+Lord Stark has been **charged** with **treason*.  
+They say he **conspired** with Robert's brothers.  
+When Lord Eddard began **plotting** to steal Joffrey's rightful throne.  
+A child born of a **traitor**'s seed is no fit **consort** for our king.  
+But if you're asking me to send men from the **Vale** to fight...   
+That's why you so **valiantly** took up arms to defend my honor.  
+I'm not your **toady** and I'm not your friend.  
+You think you can win us over with your **trinkets**?  
+The Lords of the Vale have always **spat upon** the hill tribes.  
+Lamb or lion, his wound must be washed and **sewn**, or it will **fester**.  
+I'm the man you want leading the **vanguard**.  
+Shagga Son of Dolf will cut off his **manhood**.  
+The rumors of your **demise** were **unfounded**.  
+Your brother would never have submitted to capture so **meekly**.  
+Jaime **smashed** the river lords at the Golden **Tooth**.  
+Though the boy does have a certain **belligerence**.  
+We shall require 3000 **helms** and shields plus **swords**, pikes.     
+The wolf rushes into the lion's **jaws**.  
+The **scouts** report Lord Tywin moves north.  
+At the **Trident**, he didn't appear unitl the battle was done.  
+The man who **profaned** his blade with blood of the King he had sworn to defend!  
+If you still have any **affection** for me in your heart, plese to me this **kindness**.  
+
+
+**shortcut**, **undercut** 
+A bullet with your name, a **ticking** time **grenade**.  
+His **lavish** lifestyle online profile as earned him **legions** of fans and **detractors** 
+She was a **Playboy Playmate**  
+**Butch and femme**  
+They said he **objectifies** women on a mainstream platform 
+You make women according to them: **props**.  
+What's your **interpretation**?  
+How did all those girls get to go there -> **promoter** 
+If a hot girl goes to a bar and she gets **hit on** ten times she can go home and sleep like a baby and not **hook up** with anybody. 
+He's been called a **misogynist**.  
+you are playing a game all the **umpires** like don't like you 
+**referee**
+
+Avoid 6.8.6 because its a **one-off** unity build. 
+
+Fossil is therefore a success story, **irregardless** of its **mind-share** relative to Git. That thousands of other developers also find Fossil useful on their own project is just gravy.  
+which I recognize that Git is **unlikely** to ever change.  
+
+Right now this market is essentially the **wild West** and ripe for **exploitation** 
+**Wiggle** sort.  
+**Modulo arithmetic**
   
 I **similarly** use tags to mark points in the commit tree to **revisit** later (for example) - across branches. In fact, branches are just **recurrent** tags in fossil, so one less concept.  
   
