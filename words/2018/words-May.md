@@ -1,38 +1,137 @@
-  
+The Annual Fund is truly the financial **lifeblood** of the University.  
+   
+GOT  
+-----  
+We went down into the **crypts** and my father was there.  
+That beast is supposed to be chained in the **kennels**.  
+Here, **shaggy** dog.  
+Thank you for your **rendition**.  
+I image it was even better received at that **tavern**.  
+You **slip out** of that **gown** and we'll see if I'm up to it.  
+I always thought you were a **stunted** fool.  
+You will serve as Hand of the King **as my stead**.  
+You will **bring** that boy King **to heel** and his mother too, if needed be.  
+And if you get so much as a **whiff** of treason from any of the rest: xx, xx, xx  
+I don't want you alone with this **sorceress**.  
+It angered the **Great Shepherd**  
+He's always been a **cunt**.  
+It's hard for them to **simper** and bow without heads.  
+When they **castrated** you, did they take the **pillar** with stones?  
+I picture a **gash** like a woman's.  
+Do you **lie awake** at night fearing my gash?  
+A **grasper** from a minor house with a major talent for **befriending** powerful men ..and women.  
+Watch yourself, **midget**.  
+Don't ask me to stand aside as you climb on that **pyre**.  
+Take off your **collars**. Go if you wish, no one will stop you.  
+   
+We recently **rolled out** support for protocol version 2 at Google and have seen a performance improvement of 3x for **no-op** fetches of a single branch on repositories containing 500k references.  
+   
+I can remember I got paired with an attractive **brunette** girl, short, 5′2, maybe 100 **lbs**, big **mousey** eyes, young, maybe 21 at most.  
+   
+The new way to make it in business is to spend big, grow fast and use **Kilimanjaro-size** piles of investor cash to **subsidize** your losses, with a plan to become profitable somewhere **down the road**.  
+Silicon Valley wrote the **playbook** for spending money in pursuit of growth, and the tech industry remains a **hotbed** of fast-growing yet unprofitable companies.  
+But it also reflects the **willingness** of shareholders and **deep-pocketed** private investors to keep fast-growing **upstarts** **afloat** long enough to conquer a potential “**winner-take-all**” market.  
+Ultimately, companies like MoviePass **illustrate** the **perilous** **tightrope** many growing businesses must walk.  
+Give too many **freebies** away, and you risk running out of cash before you’re big enough to **cash in**.  
+   
+Other devices like Nest Secure and Nest x Yale Locks behaved **erratically**.  
+While not **catastrophic** (locks still worked, for example), it’s a reminder just how **precarious** life can be with internet-connected devices.  
+   
+YARN stands for **Yet Another Resource Negotiator**, but it's commonly referred to by the **acronym** alone; the full name was **self-deprecating** humor on the part of its developers.  
+   
+This is almost certainly not an **exhaustive** list.  
+   
+One thing that sets the Arbor doorbell apart is the **inclusion** of an integrated chime inside the bundled Wi-Fi **extender**. That makes Arbor suitable for a household or family as everyone can hear the doorbell ring, not just those who have the app installed and their phone nearby.  
+   
+   
+   
+   
+I **relayed** your information to the team trained to handle this scenario.  
+Create a DB Record for PIN – **Bookkeeping**.  
+   
+**Scores of** Palestinaians were killed and hundreds more wounded.  
+Jecker Departure **Shenanigans**.  
+   
+**IMHO** we should **revamp** the secret menu on both iOS and Android .  
+**AFAIK** Luna never had that.  
+   
+Geir Arne is an **avid** Pythonista and a member of the Real Python tutorial team.  
+   
+Steve Jobs’ Secret for **Eliciting** Questions, **Overheard** at a San Francisco Cafe.  
+   
+   
+   
+   
+**Spiral Matrix**.  
+**rounding down**.  
+   
+I like to adventure into the **backcountry** when I have spare time.  
+Hot young **coed**.  
+   
+GOT  
+-----  
+She always comes back with **scrapes** and **bruises**. She's so **clumsy**.  
+**Bar** the doors.  
+My role is to be **sly**, **obsequious** and without **scruples**.  
+Can you free me from this **pit**?  
+He's grandfather's **bannerman**, we can't expect his support?  
+For 600 years they have never failed to **exact** their **toll**.  
+Oh, **spare me**.  
+Your mother would still be a **milkmaid** if I hadn't **squirted** you into her belly.  
+Your family has always **pissed on** me.  
+It's a man sword, it'll take a man to **wield** it.  
+What does he want **in return**?  
+You will be taking on his son Olyvar as your personal **squire**.  
+I was helpless, **blind**, frail.  
+They do seem rather **ferocious**.  
+Surely there are ways to have me killed, that would be less **detrimental** to the war effort.  
+Are you in **agony**, my lion?  
+I happen to be a great judge of **character**.  
+Try to **penetrate** the **enigma** that is me.  
+I took her to the nearest **inn** and **fed** her.  
+She was a **wheelwright**'s **orphan**.  
+Together we finished off three chicken and a **flagon** of wine.  
+If I die, **weep** for me.  
+   
+Pretty sure that's snarky parth.  
+Does Python have a **ternary conditional** operator?  
+   
 However, when you get into the **nitty-gritty** of their usability and feature sets, there are a few **noteworthy** differences.  
 LastPass passwords are stored on its remote servers, but they are **obfuscated** using 256-bit AES encryption.  
 Passwords are only encrypted and decrypted on the local machine, so there should be no way a man in the middle attack could **compromise** your login **credentials**.  
 1Password’s **Watchtower** feature is one that often **sets it apart from** the competition.  
-  
+   
 Winner: **Draw**  
-  
+   
 If you find that your access to any Zeplin projects is **wonky**, let me know.  
-  
+   
 You cast a **spell** on me, spell on me  
-  
-  
+   
+   
 The final answer should be in **lexicographic** order.  
-  
+   
 **Stay tuned**  
 Where's my **samurai**?  
-  
+   
 Get out here, that **pole** is falling.  
 **Durian**, **yuck** or **yum**?  
-  
+   
 Juicy pieces of roasted chicken **thigh** are **bathed** in a **sumptuous** butter **tikka masala** sauce. Goes perfectly with **basmati rice** that soaks up all the sauce. Roasted **jalapeno**, garlic **chutney** and warm naan complete the meal. Contains **cashews**.  
-  
+   
 Looks like someone used the hydra **schematics** print outs to soak up a **doggie** **mess** and left it there.  
 Oops, you've made a **malformed** request.  
-  
+   
 By having good **telemetry** and a good host monitoring solution for your machines you can collect the context necessary to answer these important questions.  
 It can be hard to find mature tools that **proactively** detect security **incidents**.  
 Kernel panics and obvious delays or other **lockups** are certainly not **acceptable**.  
-  
-  
+   
+   
 **Orecchiette** **pasta** mac, grilled chicken breast, **marinated** **artichokes**, roasted grape tomatoes, roasted red peppers, oregano, kale, **feta** cheese.  
-  
-Cervical vertebrae  
-  
+   
+**Cervical vertebrae**  
+   
+GOT  
+-----  
 I command the council to make all necessary arrangements for my **coronation**, I wish to be **crowned** within the **fortnight**.  
 Today I shall accept **oaths** of **fealty** from my loyal **councilors**.  
 To rule as **Regent** until the **heir** come of age.  
@@ -63,8 +162,8 @@ The **scouts** report Lord Tywin moves north.
 At the **Trident**, he didn't appear unitl the battle was done.  
 The man who **profaned** his blade with blood of the King he had sworn to defend!  
 If you still have any **affection** for me in your heart, plese to me this **kindness**.  
-  
-  
+   
+   
 **shortcut**, **undercut**  
 A bullet with your name, a **ticking** time **grenade**.  
 His **lavish** lifestyle online profile as earned him **legions** of fans and **detractors**  
@@ -78,12 +177,12 @@ If a hot girl goes to a bar and she gets **hit on** ten times she can go home an
 He's been called a **misogynist**.  
 you are playing a game all the **umpires** like don't like you  
 **referee**  
-  
+   
 Avoid 6.8.6 because its a **one-off** unity build.  
-  
+   
 Fossil is therefore a success story, **irregardless** of its **mind-share** relative to Git. That thousands of other developers also find Fossil useful on their own project is just gravy.  
 which I recognize that Git is **unlikely** to ever change.  
-  
+   
 Right now this market is essentially the **wild West** and ripe for **exploitation**  
 **Wiggle** sort.  
 **Modulo arithmetic**  
