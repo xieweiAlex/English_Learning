@@ -1,5 +1,40 @@
-
-## Week3 
+  
+OL Balancing work and life  
+-----  
+lend me a hand  
+overhaul  
+worse for wear  ?  
+holding up  
+hasn't been half-bad  
+on the go  
+side projects  
+run off my fee  
+something's got to give (You can't have it all)  
+take a step back  
+throw in the towel  
+cutthroat  
+20-somethings  
+eyeing  
+juggle  
+dropping the ball  
+by all means  
+go for it  
+I owe you one  
+worn out  
+drastically  
+covet  
+loosen up  
+  
+He look like he's been holding up ok but it's hard to tell  
+She's planning on overhauling her kitchen this summer  
+  
+A: Mind if I join you?  
+B: By all means!  
+He was by all the means the most outstanding **orator** I’d ever seen.  
+  
+  
+  
+## Week3  
 Selling in Wechat or Facebook  
 ----  
 **bombarding**  
@@ -23,7 +58,7 @@ The possibilities of driving in a winter storm was a little **off-putting**.
    
 He is so **persuasive** that I **got sucked into** helping him for free.  
 It's tough to stop playing video games once you **get sucked in**.  
-  
+   
 Annual checkup  
 -----  
 Give it to me straight  
@@ -37,7 +72,7 @@ cardiac health
 colon  
 dietary  
 High cholesterol  
-  
+   
 Mental health  
 -----  
 down  
@@ -65,9 +100,9 @@ I think they coped very well under the circumstances.
 She's coping admirably with a very difficult situation.  
 There is no longer stigma attached to being a single mother.  
 People suffering from a mental illness should not be stigmatized.  
-  
-  
-## Week 2 
+   
+   
+## Week 2  
 Gun Control II  
 --------  
 picking up stream  
@@ -99,8 +134,8 @@ Republicans **moved** to repeal Obamacare
 This part of the continent is under America's **sway**.  
 In order to stay in office, politicians must **sway** public opinion in their  
    
-
-Chinese medicine   
+  
+Chinese medicine  
 ---  
 prescriptivist  
 uphold  
