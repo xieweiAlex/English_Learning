@@ -1,13 +1,5 @@
 
 
 .DS_Store
-*.swp
-*/**/*.swp
-*/**/*.swm
-*/**/*.swn
-*/**/*.swo
-
-
-.words-July.md.swm
-.words-July.md.swn
+*/**/*.sw*
 
