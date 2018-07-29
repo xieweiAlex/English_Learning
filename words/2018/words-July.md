@@ -1,8 +1,119 @@
+What follows is a slightly contrived example commit-msg hook, which will ensure that every commit message references a ticket number like “#123“.
+
+
+
+GOT SII E10 and E11
+------
+These are your new **chambers**.  
+A little **cramped**, perhaps, but you don't need much room do you?  
+I'd like to hear the **wishes** of my people.  
+I don't **abuse** them to satisfy royal **whims**.  
+To create **strife** between my sister and me.  
+Would it be **excessive** for me to ask you to save my life twice in a week?  
+To be a dancing master is a special thing,  but to be a **faceless** man, that's something else entirely.  
+Dragon **screechings** continue  
+They said you'd lost your nose, but it's not as **gruesome** as all that.  
+Because you've **slandered** me to Father before.  
+Under my **patronage** you've become a knight, you've served as Commander of the City Watch.  
+You spent your days as always has, bedding **harlots** and drinking with thieves.  
+I led the **foray** when thee enemies were at the gate while your grandson, the king, **quivered** in fear behind the walls.  
+As my reward, I was **trundled** off to some dark little cell.  
+And I would let myself be consumed by **maggots** before **mocking** the family name and making you **heir** to Casterly Rock.  
+You are an **ill-made** **spiteful** little creature, full of envy, **lust**, and low **cunning** 
+
+And yet, it’s not clear that the Bay Area—historically famous for its **liberalism**, and now **infamous** for its **madcap** **capitalism**—is prepared to handle this **escalation** and these new **tactics**
+Tech firms, especially start-ups, lack incentives to report potential **espionage** to U.S official.  
+
+**Linkbait** title alert.  (**clickbait**)
+
+You can't compete with free. Free food is a wonderful **amenity** but doesn't do anything to **extend** the community around it.  
+**Overarching** strategy.  
+2017 **attrition** index by gender, global
+Other companies, such as Apple Inc. and Facebook Inc., some of the most cash-rich public companies, also rely on a steady **influx** of contractors.  
+They don’t necessarily get the benefits that many of us think about when working at a big, **glitzy** tech company.  
+They feel **isolated**, **precarious** and like **second-class citizens**.  
+It’s a **microcosm** of what’s happening in the economy **as a whole**.  
+TVCs aren’t trusted with tasks outside their **limited purview**.  
+People **look down** on you even though you're doing the same work.  
+
+
+
+The UNIX operating system **crystallizes** a couple of **unifying** ideas and concepts that shaped its design, user interface, culture and evolution.  
+**Crystallization** is the (natural or artificial) process where a solid forms where the **atoms** or **molecules** are highly organized in a structure known as a crystal. Some of the ways which crystals form are through precipitating from a solution, melt or more rarely deposited directly from a gas.  
+Floppy disk.  
+**Hone** your tone of voice. 
+
+
+I’m not calling a top to the market, or a crash, but rather giving my founders  a blueprint of how to survive and thrive in a down market.
+Paradoxically, there is a MASSIVE opportunity to build in a down market.  
+As I've told many of you over the years: "fortunes are built in the down market, and collected in the up market."
+Stocks sell off, a series of head fakes occur around recovery, selling continues until a bottoming out.   
+
+Venture Capitalists decide not to make capital calls to their Limited Partners, sometimes as a courtesy, other times the result of a directive.  
+Capital call
+A capital call (also known as a draw down or a capital commitment) is a legal right of an investment firm or an insurance firm to demand a portion of the money promised to it by an investor
+Costs to acquire customers (ads), talented employees and M&A all plummet.  — allowing the strong and well-funded to become unstoppable 
+M&A: Mergers and acquisitions 
+If you take the advice outlined below, you will be able not only to survive a crash, but even to take market share through it.  
+ROI: return on investment
+If you’ve gotten this far, what I am imploring you to do is “top off” your funding.  
+In that case, well, we will all be fabulously wealthy and we can all consider this a monotonous, while virtuous, fire drill.  
+And, in that case, you will still be glad you built your company on the premise that not a single dollar of future capital is a sure thing.
+
+It was amazing advice for startups in their community, which became relentlessly focused on delighting customers and finding repeatable, high-margin, business models.  
+
+Learning these won’t take a lot of effort, and the **payback** will be huge
+
+Don't forget to set arena mode.  
+
+I knew and accepted the risks of working for the primary university in China run by the Communist Party in China as a self **professed** libertarian.  
+Nine years later, our family is glad we came and **bittersweet** to be leaving.  
+I want to make perfectly clear that any complaints I wrote about in any **forum** are reflective only of my concerns about the **illiberal**, **authoritarian** communist government of China and not the Chinese people.  
+Living in China is not without **quirks** both **maddening** and amusing.  
+In many parts of China and even new immigrants to Shenzhen, there is no social **prohibition** on openly **gawking** at foreigners while pointing and talking about them.  
+This is both **exhilarating**, exciting, frustrating, amusing and **tiring**.  
+An **exhilarating** drink
+
+**Illiberal democracy**
+An illiberal democracy, also called a partial democracy, low intensity democracy, empty democracy, or hybrid regime, is a governing system in which, although elections take place, citizens are **cut off** from knowledge about the activities of those who exercise real power because of the lack of **civil liberties**. It is not an "**open society**". There are many countries "that are categorized as neither 'free' nor 'not free', but as 'probably free', falling somewhere between democratic and nondemocratic regimes". This may be because a constitution limiting government powers exists, but its liberties are ignored, or because an adequate legal constitutional framework of liberties does not exist.
+
+**Retaining wall** 
+**bearing wall**(main wall)
+yeah, you can **excavate** that hole again.  
+I'll be the soul of **discretion**. (I will be very careful)    
+
+Profits were not what **rattled** investors, though.  
+Our total revenue-growth rates will continue to **decelerate** in the second half of 2018, and we expect our revenue-growth rates to decline by **high-single-digit** percentages from prior quarters sequentially in both Q3 and Q4.  
+The unnamed data operator will reportedly not be disciplined because the infractions weren't documented properly.  
+The dozing amounted to 2,200 hours of work time between February 2014 and December 2017, and cost the state of California at least $40,000.
+It's possible the employee's naps also contributed to the increasingly harrowing wait times at California's DMV.  
+**Intangible** asset.  
+**Accountability** 
+In ethics and governance, accountability is answerability, blameworthiness, liability, and the expectation of account-giving. As an aspect of governance, it has been central to discussions related to problems in the public sector, nonprofit and private (corporate) and individual contexts. In leadership roles, accountability is the acknowledgment and assumption of responsibility for actions, products, decisions, and policies including the administration, governance, and implementation within the scope of the role or employment position and encompassing the obligation to report, explain and be answerable for resulting consequences.
+
+In early November 2017, the **HSBC** Business School informed me they would not **renew** my contract.  In March 2018 they informed me they wished to **sever** all **ties** by April 1, 2018
+
+**Self-made** man 
+
+A new ebook edition of Practical Vim is **out**, updated for Vim 8 and **fixed errata**. 
+An **erratum** or **corrigendum** (plurals: errata, corrigenda) (comes from Latin: errata corrige) is a correction of a published text. An erratum is most commonly issued shortly after its original text is published. Patches to security issues in a computer program are also sometimes called errata. As a general rule, publishers issue an erratum for a production error (i.e., an error introduced during the publishing process) and a corrigendum for an author's error.
+
+Is this considered to be **material**, **non public information**?  
+Do you agree and **assent** to the fact that they read and understood material ... will not **disperse** such information during the **consultation**.  
+
+**nebulous** project budgets.  
+**feudal** mgt, no practical support/incentive for cross functional engagements.  
+Competitive and **cannibalistic** middle management  
+Teams can feel **siloed**.  
+
+
+what tool do you use for those nifty code coverage reports.  
+
 I propose that there is one problem chief among them, an impetus for bad software from which almost all of the others take root: imaginary problems.
 Half the links to your merchandise on Zazzle are broken or lack an image and the Facebook live stream is laggy.  
 The dev team heard about some exciting challenges they could work on…. and a slew of boring, basic features they couldn’t be bothered to test properly or care about.  
 Chinese whispers driven design
-
+Though more often than not, requirements get changed because someone either misunderstood something or because someone was using the aforementioned coping mechanism to make his job or the job of his team more interesting and impressive.  
 
 
 Poison pill 
