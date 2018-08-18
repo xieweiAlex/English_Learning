@@ -240,7 +240,7 @@ She was a **wheelwright**'s **orphan**.
 Together we finished off three chicken and a **flagon** of wine.  
 If I die, **weep** for me.  
    
-Pretty sure that's snarky parth.  
+Pretty sure that's **snarky** Parth.  
 Does Python have a **ternary conditional** operator?  
    
 However, when you get into the **nitty-gritty** of their usability and feature sets, there are a few **noteworthy** differences.  
