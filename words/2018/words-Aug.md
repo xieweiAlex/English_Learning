@@ -1,9 +1,222 @@
+CNN is working **frantically** to find their “source.  
+I’m a **millennial**. This will hopefully lend some context to what I’m about to show you, because you **tacitly** understand that I’m basically required by law to get on Snapchat and to **overuse** emoji, stickers, and gifs (which, by the way, are literally everything).  
+I know this because the feeling was not **dissimilar** from a favorite band dropping their long-awaited new album.  
+Even **laypeople** enjoy the added efficiency and **ease**.  
+Focus is a **precious** resource, and the current emoji implementation is, if only a little, **exhausting** it.  
   
+This is a **valid** request.  
+The **rubble** has not yet been cleared.  
+  
+**Rolls Royce**, Bentley  
+**ADHD**: Attention **deficit** hyperactivity disorder  
+  
+Let me **paraphrase** it, Uber driver just do his job.  
+Here's a message for the **hotheads** of the community.  
+**Graveyard** dead, leave people alone.  
+  
+You just **burped** into my mouth.  
+**frat**  
+**fraternity**  
+  
+Meet **crusty** (**grumpy**)  
+You can see that ViewController is very small and lot of the code in it is **self explanatory**  
+  
+Nearly all of Go’s **distinctive** design decisions were **aimed** at making software engineering simpler and easier. We've said this often. The **canonical** reference is Rob Pike's 2012 article.  
+  
+**Spurious** auto unlock  
+The operating system you have developed for years has been **deprecated**.  
+If you are early, it's **loitering**, for our safety black people show up late.  
+  
+  
+OL Writing Style in 21st century  
+---  
+prescription  
+uphold  
+**flout**  
+**dumb down**  
+hasten  
+degrade  
+descriptivists  
+secret handshake  
+ruling class  
+calculus  
+**tacit**  
+organically  
+haste make waste  
+upper **echelons**  
+trigonometry  
+fodder  
+  
+**Tacit knowledge** (as opposed to formal, **codified** or explicit knowledge) is the kind of knowledge that is difficult to transfer to another person by means of writing it down or verbalizing it. For example, that London is in the United Kingdom is a piece of explicit knowledge that can be written down, transmitted, and understood by a recipient. However, the ability to speak a language, **knead dough**, play a musical instrument, or design and use complex equipment requires all sorts of knowledge that is not always known explicitly, even by expert **practitioners**, and which is difficult or impossible to explicitly transfer to other users.  
+  
+As Director of Product at App Academy, my role was an **amalgam** of various responsibilities.  
+But **predominantly**, my time was getting **monopolized** by business and operational tasks.  
+The engineering and computer science topics that really interested me were largely **orthogonal** to App Academy’s **bottom line**.  
+This project took quite a while to **get off the ground**, but the process was very satisfying.  
+It sounds **outlandish**, I know.  
+My resume was a **hodgepodge**, no doubt  
+Maybe my resume was automatically getting **binned** everywhere it landed  
+  
+  
+**gotta** go do something.  
+<<small fry>> from Lisa  
+  
+But in the end if I'm with you, I will **take the change**  
+But what we need the most is a **dud**.  
+The Trump admission gonna **sidestep** the **backlash**  
+Those **pundits** are absolutely right.  
+**Down syndrome**.  
+Strip club **glitter**.  
+Let's give him **props**.  
+We would separate children as a punishment as as a **deterrent** so people won't come, this is just **egregious**.  
+  
+**On hold**  
+**on the hook**  
+**off the hook**  
+  
+  
+## OL To be CEO II  
+----  
+deftly  
+paradoxes  
+humility  
+ambiguity  
+anarchy (disorder)  
+dragging down  
+stretch the truth  
+own up to  
+give credit  
+credit is due  
+imperative  
+close cousin  
+in tandem  
+**machismo**  
+debbie downer  
+pensive  
+white lie  
+  
+  
+CNN is **kicking ass**.  
+Down to flirt  
+  
+**Fourth Estate**.  
+**ku klux klan**  
+  
+OL Factfulness II  
+---  
+lifelong mission  
+devastating  
+paradox  
+dramatic  
+dichotomize (binary)  
+villains  
+misremembering  
+heartless  
+optimist  
+overdramatic  
+contradictory  
+archetypal  
+bicentennial  
+selective hearing  
+epistemology  
+  
+  
+Trump didn’t win because he had a groundswell of support.  
+Another possibility is that the turnout was lower and a bunch of voters stayed home.  
+  
+  
+Gunman was just in **rampage** mode inside pizza restaurant  
+  
+A little bacon to make your day better. **Savory** bacon and fresh shaved **brussels** and **arugula** are perfect complements to each other. Served with shave **Parmesan Cheese** and an unique lemon-sumac **vinaigrette**, which features roasted garlic, **Dijon**, and **sumac**. Grilled chicken breast and **almonds** round out the dish.  
+  
+Smoked and pulled pork shoulder tossed with our honey mustard BBQ sauce. Served with smoked cheddar grits with cheddar cheese on top and a slice of homemade cornbread.  
+  
+  
+Did you go to **culinary** school?  
+Everyone is watching at Turkey. Is it a **coup** or it's not?  
+  
+The fourth-largest U.S. bank has given 60 days notice to 638 **mortgage** employees across the country.  
+   
+GOT III E4  
+---  
+What happens when the nonexistent **bumps** against the **decrepit**?  
+I know the walls have ears but apparently the **shrubbery** does, too.  
+Y**ou must **despise** him, you're working so hard to **undermine** him.  
+A week after that, she came down with **porridge** **plague**.  
+There's **sawdust** in the bread.  
+So you admit you've got a hidden **larder**, then?  
+I'm a godly man - You're a **stingy** bastard.  
+**blackstrap** **rum**  
+Not easy finding **molasses** in wartime.  
+You look like a bunch of **swineherds**.  
+You **slung** him over your horse like he was some deer.  
+Cities **ripe** for sacking.  
+Should you keep **captives**? The masters will buy the healthy ones for good price.  
+You hold the **whip**.  
+   
+**hypocrite**.  
+I just discovered by **coincidence** a setting in Vim that solves an issue that made me **furious**.  
+   
+**Grumbling** about app store economics isn’t new. But the number of complaints, combined with new ways of reaching users, regulatory scrutiny and competitive pressure are threatening to undermine what have become digital goldmines for Apple and Google  
+They’re very aggressive about making sure companies aren’t trying to work around their billing.  
+That may compel more app makers to circumvent Google, luring in customers through the web or through partnerships with other companies.  
+Complaints about app store taxes became louder in 2015 as Apple and Google waded deeper into the digital content business, making them rivals not just digital distribution partners.  
+**Waded** into the task  
+a thick **wad** of **notes** (bank note)  
+   
+We will be having American BBQ-- smoked chicken wings, **pulled pork**, **corn on the cob**, buttermilk biscuits, potato salad, watermelon, **coleslaw** and a **trio** of BBQ sauces.  
+   
+For over two years, a group of Japanese high school students has been **painstakingly** producing a five-minute virtual reality experience that recreates the sights and sounds of Hiroshima before, during, and after the United States dropped an atomic bomb on the city 73 years ago on Aug. 6, 1945.  
+Sometimes they start to **reminisce** about their memories from that time, and it really makes me glad that we created this.  
+   
+OL Factfulness  
+----  
+outguess  
+laureates  
+unconscious  
+**factfulness**  
+holdover  
+subtext  
+poetic license  
+duality  
+   
+   
+OL Couple fighting  
+----  
+Cut me some slack  
+spare me  
+here we go again  
+pick a fight  
+got a lot on my plate  
+brush off  (ignore)  
+you share  
+chores (Housekeeping)  
+work on  
+ease up  
+persuasive  
+make up ()  
+   
+Here’s the story of why I left App Academy, the **tribulations** of my ensuing job search, and why I decided to join Airbnb.  
+   
+   
+**Unequivocally**, Google was the toughest and most nerve-wracking interview I’ve ever done.  
+Google! I was on cloud nine.  
+I was ready for everything to wrap up as I figured out which bus I would be taking to San Bruno, planned out my morning workout regimen, and all the rest.  
+The consensus was overwhelming.  
+   
+The appointment of **ombudspeople**, and an ethical assessment of Google projects including **Dragonfly** and Maven, Google’s contract with the **Pentagon** to build AI-assisted drone technology.  
+(An **ombudsman** or public advocate is usually appointed by the government or by parliament, but with a significant degree of independence, who is charged with representing the interests of the public by investigating and addressing complaints of maladministration or a violation of right)  
+   
+China has sharply expanded an **internment** program that initially targeted ethnic **Uighur** extremist but is now **confining** vast numbers of the largely Muslim minority group, including the **secular** old and **infirm**, in camps across the country's northwest.  
+   
+**internment**  
+Internment is the **imprisonment** or confinement of people, commonly in large groups, without trial. Collins English dictionary adds that the term is especially used for the confinement "of enemy citizens in wartime or of terrorism suspects". Thus, while it can simply mean imprisonment, it tends to refer to **preventive confinement**, rather than confinement after having been convicted of some crime. Use of these terms is subject to debate and political sensitivities.  
+   
 OL What your resume should look like  
 -----  
 hyperlinking  
 ditch  
-forgo  
+**forgo**  
 weave  
 beneficial  
 incorporate  
@@ -11,10 +224,10 @@ quantify
 headhunter  
 CV  
 up to par (meet requirement)  
-  
-  
-  
-  
+   
+   
+   
+   
 This **misguided** hiring strategy can also contribute to a company’s lack of diversity, since very often the people we enjoy hanging out with have backgrounds much like our own.  
 he was a pretty **buttoned up** guy.  
 I did wonder how he’d fit in with the **high-powered** team he was joining; I hoped it wouldn't burn him out.  
@@ -48,8 +261,8 @@ Well, is this new person going to be able to move us faster, maybe even twice as
 This focus on the **value-add** of an individual star is especially important when a company is **scaling up**.  
 Then I asked the question I’ve found to be the most **thought-provoking** in these consultations: “Instead of 150 new people, are you sure you don’t want 75 people whom you pay twice as much because they have twice as much experience and can be higher performers?"  
 I’ve found that if you focus **intently** on hiring the best people you can find and pay them top dollar, chances are your business growth will more than **make up** for what you spend on compensation.  
-  
-  
+   
+   
 OL Conference call  
 ---  
 * lagging  
@@ -71,15 +284,15 @@ enticing
 tempting (appealing)  
 aim  
 **lingo**/jargon  
-  
+   
 Which **segment** of the show did you enjoy the most?  
-  
-  
+   
+   
 It isn't always the most **accommodating** culture  
-  
+   
 **Stewardess**  
 **Wacky** omarosa  
-  
+   
 To fix **dangling** pointers, you would have to fix lifetime issues.  
 **Opting** for safety sometimes means Swift will feel strict, but we believe that clarity saves time **in the long run**.  
 That’s also one of the problems that makes it so that Objective-C and C are so **intertwined** that you can’t actually **take** the C part **out of** Objective-C without producing a different language.  
@@ -90,19 +303,19 @@ Swift 3 really is quite **well baked** out, and I expect that going forward the 
 It also might alert you to edge cases **early on**. However, the **flip side** is it **inhibits** your creativity while writing.  
 Swift, in its name, kind of **connotes** a whole bunch of different things including performance.  
 A connotation is a commonly understood cultural or emotional association that some word or phrase carries, in addition to the word's or phrase's explicit or literal meaning, which is its denotation.  
-  
+   
 Ever tried to switch code from objects back to structs, or **vice versa**.  
 Swift just ended up being **a jack of all trades**, **master of none**.  
 And I have to say this is the most effort I've ever done to **win over** one Swift programmer.  
 I’m not sure if this is a **scalable** approach.  
-  
+   
 This fixes that **regression**. A test has been added to ensure this does not **regress** again.  
-  
+   
 You're **hellish** stubborn.  
 **People person**  
 Genius is one percent inspiration and 99 percent **perspiration**.  
 Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  
-  
+   
    
 ## Week 2  
 GOT III E3  
@@ -113,38 +326,37 @@ We took a fight to him, he couldn't **withstand** us.
 **Far be it from me** to **hinder** true love.  
 You think you're good with that **bow**, you little **twat**?  
 (Twat is a slang word for the human **vulva**, also used as a **derogatory** **epithet** for a foolish person.)  
-  
+   
 I'd have **turned** you all **away** if I wasn't a godly man.  
 **If only** the **Master of Coin** had such power.  
 For years I've heard the little finger is a **magician**.  
-We are going to talk details, copious details.  
-sapphires are gemstones.  
-Lord Selwyn would pay his gaughter's weight in saphhires if she's returned to him. But only if she's alive, her honor unbesmirched.  
-unbesmirched - Not defiled.  
-I hated to read as a child.  
-Two hours every day holed up in the maester's chambers.  
-I'm famished, actually.  
-We've got a spare partridge on the fire.  
-On this stump.  
-You think you're the smartest man there, that everyone alive has to bow and scrape and lick your boots.  
-A certain man made my master an offer too tempting to refuse.  
-He gave me a potion that made me powerless to move or speak yet did noting to dull my senses with a hooked blade he sliced me, root and stem, chanting all the while.  
-He burned my parts in a brazier.  
-I still dream of that night, not of the sorcerer, not of his blade.  
-Influence grows like a week, I tended mine patiently.  
-I dont' want your stupid thimble.  
-prodigies appear in the oddest of places.  
-You can read, rare for a woman in your profession.  
-He's bringing two featherbeds for the cabin.  
-Over there, that urn, the ashes of Aerion Targaryen.  
-All you sure Lady Margaery doesn't fin all this a bit macabre?  
-If you give them your love, they will give back a thousandfold.  
-sapphire isle the water is blue  
-And if I would start a war for that lecherous little stump, what do you think I'm doing for my oldest son adn heir?  
+We are going to talk details, **copious** details.  
+**sapphires** are **gemstones**.  
+Lord Selwyn would pay his gaughter's weight in saphhires if she's returned to him. But **only if** she's alive, her honor **unbesmirched**.  
+**unbesmirched** - Not **defiled**.  
+I hated to read **as** a child.  
+Two hours every day **holed up** in the maester's chambers.  
+I'm **famished**, actually.  
+We've got a spare **partridge** on the fire.  
+On this **stump**.  
+You think you're the smartest man there, that everyone alive has to **bow** and **scrape** and lick your boots.  
+A certain man made my master an offer too **tempting** to refuse.  
+He gave me a **potion** that made me powerless to move or speak yet did noting to **dull** my senses with a hooked blade he **sliced** me, root and **stem**, **chanting** all the while.  
+He burned my parts in a **brazier**.  
+I still dream of that night, not of the **sorcerer**, not of his blade.  
+**Influence** grows like a week, I **tended** mine patiently.  
+I dont' want your stupid **thimble**.  
+**prodigies** appear in the oddest of places.  
+You can read, **rare** for a woman in your **profession**.  
+He's bringing two **featherbeds** for the **cabin**.  
+Over there, that **urn**, the **ashes** of Aerion Targaryen.  
+All you sure Lady Margaery doesn't find all this a bit **macabre**?  
+If you give them your love, they will give back a **thousandfold**.  
+**sapphire** **isle** the water is blue  
+And if I would start a war for that **lecherous** little **stump**, what do you think I'm doing for my oldest son and heir?  
 Bu you've come **mincing** all this way for something.  
    
-  
-  
+   
 **Sleuthing** the Blockchain.  
 There are some **subtleties** when using partial mocks. See partial mocks below.  
    
