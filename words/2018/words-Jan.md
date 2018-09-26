@@ -1,3 +1,14 @@
+She appeared in **Cannes** in May to promote a coming spy blockbuster with Jessica Chastain, Marion Cotillard, Penélope Cruz and Lupita Nyong’o.  
+Ms. Fan, who turns 37 on Sunday, has dropped out of public view for more than three months — the victim of a sudden and precipitous fall from grace.
+That so little is known about someone so famous in China — even whether she is in detention, or in hiding — says much about the murky intersection of politics and business, entertainment and celebrity.
+“She’s like collateral damage,” Hung Huang, a critic and publisher, said.
+(collateral relatives
+collateral security
+collateral agent )
+The name in Chinese is “Da Hong Zha,” which, inauspiciously for any movie, can mean “The Big Bomb
+
+
+
 
 Click on the coin to join our **Discord Chat**
 

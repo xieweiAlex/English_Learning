@@ -121,15 +121,15 @@ selective hearing
 epistemology  
   
   
-Trump didn’t win because he had a groundswell of support.  
-Another possibility is that the turnout was lower and a bunch of voters stayed home.  
+Trump didn't win because he had a **groundswell** of support.  
+Another possibility is that the **turnout** was lower and a bunch of voters stayed home.  
   
   
 Gunman was just in **rampage** mode inside pizza restaurant  
   
 A little bacon to make your day better. **Savory** bacon and fresh shaved **brussels** and **arugula** are perfect complements to each other. Served with shave **Parmesan Cheese** and an unique lemon-sumac **vinaigrette**, which features roasted garlic, **Dijon**, and **sumac**. Grilled chicken breast and **almonds** round out the dish.  
   
-Smoked and pulled pork shoulder tossed with our honey mustard BBQ sauce. Served with smoked cheddar grits with cheddar cheese on top and a slice of homemade cornbread.  
+Smoked and pulled pork shoulder **tossed** with our honey mustard BBQ sauce. Served with smoked **cheddar grits** with cheddar cheese on top and a slice of homemade **cornbread**.  
   
   
 Did you go to **culinary** school?  

@@ -284,6 +284,7 @@ You should pay a visit to my **brothel** this evening.
 I think you're **mistaking** business with pleasure.  
 We **accommodate** all **inclinations**.  
 I'm a **purveyor** of beauty and **discretion**.  
+
 Is it true that Ser Marlon of Tumblestone prefers **amputees**?  
 And I heard the most **awful** rumor about a certain lord with a taste of fresh **cadaver**.  
 **Strictly speaking**, such a thing would not be **in accordance with** the King's laws.  
