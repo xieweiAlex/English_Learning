@@ -307,6 +307,7 @@ The man I grew up with didn't **tremble** at the shadow of an **unborn** child.
    
    
 Yeah, you would be an ideal Apple employee for about few weeks @Andy, until others in the "**congregation**" learn about your lack of faith  
+
    
 **death toll**  
 **confidant**  

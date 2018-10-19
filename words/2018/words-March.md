@@ -12,7 +12,7 @@ A more open world can make it easier for governments to undermine each other’s
    
 As most of you are aware, the City has moved the homeless **encampment** from across the street.  
    
-He was often **lunging** into meetings uninvited, claiming territory for himself at the conference table. Constantly **stoned**, with a huge **leonine** mane, Erlich was the comic distillation of Silicon Valley’s insulated **pomposity**.  
+He was often **lunging** into meetings uninvited, claiming territory for himself at the conference table. Constantly **stoned**, with a huge **leonine** **mane**, Erlich was the comic distillation of Silicon Valley’s insulated **pomposity**.  
    
 If the string contains **extraneous** characters, adjust it accordingly.  
    
@@ -21,12 +21,9 @@ By signing below, I declare under penalty of **perjury** that I am over 18 years
 buy **croissant**  
   
    
+Not just for the threat, but for that **hackneyed** **mobster** dialogue.  
    
-   
-   
-Not just for the threat, but fo that hackneyed mobster dialogue.  
-   
-That social norm is just something that has evolved over time  
+That **social norm** is just something that has evolved over time  
   
    
 Wait - a soup AND a salad for lunch, so classic, yet so revolutionary! Featuring Fra'mani **Rosemary** Ham and Diestel Turkey with **romaine**, tomato, egg, Point Reyes Blue Cheese & Whole Grain **Mustard** Vinaigrette. Soup: chicken stock, pureed tortilla chips, pureed tomato, infused epazote (Mexican basil), **shredded** chicken, corn, tomatoes. Don't forget - this is a two part meal!Salad has red pepper flakes.  

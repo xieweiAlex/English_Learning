@@ -215,7 +215,7 @@ Steve Jobs’ Secret for **Eliciting** Questions, **Overheard** at a San Francis
 I like to adventure into the **backcountry** when I have spare time.  
 Hot young **coed**.  
    
-GOT  
+GOT I  
 -----  
 She always comes back with **scrapes** and **bruises**. She's so **clumsy**.  
 **Bar** the doors.  

@@ -137,22 +137,6 @@ Everyone is watching at Turkey. Is it a **coup** or it's not?
   
 The fourth-largest U.S. bank has given 60 days notice to 638 **mortgage** employees across the country.  
    
-GOT III E4  
----  
-What happens when the nonexistent **bumps** against the **decrepit**?  
-I know the walls have ears but apparently the **shrubbery** does, too.  
-Y**ou must **despise** him, you're working so hard to **undermine** him.  
-A week after that, she came down with **porridge** **plague**.  
-There's **sawdust** in the bread.  
-So you admit you've got a hidden **larder**, then?  
-I'm a godly man - You're a **stingy** bastard.  
-**blackstrap** **rum**  
-Not easy finding **molasses** in wartime.  
-You look like a bunch of **swineherds**.  
-You **slung** him over your horse like he was some deer.  
-Cities **ripe** for sacking.  
-Should you keep **captives**? The masters will buy the healthy ones for good price.  
-You hold the **whip**.  
    
 **hypocrite**.  
 I just discovered by **coincidence** a setting in Vim that solves an issue that made me **furious**.  
@@ -200,9 +184,9 @@ Here’s the story of why I left App Academy, the **tribulations** of my ensuing
    
    
 **Unequivocally**, Google was the toughest and most nerve-wracking interview I’ve ever done.  
-Google! I was on cloud nine.  
-I was ready for everything to wrap up as I figured out which bus I would be taking to San Bruno, planned out my morning workout regimen, and all the rest.  
-The consensus was overwhelming.  
+Google! I was on **cloud nine**.  
+I was ready for everything to wrap up as I figured out which bus I would be taking to San Bruno, planned out my morning workout **regimen**, and all the rest.  
+The **consensus** was overwhelming.  
    
 The appointment of **ombudspeople**, and an ethical assessment of Google projects including **Dragonfly** and Maven, Google’s contract with the **Pentagon** to build AI-assisted drone technology.  
 (An **ombudsman** or public advocate is usually appointed by the government or by parliament, but with a significant degree of independence, who is charged with representing the interests of the public by investigating and addressing complaints of maladministration or a violation of right)  
@@ -238,7 +222,7 @@ Team members provided input, and my team and I also **weighed in**.
 Netflix was a much sexier place to work, so I was **perplexed**.  
 I can’t **bear** the thought of leaving him.  
 He had a thick German accent, and he **stuttered**.  
-He still stuttered, but he gave me a **riveting** explanation, and I realized, That’s it.  
+He still **stuttered**, but he gave me a **riveting** explanation, and I realized, That’s it.  
 We always tried to be creative about probing people and their résumés. Bethany once decided to analyze the résumés of our best data-science people for common features. She found that those people shared an **avid** interest in music.  
 Building a talented team of internal recruiters was a **substantial** investment, but I could make an **irrefutable** business case for doing so.  
 The recruiters created a **slide deck** to use with each manager, one-on-one.  
@@ -318,43 +302,6 @@ Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're r
    
    
 ## Week 2  
-GOT III E3  
------  
-The mountain was **garrisoned** across the river from it. (Garrison town" is a common expression for any town that has a military base nearby.)  
-What's value of the **mill**?  
-We took a fight to him, he couldn't **withstand** us.  
-**Far be it from me** to **hinder** true love.  
-You think you're good with that **bow**, you little **twat**?  
-(Twat is a slang word for the human **vulva**, also used as a **derogatory** **epithet** for a foolish person.)  
-   
-I'd have **turned** you all **away** if I wasn't a godly man.  
-**If only** the **Master of Coin** had such power.  
-For years I've heard the little finger is a **magician**.  
-We are going to talk details, **copious** details.  
-**sapphires** are **gemstones**.  
-Lord Selwyn would pay his gaughter's weight in saphhires if she's returned to him. But **only if** she's alive, her honor **unbesmirched**.  
-**unbesmirched** - Not **defiled**.  
-I hated to read **as** a child.  
-Two hours every day **holed up** in the maester's chambers.  
-I'm **famished**, actually.  
-We've got a spare **partridge** on the fire.  
-On this **stump**.  
-You think you're the smartest man there, that everyone alive has to **bow** and **scrape** and lick your boots.  
-A certain man made my master an offer too **tempting** to refuse.  
-He gave me a **potion** that made me powerless to move or speak yet did noting to **dull** my senses with a hooked blade he **sliced** me, root and **stem**, **chanting** all the while.  
-He burned my parts in a **brazier**.  
-I still dream of that night, not of the **sorcerer**, not of his blade.  
-**Influence** grows like a week, I **tended** mine patiently.  
-I dont' want your stupid **thimble**.  
-**prodigies** appear in the oddest of places.  
-You can read, **rare** for a woman in your **profession**.  
-He's bringing two **featherbeds** for the **cabin**.  
-Over there, that **urn**, the **ashes** of Aerion Targaryen.  
-All you sure Lady Margaery doesn't find all this a bit **macabre**?  
-If you give them your love, they will give back a **thousandfold**.  
-**sapphire** **isle** the water is blue  
-And if I would start a war for that **lecherous** little **stump**, what do you think I'm doing for my oldest son and heir?  
-Bu you've come **mincing** all this way for something.  
    
    
 **Sleuthing** the Blockchain.  
@@ -411,48 +358,6 @@ In public, he's **roaring** at enemies. In private, he's **brooding over** the R
 The inside has **ridges** and **bumps** for added sensation and I did feel these at times.  
    
 ## Week1  
-GOT III E2  
-How would you punish the **infidels**, Eer Davos?  
-Take him to the **dungeon** and lock him in a cell.  
-Shall I have them bring you a **shawl**, my lady?  
-My mother's always had a **penchant** for drama.  
-Wheat, **barley**, apples. We've had a blessed harvest.  
-To win his **shield**, an **Unsullied** must go to the slave **marts** with a silver mark, find a newborn and kill it before its mother's eyes.  
-What a soft **mewling** fool this one is.  
-You will be fair to them. You won't **mutilate** them to **make a point**.  
-The **warlocks**.  
-I only know the wall is a **long way off**.  
-My mother always told me you **Westerosi** were a **grim** lot. Grim, bearded, **stinking barbarians** that would **row** across Narrow sea and steal us from our beds.  
-Will I be wearing **manacles** when I lay my father to rest?  
-They **massacred** everyone and put the castle to the **torch**.  
-I'm here to take you to King's Landing, and bring back Lady Stark's daughters **in exchange**. **Dull** is fine.  
-You think Lady Stark is going to want a giant **towheaded** **plank** following her around for the rest of her life?  
-I'm not interested in **foul** rumors.  
-His **proclivities** were the worst kept secret at **court**.  
-**Staying off** the king's road, are you?  
-I wouldn't **tangle** with you.  
-**Margaery Tyrell** **dotes** on **filthy** **urchins** for a reason.  
-She dresses like a **harlot** for a reason.  
-She married a traitor and known **degenerate** like **Renly** Baratheon for a reason.  
-He was very **gallant**.  
-Many years before that, one of the boys came down with the **pox**.  
-So I sat with him all through the darkness. Listened to his **ragged** little breaths, his coughing, his **whimpering**.  
-He is a **warg**. He can enter the mind of animals, see through their eyes. He is scouting for us.  
-**growling** (wolf)  
-Having you killed would be the **high point** of his week.  
-Now that the Lannisters have **discarded** her, Sansa will have many **suitors**.  
-You **pervert**. You want her?  
-I'd not **speak ill of** the dead, you grace.  
-No, he was a known... **degenerate**.  
-I never liked the skinny ones, like drinking from the **puddle**.  
-I don't drink **ale**.  
-You shouldn't **grimace** before you **lunge**.  
-It **gives away** the game.  
-Bit of a **quandary** for you. If you kill me, you fail Lady Stark.  
-A bit **gruesome** for my taste.  
-I saw him fight at the **tourney** for Ser Willem Frey's wedding.  
-Jaime **strikes** a deal with his **captors**.  
-I wouldn't let you wave your **blunders** around like a **victory flag**.  
    
    
 The **witting** and **unwitting** **complicity** of the institutions  
@@ -473,12 +378,12 @@ The difference between a great taco truck and a **crappy** one isn't **discernib
 Did you threaten to **subpoena** their calls and e-mails?  
 Land **expropriation** without compensation.  
    
-Aziz was booked into the Olmsted County Adult Detention Center where he is awaiting **arraignment** on a felony charge of **first-degree** assault.  
+Aziz was booked into the Olmsted County Adult **Detention** Center where he is awaiting **arraignment** on a felony charge of **first-degree** assault.  
 Check his **tummy**  
    
 The **shakeout** in China’s $192 billion peer-to-peer lending industry is accelerating **at a rapid clip**.  
 At least 118 platforms have failed this month through early Friday, according to Shanghai-based Yingcan Group, whose **tally** for July stood at 57 just three days ago.  
 China’s **clampdown** on financial risk has **weighed** on P2P platforms for the past two years, but the pressure has intensified in recent months after the country’s credit markets tightened and the banking regulator issued an unusual warning to savers that they should be prepared to lose all their money in **high-yield** products. While that has triggered **bouts** of panic among users of smaller P2P platforms, there’s little evidence that the turmoil has spread to more systemically important parts of China’s financial sector.  
 Some borrowers have lost their intention and ability to repay their loans, leaving a huge impact on our operations and drying up our **liquidity**.  
-Holding an open door to talks while threatening worse consequences represents yet another increase in tension in the months-long **standoff** between the world’s two largest economies over commerce.  While the conflict nominally centers around the U.S.’s $375 billion annual goods trade **deficit** with China, it has morphed into a chapter in the nations’ broader strategic **rivalry**.  
+Holding an open door to talks while threatening worse consequences represents yet another increase in tension in the months-long **standoff** between the world’s two largest economies over commerce.  While the conflict nominally centers around the U.S.’s $375 billion annual goods trade **deficit** with China, it has **morphed** into a chapter in the nations’ broader strategic **rivalry**.  
    
