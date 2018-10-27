@@ -16,3 +16,42 @@ Go to kitchen and instruct all the **leftovers** form the feast will be brought 
 What a fortunate thing for you, former Queen Regent, that your daughter Myrcella has been sent to live in the **latter** **sort of place**.  
 A royal wedding is a history, the time has come for all of us to **contemplate** our history.  
 Bring me my **goblet**.  
+
+GOT IV 3 
+----
+Tywin **extends** an **olive branch**.  
+I'm sure you've had quite a **fright**. Rest easy.  
+But you must admit it looks suspicious. The king who **executed** your father, **tormented** you for years, and you **fled** the scene of his murder.  
+In any case, this would not be an **opportune** moment to **press** the issue.  
+They're all **a tray of cakes** next to death.  
+A great doughy lump I'd sat next to at endless dinners and tedious gatherings.  
+A good king must **just**.  
+Everyone **applauded** his reforms. 
+Was that truly **just** for him, to abandon his subjects to an evil that he was too **gullible** to recognize?  
+You've any experience of **treasuries** and **granaries** or **shipyards** and soldiers?  
+(**granary** province)
+A wise king listen to his counselors and **heeds** their advice until he **comes of age**.  
+(appetite for **further** knowledge) 
+He'll **squirm** his way to freedom given the chance.  
+There's fresh **hay** in the bar.  
+We ask the Maiden to protect Sally's virtue to keep her from the **clutches** of **depravity**.  
+Slaughtering **livestock** more like.  
+Walder Frey committed **sacrilege** that day.  
+Raiders come **plundering**, steal our food, steal our silver.  
+The whole country has gone **sour**  
+You got any **ale**?  
+She can't lift a **bale** of **hay**.  
+I don't have much, but I have hidden a bit of silver from the **bandits**.  
+They don't have enough men between them to raid a **pantry**.  
+I've never hard of visions and **prophecies** winning a war.  
+Are you **interrogating** me, Lord Tywin?  
+If I cut your throat today, I'll be **drawn and quartered** tomorrow.  
+So you deny the murder? --- **Categorically**
+(the producers **categorically** deny that they're **dumbing down** the show)
+(**Dumbing down** is the deliberate oversimplification of intellectual content within education, literature, cinema, news, video games and culture in order to relate to those unable to assimilate more sophisticated information)
+And as custom dictates, three judges will **render** a **verdict**. I will **preside**.  
+(**presides** over the Senate)
+If I were arranging a royal **assassination**, I'd plan it in a such way I wouldn't be standing **gawking** like a fool when the king died.  
+Horses are **dumber** than men.  
+
+

@@ -288,7 +288,7 @@ It had a large **swatch** of red paint scraped onto it showing where the Titanic
 (**sample swatch**, **fabric swatch**)  
    
 My favorite example is Google+. After an initial **surge** of usage in the first couple of years, the social network gradually **fizzled** — **smothered** by a reputation for low engagement.  
-That reputation was largely false. But over time it became a **self-fulfilling** prophecy as Google took repeated action to hide and **suppress** engagement.  
+That reputation was largely false. But over time it became a **self-fulfilling** **prophecy** as Google took repeated action to hide and **suppress** engagement.  
    
    
    

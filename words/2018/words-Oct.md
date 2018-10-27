@@ -1,14 +1,74 @@
-This **cavalier** attitude toward design **rip-offs** might fly in China, but it shouldn’t fly here in the West, and Huawei should be called out for it in every single article until they stop doing it.  
+**Skeptics** have **contended** that **lateralization**, also known as stereo separation
 
-I read few articles this evening and I **stumbled upon** a nice github repo that has roadmaps for FrontEnd Dev, BackEnd Dev and DevOps.
+An **impregnable** fortress
+The **bedraggled** troops threaded their way over the mountains of **creeks** to escape.  
+**Ottoman Empire**  
+Germans showing ferocious lack of pity no Western soldier had yet to face 
+therefore the commissar x' will be liquidated, German solders guilty of breaking international law will be excused.  
+Russian generals would rather wait surrender and annihilation 
+historians will ofrever debate whether the wars in the south of Europe delayed the start of Barbarossa leaving too little time before the end of summer  
+third reich  
+Japan continues its ever more belligerent attacks upon the European powers in Asia  
+Japanese Emperor hirohito  
+the strain breaks and on what Roosevelt it to call the day infamy as the US flees lies at anchor    
+As German forces sweep southwards bringing an avalanche of war to the Balkans, Yugoslavia and Greece collapse within days. In Yugoslavia the German attack reopens ancient enmities and wounds.  
+American finally realizes that it cannot stand aloof from a war ... 
+The destruction of the Soviet system is Armageddon, the final battle the struggle of good and evil  
+They are drawn the Soviet command had been savagely targeted by Stalin's purges, a climate of fear pervaded the Russian army.  
+1941, the future of world civilizations stood poised in the balance 
+the summer coutryside of Russia was ideal for armored warfare 
+siberia 
+bolshevik revolution 
+Moscow and Legingrad were to be systematically razed wiped from the map  
+atlantic charter 
+Even though convoyed ships were more secure than lone sailings 
+**Admiral** brought up on surface action were reluctant to appreciate the strength of underwater forces 
+**torpedo** boat 
 
 
-China’s **slide** into **deflation** had been quelled.  
+
+## Week 3 
+She bought it on a **whim**.  
+I'm an **ambivert**.  
+**precursor**
+the **precursor** of modern mathematics
+The village **seethed** with life 
+Water **seethed** in the caldron 
+
+I was super **pumped**.  
+**cold turkey**
+**self-esteem**
+(Boy. My **self-esteem** can't take this. - I'm sorry)
+
+Mosquito **incense**, **incense paper**, 
+highly **burnished** armor
+Do you have any ethical **qualms** regarding human experimentation
+(He has no **qualms** about lying)
+Wade was afraid but I didn't **pamper** him
+The way you've been **pampering** the children
+a **palatable** solution to the problem
+a very **palatable** local red wine
+**omit** an item from list 
+a **momentous** occasion; a **momentous** decision
+a period of **momentous** changes in East–West relations
+
+I believe that you may or may not be a **child molester**, that doesn't mean you are.  
+
+
+This **cavalier** attitude toward design **rip-offs** might fly in China, but it shouldn't fly here in the West, and Huawei should be **called out** for it in every single article until they stop doing it.  
+(Anne was **irritated** by his **cavalier** attitude.)
+
+I read few articles this evening and I **stumbled upon** a nice github repo that has **roadmaps** for FrontEnd Dev, BackEnd Dev and DevOps.
+
+
+China’s **slide** into **deflation** had been **quelled**.  
+(**Aspirin** will **quell** your headache, Police **quelled** the **riot**)
 Those fears are **well-founded**.  
 A rising **greenback** has already helped **propel** Argentina and Turkey into trouble.  
-this week Pakistan asked the **IMF** for a **bail-out** 
+This week **Pakistan** asked the **IMF** for a **bail-out** 
 Their problems could soon wash back onto America’s shores, just as Uncle Sam’s domestic boom starts to **peter out**
 The rest of the world could be in a worse state by then, too, if Italy’s budget difficulties do not **abate** or China suffers a **sharp slowdown**
+(The storm began to **abate** slightly)
 Emerging markets are **inflicting** losses on investors, but in the main their real economies seem to be **holding up**.  
 If America’s boom **gives way** to a shallow recession as **fiscal stimulus** **diminishes** and rates rise, that would not be unusual after a decade of growth.  
 
@@ -22,31 +82,34 @@ Open fields of fire and action **unimpeded** by town natural barrier or civilian
 the pier was **abustle** with **voyagers** and **well-wishers**   
 British **consolidated** they had captured towns and **ports** to hold **in garrison** 
 **halted** .. to defend more **precarious** positions.  
-As british people struggled through rubble of the their towns and cities 
-Coventry became a stepping stone in the escalation of the humanity and savagery of war
-Preseident Franklin Roosevelt had resolutely attempt to keep the United States neutral  
+As British people struggled through **rubble** of the their towns and cities 
+Coventry became a **stepping stone** in the escalation of the humanity and **savagery** of war
+Preseident Franklin Roosevelt had **resolutely** **attempt** to keep the United States **neutral**  
 The United Stats should become the **arsenal** of democracy 
-if we **acquiesce** in their **defeat** ... 
-Malta as the British held island came under ferocious air attack from the German Luftwaffe  
-It was a fortress with several airfields and a huge Naval Dockyard and was an outpost in every sense 
+If we **acquiesce** in their **defeat** ... 
+(Mrs. Wilder has **acquiesced** to a divorce)
+Malta as the British held island came under **ferocious** air attack from the German **Luftwaffe**  
+It was a **fortress** with several **airfields** and a huge Naval **Dockyard** and was an outpost in every sense 
 **axis alliance**  
-incessant raids drove the island civilian population of over a quarter of a million to live underground  
+**Incessant** raids **drove** the island civilian population of over a quarter of a million to live underground  
 **Yugoslavia** 
 **outflanked**
-As Churchill sacked general Wavell, his commander in the Middle East  
+As Churchill **sacked** general Wavell, his commander in the Middle East  
 China had been the scene of a **protracted** war since the 1930s  
+(The war was **protracted** for four years)
 **guerrilla warfare**  
 **war of words**  
 **lend-lease bill**  
 government used its powers to **conscript** women into industry 
 **tunnel vision** 
 
-
+## Week2 
 It's so long **overdue**. 
 
 She is a very good **homemaker**.  
-There  is so much emphasis in our culture romance is sort of glamorized everything is like a chick flick and everything is perfect.  
-Guys are increasingly not caring to jump through your hoops.  
+There  is so much emphasis in our culture romance is sort of **glamorized** everything is like a **chick flick** and everything is perfect.  
+(the lyrics **glamorize** drugs)
+Guys are **increasingly** not caring to jump through your **hoops**.  
 **Hoop** skirts were once the **vogue**
 **be in vogue**
 
@@ -76,7 +139,7 @@ This belief was **exploited** with success by neoconservatives and others in the
 **Bunker** 
 (**bunker station**, **bunker clothing**, **coal bunker**)
 
-**Burmese** food combines Indian, Chinese, and Thai influences into a unique and bold flavor profile. This dish combines Burma's national dish of fried garlic, yellow beans, roasted peanuts, toasted sesame seeds, sunflower seeds, fresh diced tomato, deseeded jalapeno peppers, and romaine lettuce with an oyster sauce marinaded chicken. Side of lemon tea leaf dressing with fermented green tea leaves. *Contains caffeine.*
+**Burmese** food combines Indian, Chinese, and Thai influences into a unique and bold flavor profile. This dish combines Burma's national dish of fried garlic, yellow beans, roasted peanuts, toasted sesame seeds, sunflower seeds, fresh **diced** tomato, deseeded **jalapeno** peppers, and **romaine** lettuce with an **oyster sauce** marinaded chicken. Side of lemon tea leaf dressing with **fermented** green tea leaves. *Contains caffeine.*
 
 
 Our **goalie** **deflected** their shot
