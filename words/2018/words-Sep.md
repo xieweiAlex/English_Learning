@@ -107,6 +107,7 @@ Stop this eternal **chatter**!
    
 **disparate**  
 (**disparate development**, **disparate treatment**, **disparate regions** had begun to **knit** together under the king)  
+(a culturally disparate country)
    
 (at discretion, with discretion )  
 surrender **at discretion**  

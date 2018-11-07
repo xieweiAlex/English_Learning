@@ -143,7 +143,7 @@ I just discovered by **coincidence** a setting in Vim that solves an issue that 
    
 **Grumbling** about app store economics isn’t new. But the number of complaints, combined with new ways of reaching users, regulatory scrutiny and competitive pressure are threatening to undermine what have become digital goldmines for Apple and Google  
 They’re very aggressive about making sure companies aren’t trying to work around their billing.  
-That may compel more app makers to circumvent Google, luring in customers through the web or through partnerships with other companies.  
+That may compel more app makers to **circumvent** Google, **luring** in customers through the web or through partnerships with other companies.  
 Complaints about app store taxes became louder in 2015 as Apple and Google waded deeper into the digital content business, making them rivals not just digital distribution partners.  
 **Waded** into the task  
 a thick **wad** of **notes** (bank note)  

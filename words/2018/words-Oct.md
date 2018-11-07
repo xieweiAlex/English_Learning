@@ -1,27 +1,178 @@
+
+
+The **sheer volume** of wealth and industry made America a terrible **foe**.  
+Perl Harbor was an event that at a stroke **galvanized** the American nation resolving all difference **quelling** all **isolationist** sentiment.  
+(the urgency of his voice **galvanized** them into action.)
+Country after country are **swamped** by a **tidal wave** of Japanese **might** 
+the long slow **endgame** of Japan's defeat is already begun.  
+A war of increasing **hardship** and **deprivation** 
+an unstoppable **tsunami** of conquest **swept** across the eastern Pacific into Southeast Asia 
+**inexplicably** once more U.S. aircraft carrier were caught **unawares** on the ground 
+**scarcely** a day **went by** without some new attack begun 
+The new year brought no **respite** 
+Indonesia was attacked by Japanese **paratroopers** again 
+The **morale** amongst the US forces is high 
+Singapore was the **mythology** of the British Empire built into actuality  
+a center of **maritime trade**, a **conduit** for wealth  
+(the office acts as a **conduit** for ideas to flow throughout the organization)
+battle must be fought to the **bitter end** 
+Japanese general Yamashita **achieve** the victory with less than 2000 **casualties**.  
+(Battlefield **casualties** were high)
+The Japanese **cloak** their invasion in the language of anti-imperialism 
+the area produced rubber **nickle** and **timber** 
+a daring and **ingenious** plan was **formulated** ... 
+
+
+**on-premise software** 
+
+An **edgy wit** 
+he became **edgy** and defensive, she felt **edge** and **unsettled**  
+
+Really, any sort of Dependency Injection via **Ambient Context**
+
+
+The cause of **autism** is unknown
+Einstein and Newton may have had a form of **autism**
+They're similar to Emacs key bindings (C-a for home), but with several **concessions** for UNIX (C-w for delete word).
+(a **concession** to their **shrill** demands.)
+Let's find the real **culprit** 
+**sleuth** or **spy** 
+I’d rather **quench** my thirst with **castor** oil than have to take a **sip** of water
+Although it’s not so bad with bottled water, it’s enough to **put me off**
+The taste is different everywhere you go, and it feels **slimy** going down my throat
+(The steps were **slimy** with **moss**.)
+**chlorinated water**.
+
+**versatile**  
+I'm just saying he's a very **versatile** actor.
+**versatile** person
+
+
+The **defector**'s handlers 
+A **thorny** situation; **thorny** issues 
+an **overblown** rose 
+**overblown** decorations  
+**improvise** a new **verse**  
+He **improvised** a song about the football team's victory.  
+It was no use **bemoaning** her **lot**.  
+**arcane** procedures for electing people.  
+Robbery is a **penal offense**
+a former **penal colony**.  
+**Hypocrisy** that **nauseated** me 
+A **horde** of demonstrators  
+
+
+But don’t let its size fool you—it’s a dramatically different map from before, with a **staggering** amount of vegetation detail.  
+(a **staggering** achievement; a **staggering** defeat.)
+
+US launches aggressive campaign to **thwart** China's economic attacks. 
+(bill of **indictment**, an **indictment** for **conspiracy**)
+Last month Vice President Pence issued a broad **indictment** of the **tactics** China is using as it seeks to **supplant** the United States as the world’s dominant economic power
+
+
+That's an "**On the fly**" interview
+your sense of judgement is a bit **wonky** at the moment.
+Faraday Future founder **resigns**, employees being **furloughed** **amid** **cash crunch**
+Workers will be placed on unpaid leave, or a “**furlough**,” until new funding is secured, according to an email from CEO Jia Yueting obtained by The Verge
+Yes, she was released on medical **furlough**
+
+
+The only **snag** is, I can't afford it.  
+**Strew** a path with flowers
+Autumn leaves **strewed** the **lawn**
+Suddenly she was **entangled** in the seaweed
+He became **entangled** in legal disputes
+
+
+A **spate** of attacks on holidaymakers 
+potato **crisp**, **crisp bacon**.
+You **mobsters** all suffer from such **hubris**
+**diminutive** in **stature**
+She'd bring real **stature** to the office
+
+Cattle **graze** on the open meadows 
+The car **grazed** the garage door.  
+Most **polymers** are poor **conductors**  
+Dogs can **deter** unwelcome intruders.
+blood **plasma** 
+**plasma** display 
+I'd like to avoid a **showdown** with my boss if I possibly can.  
+
+But attackers can **circumvent** these measures by modifying or **exploiting** vulnerabilities in the source code
+You might already be using our open-source version, ProGuard, which includes one layer of basic **obfuscation**
+
+
+Grilled chicken breast is served **atop** a bed of red **quinoa** with raisins. Accompanied by a side of **blanched** kale, **braised** cabbage, and roasted carrots, tossed with garlic and **extra-virgin olive oil**.
+**Braising**
+
+
+## Week4  
+Law and morality are the **bulwark** of society 
+That country is a **bulwark** of freedom.  
+His fever was **allayed** by the medicine  
+A **propensity** for **exaggeration**  
+a **propensity** to **extravagence**  
+
+
+I'm more of a **glorified** sysadmin that happens to automate deployments.  
+But that's a bit of a **tangent**; I'm finding that I'm liking the mindset and tools.  
+In our experience, hiring for a devops role was **analogous** to being on a dating app
+(I think we can see something **analogous**.)
+you realize that some these qualities may have been **embellished** or that what the other person offers is not the right mix for your own needs
+(I asked him not to **embellish** the truth with ideas of his own.)
+I had some general ideas for the type of candidate I wanted, but after a few months of endless resumes and phone screens I was pretty **disparaged**.  
+(he never missed an opportunity to **disparage** his competitors.)
+
+There is a huge **aquarium** of seafood  
+
+Turn **upside** down  
+The **defactor**'s handlers  
+**precipitate** a country into a crisis  
+They made a **precipitate** decision 
+as thin as a **wafer**  
+**assorted wafer**  
+
+
+Guys free **cougar** from foot trap.  
+The **reactionary** officer then ordered him arrested
+**rouge** 
+(rouge et noire, **rouged** her cheeks, rouge box)
+**porter**
+(night **porter**, The hotel porter will help you)
+**Resumption** of negotiations.  
+The tower is the **centrepiece** of the park.  
+be **enrage** by sb's conduct 
+the students were **enraged** at these new rules 
+
 **Skeptics** have **contended** that **lateralization**, also known as stereo separation
 
 An **impregnable** fortress
 The **bedraggled** troops threaded their way over the mountains of **creeks** to escape.  
 **Ottoman Empire**  
-Germans showing ferocious lack of pity no Western soldier had yet to face 
-therefore the commissar x' will be liquidated, German solders guilty of breaking international law will be excused.  
-Russian generals would rather wait surrender and annihilation 
-historians will ofrever debate whether the wars in the south of Europe delayed the start of Barbarossa leaving too little time before the end of summer  
-third reich  
-Japan continues its ever more belligerent attacks upon the European powers in Asia  
-Japanese Emperor hirohito  
-the strain breaks and on what Roosevelt it to call the day infamy as the US flees lies at anchor    
-As German forces sweep southwards bringing an avalanche of war to the Balkans, Yugoslavia and Greece collapse within days. In Yugoslavia the German attack reopens ancient enmities and wounds.  
-American finally realizes that it cannot stand aloof from a war ... 
-The destruction of the Soviet system is Armageddon, the final battle the struggle of good and evil  
-They are drawn the Soviet command had been savagely targeted by Stalin's purges, a climate of fear pervaded the Russian army.  
-1941, the future of world civilizations stood poised in the balance 
-the summer coutryside of Russia was ideal for armored warfare 
-siberia 
-bolshevik revolution 
-Moscow and Legingrad were to be systematically razed wiped from the map  
-atlantic charter 
-Even though convoyed ships were more secure than lone sailings 
+Germans showing **ferocious** lack of **pity** no Western soldier had yet to face 
+therefore the **commissar** x' will be **liquidated**, German solders guilty of breaking international law will be excused.  
+Russian generals would rather wait **surrender** and **annihilation** 
+(Since the discovery of the vaccine, **annihilation** of the disease is at last cogitable.)
+**Historians** will forever debate whether the wars in the south of Europe delayed the start of **Barbarossa** leaving too little time before the end of summer  
+**third reich**  
+Japan continues its ever more **belligerent** attacks upon the European powers in Asia  
+Japanese Emperor **hirohito**  
+the **strain** breaks and on what Roosevelt it to call the day **infamy** as the US flees lies at anchor    
+(**lateral strain**, **strain** a muscle, a **strain** of feminist thought )
+As German forces **sweep** southwards bringing an **avalanche** of war to the **Balkans**, **Yugoslavia** and Greece collapse within days. In **Yugoslavia** the German attack reopens ancient **enmities** and wounds.  
+(An **avalanche** (also called a **snowslide** or **snowslip**) is a rapid flow of snow down a **sloping** surface. Avalanches are typically triggered in a starting zone from a mechanical failure in the **snowpack** (slab avalanche) when the forces on the snow **exceed** its strength but sometimes only with gradually widening (loose snow avalanche))
+American finally realizes that it cannot stand **aloof** from a war ... 
+The **destruction** of the Soviet system is **Armageddon**, the final battle the struggle of good and evil  
+They are **drawn** the Soviet command had been **savagely** targeted by Stalin's **purges**, a climate of fear **pervaded** the Russian army.  
+1941, the future of world civilizations stood **poised** in the balance 
+(The economy is **poised** for take-off,  be **poised** on the **brink of disaster**, **poised** between life and death)
+the summer countryside of Russia was ideal for **armored** **warfare** 
+**Siberia** 
+(It meant I was **banished** to **Siberia**.)
+**Bolshevik revolution** 
+Moscow and **Leningrad** were to be systematically **razed** **wiped from the map**  
+**Atlantic charter** 
+Even though **convoyed** ships were more secure than lone sailings 
 **Admiral** brought up on surface action were reluctant to appreciate the strength of underwater forces 
 **torpedo** boat 
 
@@ -33,10 +184,11 @@ I'm an **ambivert**.
 **precursor**
 the **precursor** of modern mathematics
 The village **seethed** with life 
-Water **seethed** in the caldron 
+Water **seethed** in the **caldron** 
 
 I was super **pumped**.  
 **cold turkey**
+(Gotta go **cold turkey**. - Can we talk about this)
 **self-esteem**
 (Boy. My **self-esteem** can't take this. - I'm sorry)
 

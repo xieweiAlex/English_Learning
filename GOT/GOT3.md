@@ -22,7 +22,7 @@ Aren't you **marvelous**, absolutely **singular**.
 
 GOT III E 10
 ----
-what's sheep shift? -- That's **vulgar** word for **dung**.  
+what's **sheep shift**? -- That's **vulgar** word for **dung**.  
 Roslin caught a fine fat **trout**.  
 Her brothers gave her a pair of **wolf pelts** for her wedding.  
 She is no longer yours to **torment**.  

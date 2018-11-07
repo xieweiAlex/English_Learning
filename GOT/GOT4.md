@@ -24,7 +24,7 @@ I'm sure you've had quite a **fright**. Rest easy.
 But you must admit it looks suspicious. The king who **executed** your father, **tormented** you for years, and you **fled** the scene of his murder.  
 In any case, this would not be an **opportune** moment to **press** the issue.  
 They're all **a tray of cakes** next to death.  
-A great doughy lump I'd sat next to at endless dinners and tedious gatherings.  
+A great **doughy** **lump** I'd sat next to at endless dinners and tedious gatherings.  
 A good king must **just**.  
 Everyone **applauded** his reforms. 
 Was that truly **just** for him, to abandon his subjects to an evil that he was too **gullible** to recognize?  
@@ -53,5 +53,35 @@ And as custom dictates, three judges will **render** a **verdict**. I will **pre
 (**presides** over the Senate)
 If I were arranging a royal **assassination**, I'd plan it in a such way I wouldn't be standing **gawking** like a fool when the king died.  
 Horses are **dumber** than men.  
+
+
+## E4 
+I remember when they **rowed** us away from shore  
+How many children did the Great Masters **nail** to **mileposts**?  
+He hated the little **twat**, sure.  
+My trial for **regicide**, yes, I know.  
+If the killer threw himself before the Iron Throne, confessed to his crimes and gave **irrefutable** evidence of his guilt, it wouldn't matter to Cersei.  
+She's offering a **knighthood** to whomever finds Sansa Stark.  
+Marrying a Targaryen was **all the rage** back then.  
+(They are also all the rage)
+But the moment I saw my **intended**, with his **twitchy** little **ferret**'s face and **ludicrous** silver hair, I knew he wouldn't do it.  
+How **absentminded** of me.  
+I was the best **archer** in my **hamlet**.  
+Let the **mutineers** take care of Snow.  
+(It is death for all **mutineers** in England)
+If I told you to find that **murderous** little bitch, and bring me her head. Would you do it?  
+You're keeping him from harm. It's **chivalry**.  
+A crippled boy being pulled on a **sledge** by a **simpleton**.  
+Every shelter or village will be **deserted**.  
+Your **foray** to Craster's Keep, I'll **sanction** it.  
+
+
+
+
+
+
+
+
+
 
 
