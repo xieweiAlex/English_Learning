@@ -76,7 +76,53 @@ Every shelter or village will be **deserted**.
 Your **foray** to Craster's Keep, I'll **sanction** it.  
 
 
+## E5 
+John snow **embark** a new mission 
+It would be some **consolation**, wouldn't it?  
+(find **consolation** in one's work)
+It's a pleasure to make your **acquaintance**, Laddy Arryn.  
+**Don't you think** I know who you are?  
+**Extricating** Sansa, getting her here alive.  
+(to **extricate** oneself from difficulties)
+There's only one lord of the **Vale**, the others can be **hang**. **Lurking** and **simpering** on the **stairs** like **buzzards**, the moment my husband died, trying to get their **claws** in me.  
+The **deed** is done. **Faded** into nothing. 
+A **strong case** against **Tyrion**  
+This is before he married your father and moved to the North. By the time you were born, your father's **austerity** has become hers.  
+Petyr had three **crates** brought all the way from King's Landing.  
+In their cluthes and **tried** for murder.  
+Fish. The **sigil** of House Tully  
+He almost killed Petyr in a **duel**.  
+He hasn't told you about the **vile** things they do with their bodies?  
+They will if you **nance** around like that.  
+Who told you that **shite**?  
+You're a poet for your **paramour**?  
+(a woman who **cohabits** with an important man)
 
+
+## E6  
+He is a bastard born of **incest**. **As was** his brother before him.  
+Cost the Seven Kingdoms **dearly** in blood and gold.  
+The **lookout** screams "Two pirate ships!"
+The crew is **shivering** like scared mice.  
+There's a **chest** of the good stuff left back at your house.  
+They skinned my countryman and they **mutilated** my brother
+The **britches**, too, Reek.  
+(**bleating**)  
+You **crucified** him.  
+He **decried** it as a criminal act, but was **overruled**.  
+**Carrion** for **vultures**, rotting in the sun.  
+Mormont is **spying on** her for us. 
+We brought our own wine, not the **swill** they server here.  
+We have some lovely boys on **retainer**  
+You stand accused by the Queen Regent of **regicide**.  
+We will **adjourn** for now.  
+**Toll the bells** in an hour's time.  
+This isn't a trial, it's a **farce**.  
+(The election was a **farce**, for it was fixed)
+He will be punished **accordingly**.  
+You will never **turn your back** on your family again.  
+Keep your mouth shut, no more **outburst**.  
+I'm guilty of a far more **monstrous** crime.  
 
 
 

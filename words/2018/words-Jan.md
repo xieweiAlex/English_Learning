@@ -53,7 +53,7 @@ That's why you brought her here, to **rub** it in?
 So **What's in it for me**?  
 How about this, I tell Winslow to **stand down**, so you could keep on breathing.  
   
-I don't believe I had the pleasure.  
+I don't believe I had the **pleasure**.  
 My left **pinkie** means Mukherjee is **palming**.  
 I'll **see you around**.  
 I knew when Vince put a gun to my head, you'd **cough it up** just to save me.  
@@ -158,7 +158,7 @@ It's in the **impound lot**.
 It's **barbed wire**, there's security cameras.  
 You've got your **bugout** bag inside, right?  
 They're fucking **grilling** me back there, right?  
-Hey, how is it going?  
+Hey, **how is it going**?  
 We've hit some **snags**.  
 Turns out this **perp**, was just a kid.  
 Even when you're **smacking** him around, he'd smile.  

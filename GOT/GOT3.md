@@ -254,7 +254,7 @@ Bu you've come **mincing** all this way for something.
 
 
 GOT III E2  
-How would you punish the **infidels**, Eer Davos?  
+How would you punish the **infidels**, Ser Davos?  
 Take him to the **dungeon** and lock him in a cell.  
 Shall I have them bring you a **shawl**, my lady?  
 My mother's always had a **penchant** for drama.  

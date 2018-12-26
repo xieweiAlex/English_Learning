@@ -86,7 +86,7 @@ He became **entangled** in legal disputes
 
 A **spate** of attacks on holidaymakers 
 potato **crisp**, **crisp bacon**.
-You **mobsters** all suffer from such **hubris**
+You **mobsters** all suffer from such **hubris** - 
 **diminutive** in **stature**
 She'd bring real **stature** to the office
 
