@@ -1,10 +1,140 @@
+## Week 4 
+There are so many temples and **shrines** to cover 
+
+**tung** oil tree
+There is a **palpable** difference in their ages.  
+A **palpable** sense of loss. 
+She was in **defiant** mood 
+The **defiant** child was punished.  
+The **mastermind** of robbery  
+**paddy** cultural **vegetation** 
+**paddy** field, **paddy** rice 
+A **Star Trek** **convention**  
+Heat **debilitates** many people 
+a **debilitated** patient  
+slider **crank** mechanism  
+She should wear a **thinner** shirt in summer 
+The clay is very **stiff**, we must make it **thinner** with water  
+**fledgling** skier 
+The **fledgling** democracies of eastern Europe  
+The crisis led to the **downfall** of the government  
+The **curfew** takes effect at midnight             
+The republics want **secession** from the union.  -  
+This sign **presage** rains - 
+hold **discourse** with sb 
+a **discourse** on critical theory -  
+a **pat** of butter  
+I had no idea of the **gaffe** which I was committing 
+**rubble concrete**  
+a **prelude** to disaster -   
+He **scrape through** the entrance exam
+She has to **scrape** by on Social Security  
+The sights were **reminiscent** of my childhood -    
+Don't apply for the job, you're in danger of **overreaching** yourself. 
+a **sleek** black cat  
+
+
+**ferris wheel**
+I found that for some reason I had a **propensity** for Japanese more than other languages like Spanish  
+a **propensity** for exaggeration
+There isn't much **prejudice** here.  
+**evil cult**
+**Gregorian** calendar -  
+
+I eventually got an apartment after 9 months and I left the half-way house to start my 3 years of **mandatory parole**
+Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment  -  
+She thought that was funny so we started talking. Dammit! I **digress** again!!!
+Almost losing her again because she wasn’t gaining weight, feelings of being a fraud and **inadequacy**.
+So especially if you have a “**checkered**” past and need some help especially with finding a job I can probably help
+
+
+
+**Stratosphere** Hotel, **Stratosphere** Tower  
+  
+IN 1994, soon after Jeff Bezos **incorporated** what would become Amazon, the entrepreneur briefly **contemplated** changing the company’s name  
+Twenty-four years later, perhaps no **adjective** better describes Bezos’ empire than the name he once wanted to give it  
+The company is known as the “everything store,” but in its **dogged** pursuit of growth, Amazon has come to dominate more than just ecommerce   
+But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition -  
+Amazon Web Services, is the **cash cow**  
+Amazon can use its cloud cash to **subsidize** the goods it ships to customers, helping to **undercut** retail competitors who don’t have similar **adjunct** revenue streams  
+(**adjunct professor**)
+In 2005, Amazon acquired BookSurge, an **on-demand** self-publishing service, and CustomFlix  
+Amazon is **winding down** the latter -  
+Amazon Lending, an invitation-only program launched in 2011, has **doled out** billions in loans to businesses that may have difficulty obtaining credit elsewhere -  
+Amazon Prime, which began in 2005 as a subscription service offering free two-day shipping—but quickly **ballooned** into something much larger  
+Prime **Pantry**, which ships **non-perishable** grocery items for an additional fee  
+Amazon acquired the popular Indian payment platform Tapzo for $40 million, and then immediately said it would **shutter** Tapzo and shift users to Amazon Pay  
+
+
+All three are exceptionally fast and comfortably **snappier** than the majority of Android phones, perhaps with the exception of the Huawei Mate 20 Pro    
+he was one hell of a **snappy** dresser -  
+Apple is being **tight-lipped** about the amount of RAM inside each phone  
+  
+> Even **neurons** are formed by habit. When continuously exposed to a fixed **stimulus**, neurons become steadily less sensitive to that stimulus—until they eventually stop responding to it altogether  
+> The more we see a thing, the less we see it. Familiarity **breeds** neglect  
+> The chains of mental habit are too weak to be felt until they are too strong to be broken, to paraphrase Samuel Johnson  
+We tend to define the quality of **wit** as merely being **deft** with a clever **comeback**  
+But **true wit** is richer, **cannier**, more riddling   
+**canny** investors will switch banks if they think they are getting a raw deal -   
+Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard -  
+and as an adult, he kept an **aquarium** in his home -  
+They dropped their heads and raised their **dorsal fins**, a posture normally assumed only in the presence of a rival male -  
+For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food -  
+It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote -  
+  
+President Donald trump’s decision to brag in a tweet about the size of his “nuclear button” compared with North Korea’s was widely condemned as **bellicose** and **reckless**   
+be in a **bellicose** mood -   
+Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health -  
+I've come to believe there should be a role for professional evaluation beyond speculating from **afar**  
+
+## Week 3 
+**Overture** conditions for a **cease** fire -  
+Their government is making **overtures** for peace  
+The officer **disbanded** the club  
+Reached an **impasses** in the negotiations.  
+Dickens knew how to strike the right **chord** in the hearts of his readers  
+His war poetry struck a **chord** with people who remembered that period.  
+**veto** power, **pocket veto**  
+The government can **override** all opposition.  
+**override** one's **commission**  
+Christmas **revels** with feasting and dancing were common in England -  
+His disappearance **overshadowed** the family.  
+He **overshadowed** all his **comrades** -  
+our **comrades** who made the supreme sacrifice.  
+adjusting **valve**, air release **valve**, air supply **valve**  
+**sop up** with water with a towel  
+**statutory** agent  
+**statutory** holiday, **statutory** law  
+commercial **offshoots** of universities  
+an **offshoot** of a large company  
+A few Arab leaders recognize that water and energy **profligacy** must be **curbed** if ecological disaster is to be avoided. -  
+**biblical** **theology**  
+the development of **Unitarian** **theology** -  
+The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
+she gave him a **swat** on the head.  
+I've never met such an **ardent** **pacifist** as Terry   
+His father was an **ardent** socialist - 
+a **pacific** era in history, a man of **pacific** **disposition**  
+**sift** the evidence  
+**sift** sugar on to a cake  
+draw water with a **sieve**  
+**scour** a dirty oven -  
+**scour** grease from a pan  
+  
+I saw **nunchucks**(**Nunchaku**), ninja smoke, maybe some hairpulling, but not a gun -  
+  
+United States **Securities** and Exchange **Commission** (**SEC**)  
+  
+In 2007, Nasdaq merged with OMX, a leading exchange operator in the **Nordic countries**  
+**quart** to **litre** (liter)  
+  
+Global **expatriate** instruction  
+  
 Are you still a believer in Santa, because at 7 it's **marginal**.  
    
 **deluxe** room  
    
 **Admitting** we’re **fallible** and that we’re working on making things better is a matter of pride for us -  
-   
-that-that is it  
    
 Grab, the **ride-hailing** company, has hit a **roadblock** in its efforts to improve its mapping and routing service after running into trouble with OpenStreetMap  
 points of interest’ **cultivated** through customer feedback and **groundwork**  
@@ -27,12 +157,12 @@ And standing there — **drenched** in sweat from the Iowa summer -
 By testing it on real people a company can discover whether users feel like they've been **duped** or forced into an uncomfortable habit.  -  
    
 > “It’s not good enough to just say ‘we told you,'” he said.  
-> as a good millennial, I knew that people have very loose definitions of the word "friend"  
+> as a good **millennial**, I knew that people have very loose definitions of the word "friend"  
    
 So superior that tests are **inconsequential** to quality -  
 **appendicitis**  
    
-Guo was a very high-ranking military official, but my next example of somebody **amassing** enough **ill-gotten** cash to fill a truck involves a man who was just a **low-ranking**, very ordinary government official - -  
+Guo was a very high-ranking military official, but my next example of somebody **amassing** enough **ill-gotten** cash to fill a truck involves a man who was just a **low-ranking**, very ordinary government official 
 When this guy was **on the run** he pretended to be a farmer going to market with a truck load of vegetables  
 All this cash comes out of the collection plate that is passed among the **congregation** of ordinary people who come to **worship** at the **altar** of power -  
 The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
@@ -47,18 +177,18 @@ When they tried to cross the **marsh**, their shoes sank into the soft ground
 **lame duck** --  
 He is **lame** for both legs  
 **pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
-**pander** to the vulgar taste -  
-He **panders** to her every **whim**  
+**pander** to the **vulgar** taste -  
+He **panders** to her every **whim** -  
 the cat **bristled** in annoyance  
 a brush with stiff **bristles**  
-The United Nations High Commission for Human Rights has **lambasted** certain European leaders for **xenophobia** and racism. -  
+The United Nations High Commission for Human Rights has **lambasted** certain European leaders for **xenophobia** and racism.  
 **aboriginal** **inhabitants** -  
 The Indians are the **aboriginal** Americans  
    
-A **platinum** **wig** -  
+A **platinum** **wig**  
 **platinum** card  
 They both **enthused** over my new look  
-Our **pastor** will preach the **sermon**  -  
+Our **pastor** will preach the **sermon**  
 An **unwieldy** parcel  
 This machine is too **unwieldy** to move  
    
@@ -95,7 +225,7 @@ Some are pretty lavish and **cheesy**.
    
 **recruit depot**, **ammunition** depot  
 **eccentric** motion  
-A servo driving an **eccentric** cam.  
+A **servo** driving an **eccentric** **cam**.  --    
 **forestry** bureau, forestry machinery  
 The **militiaman** walked the spy off.  
 I **slogged** through the **heather** in the heat  
@@ -166,7 +296,7 @@ Xi Jinping has **likened** China to an ocean that no storm can disturb, but the 
 (The scandal caused **tempests** in the newspapers)  
 He has **solidified** control over ever more of Chinese political and social life and the economy  
 While the trade war with the United States provides a handy **scapegoat**, public blame for a **prolonged downturn** could ultimately fall on him  
-Beijing’s efforts in the spring to **wean** the economy **off** debt, a major cause of the slowdown, are now being **reversed** -  
+Beijing’s efforts in the spring to **wean** the economy **off** debt, a major cause of the slowdown, are now being **reversed**   
    
    
 Were your Amazon packages stolen? **Porch** pirates run **rampant** this holiday season  
@@ -222,12 +352,12 @@ They asked the **spectators** to keep off. -
 But Mr Hvid wouldn't be the first person to get past security and **scale** the ancient landmark  
    
    
-crying is a **cathartic** release. -  
+crying is a **cathartic** release. --  
 I think that was a valuable exercise, and maybe it even helped some people. Mostly, though, it was **cathartic**  
 Founders lack a **coherent** way to think about when to shut down  
 It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision -  
    
-I am sure this is a **non-exhaustive** list -  
+I am sure this is a **non-exhaustive** list  
 **exhaustive method**  
 an **exhaustive** study  
 **bystanders** were **leering at** the **nude** painting  
@@ -255,7 +385,7 @@ The Russian vessel was **on manoeuvres**.
 They **manoeuvred** his resignation  
 **protection racket**  
 He was known for running a brutal **extortion racket**.  
-He **reviled** his opponent unmercifully  
+He **reviled** his opponent unmercifully  --
 The election was a **farce**, for it was fixed  
 a **stampede** of **bargain hunters**.  
 The crowd **panicked** and **stampeded** for the exit.  
@@ -273,8 +403,8 @@ We're here to **nab** him, not **spook** him
 I **gobbled** down my breakfast and ran out of the house  
    
    
-I'm a **hokey** **corny** guy -  
-a **hokey** **tear jerker**  
+I'm a **hokey** **corny** guy --  
+a **hokey** **tear jerker** -  
 Yeah, it's **corny**, but it's kinda good -  
 the media **aids** and **abet**  
 He's got the **magic wand** when it comes to American manufacturing  -  
@@ -324,7 +454,7 @@ First baby born after **deceased** womb transplant
 the **innate** immune system tries to flush invading cells out, while the **adaptive system** targets specific **pathogens** that the body already has had contact with and creates memory cells of new ones, so the body can **fight** them **off** if they return  
 Because the immune system is only **impaired** in otherwise healthy people when we have a **vitamin** or **mineral deficiency**  
    
-**Cell membrane**, **dialysis membrane** -  
+**Cell membrane**, **dialysis membrane**  
 **Basking** in the **afterglow** of victory  
 Magnificent **villas** are found throughout Italy.  
    
@@ -347,12 +477,12 @@ The debate was eventually settled with Volta's **groundbreaking** experiment.
 You pay an artist to design a **Maserati**; you pay a mechanic to change its oil  
 And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  
 His preference for **anonymity** is no surprise. Liemandt’s **metamorphosis** has transformed him from every **dorm-room** coder’s hero to an **ominous** force in tech as his expanding global cloud-force pushes down wages and turns computer programming into factory work  
-(Those black clouds look **ominous** for our picnic.) --  
+(Those black clouds look **ominous** for our picnic.) -  
 **Inspirational** computer programmers like Bill Gates, Marc Andreessen and young Liemandt were the new **masters of the universe**  
    
    
 Bloomberg suggests that Apple's decision to wait another year before supporting 5G could be related to the company's **feud** with Qualcomm  
-family **feuds** and **enmities** -  
+family **feuds** and **enmities**   
    
 **fidelity** to one's spouse  
 **fidelity** to one's word of honor.  

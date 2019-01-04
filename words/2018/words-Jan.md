@@ -72,8 +72,8 @@ A look at **logical fallacies**.
   
 Help our customers enable buyers **in places** that had less credit card penetration or use cases where credit card fees were **prohibitive**  
 **Empirically**, there are fewer and fewer use cases for which accepting or paying with Bitcoin makes sense.  
-Therefore, starting today, we are **winding down** support for Bitcoin payments.  
-Bitcoin itself may become **viable** for payments again in the future.  
+Therefore, starting today, we are **winding down** support for Bitcoin payments.  - 
+Bitcoin itself may become **viable** for payments again in the future.  - 
   
   
 He's **trapped**.  

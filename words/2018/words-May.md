@@ -175,7 +175,7 @@ We recently **rolled out** support for protocol version 2 at Google and have see
    
 I can remember I got paired with an attractive **brunette** girl, short, 5′2, maybe 100 **lbs**, big **mousey** eyes, young, maybe 21 at most.  
    
-The new way to make it in business is to spend big, grow fast and use **Kilimanjaro-size** piles of investor cash to **subsidize** your losses, with a plan to become profitable somewhere **down the road**.  
+The new way to make it in business is to spend big, grow fast and use **Kilimanjaro-size** piles of investor cash to **subsidize** your losses, with a plan to become profitable somewhere **down the road**.  - 
 Silicon Valley wrote the **playbook** for spending money in pursuit of growth, and the tech industry remains a **hotbed** of fast-growing yet unprofitable companies.  
 But it also reflects the **willingness** of shareholders and **deep-pocketed** private investors to keep fast-growing **upstarts** **afloat** long enough to conquer a potential “**winner-take-all**” market.  
 Ultimately, companies like MoviePass **illustrate** the **perilous** **tightrope** many growing businesses must walk.  

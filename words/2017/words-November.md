@@ -1,6 +1,4 @@
-0g_a jkDa  jk0j
-
-**print spooler**  
+**print spooler** -  
   
 This man is a **phoney**.  
   

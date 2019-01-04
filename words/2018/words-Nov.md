@@ -66,7 +66,7 @@ The Americans landed **unopposed** -
 The **bulk** of the force were Canadian soldiers, nearly 1000 Canadians were killed and 1500 taken prisoner  
 There was poor **reconnaissance** and intelligence  - 
 **The RAF**
-The experience of occupation whether harsh or **benign**  - 
+The experience of occupation whether harsh or **benign**   
 condemn those who **acquiesced** to their conquerors 
 (**acquiesced** in the ruling)
 **guerilla warfare**
@@ -159,7 +159,7 @@ They **browbeat** him into signing the document.
 
 ## week 3
 
-China is a **populous** nation in East Asia whose vast landscape **encompasses** grassland, desert, mountains, lakes, rivers and more than 14,000km of **coastline**
+China is a **populous** nation in East Asia whose vast landscape **encompasses** grassland, desert, mountains, lakes, rivers and more than 14,000km of **coastline** - 
 
 Some developers have a **warped** understanding of humility, what it means, why it’s valuable, and how to approach it
 Said it wasn't worth **antagonizing** the Saudis
