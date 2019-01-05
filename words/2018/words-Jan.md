@@ -8,9 +8,7 @@ collateral agent )
 The name in Chinese is “Da Hong Zha,” which, inauspiciously for any movie, can mean “The Big Bomb
 
 
-
-
-Click on the coin to join our **Discord Chat**
+Click on the coin to join our **Discord Chat** - 
 
 Germany has become one of Facebook's most important **hubs** for content **moderation**.  
 Had to quit as I was particularly disturbed by what I saw as signs of **professional deformation** in me  

@@ -1,11 +1,55 @@
-who would argue that some of this history is of course has been **lopsided** -  
+## Week 1 
+
+**Swarm** across the **Volga river** 
+**Normandy beaches** quick become the **focal point** for the allied war effort 
+Too tall to **surmount** too thick to penetrate these **hedgerows** provide perfect cover for the **outnumber** Germans.  
+**Geneva convention** 
+**POW**: prisoner of war
+**crest** of the mountain 
+The bloodiest battle in the pacific was **Okinawa**  
+6 million **Jewish** people were killed in the **holocaust** -   
+
+A **dollop** of whiskey 
+not a **dollop** of truth to the story  
+national **anthem** 
+We **vent** our **spleen** on drug **barons** -- 
+The **pond** was in flood.  
+Our people are in no need of richer nations' **largesse** -  
+**exaggeration**
+break the **deadlock**
+The meeting **deadlocked over** the wage issue
+My **gorge** rose at the **sight**.  
+The children **gorged** on potato chips 
+East of the **gorge** **leveled out** -  
+The reporter described it as **sombre**. That means dark and serious - 
+The fever was a **sombre** **presage** of his final illness. -  
+**An apple of discord**  
+A note of **discord** **crept** into their relationship.  
+There are many **discords** in this family.  
+A **therapeutic** silence  
+**articles of confederation** - 
+**autonomous confederation**
+a wild **sequestered** spot.  
+Being **grouchy** -  
+**sequester** from the thief -  
+I **covet** one of their **bubblejet** printers. -    
+The boys **coveted** John's new hat.  
+The **growl** of a dog.  
+He **growled** out an answer.  
+Orders to **rev up** factory output. -    
+She **bequeathed** everything to her son. -   
+He is **famed** for his **eccentricities**.  
+She **flouted** the **proprieties**. -  
+a remote **outpost** of civilization  
+
+Who would argue that some of this history is of course has been **lopsided** -  
   
 Imagining a new **culinary** possibility  
 the relaxed **ambience** of the cocktail lounge is popular with guests  
   
-Journalists came from as far afield as China and Brazil.  
-The scarcity of fruit was caused by the drought.  
-arena stage  
+Journalists came from as far **afield** as China and Brazil.  
+The **scarcity** of fruit was caused by the **drought**.  
+**arena stage**  
   
   
   
@@ -38,15 +82,15 @@ Amazon partnered with JPMorgan Chase and **Berkshire Hathaway** to create a new,
   
 **Confound** fiction and fact -  
 a **confounded** fool  
-Who will act as **mediator** in the dispute?  
+Who will act as **mediator** in the dispute?  -  
 This year, the first **cohort** of such children, about 3,300, reach that age -  
-The artist **sequestered** himself in his studio for two years.  
+The artist **sequestered** himself in his studio for two years. -- 
 You wanna play "**mistress** or second wife"?  
 The **mistress** of her own mind  
 the police struggled to **garner** sufficient evidence  
 the **minor irritations** of life.  
-He was proposed for the job of **treasurer**  
-**homosexual** acts are a crime and can lead to **incarceration**.  
+He was proposed for the job of **treasurer** -  
+**homosexual** acts are a crime and can lead to **incarceration**. -- 
 racial **segregation**  
 the **segregation** of sick animals  
 the community is the last **outpost** of civilization in the far north  
