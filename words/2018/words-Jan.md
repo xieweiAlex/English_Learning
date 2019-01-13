@@ -129,7 +129,7 @@ Billions of **Muslims** around the world are engaging in this declaration of fai
    
 That's between her and her **cuckold** husband.  
 **Delayed gratification**  
-Grandma always says I got this problem with **impulse control**.  
+Grandma always says I got this problem with **impulse control**. - 
 Probably what's **holding me back** from making rank  
 I got to **hit the head**.  
 I'm just asking how your **roach** come by my car.  

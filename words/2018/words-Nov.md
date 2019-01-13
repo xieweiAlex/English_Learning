@@ -442,7 +442,7 @@ acting as a **liaison** between product teams and infrastructure teams
 Modern hyper-growth Internet companies have (in my opinion) an **egregiously** large amount of **burnout**, primarily due to the **grueling** product demands coupled with a lack of investment in operational infrastructure  
 (an **egregious** lie, an **egregious** mistake )  
 I believe it is possible for engineering leadership to **buck the trend** by getting ahead of operations before it becomes a major **impediment** to organizational stability.  
-(an **impediment** to reform, he has an **impediment** in speech)  
+an **impediment** to reform, he has an **impediment** in speech. -    
    
    
 People with heart or lung disease should remain indoors and avoid heavy **exertion**.  

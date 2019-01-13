@@ -143,7 +143,7 @@ I **knelt** beside his cold body, and said the old words.
 As **restitution** for this betrayal, he demands Harrenhal and all its **attendant** lands.  
 Why should I let that old **ferret** choose my bride for me?  
 We have a war to fight, I have no time to **haggle**.  
-**haggle over every ounce**  
+**haggle over every ounce**. -  
 He'll **make time** for you.  
 And you will swear to tell your father the truth, that I had nothing to do with your **maiming**.  
 Should we drink this? -- I don't **partake**.  

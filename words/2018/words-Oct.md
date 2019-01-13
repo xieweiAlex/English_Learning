@@ -374,7 +374,7 @@ Nothing like a steamy bowl of udon to power your afternoon. This **Tonkotsu** **
    
 
 It's using **wedge issues** like trading tariffs to **advance** Beijing's political influence.  
-We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**.  
+We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -   
 (**predatory** bird)
 Beijing's **malign** influence and **interference** in American politics and policy.  
 **Follow suit**  

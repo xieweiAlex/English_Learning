@@ -3,33 +3,33 @@ There are so many temples and **shrines** to cover
   
 **tung** oil tree  
 There is a **palpable** difference in their ages.  
-A **palpable** sense of loss.  
+A **palpable** sense of loss. - 
 She was in **defiant** mood  
 The **defiant** child was punished.  
 The **mastermind** of robbery  
-**paddy** cultural **vegetation**  
+**paddy** cultural **vegetation**.   
 **paddy** field, **paddy** rice  
 A **Star Trek** **convention**  
-Heat **debilitates** many people  
+Heat **debilitates** many people. -    
 a **debilitated** patient  
 slider **crank** mechanism  
 She should wear a **thinner** shirt in summer  
 The clay is very **stiff**, we must make it **thinner** with water  
 **fledgling** skier  
 The **fledgling** democracies of eastern Europe  
-The crisis led to the **downfall** of the government  
+The crisis led to the **downfall** of the government. -   
 The **curfew** takes effect at midnight  
 The republics want **secession** from the union.  -  
-This sign **presage** rains -  
+This sign **presage** rains. -  
 hold **discourse** with sb  
-a **discourse** on critical theory -  
+a **discourse** on critical theory. -  
 a **pat** of butter  
 I had no idea of the **gaffe** which I was committing  
 **rubble concrete**  
-a **prelude** to disaster -  
+a **prelude** to disaster. --  
 He **scrape through** the entrance exam  
 She has to **scrape** by on Social Security  
-The sights were **reminiscent** of my childhood -  
+The sights were **reminiscent** of my childhood. -  
 Don't apply for the job, you're in danger of **overreaching** yourself.  
 a **sleek** black cat  
   
@@ -39,10 +39,10 @@ I found that for some reason I had a **propensity** for Japanese more than other
 a **propensity** for exaggeration  
 There isn't much **prejudice** here.  
 **evil cult**  
-**Gregorian** calendar -  
+**Gregorian** calendar. -  
   
 I eventually got an apartment after 9 months and I left the half-way house to start my 3 years of **mandatory parole**  
-Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment  -  
+Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.  -  
 She thought that was funny so we started talking. Dammit! I **digress** again!!!  
 Almost losing her again because she wasn’t gaining weight, feelings of being a fraud and **inadequacy**.  
 So especially if you have a “**checkered**” past and need some help especially with finding a job I can probably help  
@@ -54,20 +54,20 @@ So especially if you have a “**checkered**” past and need some help especial
 IN 1994, soon after Jeff Bezos **incorporated** what would become Amazon, the entrepreneur briefly **contemplated** changing the company’s name  
 Twenty-four years later, perhaps no **adjective** better describes Bezos’ empire than the name he once wanted to give it  
 The company is known as the “everything store,” but in its **dogged** pursuit of growth, Amazon has come to dominate more than just ecommerce  
-But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition -  
+But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition. -  
 Amazon Web Services, is the **cash cow**  
 Amazon can use its cloud cash to **subsidize** the goods it ships to customers, helping to **undercut** retail competitors who don’t have similar **adjunct** revenue streams  
 (**adjunct professor**)  
 In 2005, Amazon acquired BookSurge, an **on-demand** self-publishing service, and CustomFlix  
-Amazon is **winding down** the latter -  
-Amazon Lending, an invitation-only program launched in 2011, has **doled out** billions in loans to businesses that may have difficulty obtaining credit elsewhere -  
+Amazon is **winding down** the latter. -  
+Amazon Lending, an invitation-only program launched in 2011, has **doled out** billions in loans to businesses that may have difficulty obtaining credit elsewhere   
 Amazon Prime, which began in 2005 as a subscription service offering free two-day shipping—but quickly **ballooned** into something much larger  
 Prime **Pantry**, which ships **non-perishable** grocery items for an additional fee  
 Amazon acquired the popular Indian payment platform Tapzo for $40 million, and then immediately said it would **shutter** Tapzo and shift users to Amazon Pay  
   
   
 All three are exceptionally fast and comfortably **snappier** than the majority of Android phones, perhaps with the exception of the Huawei Mate 20 Pro  
-he was one hell of a **snappy** dresser -  
+he was one hell of a **snappy** dresser. -  
 Apple is being **tight-lipped** about the amount of RAM inside each phone  
    
 > Even **neurons** are formed by habit. When continuously exposed to a fixed **stimulus**, neurons become steadily less sensitive to that stimulus—until they eventually stop responding to it altogether  
@@ -75,20 +75,20 @@ Apple is being **tight-lipped** about the amount of RAM inside each phone
 > The chains of mental habit are too weak to be felt until they are too strong to be broken, to paraphrase Samuel Johnson  
 We tend to define the quality of **wit** as merely being **deft** with a clever **comeback**  
 But **true wit** is richer, **cannier**, more riddling  
-**canny** investors will switch banks if they think they are getting a raw deal -  
-Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard -  
-and as an adult, he kept an **aquarium** in his home -  
-They dropped their heads and raised their **dorsal fins**, a posture normally assumed only in the presence of a rival male -  
-For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food -  
-It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote -  
+**canny** investors will switch banks if they think they are getting a **raw deal**. -  
+Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard. -  
+and as an adult, he kept an **aquarium** in his home. -  
+They dropped their heads and raised their **dorsal fins**, a posture normally assumed only in the presence of a rival male   
+For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food. -  
+It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
    
 President Donald trump’s decision to brag in a tweet about the size of his “nuclear button” compared with North Korea’s was widely condemned as **bellicose** and **reckless**  
-be in a **bellicose** mood -  
-Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health -  
+be in a **bellicose** mood. -  
+Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health. -  
 I've come to believe there should be a role for professional evaluation beyond speculating from **afar**  
   
 ## Week 3  
-**Overture** conditions for a **cease** fire -  
+**Overture** conditions for a **cease** fire. -  
 Their government is making **overtures** for peace  
 The officer **disbanded** the club  
 Reached an **impasses** in the negotiations.  
@@ -97,9 +97,9 @@ His war poetry struck a **chord** with people who remembered that period.
 **veto** power, **pocket veto**  
 The government can **override** all opposition.  
 **override** one's **commission**  
-Christmas **revels** with feasting and dancing were common in England -  
+Christmas **revels** with feasting and dancing were common in England. -  
 His disappearance **overshadowed** the family.  
-He **overshadowed** all his **comrades** -  
+He **overshadowed** all his **comrades**   
 our **comrades** who made the supreme sacrifice.  
 adjusting **valve**, air release **valve**, air supply **valve**  
 **sop up** with water with a towel  
@@ -201,35 +201,36 @@ He stood in **amaze** at the sight
 A water **vole** swam **vigorously** **upstream**  -  
 A **knack** for teaching  
 **makeshift road**  
+**makeshift** **barricades** against tank attacks.
 an **upturn** in the economy  
 **upturn** the soil  
 **artistic** conception, **conception control**  
 A lake that **encompasses** an island  
 All the **combatant** armies went to war with machine guns.  
 **discretionary** portfolios, **discretionary fund**  
-Governments should **endeavor** to mitigate **distress**.  --  
+Governments should **endeavor** to mitigate **distress**.    
 They **hastened** to Kobe to rejoin the ship  
 **hitch hiker**  
 there is a **hitch** somewhere  
 a **radically** different approach  
 **affiliation need**  
-the group has no **affiliation** to any preservation society  
-The juggler performed **atop** a unicycle  
-The customer service rep is usually a small **cog** in a big machine  
+the group has no **affiliation** to any preservation society -  
+The juggler performed **atop** a **unicycle**  
+The customer service rep is usually a small **cog** in a big machine -  
    
    
 this is an **uncertain** time  
 I will take the **mantle** and shut down the government  
    
-Some are pretty lavish and **cheesy**.  
+Some are pretty **lavish** and **cheesy**.  
    
 **recruit depot**, **ammunition** depot  
 **eccentric** motion  
-A **servo** driving an **eccentric** **cam**.  --  
+A **servo** driving an **eccentric** **cam**.  -  
 **forestry** bureau, forestry machinery  
-The **militiaman** walked the spy off.  
-I **slogged** through the **heather** in the heat  
-a **bourgeois morality**  
+The **militiaman** walked the spy off. -    
+I **slogged** through the **heather** in the heat - 
+a **bourgeois morality** -  
 a critique of **bourgeois** ideology  
 **bourgeois** society took for granted the **sanctity** of property  
 A **caricature** of **Sherlock Holmes**  
@@ -273,12 +274,12 @@ he was **jostled** by passengers rushing for the gates
 A **regressive** regime  
 A **regressive** dictatorship  
 I **wondered** down the road  
-I always get the **jitters** before exams.  
+I always get the **jitters** before exams. -  
 **rigid steel conduit**, underground **conduit**, **concealed conduit**  
 It's **futile** to allocate blame for this.  
-a child whose welfare is now under the **aegis** of courts  
-**apocalyptic** literature x  
-The University suspended the most **recalcitrant** demonstrators.  xx  
+a child whose welfare is now under the **aegis** of courts -  
+**apocalyptic** literature -   
+The University suspended the most **recalcitrant** demonstrators.  --  
 **petrochemical** engineering, **petrochemical** industry, petrochemical **plant**  
 **blood stain**, **oil stain**  
 She had a strong and **malign** influence  

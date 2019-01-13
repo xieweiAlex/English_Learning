@@ -161,7 +161,7 @@ Martin Shkreli **smirks** at Congress and refuses to answer questions at drug pr
 He smirked through questioning and **condemnation** from lawmakers, **drawing** their **ire** **on occasion**.  
 You can answer some questions. That one didn't **incriminate** you.  
    
-**Apparel** & Fashion  
+**Apparel** & Fashion -  
    
 **hush money** contract  
 Yesterday, Nunberg decided to go on TV, and tell everyone he was not a **snitch**.  
