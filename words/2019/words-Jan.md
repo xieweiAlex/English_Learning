@@ -1,13 +1,11 @@
 ## Weeek 2  
 
-ag '\*{2,}.*\s-{1,3}\W{0,10}$'
-
-The default, --group, lumps multiple matches in the same file together, and presents them under a single occurrence of the filename
+The default, --group, **lumps** multiple matches in the same file together, and presents them under a single occurrence of the filename
 
 
 **Carrefour**  
 A **whiff** of perfume  
-However, stool eating, also known as coprophagy, is actually quite normal behavior for a puppy  
+However, **stool** eating, also known as **coprophagy**, is actually quite normal behavior for a puppy  
 The mother usually stops eating her puppies' **feces** around the time that they have begun eating solid food and can leave the **den** to **defecate**  
 you will need to consult a **veterinarian** or **behaviorist** in order to identify the problem  
 The **bog** is home to rare **mosses**.  
@@ -15,7 +13,7 @@ A **bog** of legal complications.
 She often buys clothes on **impluse**.  
 But my **impluse** was still right.  
 She teaches **archaeology** at the university.  
-No analogy exists between them.  
+No **analogy** exists between them.  
 the **obscurities** in his poems and plays.  
 This sis a basic **tenet** of capitalism.  
 They represent every race, ethnicity, and **creed**
@@ -29,7 +27,7 @@ a **defunct** political organization.
 **spice of life**  
 healthy rivalry adds **spice** to the game.  
 **Reprieve** a condemned prisoner. -  
-Sales hve slowed down quite **markedly**  
+Sales have slowed down quite **markedly**  
 **rugby** football  
 **restoration** ecology  
 A **spine-chilling** silence  

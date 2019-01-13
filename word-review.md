@@ -70,7 +70,6 @@ The republics want **secession** from the union.  -
 This sign **presage** rains. -  
 a **discourse** on critical theory. -  
 a **prelude** to disaster. --  
-The sights were **reminiscent** of my childhood. -  
 **Gregorian** calendar. -  
    
 Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.  -  
@@ -107,7 +106,7 @@ All this cash comes out of the collection plate that is passed among the **congr
 The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
 The malware itself is relatively **underwhelming** -  
 His **scheme** to win the girl **backfired** and she went to another guy. -  
-**lame duck** --  
+**lame duck** -  
 **pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
 **pander** to the **vulgar** taste -  
 He **panders** to her every **whim** -  
@@ -127,15 +126,11 @@ a child whose welfare is now under the **aegis** of courts -
 The University suspended the most **recalcitrant** demonstrators.  --  
 But the origins of the euro disaster lay less with government **profligacy** than with **excessive** private borrowing --  
 Employee may use **accrued** PTO for any reason, including vacation, illness or any other personal matters.  -  
-The case is **adjourned** to June 4, the judge said --  
-These family issues really **took a toll** on me mentally.  -  
-   
-   
+The case is **adjourned** to June 4, the judge said -  
 The rule is **inapplicable** to this case -  
    
 THE **spectator** index -  
-They asked the **spectators** to keep off. -  
-crying is a **cathartic** release. --  
+crying is a **cathartic** release. -  
 It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision -  
    
 This delicious chilled bowl features medium rare grilled **tri-tip**, **quinoa** vegetable medley (onion, radish, carrot, **celery**, eggplant) tossed in creamy **chive dressing**, vegan crunch salad (kale, **garbanzo beans**, parsley, mint, celery, cucumber, zucchini, carrots, red bell peppers), red and golden **beets**, and roasted **pepitas**. Served with a side **citrus** **vinaigrette**. --  
@@ -160,13 +155,13 @@ China says violators would be banned from issuing bonds or other financing tools
 And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  
 (Those black clouds look **ominous** for our picnic.) -  
   
-words/2018/words-March.md  
-**Apparel** & Fashion -  
-   
-  
 words/2018/words-Aug.md  
 Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  -  
    
+   
+  
+words/2018/words-March.md  
+**Apparel** & Fashion -  
    
   
 words/2018/words-Nov.md  
@@ -186,16 +181,12 @@ China is a **populous** nation in East Asia whose vast landscape **encompasses**
 an **impediment** to reform, he has an **impediment** in speech. -  
    
   
-words/2018/words-June.md  
-I remember reading an old **sailor**'s **proverb** --  
-  
 words/2018/words-Oct.md  
 You **mobsters** all suffer from such **hubris** -  
 We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -  
   
-words/2018/words-May.md  
-The new way to make it in business is to spend big, grow fast and use **Kilimanjaro-size** piles of investor cash to **subsidize** your losses, with a plan to become profitable somewhere **down the road**.  -  
-Lamb or lion, his wound must be washed and **sewn**, or it will **fester**. -  
+words/2018/words-June.md  
+I remember reading an old **sailor**'s **proverb** --  
   
 words/2018/words-Jan.md  
 Click on the coin to join our **Discord Chat** -  
@@ -205,6 +196,10 @@ Bitcoin itself may become **viable** for payments again in the future.  -
    
    
 Grandma always says I got this problem with **impulse control**. -  
+  
+words/2018/words-May.md  
+The new way to make it in business is to spend big, grow fast and use **Kilimanjaro-size** piles of investor cash to **subsidize** your losses, with a plan to become profitable somewhere **down the road**.  -  
+Lamb or lion, his wound must be washed and **sewn**, or it will **fester**. -  
   
 GOT/GOT3.md  
 **haggle over every ounce**. -  
@@ -223,11 +218,8 @@ The **Puritans** were **Protestants** who did not agree with the **Anglican** Ch
 My dad was staying in **palliative care** at the hospital  --  
    
 The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
-**lame duck** --  
 The University suspended the most **recalcitrant** demonstrators.  --  
 But the origins of the euro disaster lay less with government **profligacy** than with **excessive** private borrowing --  
-The case is **adjourned** to June 4, the judge said --  
-crying is a **cathartic** release. --  
 This delicious chilled bowl features medium rare grilled **tri-tip**, **quinoa** vegetable medley (onion, radish, carrot, **celery**, eggplant) tossed in creamy **chive dressing**, vegan crunch salad (kale, **garbanzo beans**, parsley, mint, celery, cucumber, zucchini, carrots, red bell peppers), red and golden **beets**, and roasted **pepitas**. Served with a side **citrus** **vinaigrette**. --  
    
 He **reviled** his opponent unmercifully  --  

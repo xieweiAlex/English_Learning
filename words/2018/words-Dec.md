@@ -29,7 +29,7 @@ I had no idea of the **gaffe** which I was committing
 a **prelude** to disaster. --  
 He **scrape through** the entrance exam  
 She has to **scrape** by on Social Security  
-The sights were **reminiscent** of my childhood. -  
+The sights were **reminiscent** of my childhood.   
 Don't apply for the job, you're in danger of **overreaching** yourself.  
 a **sleek** black cat  
   
@@ -174,7 +174,7 @@ She **weaned** herself **from** cigarettes.
 The surprise I had planned **backfired** on me  
 His **scheme** to win the girl **backfired** and she went to another guy. -  
 When they tried to cross the **marsh**, their shoes sank into the soft ground  
-**lame duck** --  
+**lame duck** -  
 He is **lame** for both legs  
 **pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
 **pander** to the **vulgar** taste -  
@@ -323,7 +323,7 @@ The interest **accrued** over the months.
    
    
 Zhou was arrested **on the spot** and was released on **bail** the next day.  
-The case is **adjourned** to June 4, the judge said --  
+The case is **adjourned** to June 4, the judge said -  
 This is as comprehensive as it gets, and at seven and a half hours does cover it very comprehensively. I did it in three **instalments** and never got bored on any occasion  
 It was **factual**, with actual footage of the trail, and is updated with **commentary** provided by many who were involved  
 I'm not gonna **take sides** and **slam** or praise anyone but be **assured**, you will  
@@ -331,7 +331,7 @@ I'm not gonna **take sides** and **slam** or praise anyone but be **assured**, y
    
 It's simply not true that all Japanese people - or Asian people for that matter - are tiny and **slender**  
 He didn't really feel like he had a **say** in it.  
-These family issues really **took a toll** on me mentally.  -  
+These family issues really **took a toll** on me mentally.    
    
    
 The **sting operation** targets the most **at-risk** areas in the city identified from a combination of crime data and Amazon’s own theft reports  
@@ -345,7 +345,7 @@ The rule is **inapplicable** to this case -
 So what happens **over the course** of that year?  
    
 THE **spectator** index -  
-They asked the **spectators** to keep off. -  
+They asked the **spectators** to keep off.   
 **nominal GDP**  
    
    
@@ -353,7 +353,7 @@ They asked the **spectators** to keep off. -
 But Mr Hvid wouldn't be the first person to get past security and **scale** the ancient landmark  
    
    
-crying is a **cathartic** release. --  
+crying is a **cathartic** release. -  
 I think that was a valuable exercise, and maybe it even helped some people. Mostly, though, it was **cathartic**  
 Founders lack a **coherent** way to think about when to shut down  
 It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision -  
