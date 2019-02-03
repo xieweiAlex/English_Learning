@@ -243,7 +243,7 @@ If I die, **weep** for me.
 Pretty sure that's **snarky** Parth.  
 Does Python have a **ternary conditional** operator?  
    
-However, when you get into the **nitty-gritty** of their usability and feature sets, there are a few **noteworthy** differences.  
+However, when you get into the **nitty-gritty** of their usability and feature sets, there are a few **noteworthy** differences. -   
 LastPass passwords are stored on its remote servers, but they are **obfuscated** using 256-bit AES encryption.  
 Passwords are only encrypted and decrypted on the local machine, so there should be no way a man in the middle attack could **compromise** your login **credentials**.  
 1Password’s **Watchtower** feature is one that often **sets it apart from** the competition.  

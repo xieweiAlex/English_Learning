@@ -229,7 +229,7 @@ Strike at night with high **explosives** and **incendiary** fire bombs.
 The attacks was switched from London to the **provincial** cities of the UK 
 **suez canal**
 Britain that had been **bombarded** physically by air bombarded emotionally by news of British troops 
-Open fields of fire and action **unimpeded** by town natural barrier or civilian population 
+Open fields of fire and action **unimpeded** by town natural barrier or **civilian** population -  
 (an **unimpeded** view across the **headland**)
 the pier was **abustle** with **voyagers** and **well-wishers**   
 British **consolidated** they had captured towns and **ports** to hold **in garrison** 
@@ -306,7 +306,7 @@ The **congregation** processed into the church
 (slang terms for inside information)
 
 **Tract** 
-(**alimentary tract**, digestive **tract**, **genital tract**, **respiratory** tract, **intestinal** tract)
+(**alimentary tract**, digestive **tract**, **genital tract**, **respiratory** tract, **intestinal** tract) - 
 
 **Tug of war** 
 (Tug: a sudden abrupt pull)

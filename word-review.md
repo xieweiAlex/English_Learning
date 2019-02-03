@@ -155,14 +155,19 @@ China says violators would be banned from issuing bonds or other financing tools
 And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  
 (Those black clouds look **ominous** for our picnic.) -  
   
+words/2018/words-March.md  
+**Apparel** & Fashion -  
+   
+  
 words/2018/words-Aug.md  
 Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  -  
    
    
   
-words/2018/words-March.md  
-**Apparel** & Fashion -  
-   
+words/2018/words-Oct.md  
+You **mobsters** all suffer from such **hubris** -  
+Open fields of fire and action **unimpeded** by town natural barrier or **civilian** population -  
+We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -  
   
 words/2018/words-Nov.md  
 Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken. -  
@@ -180,10 +185,6 @@ China is a **populous** nation in East Asia whose vast landscape **encompasses**
    
 an **impediment** to reform, he has an **impediment** in speech. -  
    
-  
-words/2018/words-Oct.md  
-You **mobsters** all suffer from such **hubris** -  
-We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -  
   
 words/2018/words-June.md  
 I remember reading an old **sailor**'s **proverb** --  

@@ -239,13 +239,13 @@ what the hell are you?
 exhaling deeply  
   
 So I guess I'm out of the book club  
-jet roaing overhead  
+jet **roaring** overhead  
   
 Core Motion: Process accelerometer, gyroscope, pedometer, and environment-related events.  
   
-The gist is to create a fully functioning app  
+The **gist** is to create a fully functioning app  
   
-Trump has been conning people his entire adult life  
+Trump has been **conning** people his entire adult life  
   
 here’s a **recap** of your week on Hired.  
   

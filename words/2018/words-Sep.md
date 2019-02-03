@@ -445,7 +445,7 @@ There’s no fairness here, if you’re a Democrat or a friend of Hillary you ge
 John McCain managed to deliver a final **rebuke** to the man who wasn't there.  
    
 Getting a PhD feels like a “safe” option: it’s a **well-defined** path to doing something considered **prestigious**. But this can just be a way of **postponing** many necessary personal milestones: of learning to define and **set** your own goals **apart** from a structured academic system and of connecting more deeply with your own **intrinsic** motivations and values  
-In **hindsight**, all of these were part of a narrower range of skills than I realized, and many of these skills were less **transferable** than I’d hoped.  
+In **hindsight**, all of these were part of a narrower range of skills than I realized, and many of these skills were less **transferable** than I’d hoped. -   
    
 Shares of Tencent and NetEase **dipped** Friday morning as the State Administration of Press, Publication, Radio, Film and Television of China (SAPPRFT) **rolled out** regulations against online games Thursday night.  
 Further regulation on games is likely to **worsen** the already **gloomy** license situation in the gaming industry.  

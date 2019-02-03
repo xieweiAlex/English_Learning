@@ -251,7 +251,7 @@ He is in **double jeopardy**, unable to speak either language adequately.
    
 **On the heels** of a **dire** government report published last month about climate change and its devastating impacts, many cities and states are **scrambling** to find ways to curb the greenhouse gas emissions  
    
-He is a **shrewd** businessman man  
+He is a **shrewd** businessman man  -  
 **insolvent liquidation**  
 **liquidation** of debts  
 They lost orders and were **insolvent** within weeks  
