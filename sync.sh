@@ -1,5 +1,5 @@
 
-rm word-review.md
+echo "" > word-review.md
 
 ag '\*{2,}.*\s-{1,3}\W{0,10}$' --group --nonumbers > word-review.md
 

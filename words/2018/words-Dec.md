@@ -26,7 +26,6 @@ a **discourse** on critical theory. -
 a **pat** of butter  
 I had no idea of the **gaffe** which I was committing  
 **rubble concrete**  
-a **prelude** to disaster. --  
 He **scrape through** the entrance exam  
 She has to **scrape** by on Social Security  
 The sights were **reminiscent** of my childhood.   
@@ -413,7 +412,7 @@ Democrats **stuck** their neck **out**
 People in Youngstown and in Detroit got **pink slips**  
 GM is not a person, it didn't **spite** you  
 Amazon got these **sweetheart deals** in Virginia and New York  
-they get all these **tax breaks** and all these **subsidies**  
+they get all these **tax breaks** and all these **subsidies** -   
    
 **contrarian**  
 the comment came more from a **contrarian** **disposition** than moral conviction -  

@@ -1,13 +1,51 @@
-words/2017/words-November.md  
-**print spooler** -  
+words/2019/words-Feb.md  
+the batterfield was a scene of utter **carnage**. -  
+it is designed to **favor** readability and flexibility for the programmer performance. -  
+The fire **charred** the woodwork  -  
+He is **fickle** to a **proverb**. -  
+This is almost **surreal** in today's America -  
+**anti-semitic** -  
+Opium is a **narcotic** drug -  
+a **prelude** to disaster -  
+**disburse** a large amount of money for education -  
+The rebels had the perfect **pretext** for making their move. -  
+He **decried** it as a criminal act, but was **overruled**. -  
+the bed **sags** in the middle, and is uncomfortable -  
+a **renowned** painter -  
+   
    
   
 words/2019/words-Jan.md  
+the **stodgy** **three-storey** building -  
+It's difficult to **discern** the truth. -  
+**Presumption** is not reality -  
+   
+I just **preemptively** went to the police. -  
+High school **antics** which doesn't bother me. -  
+**patriotism** is the last refuge of a **scoundrel**. --  
+   
+One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions --  
+   
+He might be their **unwitting** **stooge**. -  
+Same **cadences**, same **delivery**. Maybe it's Obama. -  
+although he is a **long shot**, Castro could be a real **contender**. -  
+   
+Some of Milland's more **remunerative** work came from employers who posted hundreds or thousands of tasks at a time that could be completed in rapid succession --  
+Milland didn't feel like she could leave her apartment, or even her computer, **lest** she miss out on an opportunity to work on good tasks -  
+**veterinarian** -  
+Because if you get too **aggro**, you might just end up with Trump jumping in the middle. -  
+   
+The mother usually stops eating her puppies' **feces** around the time that they have begun eating solid food and can leave the **den** to **defecate**  -  
+The **bog** is home to rare **mosses**. -  
 **Reprieve** a condemned prisoner. -  
-He was easily **dissuaded** from going. -  
 He took up the **cause** with **evangelical** fervor. -  
 A **bastion** of **male chauvinism**. -  
 **Securities** that are **denominated** in dollars or yen. -  
+It's something, just from a character point, and also comedically that you can really **latch onto**. -  
+You get downtime between set ups, and you have some time, we all sit around and **goof off** -  
+What a **dweebazoid**. -  
+Essentially it's an **amalgamation** of myself. -  
+I was eating in the lobby of the hotel right before a **premiere** -  
 **mahatma gandhi**. -  
 I can't stand listening to this **demented** **ignorant** old liar anymore.  Please bring the adults back into the room. -  
 a **solitary** **retreat**. -  
@@ -54,13 +92,55 @@ And to be sure, an iPhone is still **status-conferring**: Apple is **by no means
 Amazon partnered with JPMorgan Chase and **Berkshire Hathaway** to create a new, still nameless company **ostensibly** designed to improve healthcare and cut costs. In August, CNBC reported that Amazon plans to open **primary care** clinics at its headquarters in Seattle. -  
    
    
-**Confound** fiction and fact. -  
-This year, the first **cohort** of such children, about 3,300, reach that age. -  
 **homosexual** acts are a crime and can lead to **incarceration**. -  
 **plunder** all the valuable things. -  
 While Taiwan is self-governed and **de-facto** independent, Beijing considers the island to be a **breakaway** province -  
 Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people". -  
 In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance --  
+  
+words/2018/words-Aug.md  
+Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  -  
+   
+   
+  
+words/2018/words-Sep.md  
+In **hindsight**, all of these were part of a narrower range of skills than I realized, and many of these skills were less **transferable** than I’d hoped. -  
+   
+  
+words/2018/words-Nov.md  
+Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken. -  
+You order a vegan donut and very clearly ask the **barista** for three Splendas -  
+You do the **grunt work** and analysis, and finish it just **in time** for him to breathe a sigh of relief and tell you what an “Excel ninja” you are -  
+an outburst of **profanity** / laughter  -  
+**anatomy** of a sale -  
+After the **last-ditch** defense of Moscow, Russian **counter-attacks** through the snows of winter have **stemmed** the tide of German **conquest** -  
+The soft **underbelly** of the axis.  -  
+The effect of the British victory was **electrifying**  -  
+American and British force made **amphibious** landings in North Africa in **Morocco** -  
+The Americans landed **unopposed** -  
+There was poor **reconnaissance** and intelligence  -  
+China is a **populous** nation in East Asia whose vast landscape **encompasses** grassland, desert, mountains, lakes, rivers and more than 14,000km of **coastline** -  
+   
+an **impediment** to reform, he has an **impediment** in speech. -  
+   
+  
+words/2018/words-June.md  
+I remember reading an old **sailor**'s **proverb** --  
+  
+words/2018/words-March.md  
+**Apparel** & Fashion -  
+   
+  
+words/2017/words-November.md  
+**print spooler** -  
+   
+  
+words/2018/words-Oct.md  
+You **mobsters** all suffer from such **hubris** -  
+Open fields of fire and action **unimpeded** by town natural barrier or **civilian** population -  
+(**alimentary tract**, digestive **tract**, **genital tract**, **respiratory** tract, **intestinal** tract) -  
+  
+We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -  
   
 words/2018/words-Dec.md  
 A **palpable** sense of loss. -  
@@ -69,7 +149,6 @@ The crisis led to the **downfall** of the government. -
 The republics want **secession** from the union.  -  
 This sign **presage** rains. -  
 a **discourse** on critical theory. -  
-a **prelude** to disaster. --  
 **Gregorian** calendar. -  
    
 Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.  -  
@@ -120,6 +199,7 @@ A **servo** driving an **eccentric** **cam**.  -
 The **militiaman** walked the spy off. -  
 I **slogged** through the **heather** in the heat -  
 a **bourgeois morality** -  
+He is a **shrewd** businessman man  -  
 I always get the **jitters** before exams. -  
 a child whose welfare is now under the **aegis** of courts -  
 **apocalyptic** literature -  
@@ -141,6 +221,8 @@ I'm a **hokey** **corny** guy --
 a **hokey** **tear jerker** -  
 Yeah, it's **corny**, but it's kinda good -  
 He's got the **magic wand** when it comes to American manufacturing  -  
+they get all these **tax breaks** and all these **subsidies** -  
+   
 the comment came more from a **contrarian** **disposition** than moral conviction -  
 Home to Japanese soul food, **unbridled** creativity and -  
 Beef muscles **simmered** in many hours until it becomes tender  -  
@@ -155,41 +237,18 @@ China says violators would be banned from issuing bonds or other financing tools
 And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  
 (Those black clouds look **ominous** for our picnic.) -  
   
-words/2018/words-March.md  
-**Apparel** & Fashion -  
-   
-  
-words/2018/words-Aug.md  
-Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  -  
-   
-   
-  
-words/2018/words-Oct.md  
-You **mobsters** all suffer from such **hubris** -  
-Open fields of fire and action **unimpeded** by town natural barrier or **civilian** population -  
-We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -  
-  
-words/2018/words-Nov.md  
-Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken. -  
-You order a vegan donut and very clearly ask the **barista** for three Splendas -  
-You do the **grunt work** and analysis, and finish it just **in time** for him to breathe a sigh of relief and tell you what an “Excel ninja” you are -  
-an outburst of **profanity** / laughter  -  
-**anatomy** of a sale -  
-After the **last-ditch** defense of Moscow, Russian **counter-attacks** through the snows of winter have **stemmed** the tide of German **conquest** -  
-The soft **underbelly** of the axis.  -  
-The effect of the British victory was **electrifying**  -  
-American and British force made **amphibious** landings in North Africa in **Morocco** -  
-The Americans landed **unopposed** -  
-There was poor **reconnaissance** and intelligence  -  
-China is a **populous** nation in East Asia whose vast landscape **encompasses** grassland, desert, mountains, lakes, rivers and more than 14,000km of **coastline** -  
-   
-an **impediment** to reform, he has an **impediment** in speech. -  
-   
-  
-words/2018/words-June.md  
-I remember reading an old **sailor**'s **proverb** --  
+words/2018/words-May.md  
+The new way to make it in business is to spend big, grow fast and use **Kilimanjaro-size** piles of investor cash to **subsidize** your losses, with a plan to become profitable somewhere **down the road**.  -  
+However, when you get into the **nitty-gritty** of their usability and feature sets, there are a few **noteworthy** differences. -  
+Lamb or lion, his wound must be washed and **sewn**, or it will **fester**. -  
   
 words/2018/words-Jan.md  
+**Great Chinese famine** -  
+Many compare China’s **demographic** **crisis** to the one that **stalled** Japan’s economic **boom** in the 1990s -  
+China’s population has begun to decline and is rapidly aging. Its economic **vitality** will keep **waning** -  
+  
+The name in Chinese is “Da Hong Zha,” which, **inauspiciously** for any movie, can mean “The Big Bomb -  
+  
 Click on the coin to join our **Discord Chat** -  
   
 Therefore, starting today, we are **winding down** support for Bitcoin payments.  -  
@@ -198,10 +257,6 @@ Bitcoin itself may become **viable** for payments again in the future.  -
    
 Grandma always says I got this problem with **impulse control**. -  
   
-words/2018/words-May.md  
-The new way to make it in business is to spend big, grow fast and use **Kilimanjaro-size** piles of investor cash to **subsidize** your losses, with a plan to become profitable somewhere **down the road**.  -  
-Lamb or lion, his wound must be washed and **sewn**, or it will **fester**. -  
-  
 GOT/GOT3.md  
 **haggle over every ounce**. -  
   
@@ -209,12 +264,16 @@ GOT/GOT3.md
  ------- Second part -----  
   
 words/2019/words-Jan.md  
+**patriotism** is the last refuge of a **scoundrel**. --  
+   
+One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions --  
+   
+Some of Milland's more **remunerative** work came from employers who posted hundreds or thousands of tasks at a time that could be completed in rapid succession --  
 We **vent** our **spleen** on drug **barons**. --  
 The fever was a **sombre** **presage** of his final illness. --  
 In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance --  
   
 words/2018/words-Dec.md  
-a **prelude** to disaster. --  
 The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
 My dad was staying in **palliative care** at the hospital  --  
    

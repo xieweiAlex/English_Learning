@@ -1,16 +1,17 @@
-
+Is it necessary to decide between **remunerative** work and meaningful work? 
+  
 One of the world's most **glamorous** women.  
-A **hereditary** disease 
-a **hereditary** peer 
+A **hereditary** disease  
+a **hereditary** peer  
 I was afraid **lest** he might come too late.  
 Angle of **incidence**  
 **incidence matrix**, **incidence rate**  
 **hoarding and speculation**  
 **disburse** a large amount of money for education  
-
-**blade**, **blaze** 
-
-## Week 3 
+  
+**blade**, **blaze**  
+  
+## Week 3  
 **persecute** sb. with questions  
 be **persecuted** by the **reactionary** government  
 The five countries formed a regional trade **bloc**.  
@@ -18,80 +19,81 @@ The **restless** sea.
 The government has done nothing to **ease** restrictions and manufacturers are growing **restive**.  
 **airwave**  
 he was **held in high esteem** by colleagues.  
-**comrade** in arms 
+**comrade** in arms  
 they were **acutely** **aware** of the difficulties  
-the **stodgy** **three-storey** building - 
+the **stodgy** **three-storey** building -  
 **Terrestial** animals  
-**Curator** **conducted** the visitors round the museum 
-It's difficult to **discern** the truth. -   
-**Attrition** mill 
-
-Instead of carrying a **wad** of cash into the country, I think we will be using an ATM at Narita.
-
-**imperialist power** 
-
-The average citizen, **upon seeing** a marked **squad car**, is made nervous and **apprehensive** and will behave **accordingly**. -   
+**Curator** **conducted** the visitors round the museum  
+It's difficult to **discern** the truth. -  
+**Attrition** mill  
+  
+Instead of carrying a **wad** of cash into the country, I think we will be using an ATM at Narita.  
+  
+**imperialist power**  
+  
+The average citizen, **upon seeing** a marked **squad car**, is made nervous and **apprehensive** and will behave **accordingly**.   
 They will make **fleeting** eye contact if any  
-
+  
 If edges are both **up right**, like a bowl shape, then you good to go!  
-Is it too **lofty** a goal for one person too ambitious or too **presumption** who think you can make the change so large. --   
-
-**lethal** injection
+Is it too **lofty** a goal for one person too ambitious or too **presumption** who think you can make the change so large.   
+**Presumption** is not reality - 
+  
+**lethal** injection  
 'a' is a type variable, **denoting** any possible type  
-
-I want to see your **feline** friends
+  
+I want to see your **feline** friends  
 The sun, the stars, and the moon are **celestial** bodies.  
-
+  
 That's the basic **gist** of this video.  
-I just **preemptively** went to the police. --  
-High school **antics** which doesn't bother me. -   
-These disgusting **underhanded** tactics that these **scumbags** use just shows how cowardly they are. -   
-People like me don't **bend**. 
-**patriotism** is the last refuge of a **scoundrel**. --    
-
+I just **preemptively** went to the police. -  
+High school **antics** which doesn't bother me. -  
+These disgusting **underhanded** tactics that these **scumbags** use just shows how cowardly they are.   
+People like me don't **bend**.  
+**patriotism** is the last refuge of a **scoundrel**. --  
+  
 If you censor **genitals**, it's not considered **indecent** any more.  
-There are **orgs** that check every porn to make sure that censorship is **adequate**. -   
-If you look at East Asia, many places are pretty similar because they tend to be pretty **homogeneous**.    
-
-One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions -- 
-
-He might be their **unwitting** **stooge**. - 
-Same **cadences**, same **delivery**. Maybe it's Obama. -   
-although he is a **long shot**, Castro could be a real **contender**. -   
-
-**Expulsion** of sb from school.   
-**quadruple** 
-
-
+There are **orgs** that check every porn to make sure that censorship is **adequate**.   
+If you look at East Asia, many places are pretty similar because they tend to be pretty **homogeneous**.  
+  
+One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions --  
+  
+He might be their **unwitting** **stooge**. -  
+Same **cadences**, same **delivery**. Maybe it's Obama. -  
+although he is a **long shot**, Castro could be a real **contender**. -  
+  
+**Expulsion** of sb from school.  
+**quadruple**  
+  
+  
 Some of Milland's more **remunerative** work came from employers who posted hundreds or thousands of tasks at a time that could be completed in rapid succession --  
-No matter where Milland was in her house, if she heard the alarm **go off**, she would run to her computer
-and then worked **furiously** to finish them and grab more before they were **snatched** by other people
-When they sent pictures of **genitals**, Milland sent back a link to a book called I’m Calling the Police
-Milland didn't feel like she could leave her apartment, or even her computer, **lest** she miss out on an opportunity to work on good tasks - 
-Another **slideshow** contained photos of animal abuse so **graphic** that years later Milland had trouble taking her dogs to the **vet** without crying
-**veterinarian** - 
-But there is no workers’ compensation in **the gig economy**. There is no paid sick leave in the gig economy
-But when, two years after she’d been working on Mechanical Turk, Milland’s husband finally **landed** a job, as a **forklift** driver at a printer company - 
-
-swagger ?--   
-**pleated pants** 
-**optometrist**
-**Optometry**
-
+No matter where Milland was in her house, if she heard the alarm **go off**, she would run to her computer  
+and then worked **furiously** to finish them and grab more before they were **snatched** by other people  
+When they sent pictures of **genitals**, Milland sent back a link to a book called I’m Calling the Police  
+Milland didn't feel like she could leave her apartment, or even her computer, **lest** she miss out on an opportunity to work on good tasks -  
+Another **slideshow** contained photos of animal abuse so **graphic** that years later Milland had trouble taking her dogs to the **vet** without crying  
+**veterinarian** -  
+But there is no workers’ compensation in **the gig economy**. There is no paid sick leave in the gig economy  
+But when, two years after she’d been working on Mechanical Turk, Milland’s husband finally **landed** a job, as a **forklift** driver at a printer company   
+  
+swagger ?--  
+**pleated pants**  
+**optometrist**  
+**Optometry**  
+  
 ## Weeek 2  
-Because if you get too **aggro**, you might just end up with Trump jumping in the middle. -   
-
+Because if you get too **aggro**, you might just end up with Trump jumping in the middle. -  
+  
 China's top **anti-graft** watchdog will step up supervision efforts this year.  
-
-The default, --group, **lumps** multiple matches in the same file together, and presents them under a single occurrence of the filename
-
-
+  
+The default, --group, **lumps** multiple matches in the same file together, and presents them under a single occurrence of the filename  
+  
+  
 **Carrefour**  
 A **whiff** of perfume  
 However, **stool** eating, also known as **coprophagy**, is actually quite normal behavior for a puppy  
-The mother usually stops eating her puppies' **feces** around the time that they have begun eating solid food and can leave the **den** to **defecate**  -   
+The mother usually stops eating her puppies' **feces** around the time that they have begun eating solid food and can leave the **den** to **defecate**  -  
 you will need to consult a **veterinarian** or **behaviorist** in order to identify the problem  
-The **bog** is home to rare **mosses**. -   
+The **bog** is home to rare **mosses**. -  
 A **bog** of legal complications.  
 She often buys clothes on **impluse**.  
 But my **impluse** was still right.  
@@ -99,12 +101,12 @@ She teaches **archaeology** at the university.
 No **analogy** exists between them.  
 the **obscurities** in his poems and plays.  
 This says a basic **tenet** of capitalism.  
-They represent every race, ethnicity, and **creed**
-**bulging bicepts**. 
+They represent every race, ethnicity, and **creed**  
+**bulging bicepts**.  
 songs that **evoke** old memories.  
-
   
-  
+   
+   
 **defunct** company  
 a **defunct** political organization.  
 **spice of life**  
@@ -123,49 +125,49 @@ force of **inertia**
 a **phoney** Welsh accent  
 She was an **atheist** but now she says she's seen the light.  
 **Atheism**  
-He was easily **dissuaded** from going. -  
+He was easily **dissuaded** from going.   
 **glamour girl**  
 He took up the **cause** with **evangelical** fervor. -  
 **open-hearted** **goodwill**  
 **secularism**  
 A **bastion** of **male chauvinism**. -  
-A free press is one of the **bastions** of a democracy.   
+A free press is one of the **bastions** of a democracy.  
 **dissipate** one's energy.  
 To **err** is human.  
 **Securities** that are **denominated** in dollars or yen. -  
 Teaching is a **worthwhile** **calling**.  
 Official **referee**  
-  
-  
+   
+   
 **pathological** adoration  
 I wish I could do it more **readily**.  
-It's something, just from a character point, and also comedically that you can really **latch onto**. -    
+It's something, just from a character point, and also comedically that you can really **latch onto**. -  
 Besides, this guy sounds like a **jackass**.  
 It's us being **full-blown** **timewasting** jackass.  
-You get downtime between set ups, and you have some time, we all sit around and **goof off** -   
+You get downtime between set ups, and you have some time, we all sit around and **goof off** -  
 I play lots of **solitaire**.  
-What a **dweebazoid**. -    
-Essentially it's an **amalgamation** of myself. -   
+What a **dweebazoid**. -  
+Essentially it's an **amalgamation** of myself. -  
 **LAN party**  
-I was eating in the lobby of the hotel right before a **premiere** -    
+I was eating in the lobby of the hotel right before a **premiere** -  
 **mahatma gandhi**. -  
 The second question was **impenetrable**.  
 **impromptu**  
 They could be real **auteurs**  
 that's a pretty **deep cut**.  
-  
+   
 **authoritarianism**  
 **moderation**  
 **Moderation** in all things is my **motto**.  
-  
+   
 I can't stand listening to this **demented** **ignorant** old liar anymore.  Please bring the adults back into the room. -  
 Oh, no, thanks. I'm **on a diet**.  
-  
+   
 John **bungled** the job.  
 I got it cheap. It was a **foreclosure**.  
 a **solitary** **retreat**. -  
 There was a **solitary** sheep in the field.  
-  
+   
 The village **straddles** the frontier  
 **straddle** on the tariff issue. -  
 The **syndicate** appears to be organized like a typical corporation, with descending levels of power. -  
@@ -193,20 +195,20 @@ Apply a **plaster** on a wound.
 **plaster** bandages. **plaster** walls.  
 **forensic** medicine  
 **forensic** evidence.  
-  
+   
 There are other contexts in which smaller numbers have **run afoul of** laws or regulations, or drawn the attention of authorities. -  
-  
+   
 schoolchildren **wreaking havoc** in the classroom. -  
 **salvation** from alcoholism  
 that great **barrack** of a house  
-  
+   
 Traditionally, the **kimono** was made of silk  
-  
+   
 No. You're **barking up** the wrong tree  
-  
+   
 **Bento** club  
 Facebook is the new **crapware**  
-  
+   
 Everyone experiences at least some degree of **cognitive** and **motor** decline over time, and some 8.8 percent of Americans over 65 now have **dementia**. -  
 **hallucinating**  
 Build results are cached “in the cloud”. This includes **intermediate** results  
@@ -214,22 +216,22 @@ The fact that the code author chooses their reviewers helps avoid such problems,
 **idiomatic** code in a particular language  
 **Post-mortems**  
 The focus is on the problems, and how to avoid them in future, not on the people or **apportioning** blame. -  
-  
+   
 > "Marry or do not marry, you will regret it either way. ...Laugh at the stupidities of the world or weep over them, you will regret it either way. ...Trust a girl or do not trust her, you will regret it either way. ...Hang yourself or do not hang yourself, you will regret it either way. ...This, gentlemen, is the **quintessence** of all the wisdom of life.".  Kierkegaard, Either/Or  
 the **quintessence** of evil. -  
 Flying a glider is a good metaphor here. Because a glider doesn't have an engine, you can't fly into the wind without losing a lot of altitude. If you let yourself get far downwind of good places to land, your options narrow uncomfortably. As a rule you want to stay upwind. So I propose that as a replacement for "don't give up on your dreams." **Stay upwind**  
 What they really mean is, don't get **demoralized**  
-  
+   
 **self-deception**  
-  
+   
 > Don't forget to consider that you may regret whatever you do - by human nature, the grass is **proverbially** always greener on the other side  
 It is **proverbially** easier to destroy than to construct. -  
-  
+   
 on the short history of this group, this is the longest sub-side-topic conversation, **whilst** being super friendly  
-  
+   
 We **catalog** and describe Google’s key software engineering practices.  
 He was a former **moderator** of the Usenet newsgroup comp.std.c++ and was an officially **accredited** “Technical Expert” to the ISO C and C++ committees  
-  
+   
 > Jamie isn’t unhappy. He’s bored, but doesn't quite realize it. As he gets older his **boredom** is turning to fear.  
 > The first thing is that everyone has **considerable** problems. Not simply occasional **tough spots**, but the type of issue that persists for years or decades. The kind that becomes a theme in life, that feels like part of your identity. By the sounds of it, it’s typical among human beings to feel like something huge is missing.  
 **self-esteem**  
@@ -238,13 +240,13 @@ For Jamie, and for most of us, those four major structures were not decided **co
 The result — what you do today — is more or less **happenstance**.  
 > but once we have some stable friendships we become complacent and stop actively looking for friends that really **resonate** with our values and interests, if we **ever did at all**  
 > But most of us become too **established** in one place to seriously consider moving once we hit 30  
-  
-  
+   
+   
 ## Week 1  
 Three hardy **perennials**: intellectual property protection, force technology transfer.  
 **perennial grasses**. -  
 **come to naught**  
-  
+   
 **Swarm** across the **Volga river**  
 **Normandy beaches** quick become the **focal point** for the allied war effort  
 Too tall to **surmount** too thick to penetrate these **hedgerows** provide perfect cover for the **outnumber** Germans.  
@@ -254,7 +256,7 @@ Too tall to **surmount** too thick to penetrate these **hedgerows** provide perf
 The bloodiest battle in the pacific was **Okinawa**  
 6 million **Jewish** people were killed in the **holocaust**. -  
 **torpedo**  
-  
+   
 A **dollop** of whiskey  
 not a **dollop** of truth to the story  
 national **anthem**  
@@ -288,7 +290,7 @@ In his will he made a substantial **bequest** to his wife
 He is **famed** for his **eccentricities**.  
 She **flouted** the **proprieties**. -  
 a remote **outpost** of civilization  
-  
+   
 Who would argue that some of this history is of course has been **lopsided**. -  
    
 Imagining a new **culinary** possibility  
@@ -326,10 +328,10 @@ Sqrrl, a cybersecurity startup that was **spun out** of the NSA
 Amazon partnered with JPMorgan Chase and **Berkshire Hathaway** to create a new, still nameless company **ostensibly** designed to improve healthcare and cut costs. In August, CNBC reported that Amazon plans to open **primary care** clinics at its headquarters in Seattle. -  
    
    
-**Confound** fiction and fact. -  
+**Confound** fiction and fact.   
 a **confounded** fool  
 Who will act as **mediator** in the dispute?.  
-This year, the first **cohort** of such children, about 3,300, reach that age. -  
+This year, the first **cohort** of such children, about 3,300, reach that age.   
 The artist **sequestered** himself in his studio for two years.  
 You wanna play "**mistress** or second wife"?  
 The **mistress** of her own mind  
