@@ -1,20 +1,26 @@
 
+In a nascent condition  
+An **outward** display of friendliness 
+**composite** number 
+People on parole must follow certain rules.  
+
+The Wandering Earth feels like a **throwback** to a few familiar **eras** of American **filmmaking**
+
 The **pilgrims** broke into song.  
 The lamb was a **puny** little thing.  
 He tried to **pacify** the mob.  
 Clear expression is the **hallmark** of good writing.  
 **respiratory** tract  
 **monsoon** climate of medium latitudes  
-**Aquiculture** and **poultry**
+**Aquiculture** and **poultry** - 
 A young **goose** is a **gosling**.  
 **Clear-cut** evidence of **tampering**. - 
 a **deluge** of complains.  
 
 
-
-There billionaires are **fear mongering**, right?  
-a **myth busting** show 
-People in that country are living in a thick bubble of **intercultural** ignorance, they barely understand people outside their border
+There billionaires are **fear mongering**, right? -   
+a **myth busting** show -  
+People in that country are living in a thick bubble of **intercultural ignorance**, they barely understand people outside their border
 
   
 she gave him a **smack** on the face  
@@ -40,17 +46,15 @@ It isn’t just about some land, it was our home, our way of life was **taken aw
 We keep the pain of what was done to our **predecessors**  
   
 An **irresistible** **impulse** to **sneeze**.  
-a **burial** chamber  
-An **injunction** restraining the disclosure of company secrets. -   
-  
+A **burial** chamber  
+An **injunction** restraining the **disclosure** of company secrets. -   
   
 Fortune is **fickle**  
 He is **fickle** to a **proverb**.   
 **faulty** concrete  
   
-  
 We went into a passionate **clinch** on the sofa.  
-You must seek **redress** in the law courts. -   
+You must seek **redress** in the law courts.    
 **Redress** the scales -  
 deadly **infighting** among the politicians  
 The court refused to **extradite** political refugees.  
@@ -59,11 +63,11 @@ meteor **crater**
 **crater rim**  
   
   
-This is almost **surreal** in today's America -  
+This is almost **surreal** in today's America   
 Some presidents need **show-and-tell** on that front  
   
 Thieves in the **bazaar** rubbed us blind.  
-They're real **aggro** men who'll bully anybody for a few **quid**  
+They're real **aggro** men who'll bully anybody for a few **quid** -   
   
 Straight / **heterosexual**  
   
