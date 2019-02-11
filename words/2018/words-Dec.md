@@ -151,7 +151,7 @@ My dad was staying in **palliative care** at the hospital  --
    
 The funeral was set near the **outskirts** of Iowa City in a house by the woods  
 I turned to **look behind** me  
-And standing there — **drenched** in sweat from the Iowa summer -  
+And standing there — **drenched** in sweat from the Iowa summer   
    
 By testing it on real people a company can discover whether users feel like they've been **duped** or forced into an uncomfortable habit.  -  
    
@@ -343,7 +343,7 @@ The rule is **inapplicable** to this case -
    
 So what happens **over the course** of that year?  
    
-THE **spectator** index -  
+The **spectator** index   
 They asked the **spectators** to keep off.   
 **nominal GDP**  
    
@@ -385,7 +385,7 @@ The Russian vessel was **on manoeuvres**.
 They **manoeuvred** his resignation  
 **protection racket**  
 He was known for running a brutal **extortion racket**.  
-He **reviled** his opponent unmercifully  --  
+He **reviled** his opponent unmercifully  -  
 The election was a **farce**, for it was fixed  
 a **stampede** of **bargain hunters**.  
 The crowd **panicked** and **stampeded** for the exit.  
@@ -432,7 +432,7 @@ The medicine is used to **assuage** pain
 The desperate **bandit** is fighting at the police  
 **profess** Catholicism  
 They try to **forestall** their questions.  
-A **clampdown** on crime  -  
+A **clampdown** on crime    
 The **ridged** sand of the beach  
 evil deeds **perpetrated** by **wicked** people  -  
    
@@ -450,7 +450,7 @@ This week has seen the **hype** for 5G, the creatively titled **successor** to 4
    
 First baby born after **deceased** womb transplant  
 **deceased account**  
-**cold remedy**  -  
+**cold remedy**    
 the **innate** immune system tries to flush invading cells out, while the **adaptive system** targets specific **pathogens** that the body already has had contact with and creates memory cells of new ones, so the body can **fight** them **off** if they return  
 Because the immune system is only **impaired** in otherwise healthy people when we have a **vitamin** or **mineral deficiency**  
    

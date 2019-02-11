@@ -1,9 +1,30 @@
+words/2017/words-Nov.md  
+**print spooler** -  
+   
+  
 words/2019/words-Feb.md  
+**Clear-cut** evidence of **tampering**. -  
 the batterfield was a scene of utter **carnage**. -  
-it is designed to **favor** readability and flexibility for the programmer performance. -  
 The fire **charred** the woodwork  -  
-He is **fickle** to a **proverb**. -  
+They have nothing better to do than **brawl** in the street. -  
+   
+   
+An **injunction** restraining the disclosure of company secrets. -  
+   
+   
+You must seek **redress** in the law courts. -  
+**Redress** the scales -  
 This is almost **surreal** in today's America -  
+**subliminal** perception -  
+Growing up, I was always **coprophilia**. -  
+   
+   
+Many properties are listed under “**gratis** transfer” for the sum of **literally** zero yen -  
+Another factor is **superstition**. Properties associated with tragedies such as suicide, murder, or "lonely deaths" are thought to bring bad luck in Japanese culture, making it harder to sell them on to a new owner and further feeding the **surfeit** of vacant properties that are slowly falling into **disrepair** around the country --  
+the homes aren't technically “free” until you've rented them out for a number of years and the property has **subsequently** been **deemed** yours -  
+   
+Ignore the **naysayers** say you don't need it. -  
+   
 **anti-semitic** -  
 Opium is a **narcotic** drug -  
 a **prelude** to disaster -  
@@ -15,11 +36,103 @@ a **renowned** painter -
    
    
   
+words/2018/words-Dec.md  
+A **palpable** sense of loss. -  
+Heat **debilitates** many people. -  
+The crisis led to the **downfall** of the government. -  
+The republics want **secession** from the union.  -  
+This sign **presage** rains. -  
+a **discourse** on critical theory. -  
+**Gregorian** calendar. -  
+   
+Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.  -  
+But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition. -  
+Amazon is **winding down** the latter. -  
+he was one hell of a **snappy** dresser. -  
+**canny** investors will switch banks if they think they are getting a **raw deal**. -  
+Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard. -  
+and as an adult, he kept an **aquarium** in his home. -  
+For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food. -  
+It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
+   
+be in a **bellicose** mood. -  
+Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health. -  
+**Overture** conditions for a **cease** fire. -  
+Christmas **revels** with feasting and dancing were common in England. -  
+A few Arab leaders recognize that water and energy **profligacy** must be **curbed** if ecological disaster is to be avoided. -  
+the development of **Unitarian** **theology** -  
+The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
+His father was an **ardent** socialist -  
+**scour** a dirty oven -  
+I saw **nunchucks**(**Nunchaku**), ninja smoke, maybe some hairpulling, but not a gun -  
+   
+**Admitting** we’re **fallible** and that we’re working on making things better is a matter of pride for us -  
+   
+My dad was staying in **palliative care** at the hospital  --  
+   
+By testing it on real people a company can discover whether users feel like they've been **duped** or forced into an uncomfortable habit.  -  
+   
+So superior that tests are **inconsequential** to quality -  
+All this cash comes out of the collection plate that is passed among the **congregation** of ordinary people who come to **worship** at the **altar** of power -  
+The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
+The malware itself is relatively **underwhelming** -  
+His **scheme** to win the girl **backfired** and she went to another guy. -  
+**lame duck** -  
+**pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
+**pander** to the **vulgar** taste -  
+He **panders** to her every **whim** -  
+**aboriginal** **inhabitants** -  
+A water **vole** swam **vigorously** **upstream**  -  
+the group has no **affiliation** to any preservation society -  
+The customer service rep is usually a small **cog** in a big machine -  
+   
+   
+A **servo** driving an **eccentric** **cam**.  -  
+The **militiaman** walked the spy off. -  
+I **slogged** through the **heather** in the heat -  
+a **bourgeois morality** -  
+He is a **shrewd** businessman man  -  
+I always get the **jitters** before exams. -  
+a child whose welfare is now under the **aegis** of courts -  
+**apocalyptic** literature -  
+The University suspended the most **recalcitrant** demonstrators.  --  
+But the origins of the euro disaster lay less with government **profligacy** than with **excessive** private borrowing --  
+Employee may use **accrued** PTO for any reason, including vacation, illness or any other personal matters.  -  
+The case is **adjourned** to June 4, the judge said -  
+The rule is **inapplicable** to this case -  
+   
+crying is a **cathartic** release. -  
+It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision -  
+   
+This delicious chilled bowl features medium rare grilled **tri-tip**, **quinoa** vegetable medley (onion, radish, carrot, **celery**, eggplant) tossed in creamy **chive dressing**, vegan crunch salad (kale, **garbanzo beans**, parsley, mint, celery, cucumber, zucchini, carrots, red bell peppers), red and golden **beets**, and roasted **pepitas**. Served with a side **citrus** **vinaigrette**. --  
+   
+The theme of the **sermon** was **reverence**  -  
+He **reviled** his opponent unmercifully  -  
+I'm a **hokey** **corny** guy --  
+a **hokey** **tear jerker** -  
+Yeah, it's **corny**, but it's kinda good -  
+He's got the **magic wand** when it comes to American manufacturing  -  
+they get all these **tax breaks** and all these **subsidies** -  
+   
+the comment came more from a **contrarian** **disposition** than moral conviction -  
+Home to Japanese soul food, **unbridled** creativity and -  
+Beef muscles **simmered** in many hours until it becomes tender  -  
+They **allured** her into a **snare**.  -  
+evil deeds **perpetrated** by **wicked** people  -  
+   
+China says violators would be banned from issuing bonds or other financing tools, and participating in government **procurement** -  
+(government **procurement**, **procurement contract**) -  
+   
+And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  
+(Those black clouds look **ominous** for our picnic.) -  
+  
+words/2018/words-Aug.md  
+Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  -  
+   
+   
+  
 words/2019/words-Jan.md  
 the **stodgy** **three-storey** building -  
-It's difficult to **discern** the truth. -  
-**Presumption** is not reality -  
-   
 I just **preemptively** went to the police. -  
 High school **antics** which doesn't bother me. -  
 **patriotism** is the last refuge of a **scoundrel**. --  
@@ -98,9 +211,8 @@ While Taiwan is self-governed and **de-facto** independent, Beijing considers th
 Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people". -  
 In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance --  
   
-words/2018/words-Aug.md  
-Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  -  
-   
+words/2018/words-Mar.md  
+**Apparel** & Fashion -  
    
   
 words/2018/words-Sep.md  
@@ -124,118 +236,12 @@ China is a **populous** nation in East Asia whose vast landscape **encompasses**
 an **impediment** to reform, he has an **impediment** in speech. -  
    
   
-words/2018/words-June.md  
-I remember reading an old **sailor**'s **proverb** --  
-  
-words/2018/words-March.md  
-**Apparel** & Fashion -  
-   
-  
-words/2017/words-November.md  
-**print spooler** -  
-   
-  
 words/2018/words-Oct.md  
 You **mobsters** all suffer from such **hubris** -  
 Open fields of fire and action **unimpeded** by town natural barrier or **civilian** population -  
 (**alimentary tract**, digestive **tract**, **genital tract**, **respiratory** tract, **intestinal** tract) -  
   
 We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -  
-  
-words/2018/words-Dec.md  
-A **palpable** sense of loss. -  
-Heat **debilitates** many people. -  
-The crisis led to the **downfall** of the government. -  
-The republics want **secession** from the union.  -  
-This sign **presage** rains. -  
-a **discourse** on critical theory. -  
-**Gregorian** calendar. -  
-   
-Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.  -  
-But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition. -  
-Amazon is **winding down** the latter. -  
-he was one hell of a **snappy** dresser. -  
-**canny** investors will switch banks if they think they are getting a **raw deal**. -  
-Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard. -  
-and as an adult, he kept an **aquarium** in his home. -  
-For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food. -  
-It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
-   
-be in a **bellicose** mood. -  
-Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health. -  
-**Overture** conditions for a **cease** fire. -  
-Christmas **revels** with feasting and dancing were common in England. -  
-A few Arab leaders recognize that water and energy **profligacy** must be **curbed** if ecological disaster is to be avoided. -  
-the development of **Unitarian** **theology** -  
-The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
-His father was an **ardent** socialist -  
-**scour** a dirty oven -  
-I saw **nunchucks**(**Nunchaku**), ninja smoke, maybe some hairpulling, but not a gun -  
-   
-**Admitting** we’re **fallible** and that we’re working on making things better is a matter of pride for us -  
-   
-My dad was staying in **palliative care** at the hospital  --  
-   
-And standing there — **drenched** in sweat from the Iowa summer -  
-   
-By testing it on real people a company can discover whether users feel like they've been **duped** or forced into an uncomfortable habit.  -  
-   
-So superior that tests are **inconsequential** to quality -  
-All this cash comes out of the collection plate that is passed among the **congregation** of ordinary people who come to **worship** at the **altar** of power -  
-The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
-The malware itself is relatively **underwhelming** -  
-His **scheme** to win the girl **backfired** and she went to another guy. -  
-**lame duck** -  
-**pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
-**pander** to the **vulgar** taste -  
-He **panders** to her every **whim** -  
-**aboriginal** **inhabitants** -  
-A water **vole** swam **vigorously** **upstream**  -  
-the group has no **affiliation** to any preservation society -  
-The customer service rep is usually a small **cog** in a big machine -  
-   
-   
-A **servo** driving an **eccentric** **cam**.  -  
-The **militiaman** walked the spy off. -  
-I **slogged** through the **heather** in the heat -  
-a **bourgeois morality** -  
-He is a **shrewd** businessman man  -  
-I always get the **jitters** before exams. -  
-a child whose welfare is now under the **aegis** of courts -  
-**apocalyptic** literature -  
-The University suspended the most **recalcitrant** demonstrators.  --  
-But the origins of the euro disaster lay less with government **profligacy** than with **excessive** private borrowing --  
-Employee may use **accrued** PTO for any reason, including vacation, illness or any other personal matters.  -  
-The case is **adjourned** to June 4, the judge said -  
-The rule is **inapplicable** to this case -  
-   
-THE **spectator** index -  
-crying is a **cathartic** release. -  
-It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision -  
-   
-This delicious chilled bowl features medium rare grilled **tri-tip**, **quinoa** vegetable medley (onion, radish, carrot, **celery**, eggplant) tossed in creamy **chive dressing**, vegan crunch salad (kale, **garbanzo beans**, parsley, mint, celery, cucumber, zucchini, carrots, red bell peppers), red and golden **beets**, and roasted **pepitas**. Served with a side **citrus** **vinaigrette**. --  
-   
-The theme of the **sermon** was **reverence**  -  
-He **reviled** his opponent unmercifully  --  
-I'm a **hokey** **corny** guy --  
-a **hokey** **tear jerker** -  
-Yeah, it's **corny**, but it's kinda good -  
-He's got the **magic wand** when it comes to American manufacturing  -  
-they get all these **tax breaks** and all these **subsidies** -  
-   
-the comment came more from a **contrarian** **disposition** than moral conviction -  
-Home to Japanese soul food, **unbridled** creativity and -  
-Beef muscles **simmered** in many hours until it becomes tender  -  
-They **allured** her into a **snare**.  -  
-A **clampdown** on crime  -  
-evil deeds **perpetrated** by **wicked** people  -  
-   
-China says violators would be banned from issuing bonds or other financing tools, and participating in government **procurement** -  
-(government **procurement**, **procurement contract**) -  
-   
-**cold remedy**  -  
-And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  
-(Those black clouds look **ominous** for our picnic.) -  
   
 words/2018/words-May.md  
 The new way to make it in business is to spend big, grow fast and use **Kilimanjaro-size** piles of investor cash to **subsidize** your losses, with a plan to become profitable somewhere **down the road**.  -  
@@ -263,6 +269,9 @@ GOT/GOT3.md
   
  ------- Second part -----  
   
+words/2019/words-Feb.md  
+Another factor is **superstition**. Properties associated with tragedies such as suicide, murder, or "lonely deaths" are thought to bring bad luck in Japanese culture, making it harder to sell them on to a new owner and further feeding the **surfeit** of vacant properties that are slowly falling into **disrepair** around the country --  
+  
 words/2019/words-Jan.md  
 **patriotism** is the last refuge of a **scoundrel**. --  
    
@@ -282,8 +291,4 @@ The University suspended the most **recalcitrant** demonstrators.  --
 But the origins of the euro disaster lay less with government **profligacy** than with **excessive** private borrowing --  
 This delicious chilled bowl features medium rare grilled **tri-tip**, **quinoa** vegetable medley (onion, radish, carrot, **celery**, eggplant) tossed in creamy **chive dressing**, vegan crunch salad (kale, **garbanzo beans**, parsley, mint, celery, cucumber, zucchini, carrots, red bell peppers), red and golden **beets**, and roasted **pepitas**. Served with a side **citrus** **vinaigrette**. --  
    
-He **reviled** his opponent unmercifully  --  
 I'm a **hokey** **corny** guy --  
-  
-words/2018/words-June.md  
-I remember reading an old **sailor**'s **proverb** --  

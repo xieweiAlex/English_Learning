@@ -24,7 +24,7 @@ they were **acutely** **aware** of the difficulties
 the **stodgy** **three-storey** building -  
 **Terrestial** animals  
 **Curator** **conducted** the visitors round the museum  
-It's difficult to **discern** the truth. -  
+It's difficult to **discern** the truth.   
 **Attrition** mill  
   
 Instead of carrying a **wad** of cash into the country, I think we will be using an ATM at Narita.  
@@ -36,7 +36,7 @@ They will make **fleeting** eye contact if any
   
 If edges are both **up right**, like a bowl shape, then you good to go!  
 Is it too **lofty** a goal for one person too ambitious or too **presumption** who think you can make the change so large.   
-**Presumption** is not reality - 
+**Presumption** is not reality  
   
 **lethal** injection  
 'a' is a type variable, **denoting** any possible type  

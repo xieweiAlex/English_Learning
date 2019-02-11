@@ -70,7 +70,7 @@ How am I suppose to prove myself by **pillaging** **piss-poor** fishing villages
 The Starks have **overextended** their lines.  
 They want to return home and gather the harvest before the **crops** **turn**.  
 **hurrah**.  
-I remember reading an old **sailor**'s **proverb** --    
+I remember reading an old **sailor**'s **proverb**     
 The **substance** burns so hot, it melts flesh like **tallow**.  
 (**Tallow** is a rendered form of beef or **mutton** fat, processed from **suet**. It is solid at room temperature. Unlike suet, tallow can be stored for extended periods without the need for **refrigeration** to prevent **decomposition**, provided it is kept in an **airtight** container to prevent **oxidation**.)  
 The jars are put in **catapults** and **flung** at the enemy.  
