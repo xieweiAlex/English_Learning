@@ -26,7 +26,7 @@ a **discourse** on critical theory. -
 a **pat** of butter  
 I had no idea of the **gaffe** which I was committing  
 **rubble concrete**  
-He **scrape through** the entrance exam  
+He **scrape through** the entrance exam -  
 She has to **scrape** by on Social Security  
 The sights were **reminiscent** of my childhood.   
 Don't apply for the job, you're in danger of **overreaching** yourself.  

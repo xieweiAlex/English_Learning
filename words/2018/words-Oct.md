@@ -13,7 +13,7 @@ The new year brought no **respite**
 Indonesia was attacked by Japanese **paratroopers** again 
 The **morale** amongst the US forces is high 
 Singapore was the **mythology** of the British Empire built into actuality  
-a center of **maritime trade**, a **conduit** for wealth  
+a center of **maritime trade**, a **conduit** for wealth  - 
 (the office acts as a **conduit** for ideas to flow throughout the organization)
 battle must be fought to the **bitter end** 
 Japanese general Yamashita **achieve** the victory with less than 2000 **casualties**.  
@@ -186,7 +186,7 @@ the **precursor** of modern mathematics
 The village **seethed** with life 
 Water **seethed** in the **caldron** 
 
-I was super **pumped**.  
+I was super **pumped**. -   
 **cold turkey**
 (Gotta go **cold turkey**. - Can we talk about this)
 **self-esteem**

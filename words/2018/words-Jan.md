@@ -145,7 +145,7 @@ I will put an **old-fasioned** **country** **ass-whuppin**.
 Go for a walk, Hector, **Cool off**.  
 My preference would be to **walk you out**, but I don't have to.  
 It doesn't give you the **right** to **disrescpect** my place.  
-Okay, so it's **squashed**, I got your word.  
+Okay, so it's **squashed**, I got your word. -  
 You **sustained** multiple **blows** to the head during the **altercation**.  
 **Market capitalization**.  
 He tried to **pull me off**. I caught him with the **backswing**.  

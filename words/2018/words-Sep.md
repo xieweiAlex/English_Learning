@@ -247,7 +247,7 @@ I would have said **bottle caps** if you asked me a year ago. But now I think **
 :thinking_face: Can’t think of a **snarky**, **punny** response to that.  
 **disenchantment**  
    
-What kind of **philistine** doesn't have their phone on them at all times!?!  
+What kind of **philistine** doesn't have their phone on them at all times!?!  -  
 A **sidekick** is a slang expression for a close **companion** or colleague (not necessarily in fiction) who is actually, or generally regarded as, **subordinate** to the one he accompanies.  
 **laissez-fair** (hands off)  
    

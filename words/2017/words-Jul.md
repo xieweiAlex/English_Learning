@@ -427,7 +427,7 @@ Asian Fetish
   
 we can see that the result depends on the **divisibility** of a number by 9  
   
-An **asterisk** indicates that the field is required.  
+An **asterisk** indicates that the field is required. -   
   
 Time is most precious **asset** to everyone.  
   

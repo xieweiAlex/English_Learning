@@ -180,7 +180,7 @@ The best thing about being home is the freedom to be crusty.
    
    
 **Wolf-whistling** or **finger whistling** is a type of whistling in which fingers are inserted in the mouth to produce a louder and more **penetrating tone**.  
-**Inexplicably** being **ambushed** with ground spinner fireworks three times now.  
+**Inexplicably** being **ambushed** with ground spinner fireworks three times now. -   
 Passion is **overrated**.  
    
 It's **sprinkling** not raining.  

@@ -61,7 +61,7 @@ So just bring it out to Dr. Chang, and we'll all **call it a day**. Okay?
 Did you just. You konw, it **stinks**.  
 Dude, that guy is totally a **douche**.  
 This island has a number of deceased individuals residing on it.  
-He is the man who chartered the boat you'll be getting on next week.  
+He is the man who **chartered** the boat you'll be getting on next week.  
 Toss him.  
 I can make time.  
 I just have an errand to run, I'll be right back.  
