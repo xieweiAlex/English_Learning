@@ -1,24 +1,50 @@
+
+They are pulling out of **dealerships** too. **Ostensibly** for cost saving.  
+His father actually **disowned** him.  
+We're both pretty **laid back** & just enjoy each other has best friends.  
+
+I think I've evolved beyond my simple rustic **upbringing**.  
+
+Sometimes you have to **walk away** from negotiations, the president said during an **uncharacteristically** **subdued** appearance before the media
+an administration official explained that the **gambit** was designed to avoid the pitfalls of decades of ultimately unsuccessful lower-level negotiations
+
+**funeral parlour**  
+
+**house oversight committee**.  
+be under the **oversight** of.  
+
+Google—the search engine company that everyone grew to love at the time—announced that they’re entering the **ring**. Chrome was born.  
+What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing.  
+While the Chrome browser itself is not open-source, most of its **innards** are. Chromium, the non-proprietary subset of Chrome, was open-sourced early on with a generously **permissive license** as a sign of commitment to the open Web community. -  
+
+he personally **overheard** Trump and Stone discussing Assange's plans in July 2016.  
+
+I was a little bit **put off** by this.  
+Honestly thought the “storage” room was going to be a sex dungeon, but the **decapitated** dolls were much worse.  
+We were able to keep teams small, invest more in each person, and **nimbly** change our ways of working as needs changed. -   
+
+
 **plague** 
 **kiwi youth** 
 **statism**  
 **Asthma** 
 
-Japnese attached zeror stigma to nudity and eroticism 
-government then came and confiscated everyone shunga 
+Japanese attached zero **stigma** to nudity and **eroticism** 
+government then came and **confiscated** everyone's **shunga** -  
 
-Heavily **doused** in **religious imagery**, the show explores themes of depression and existential dread.  
+Heavily **doused** in **religious imagery**, the show explores themes of depression and **existential dread**.  
 
 I finally decided it's time to **defy** this recommendation  
 **mojibake**: random output characters   
 Then I have to **fiddle** with the encoding for a bit until it's a consistent  
 
-Bernie Sanders vs. **Incumbent** Republican President Donald Trump. -  
+Bernie Sanders vs. **Incumbent** Republican President Donald Trump.   
 
 **Empirical laws**.  
 They got into the school in the **guise** of inspectors.  
 
 Can climb the ladder of social mobility and reach the highest **echelon**. -   
-**executioner**  
+**executioner**    
 More people **executed** in China than rest of the world combined. 
 **scorecard system**  
 **mandate of heaven**  
@@ -38,9 +64,12 @@ The two leaders will meet in **Hanoi** on Wednesday and Thursday
 
 The six most common elements in living things are carbon, **hydrogen**, oxygen, **nitrogen**, **phosphorus**, and **sulfur**. Atoms of these elements combine and form thousands of large **molecules**. These large molecules make up the structures of cells and **carry out** many processes essential to life.  
 
+
+## Week 3 
+
 to make a **quip**.  
 **quips and cranks**.  
-She was **exasperated** by all this **havering**.  
+She was **exasperated** by all this **havering**. -    
 For god's sake stop **dithering** and make up your mind!  
 He would have preferred his wife not to work, although **conversely** he was also proud of what she did.  
 He **renounced** drugs and alcohol completely.  
@@ -63,8 +92,8 @@ my headset is wired, **albeit** with a long wire that lets me roam around my off
 But I never like to be computerless, and the 13″ laptop is a heavy thing to **lug around**  
 
 
-**Conjure** a duck out of an empty box 
-I **conjure** you not to betray me.  
+**Conjure** a duck out of an empty box -   
+I **conjure** you not to betray me. -   
 It's **improbable** that she will go 
 He filled her glass to the **brim**.  
 they **gaped** at her as if she was an alien  
@@ -229,7 +258,7 @@ a **wretched** life
 **frantic** with worry  
 **leapfrog**  
 **vindicate** one's claim  
-He **thrashed** the boy with a stick  
+He **thrashed** the boy with a stick -  
 the batterfield was a scene of utter **carnage**.   
 Let me know when the **carnage** begins so i can **shield** my eyes  
 it is designed to **favor** readability and flexibility for the programmer performance.   
@@ -252,7 +281,7 @@ Fortune is **fickle**
 He is **fickle** to a **proverb**.   
 **faulty** concrete  
   
-We went into a passionate **clinch** on the sofa.  
+We went into a passionate **clinch** on the sofa. -   
 You must seek **redress** in the law courts.    
 **Redress** the scales -  
 deadly **infighting** among the politicians  

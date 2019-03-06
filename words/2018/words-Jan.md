@@ -154,7 +154,7 @@ We got **shitfaced**, right.
 He is a **psychopath**.  
 Your problem is that you didn't tell me that covering for you with Mr. Success was putting my family in the **crosshairs** of some ex-cop gangster and some still-cop **psycho**.  
 By the woman having a **Seizure** on the floor.  - **Epileptic seizure**  
-This was always your **bread and butter**, all right?  
+This was always your **bread and butter**, all right? -   
 Detective, if one of my **parolees** is connnected to a crime...  
 Anything other than that, come back with a **warrant**.  
 It's in the **impound lot**.  

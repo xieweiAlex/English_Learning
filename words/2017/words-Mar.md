@@ -41,13 +41,13 @@ He doesn't want I talking to you
 I was not meant to do anything  
 be my guest  
 I don't see anything  
-Because I make my living as a psychic.  
-everything she is doing is to spite me  
-Cause she's a zealot.  
+Because I make my living as a **psychic**.  
+everything she is doing is to **spite** me  
+Cause she's a **zealot**.  
 you don't know what are you even talking about, do you? -- NO  
-would you excuse us for a moment?  
+**would you excuse us for a moment**?  
 what's the difference of the others  
-I'm asking you a favor  
+I'm asking you a **favor**  
 they live in tents and teepees.  
 that's very sweet.  
 This is not what it looks like.  

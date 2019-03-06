@@ -205,7 +205,7 @@ Stephen K. Bannon, the **embattled** chief strategist who helped President Trump
 **racism**, sexism, **homophobia**, white supremacy.  
 I have a **tendency** to reject before I got rejected.  
    
-Don’t choose **risk-averse** mentors. -   
+Don’t choose **risk-averse** mentors.    
 Don’t **chase after** the **Joneses**  
 Don’t **underestimate** the power of your community  
    
