@@ -354,7 +354,7 @@ China also build a $526 million **dam** in **Guinea**
 **General Assembly**
 China **touts** the fact that their foreign investment and aid is "**no strings attached**".  
 
-Trump’s greatest superpower is his ability to **wield** **victimhood**.  
+Trump’s greatest superpower is his ability to **wield** **victimhood**. -   
 
 **Catcalled**
 (Street harassment is a form of sexual harassment that consists of unwanted comments, wolf-whistlings, "catcalling", and other actions by strangers in public areas.)

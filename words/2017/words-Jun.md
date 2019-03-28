@@ -268,7 +268,7 @@ This dog was **dangling** from the balcony
 We put the coin **underneath** of the bottle  
 I'm thinking about a **philanthropy strategy**.  
   
-Trump was recently granted a **long-coveted** trademark by the Chinese government.  
+Trump was recently granted a **longcoveted** trademark by the Chinese government.    
   
 She **groan** with **grief**  
   

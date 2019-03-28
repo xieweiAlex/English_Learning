@@ -275,7 +275,7 @@ A **regressive** dictatorship
 I **wondered** down the road  
 I always get the **jitters** before exams. -  
 **rigid steel conduit**, underground **conduit**, **concealed conduit**  
-It's **futile** to allocate blame for this.  
+It's **futile** to allocate blame for this. -  
 a child whose welfare is now under the **aegis** of courts -  
 **apocalyptic** literature -   
 The University suspended the most **recalcitrant** demonstrators.  --  
@@ -386,7 +386,7 @@ They **manoeuvred** his resignation
 **protection racket**  
 He was known for running a brutal **extortion racket**.  
 He **reviled** his opponent unmercifully  -  
-The election was a **farce**, for it was fixed  
+The election was a **farce**, for it was fixed  -  
 a **stampede** of **bargain hunters**.  
 The crowd **panicked** and **stampeded** for the exit.  
 **domestic sewage**, **industrial sewage**, **municipal sewage**  

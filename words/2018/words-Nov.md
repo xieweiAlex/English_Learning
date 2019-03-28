@@ -99,7 +99,7 @@ the Mediterranean has been **overrun** by tourists
 he mustn't **overrun** his budget.  
 He was in an **agony** of **remorse**  
 Take **precautions** against fire!  
-The prime minister was **supplanted** by his rival.  
+The prime minister was **supplanted** by his rival. -   
 Hot and **arid** conditions  
   
   
@@ -452,7 +452,7 @@ Modal editors make the **undergarments** drop
    
 He **snuggled down** and went to sleep.  
 Every night before bed, Henry likes to find something soft to **snuggle** with ❤️  
-Don't make yourself a **nuisance** to others  
+Don't make yourself a **nuisance** to others -  
 employers sometimes make **erroneous** assumptions  
 Since new technologies and tools continuously **crop up** on the Devops landscape  
    

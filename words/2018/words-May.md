@@ -181,7 +181,7 @@ But it also reflects the **willingness** of shareholders and **deep-pocketed** p
 Ultimately, companies like MoviePass **illustrate** the **perilous** **tightrope** many growing businesses must walk.  
 Give too many **freebies** away, and you risk running out of cash before you’re big enough to **cash in**.  
    
-Other devices like Nest Secure and Nest x Yale Locks behaved **erratically**.  
+Other devices like Nest Secure and Nest x Yale Locks behaved **erratically**. -   
 While not **catastrophic** (locks still worked, for example), it’s a reminder just how **precarious** life can be with internet-connected devices.  
    
 YARN stands for **Yet Another Resource Negotiator**, but it's commonly referred to by the **acronym** alone; the full name was **self-deprecating** humor on the part of its developers.  

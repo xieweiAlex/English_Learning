@@ -6,7 +6,7 @@ We're both pretty **laid back** & just enjoy each other has best friends.
 I think I've evolved beyond my simple rustic **upbringing**.  
 
 Sometimes you have to **walk away** from negotiations, the president said during an **uncharacteristically** **subdued** appearance before the media
-an administration official explained that the **gambit** was designed to avoid the pitfalls of decades of ultimately unsuccessful lower-level negotiations
+an administration official explained that the **gambit** was designed to avoid the **pitfalls** of decades of ultimately unsuccessful lower-level negotiations
 
 **funeral parlour**  
 
@@ -14,23 +14,23 @@ an administration official explained that the **gambit** was designed to avoid t
 be under the **oversight** of.  
 
 Google—the search engine company that everyone grew to love at the time—announced that they’re entering the **ring**. Chrome was born.  
-What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing.  
+What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing. -   
 While the Chrome browser itself is not open-source, most of its **innards** are. Chromium, the non-proprietary subset of Chrome, was open-sourced early on with a generously **permissive license** as a sign of commitment to the open Web community. -  
 
 he personally **overheard** Trump and Stone discussing Assange's plans in July 2016.  
 
 I was a little bit **put off** by this.  
 Honestly thought the “storage” room was going to be a sex dungeon, but the **decapitated** dolls were much worse.  
-We were able to keep teams small, invest more in each person, and **nimbly** change our ways of working as needs changed. -   
+We were able to keep teams small, invest more in each person, and **nimbly** change our ways of working as needs changed.    
 
 
 **plague** 
 **kiwi youth** 
 **statism**  
-**Asthma** 
+**Asthma** -  
 
 Japanese attached zero **stigma** to nudity and **eroticism** 
-government then came and **confiscated** everyone's **shunga** -  
+government then came and **confiscated** everyone's **shunga**   
 
 Heavily **doused** in **religious imagery**, the show explores themes of depression and **existential dread**.  
 
@@ -43,9 +43,9 @@ Bernie Sanders vs. **Incumbent** Republican President Donald Trump.
 **Empirical laws**.  
 They got into the school in the **guise** of inspectors.  
 
-Can climb the ladder of social mobility and reach the highest **echelon**. -   
+Can climb the ladder of social mobility and reach the highest **echelon**.    
 **executioner**    
-More people **executed** in China than rest of the world combined. 
+More people **executed** in China than rest of the world combined.  
 **scorecard system**  
 **mandate of heaven**  
 having lived in China for 3 years and seeing what rights the Chinese people are **forfeiting** and what they are gaining in return -  
@@ -78,7 +78,7 @@ The politicians and **warlords** who are **fermenting** this chaos. -
 An **egregious** lie. -  
 She slowed for a **roundabout**, taking the second exit.  
 The city was **awash** with journalists.  
-A quiet, reflective, **astute** man.  
+A quiet, reflective, **astute** man. -   
 This invention is **ascribed** to Edison.  
 **quash** a rebellion.  
 **writ** of summons  
@@ -86,15 +86,14 @@ This invention is **ascribed** to Edison.
 **White crane** 
 
 For many years my wife had been **extolling** the virtues of spending time outside -   
-perhaps I've just been walking in “simple enough” environments—that I haven’t **tripped** even when I’m not consciously paying attention  
+perhaps I've just been walking in “simple enough” environments—that I haven’t **tripped** even when I’m not consciously paying attention -    
 But if video is on, seeing people who are not paying attention just seems to **viscerally** kill the mood of almost any meeting - 
 my headset is wired, **albeit** with a long wire that lets me roam around my office  
 But I never like to be computerless, and the 13″ laptop is a heavy thing to **lug around**  
 
-
-**Conjure** a duck out of an empty box -   
-I **conjure** you not to betray me. -   
-It's **improbable** that she will go 
+**Conjure** a duck out of an empty box    
+I **conjure** you not to betray me.    
+It's **improbable** that she will go   
 He filled her glass to the **brim**.  
 they **gaped** at her as if she was an alien  
 Grand a **respite** to a condemned man.  
@@ -131,7 +130,7 @@ Planking (or the Lying Down Game) is an activity consisting of lying face down, 
 They arrested him on charges of public **intoxication** and **possession** of a firearm while **intoxicated**. -   
 
 ## Week 2 
-Remove the **thorn** form tread.  
+Remove the **thorn** form **tread**.  
 rear **derailleur**  
 front **derailleur**  
 
@@ -141,10 +140,10 @@ front **derailleur**
 you can also add mushrooms, to add in more **antioxidants**.  
 
 The **crux** of each test is a call to assertEqual() to check for an expected result. 
-the **crux** of an argument.
+the **crux** of an argument. -  
 **probiotics** help repopulate your **gut** with the healthy bacteria
 
-But I felt my learning rate was being **annealed** (read: slowing down) **yet** my mind was **craving** more
+But I felt my learning rate was being **annealed** (slowing down) **yet** my mind was **craving** more
 The most important thing is to keep your curiosity and **modesty**
 
 Do you see yourself as a **trailblazer** in this way?  
@@ -152,12 +151,12 @@ His **quarrel** is with my creator
 
 **drizzle** starting in 50 mins.  
 
-The **sinitic** languages.  
+The **sinitic** languages. -   
 
 Become **literate**  
 The idea of abolishing **Kanji** is **out of question**. 
-It's gonna be **rip-roaring**.  
-The worst thing you can do is to **stagnate** -  
+It's gonna be **rip-roaring**. -   
+The worst thing you can do is to **stagnate**   
 If someone has the money to be able to **sway** them to do either a better job or just not **sabotage** their health in general.  
 The **exorbitant** fees we paid for the VIP room **pertain** the actual deliver room. -   
 It's little **unnerving experience** to sit in a abortion **ward** next to the deliver ward. 
@@ -184,7 +183,7 @@ a **midair hijack**
 money **worship**  
 They were in a state of **euphoria** after the baby was born.  
 Several **pitfalls** remain 
-I just **puked** on the hood of that car. -   
+I just **puked** on the hood of that car.    
 The experience completely **unnerved** me.  
 Joy and **grief** are extremes.  
 We're not **unduly** worried. -   
@@ -312,7 +311,7 @@ Many properties are listed under “**gratis** transfer” for the sum of **lite
 Another factor is **superstition**. Properties associated with tragedies such as suicide, murder, or "lonely deaths" are thought to bring bad luck in Japanese culture, making it harder to sell them on to a new owner and further feeding the **surfeit** of vacant properties that are slowly falling into **disrepair** around the country --    
 the homes aren't technically “free” until you've rented them out for a number of years and the property has **subsequently** been **deemed** yours - 
   
-Ignore the **naysayers** say you don't need it. -   
+Ignore the **naysayers** say you don't need it.    
   
 **edible** tree fungus  
 the **fungus** will decay soft timber  
@@ -338,7 +337,7 @@ The rebels had the perfect **pretext** for making their move. -
 Find **consolation** in one's work.  
 Commit no **nuisance**  
 **Nuisance** analysis  
-diligence **redeems** stupidity. -   
+diligence **redeems** stupidity.    
 He **decried** it as a criminal act, but was **overruled**. -  
 The Weather Bureau gave **adequate** warning of the **advent** of the hurricane.  
 **Overload** protection  
@@ -350,7 +349,7 @@ In which case, I was merely the **catalyst** to get things going.
 as stiff as a **poker**  
 the **gleam** of hope **vanished**  
 the cafe was **engulfed** in flames.  
-**rump** steak  
+**rump** steak -   
 **adorn** oneself with jewels.  
 **flog** a dead horse  
 a **sanguine** **complexion**.  

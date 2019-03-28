@@ -263,7 +263,7 @@ Descripe the president's conduct as "**nothing short of** treasonous"
 He does not skip **leg day**, and I know because right now I'm **smooching** his **glutes**.  
    
 This is a huge blow to Amazon and its **faux** holiday Prime Day.  
-It’s not a good look for the world’s largest retailer even though the retailer saw **glitches** last year, too.  
+It’s not a good look for the world’s largest retailer even though the retailer saw **glitches** last year, too. -  
 Other retailers jumped on Amazon’s **bandwagon** and are running **big sales** around Prime Day.  
 As of this post’s publication, both Walmart and Target are not suffering site **outages** and probably love Amazon’s outage.  
    

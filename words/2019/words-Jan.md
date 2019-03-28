@@ -13,11 +13,11 @@ Angle of **incidence**
   
 ## Week 3  
 **persecute** sb. with questions  
-be **persecuted** by the **reactionary** government  
+be **persecuted** by the **reactionary** government -   
 The five countries formed a regional trade **bloc**.  
 The **restless** sea.  
-The government has done nothing to **ease** restrictions and manufacturers are growing **restive**.  
-**airwave**  
+The government has done nothing to **ease** restrictions and manufacturers are growing **restive**.    
+the **airwaves** bristle with the sexual dis of **shock jocks**.
 he was **held in high esteem** by colleagues.  
 **comrade** in arms  
 they were **acutely** **aware** of the difficulties  
@@ -199,7 +199,7 @@ Apply a **plaster** on a wound.
 There are other contexts in which smaller numbers have **run afoul of** laws or regulations, or drawn the attention of authorities. -  
    
 schoolchildren **wreaking havoc** in the classroom. -  
-**salvation** from alcoholism  
+**salvation** from alcoholism -  
 that great **barrack** of a house  
    
 Traditionally, the **kimono** was made of silk  

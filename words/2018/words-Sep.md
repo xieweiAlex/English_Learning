@@ -337,11 +337,11 @@ At that time, we discovered an app on the App Store named Adware **Medic** — a
 It’s a **rampant** problem.  
 **rampant sex**  
 a **rampant** growth of weeds in the **neglected** yard  
-Even if Apple isn't willing to commit the human resources to tackle review fraud across the entire App Store — a **Sisyphean task** at this point.  
+Even if Apple isn't willing to commit the human resources to **tackle** review fraud across the entire App Store — a **Sisyphean task** at this point.  
    
-Elegant and **clumsy**. **mischievous** and obedient.  
+Elegant and **clumsy**. **mischievous** and obedient. -    
 **clumsy** devices  
-a very **clumsy** attempt to park  
+a very **clumsy** attempt to park  -  
    
 Russia’s authorities started trying to block the service in April but they **inadvertently** blocked Russian users’ access to **a slew of** unrelated online services.  
 Because of that **hiccup**, the attempt to block Telegram was put on hold, and the service is still accessible to Russian users.  
@@ -442,7 +442,7 @@ Moron is a term once used in psychology to **denote** mild intellectual disabili
    
 There’s no fairness here, if you’re a Democrat or a friend of Hillary you get **immunity** or **off scott free**.  
    
-John McCain managed to deliver a final **rebuke** to the man who wasn't there.  
+John McCain managed to deliver a final **rebuke** to the man who wasn't there. -   
    
 Getting a PhD feels like a “safe” option: it’s a **well-defined** path to doing something considered **prestigious**. But this can just be a way of **postponing** many necessary personal milestones: of learning to define and **set** your own goals **apart** from a structured academic system and of connecting more deeply with your own **intrinsic** motivations and values  
 In **hindsight**, all of these were part of a narrower range of skills than I realized, and many of these skills were less **transferable** than I’d hoped. -   

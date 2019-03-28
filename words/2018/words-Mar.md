@@ -102,7 +102,7 @@ Do you think I'm **plump**?
 I don't believe that giants and **ghouls** and white walkers are **lurking** beyond the wall.  
 I travel a bit on the **grubby** side, my lord.  
    
-According to the 2015 American Community Survey, in this group there were roughly 134 men for every 100 women in San Jose. That's a big **disparity**!  
+According to the 2015 American Community Survey, in this group there were roughly 134 men for every 100 women in San Jose. That's a big **disparity**! -  
 Kristine Kilanski is a sociologist at Stanford studying **boomtowns** with **distorted** gender ratios.  
 Kilanski lived in an oil **boomtown** for her research.  
    
