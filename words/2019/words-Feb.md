@@ -50,9 +50,9 @@ More people **executed** in China than rest of the world combined.
 **mandate of heaven**  
 having lived in China for 3 years and seeing what rights the Chinese people are **forfeiting** and what they are gaining in return -  
 
-Spotify's acquisition **spree** won't change the podcast industry on its own. But it's another signal that we're on the **cusp** of a similar change for podcasting -   
+Spotify's acquisition **spree** won't change the podcast industry on its own. But it's another signal that we're on the **cusp** of a similar change for podcasting --   
 
-Do you have any **arthritis** or pain, aching, or stiffness in your joints? -  
+Do you have any **arthritis** or pain, aching, or stiffness in your joints? --  
 **downhearted**  
 
 the President missed an opportunity to **hold Russia accountable**.  
@@ -69,7 +69,7 @@ The six most common elements in living things are carbon, **hydrogen**, oxygen, 
 
 to make a **quip**.  
 **quips and cranks**.  
-She was **exasperated** by all this **havering**. -    
+She was **exasperated** by all this **havering**.     
 For god's sake stop **dithering** and make up your mind!  
 He would have preferred his wife not to work, although **conversely** he was also proud of what she did.  
 He **renounced** drugs and alcohol completely.  
@@ -78,7 +78,7 @@ The politicians and **warlords** who are **fermenting** this chaos. -
 An **egregious** lie. -  
 She slowed for a **roundabout**, taking the second exit.  
 The city was **awash** with journalists.  
-A quiet, reflective, **astute** man. -   
+A quiet, **reflective**, **astute** man. -   
 This invention is **ascribed** to Edison.  
 **quash** a rebellion.  
 **writ** of summons  
@@ -118,7 +118,7 @@ There’s a **peculiar** person **snooping** around.
 August **intranet**.  
 **ballot tampering**
 
-Danger runs during your CI process, and gives teams the chance to automate common code review **chores**
+Danger runs during your CI process, and gives teams the chance to automate common code review **chores** 
 any special process for reporting **leukemia** and **lymphoma** society donations for Jason to match? - 
 
 **torii** gates  

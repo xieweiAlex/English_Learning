@@ -293,7 +293,7 @@ Building an intuition for reading and **grokking** disassembly comes with practi
 The **butler** was an **accomplice** in the robbery. -  
 the Communications Decency Act of 1996, was struck down as an unconstitutional **affront** to free speech. -  
 a **pernicious** virus -  
-In poker, they call it a **bluff**. -  
+In poker, they call it a **bluff**.   
 He **endowed** the Church with lands. -  
 **deride** a person's ignorance -  
 A **pejorative** (also called a **derogatory** term, a term of abuse, or a term of **disparagement**) -  
@@ -303,7 +303,7 @@ Our troops **withstood** the **onset** of the enemy. -
 You’ll **avail** of all relevant international tax treaties, personal allowances, credits & tax deductions -  
 
 a **morbid** fascination with death -  
-Mike delfino and I **made out** today, and it was great. -  
+Mike delfino and I **made out** today, and it was great.   
 There’s a lot of debate **swirling** around Modern Monetary Theory—some **strident**. Its critics call it a **hot mess** -- 
 MMT has constructed such a **bizarre**, illogical, **convoluted** way of thinking about macro that it’s almost **impervious** to attack -- 
 a **grudging** apology. -  
@@ -317,7 +317,7 @@ The **reactionary** **ruling clique** was torn by internal **strife** --
 insurance **actuary** -  
 Eternal life to the **revolutionary** **martyrs**.  - 
 **upstart**: an arrogant or **presumptuous** person -  
-We need a **yardstick** for health -  
+We need a **yardstick** for health   
   
 When we first wake up in the morning, our brains are too **groggy** to make sound decisions. -  
   
@@ -330,7 +330,7 @@ She has proven to have a **vendetta** against @realDonaldTrump & is using her po
 rebuke: an act or expression of criticism and **censure**. -  
 But every day only a hundred or so enter each first-class lounge. Instead of the overpriced fast-food on offer in the public **concourse** -  
 He would love to have enough money to buy the school so he could **bulldoze** it. -  
-But by June, he was the only **moron** who could be the nominee. -  
+But by June, he was the only **moron** who could be the nominee.   
 In Facebook’s earliest years, he had an **uncanny** **knack** for understanding what people wanted out of a social network. -  
 That combination of prescience and self-confidence helped Facebook become a **phenomenon** as rivals such as MySpace and Friendster **dwindled** away. -  
    

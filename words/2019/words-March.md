@@ -1,19 +1,34 @@
-This is the finale. This is worse than the ending of "Lost"
+## Week 4 
+
+**Imperil** one's life to save sb.  
+diamond **mesh** 
+Her **petty** complaints really **gripe** me. -  
+He is a **paradoxical** **aesthete**. 
+They are **mucking** the apple trees.  
+Oil **muck** on the floor of a garage.  
+the **predominant** political forces.  
+The boy **floundered** in the water till someone jumped in to save him.  
+
+**Candid** and constructive conversation  
+
+The main property of a queue is that objects go on the rear and **come off** of the front of the queue
+
+It’s been years since we’ve had to talk price **reductions** with our clients,” Barbic said
+
+This is the **finale**. This is worse than the ending of "Lost"
 The techniques of deep learning that Bengio, Hinton, and LeCun developed **underpin** many technologies, like self-driving cars.
-
-
 
 These stamps have great **rarity** value.  
 a realistic novel about **ghetto** life.  
 The **slums** are a **reproach** to London -   
-he **huffed out** his **sudden irritation** -  
+he **huffed out** his **sudden irritation** --  
 
 
 **fermented** meat   
 it does sound **sketch**  
 everything conspires to **exacerbate** the situation.  
 **ISP**:  internet service provider
-AS a foreigner when you **run afoul with** the law -  
+As a foreigner when you **run afoul with** the law -  
 Basically China doesn't follow their own laws and changes the rules **on a whim**.
 
 A **ferocious** argument  
@@ -39,7 +54,7 @@ His sneaker exploded into a **sandal**
 the Communications Decency Act of 1996, was struck down as an unconstitutional **affront** to free speech. -  
 Limited protection: COPA only covered U.S.-based websites, effectively leaving a whole world of porn sites to harm **impressionable** kids
 Since then, the task of protecting U.S. children from the **pernicious** postings of porn sites has returned to its historic home: responsible parents
-a **pernicious** virus -  
+a **pernicious** virus -- 
 Credit cards as **no-brainer** verification tools
 
 > Notice that the droplet still preferred to move left, even though it could move right (and moving right makes it fall quicker.)  
@@ -48,12 +63,12 @@ My mom said if I **flunk** another math, she gonna ground me from playing 'Fortn
 **menopause**  
 He didn't take you to see "Black Panther" with you, did he. That must have really **stung**.  
 **handkerchief**  
-In poker, they call it a **bluff**. -  
+In poker, they call it a **bluff**.   
 Maybe I need to realize that my emotions can be **hormonal** 
 I know how **lousy** it is.  
 This is just gonna make things worse, people will **rip on** me.  
 Don't worry, your **holiness**.  
-I can start over in **the Maldives**?  
+I can **start over** in **the Maldives**?  
 
 He **endowed** the Church with lands. -  
 He is as **cunning** as fox.  
@@ -74,7 +89,7 @@ You’ll **avail** of all relevant international tax treaties, personal allowanc
 a **morbid** fascination with death -  
 He had a **bloated**, unshaven face 
 **bill of clearance**  
-Mike delfino and I **made out** today, and it was great. -  
+Mike delfino and I **made out** today, and it was great.   
 The **rabbi** married the couple 
 Mugabe ruled **Zimbabwe** as an **autocrat** for nearly 40 years
 **ecology** environment 
@@ -126,11 +141,11 @@ A **dossier** of complaints
 A **study-cum-bedroom**  
 **extraction** pump  
 deposits in **offshore** accounts.  
-The **reactionary** **ruling clique** was torn by internal **strife** --  
+The **reactionary** **ruling clique** was torn by internal **strife** -  
 Try to think of unusual and **ingenious** solutions.  
 His father-in-low is a **plantation** manager.  
 **Vacant** possession  
-insurance **actuary** -  
+insurance **actuary**   
 **cockpit** voice recorder  
 bride and **groom** 
 **groom** a presidential candidate  
@@ -151,7 +166,7 @@ Tractors **facilitate** farming.
 The **vultures** were already circling around the dead animal.  
   
 While most companies have set ways of assessing performance, many do a **lousy** job of **sizing up** someone's potential.  
-We need a **yardstick** for health -  
+We need a **yardstick** for health   
   
 **interpolation**  
 Given two strings s and t, determine if they are **isomorphic**  
@@ -232,7 +247,7 @@ Ellis **chided** Manafort for **not expressing** remorse for his crimes in his s
 He also agreed to **forfeit** multiple bank accounts and properties, including his apartment in Trump Tower.  
    
 He would love to have enough money to buy the school so he could **bulldoze** it. -  
-But by June, he was the only **moron** who could be the nominee. -  
+But by June, he was the only **moron** who could be the nominee.   
 Now, you got to admit, that's real **shady**, right?  
 **jaunty music**  
 a **jaunty** pace  
@@ -276,7 +291,7 @@ The Trump administration has **barred** MUthana, 24, and her son from returning 
    
 Bayshore **boulevard**(blvd)  
    
-This is basically where you are **infatuated** with who you are dating, and you can’t get enough of them -  
+This is basically where you are **infatuated** with who you are dating, and you can’t get enough of them --  
 You kind of **overlook** any flaws and see them through rose-colored glasses  
    
 Yes, that’s right: Facebook. Cryptocurrency. Earthquake! Revolution! The world is **tilting** on its **axis**! The end times are **cometh** -  

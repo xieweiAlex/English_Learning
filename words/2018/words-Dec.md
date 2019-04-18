@@ -70,8 +70,11 @@ he was one hell of a **snappy** dresser. -
 Apple is being **tight-lipped** about the amount of RAM inside each phone  
    
 > Even **neurons** are formed by habit. When continuously exposed to a fixed **stimulus**, neurons become steadily less sensitive to that stimulus—until they eventually stop responding to it altogether  
+
 > The more we see a thing, the less we see it. Familiarity **breeds** neglect  
+
 > The chains of mental habit are too weak to be felt until they are too strong to be broken, to paraphrase Samuel Johnson  
+
 We tend to define the quality of **wit** as merely being **deft** with a clever **comeback**  
 But **true wit** is richer, **cannier**, more riddling  
 **canny** investors will switch banks if they think they are getting a **raw deal**. -  
@@ -149,6 +152,7 @@ My dad was staying in **palliative care** at the hospital  --
    
 > But it was a Sunday afternoon, and my dad was tired. The summer light filled his room. Then, the day **faded**, and **dusk** began to enter  
    
+
 The funeral was set near the **outskirts** of Iowa City in a house by the woods  
 I turned to **look behind** me  
 And standing there — **drenched** in sweat from the Iowa summer   
@@ -157,7 +161,7 @@ By testing it on real people a company can discover whether users feel like they
    
 > “It’s not good enough to just say ‘we told you,'” he said.  
 > as a good **millennial**, I knew that people have very loose definitions of the word "friend"  
-   
+
 So superior that tests are **inconsequential** to quality -  
 **appendicitis**  
    

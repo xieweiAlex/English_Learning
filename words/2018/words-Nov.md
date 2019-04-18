@@ -17,7 +17,7 @@ Under the **unfailing** **aegis** of law
 **antique** book paper, **antique** furniture  
 A typically **gritty** performance by the British player  
 **implant** hope in the mind  
-A **venerable** statesman  
+A **venerable** statesman -  
 The **appropriation** of **parish** funds  
 A **parish** church  
 He made himself **indispensable** to the parish priest  
