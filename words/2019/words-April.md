@@ -1,13 +1,78 @@
 
+official solicitor  
+Barr is more nefarious than we anticipated.  
+exquisite  
+
+
+The physical **ailments** that **condemned** him to a lonely childhood  
+coral **reef**  
+he was **kin** to the brothers.
+The poor painter sold his paintings for a **paltry** sum of money.  
+Bird **perched** on the branch  
+I like fishing for **perch** on vacation.  
+The cells **proliferate** **readily** in **culture**.  
+Spectacle **bunker**.  
+The bad news **disquieted** him.  
+he's getting you all **riled up**  
+muscle **cramp** -  
+Olympic **motto**  
+**spontaneous** ignition  
+**feed trough**, **water trough**.  
+I went into the **lounge**. It was **deserted**.  
+
+
+the infrastructure company requested the operator's risk team last year to investigate some **anomalous** activity on its virtual private network (VPN) logs  
+The employee, an "**inoffensive** and quiet" but talented man **versed** in several programming languages, "spent less than one fifth of his six-figure salary for a Chinese firm to do his job for him", Mr Valentine said  
+
+
+The meeting was a **fiasco** from start to finish  
+Interviewers love to ask people this question **point‐blank**, and there are several  possible answers  
+**diagonal** bracing  
+
+
+**synonymous** words  
+last will and **testament**  
+**coping** stone  
+bear a **calamity** with **fortitude**.  
+to **stave off** hunger/illness -  
+a remote **Inuit** **hamlet**  
+an innumerable **throng** of people  
+**poach** a start in a race 
+**poach** the fish in wine  
+**poach** for fresh ideas  
+His **robs** were **splendid**  
+The only way to curb this **unruly** mob is to use tear gas.  
+**demolition** blasting  
+They took bloody **reprisals** against the leaders. -  
+
+**propelled**  
+The **arson** is professional.  
+**spooky**  
+**feckless** **stooge** -  
+**statutory** **impediment** 
+**dossier**  
+**inference**  
+
+Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
+your judgement has been **warped** by your obvious dislike of him  
+When that timer went **buzz**, it was time to stop **foraging** at an unproductive patch or abandon a failing hunt  
+
+Today’s update just expands the scope of the security **lapse**  
+law enforcement agencies have tried to eliminate the **once-rampant** street prostitution
+Escort services offering sexual services **euphemistically** as 'entertainment' or 'companionship' are **ubiquitous**  
+
+**decal**
+
 > I have been an accountant as well as working for the IRS since 1973 so I have seen hundreds of thousands of tax returns...despite what Baier says there is an **inverse correlation** between wealth and generosity....the people with the least are the ones who give the MOST.  
 
 **town hall**  
-race to the bottom  
+**race to the bottom**  
 **legitimate concern**  
 **phase out**  
 **superdelegate**
 
 sport **scathe**  
+The children escaped **unscathed** 
 It's **incumbent** on me to **reclaim** him.  
 He is **keenly** interested in classical English literature.  
 She is **accustomed** to being **heckled**.  
@@ -97,8 +162,6 @@ The company is attempting to gain a **foothold** in the Russian market.
 The **fanfare** sounded. -  
 Wooden **wedge**.  
 teenage **angst**  
-
-
 Reporter is looking for **decibels**  
 
 a physical hole in every office where paper containing illegal ideas or "wrong" information was dumped to be immediately **incinerated**  
@@ -166,7 +229,7 @@ I **ain't** **vex** with you.
 His longevity **vexed** his **heirs** 
 He is an **adept** mechanic.  
 **mould**(mold) wedge  
-A **cheery** smile  
+A **cheery** smile -  
 The teams played on, **notwithstanding** the rain  
 The **remnant** of a feast  
 **liquidize** **remnant** assets  

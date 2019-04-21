@@ -70,7 +70,7 @@ This is just gonna make things worse, people will **rip on** me.
 Don't worry, your **holiness**.  
 I can **start over** in **the Maldives**?  
 
-He **endowed** the Church with lands. -  
+He **endowed** the Church with lands.   
 He is as **cunning** as fox.  
 **Obligate parasite** 
 **deride** a person's ignorance -  
@@ -95,8 +95,8 @@ Mugabe ruled **Zimbabwe** as an **autocrat** for nearly 40 years
 **ecology** environment 
 They were **moaning** and **groaning** about management 
 
-There’s a lot of debate **swirling** around Modern Monetary Theory—some **strident**. Its critics call it a **hot mess** -- 
-MMT has constructed such a **bizarre**, illogical, **convoluted** way of thinking about macro that it’s almost **impervious** to attack -- 
+There’s a lot of debate **swirling** around Modern Monetary Theory—some **strident**. Its critics call it a **hot mess** - 
+MMT has constructed such a **bizarre**, illogical, **convoluted** way of thinking about macro that it’s almost **impervious** to attack - 
 **impervious bed**
 
 Who is Primarily Responsible for Considering the **Ramifications** of AI?
@@ -120,7 +120,7 @@ Image God let us decide whether or not to **smite** ourselves. -
 Well, I did **covet** Gary's wife, but **in my defense**, Gary's wife got that ass.  
 **Flight attendant**  
 We have a **cold sore**.  
-Don't kiss or **snuggle** **hedgehogs**, because this can spread **Salmonella** germs to your face and mouth and make you sick. --  
+Don't kiss or **snuggle** **hedgehogs**, because this can spread **Salmonella** germs to your face and mouth and make you sick. -  
 
 If I die young bury me in **satin** 
 This is **infuriating** and hard to watch
@@ -194,7 +194,7 @@ Colleges where coaches were accuse of taking bribes were **reeling**.
 It's unclear how many current or **prospective** U.S.C students are **implicated**.   
 be **implicated** in a crime  
 Other **prominent** parents were placed **on leave** from their employers or **stepped down** from other posts.  
-Pleaded guilty to **racketeering** and other charges in Boston on Tuesday and was released on bond. -  
+Pleaded guilty to **racketeering** and other charges in Boston on Tuesday and was released on bond.   
   
 The officials were accused of corruption and **dereliction of duty** after they ignored **direct orders** from President Xi Jinping to **demolish** illegal **villas** built in a nature reserve in the Qinling mountains   
 Hu has been brought in to steady the boat and will **burnish** his credentials if he can pass this first major test of his political career  

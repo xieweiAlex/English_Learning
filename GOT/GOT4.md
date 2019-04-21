@@ -125,8 +125,26 @@ Keep your mouth shut, no more **outburst**.
 I'm guilty of a far more **monstrous** crime.  
 
 
+## E 7 
+Tyrion **enlists** an unlikely ally. Daario **entreats** Dany to allow him to do what he does best. Jon's warnings about the Wall's vulnerability fall on **deaf ears**. Brienne follows a new lead on the road with Pod.
 
-
+I'd enjoy watching Bronn **disembowel** that **pompous** child beater.  
+Her **captor**.  
+How would we **range** north.  
+You'll cut off our legs, **pluck** out our eyes, leave us **cowering** behind the Wall, hoping the storm to pass. 
+My **lonesome** bachelor days are over.  
+She is **dim-witted**.  
+If anyone wants to **sell you out**, you'd **double** the price.  
+He's **freakish** big and freakish strong.  
+**pampered** little shit you are  
+Could you bring me the **vial** over there?  
+**make it count**  
+You don't need powders and **potions**, you don't need lie.  
+I fear the masters will simply **bide** their time, wait for the invaders to leave and **reassert** control.  
+Don't get me started with **gravy**  
+You can't give up upon **gravy**, no gravy, no pie.  
+Like eggs dropped on the floor, sometimes pieces remain **intact**. 
+Don't be **coy** with me, you little whore.  
 
 
 
