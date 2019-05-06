@@ -28,7 +28,7 @@ he **huffed out** his **sudden irritation** --
 it does sound **sketch**  
 everything conspires to **exacerbate** the situation.  
 **ISP**:  internet service provider
-As a foreigner when you **run afoul with** the law -  
+As a foreigner when you **run afoul with** the law   
 Basically China doesn't follow their own laws and changes the rules **on a whim**.
 
 A **ferocious** argument  
@@ -36,7 +36,7 @@ He sees **culling** deer as **necessity**
 
 
 Being a **kick-ass** writer means you need to know how to get and keep customers
-Building an intuition for reading and **grokking** disassembly comes with practice. I’m no good at it either -  
+Building an intuition for reading and **grokking** disassembly comes with practice. I’m no good at it either   
 A **moribund** way of life 
 The **butler** was an **accomplice** in the robbery. -  
 But how do we know when **irrational exuberance** has **unduly** escalated asset values, which then become subject to unexpected and **prolonged** contractions as they have in Japan over the past decade?
@@ -51,7 +51,7 @@ He was sunk in **apathy** after his failure.
 **thong** **sandal**  
 His sneaker exploded into a **sandal**  
 
-the Communications Decency Act of 1996, was struck down as an unconstitutional **affront** to free speech. -  
+the Communications Decency Act of 1996, was struck down as an unconstitutional **affront** to free speech.   
 Limited protection: COPA only covered U.S.-based websites, effectively leaving a whole world of porn sites to harm **impressionable** kids
 Since then, the task of protecting U.S. children from the **pernicious** postings of porn sites has returned to its historic home: responsible parents
 a **pernicious** virus -- 
@@ -79,7 +79,7 @@ A **pejorative** (also called a **derogatory** term, a term of abuse, or a term 
 Our troops **withstood** the **onset** of the enemy. -  
 **Malaise** is a feeling of general discomfort, uneasiness or pain, of being "out of sorts", often the first indication of an infection or other disease.-   
 
-**Russia lunacy** -  
+**Russia lunacy**   
 
 Next hour: **overcast**  
 Do you have a **VITA** volunteer helping you to prepare your tax return?.  

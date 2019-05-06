@@ -3,16 +3,11 @@ Her **petty** complaints really **gripe** me. -
 The **slums** are a **reproach** to London -   
 he **huffed out** his **sudden irritation** --  
 
-
-As a foreigner when you **run afoul with** the law -  
-Building an intuition for reading and **grokking** disassembly comes with practice. I’m no good at it either -  
 The **butler** was an **accomplice** in the robbery. -  
-the Communications Decency Act of 1996, was struck down as an unconstitutional **affront** to free speech. -  
 a **pernicious** virus -- 
 **deride** a person's ignorance -  
 A **pejorative** (also called a **derogatory** term, a term of abuse, or a term of **disparagement**) -  
 Our troops **withstood** the **onset** of the enemy. -  
-**Russia lunacy** -  
 
 You’ll **avail** of all relevant international tax treaties, personal allowances, credits & tax deductions -  
 

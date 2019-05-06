@@ -226,6 +226,7 @@ What they really mean is, don't get **demoralized**
    
 > Don't forget to consider that you may regret whatever you do - by human nature, the grass is **proverbially** always greener on the other side  
 It is **proverbially** easier to destroy than to construct. -  
+
    
 on the short history of this group, this is the longest sub-side-topic conversation, **whilst** being super friendly  
    
@@ -240,6 +241,7 @@ For Jamie, and for most of us, those four major structures were not decided **co
 The result — what you do today — is more or less **happenstance**.  
 > but once we have some stable friendships we become complacent and stop actively looking for friends that really **resonate** with our values and interests, if we **ever did at all**  
 > But most of us become too **established** in one place to seriously consider moving once we hit 30  
+
    
    
 ## Week 1  
@@ -313,6 +315,7 @@ Is [the iPhone] **out-of-reach** for the vast majority of consumers?
 Saying stupid things like “the iPhone 5C is equivalent to the average monthly salary in China” **belies** a fundamental misunderstanding of China, its **inequality**, and its sheer size specifically, and all of Asia broadly.  
 that is why those Q2 2015 numbers are so **eye-popping** (71% growth!)  
 Apple had **pulled forward** a huge number of **would-be** buyers?  
+
 > In rather **stark contrast** to just a couple of years ago, when, in the **midst** of the iPhone 6 boom, Tim Cook was eager to sell the story of how many iPhone customers had not yet upgraded, this quarter the Apple CEO preferred to move the **goalposts**, telling analysts to wait for the next iPhone  
 try and pay with cash for lunch, and you’ll look like a **luddite**. -  
 And to be sure, an iPhone is still **status-conferring**: Apple is **by no means** **doomed**, and it’s possible if not probable that those China numbers will turn positive this fall. -  
@@ -320,7 +323,8 @@ the fundamental factor that was missed by so many for so long — is that **mono
 in some countries like the U.S., too many contacts on iMessage to even **countenance** another phone ?  
 None of that **lock-in** exists in China  
    
-   
+
+
 **Arbitration award**  
    
 Four years later, it launched AWS IoT, a platform for connecting and managing the **plethora** of connected devices known as the Internet of Things.  

@@ -11,7 +11,7 @@ The post proved unusually **divisive**, and comments **flooded in**.
 Reactions split between those who felt Etherable was cheating, or at least **deceiving**, the employer, and those who thought the coder had simply found a clever way to perform the job at hand. Etherable never responded to the **ensuing** discussion. Perhaps **spooked** by the attention  
 At a moment when the **specter** of mass automation **haunts** workers, **rogue** programmers demonstrate how the threat can become a **godsend** when taken into coders’ hands, with or without their employers’ knowledge  
 The promise of automation, **touted** by optimistic economists and sanguine futurists, has been that yielding work to machines would eliminate the **drudgery** of mindless, repetitive labor, freeing humans to fill our days with leisure, creative pursuits, or more dynamic work.  
-Auto-automation had erased menial toil, reduced his stress, and let him pursue his actual interests.  
+Auto-automation had erased **menial** **toil**, reduced his stress, and let him pursue his actual interests.  
 Two weeks before he left, he handed his boss a diskette loaded with the program and documentation on how it ran.  
 Yet many self-automators are afraid of sharing their code outside the cubicle.  
 Even if a program **impeccably** performs their job, many feel that automation for one’s own benefit is wrong.  
@@ -86,14 +86,13 @@ But this isolation comes at great cost — the computational **overhead** spent 
 (The term groupie is derived from group, in reference to a musical group, but the word is also used in a more general sense, especially in casual conversation, to mean a particular kind of female fan **assumed** to be more interested in relationships with rockstars than in their music.)  
    
 There’s a **blimp** circling  
-**auspicious**  
-(Red is **auspicious** in China )  
-(auspicious day, **auspicious omen**, The project had an **auspicious** beginning.)  
+(Red is **auspicious** in China )  -  
+auspicious day, **auspicious omen**, The project had an **auspicious** beginning.  
    
 **collateral**  
 (collateral security, **collateral evidence**, **collateral execution**, collateral loans)  
 **liability**  
-(aviation liability insurance,  **joint liability**)  
+(aviation liability insurance, **joint liability**)  
    
 **fief**  
 (A fief (Latin:**feudum**) was the central element of **feudalism** and consisted of **heritable** property or rights granted by an **overlord** to a **vassal** who held it in **fealty** (or "in fee") in return for a form of feudal allegiance and service, usually given by the personal ceremonies of **homage** and fealty)  

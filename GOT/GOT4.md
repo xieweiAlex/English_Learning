@@ -146,6 +146,36 @@ You can't give up upon **gravy**, no gravy, no pie.
 Like eggs dropped on the floor, sometimes pieces remain **intact**. 
 Don't be **coy** with me, you little whore.  
 
+## E8
+the **pillar** and the stones.  
+You do very much like a lord, **formidable**, proud 
+Bring me **moat Cailin**.  
+Only **whipped** dog would say this way.  
+It's **fallen out of fashion**, **flaying**.  
+Master of coin, always been a **grubby** job. Why don't let a **grubby** man do it.    
+When I heard you were **lurking** here, **fawning** over the Lady Arryn 
+Lady Arryn's **predilection** were her own **affair**. -   
+She suicide, **shattered** we all.  
+She was an **odd fish**.  
+She was always **prone** to **melancholy**. -  
+We prefer to hear her testimony **unadulterated**.  
+I've been a hostage in King's Landing, a **plaything** for Joffrey to torture, or Queen Cersei to **torment**.  
+**Smuggled** me away when he had the chance.  
+a **peck** on the **cheek**  
+She **turned on** me 
+You could see it in the way she raised that boy, feeding him from her won **teats** when he is 10 years old.  
+By staying out of the **fray**, you've allowed Tywin Lannister. -  
+Don't ever **presume** to touch me again, or speak my name.  
+You have until **dusk** to collect your things and leave the city.  
+**Moors**, **fields**, hills 
+Now I'm the **warden** of North, the North is mine.  
+It's a **fleabite**.  
+That what it means to the lord of **Vale**  
+What's the punishment for **regicide**?  
+**fratricide** is brothers.  
+**Filicide** is sons.  
+I wasn't **deterred**, I was the smartest person I knew.  
+The Mountain and the **Viper**  
 
 
 
