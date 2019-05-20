@@ -281,8 +281,8 @@ Her efforts were met with a sharp **rebuff**
 Her **rebuff** thoroughly **deflated** him
 **creep rupture**, eyeball rupture, **fatigue rupture**  
 
-The tyrant was **deposed** by popular demonstrations
-he had been **deposed** by a military **coup**
+The **tyrant** was **deposed** by popular demonstrations
+he had been **deposed** by a military **coup** -  
 
 Dollar **Hegemony**
 the shift from **Soviet-American hegemony** to a **polycentric** world
@@ -346,7 +346,7 @@ It's so stupid and **arbitrary**, isn't it
 A form of **neocolonialism** 
 **NATO** 
 
-The Senate confirmation process was **contentious** and emotional, that process is over.  
+The Senate confirmation process was **contentious** and emotional, that process is over. -  
 Things might seem pretty **bleak** right now.  
 So the vote was essentially US's **sphere** of influence versus the world.  
 All the 43 other African countries either **abstained** or voted along with China.  

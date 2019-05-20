@@ -21,7 +21,7 @@ The techniques of deep learning that Bengio, Hinton, and LeCun developed **under
 These stamps have great **rarity** value.  
 a realistic novel about **ghetto** life.  
 The **slums** are a **reproach** to London -   
-he **huffed out** his **sudden irritation** --  
+he **huffed out** his **sudden irritation** -  
 
 
 **fermented** meat   

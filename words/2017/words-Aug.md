@@ -373,7 +373,7 @@ We need to get to another house, it's easier to **fortify**.
 His throat was **slit**.  
 I think the technical term is "shock and awe"  
 Served with **distinction** from 1996 to 2001.  
-Since then, you've worked with a number of **mercenary** oranizations.  
+Since then, you've worked with a number of **mercenary** organizations.  
 And we can **dispense** with the **formalities**.  
 I'd like to present a **counterproposal**.  
 She is a **pawn**, nothing more.  

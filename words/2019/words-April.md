@@ -11,6 +11,8 @@ Dongbei are very very much **machismo**, male driven culture -
 Blue-collar worker, **potbelly**, cigarette and beer 
 I hope you enjoyed me getting **jostled** 
 
+
+
 You can use an extension to add protocol **conformance** to a type that is declared elsewhere, or even to a type that you imported from a library or framework  
 We are out to build the next place for **canonical knowledge** on the Internet  
 
@@ -69,7 +71,7 @@ If you have **piercings**, tattoos, or a unique hairstyle, remove and or cover, 
 The ship made little **headway** in the storm.  
 Don't **trample** on the grass  
 **Trample** on on sb.'s feelings 
-He was in the **doldrums** for the whole winter. -  
+He was in the **doldrums** for the whole winter.   
 The war **uprooted** many people.  
 an hour's **recess** at noon.  
 
@@ -124,7 +126,6 @@ I'm kind of **appalled** at the existence of this post
 are some of the most **susceptible** to burnout and what psychologists call compassion fatigue, which can impair job performance and increase **turnover**  
 
 These interviews felt like tests, and more than that, they felt **orthogonal** to the work that I would actually end up doing  
-
 
 **Ornate** Victorian houses  
 We can't ignore the **plight** of **crippling** homelessness crisis -  
@@ -190,7 +191,7 @@ I like fishing for **perch** on vacation.
 The cells **proliferate** **readily** in **culture**.  
 Spectacle **bunker**.  
 The bad news **disquieted** him.  
-he's getting you all **riled up** -  
+He's getting you all **riled up** -  
 muscle **cramp** -  
 Olympic **motto**  
 **spontaneous** ignition  
@@ -364,7 +365,7 @@ Running our own campaign, doing the whole **shebang**
 **third rail**    
 Republicans thought social security was a **third rail**, **contraception** is the fourth  
 **voltage**
-**oligarch monopoly**  
+**oligarch monopoly** -   
 Why did you have to **antagonize** him?  
 
 In most thefts, residents report the devices have been **pried** off the side of their home -   

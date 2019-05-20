@@ -481,7 +481,6 @@ The debate was eventually settled with Volta's **groundbreaking** experiment.
 You pay an artist to design a **Maserati**; you pay a mechanic to change its oil  
 And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  
 His preference for **anonymity** is no surprise. Liemandt’s **metamorphosis** has transformed him from every **dorm-room** coder’s hero to an **ominous** force in tech as his expanding global cloud-force pushes down wages and turns computer programming into factory work  
-(Those black clouds look **ominous** for our picnic.) -  
 **Inspirational** computer programmers like Bill Gates, Marc Andreessen and young Liemandt were the new **masters of the universe**  
    
    

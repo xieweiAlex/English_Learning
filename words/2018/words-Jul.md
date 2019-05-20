@@ -63,7 +63,7 @@ As my reward, I was **trundled** off to some dark little cell.
 And I would let myself be consumed by **maggots** before **mocking** the family name and making you **heir** to Casterly Rock.  
 You are an **ill-made** **spiteful** little creature, full of envy, **lust**, and low **cunning**  
    
-And yet, it’s not clear that the Bay Area—historically famous for its **liberalism**, and now **infamous** for its **madcap** **capitalism**—is prepared to handle this **escalation** and these new **tactics**  
+And yet, it’s not clear that the Bay Area—historically famous for its **liberalism**, and now **infamous** for its **madcap** **capitalism**—is prepared to handle this **escalation** and these new **tactics** -   
 Tech firms, especially start-ups, lack incentives to report potential **espionage** to U.S official.  
    
 **Linkbait** title alert.  (**clickbait**)  

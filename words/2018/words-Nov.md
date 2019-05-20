@@ -293,7 +293,7 @@ Soviet representatives attended the conference but later declined to **ratify** 
 On 15 August 1971, the United States **unilaterally** terminated **convertibility** of the US dollar to gold.  
 An **indemnity** is an obligation by a person (**indemnitor**) to provide compensation for a particular loss suffered by another person (**indemnitee**).  
 **vigilant**  
-(the **burglar** was spotted by **vigilant** neighbours.)  
+(the **burglar** was spotted by **vigilant** neighbours.) -  
 General speaking and simply put, Democrats got **clobbered** in the digital space.  
 Digital programs - both **tactical** and messaging, failed to actively listen to and engage the online grassroots universe.  
 Facebook, meanwhile has changed its newsfeed algorithm, **ostensibly** to combat “fake news,” causing a precipitous decline in traffic for many conservative sites.  

@@ -177,5 +177,36 @@ What's the punishment for **regicide**?
 I wasn't **deterred**, I was the smartest person I knew.  
 The Mountain and the **Viper**  
 
+## E9 
+Her **fangs** were sharp, but she knew how to use them.  
+Serve him up a nice juicy slice of ginger **minge**.  
+You're alright, of course your are, my brave little **fella**. -   
+> Do you know what leadership means, John snow, it means that the person in charge get **second-guessed** by every clever little **twat** with a mouth.  
+
+They got a big fat one and a little **bony** one **manning** the front.  
+I said **nock** and hold, you **cunts**!
+Does **nock** mean **draw**?  
+Drop the **scythe**, boys!  
+
+
+## E10
+I was hoping your loyalty was real when you **pledged** yourself to us, Jon Snow.  
+It's **customary** to kneel when surrendering to a king.  
+Burn the dead before **nightfall**.  
+He is completely **insensate**.  
+You're still **betrothed** to Loras Tyrell. -   
+I'm not interested into your another **smug** story of the time you won. 
+Do you think you're the first person dragged int a **sept** to be married against her will? -  
+I was about to give him essence of **nightsha**  
+Hope I can prove **worthy** of her admiration.  
+I **hobbled** them (horses) last night.  
+Winterfell is a pile of **rubble**.  
+That's what you're doing, **watching over** her.  
+A galley's waiting in the bay bound for the Free Cities.  
+Tyrion, put down the **crossbow**.  
+Your brother I guess, he always had a **soft spot** for you. 
+You'll kill your father in a **privy**?  
+
+> It's ironical the two both genuinely loved each other and both felt betrayed by each other and now they're killing each other. 
 
 

@@ -1,10 +1,198 @@
+board of **trustees**  
 
-> Today, I'd like to discuss dependency injection with you. It's one of my favorite patterns because it has many benefits, which are often ignored or **overlook**.  
+By building our endowment, we can expand student scholarships to make MUM more accessible and attractive to a greater number of student  
+
+**grumpy** cat 
+test **specimen**, **specimen** jar.  
+Air conditioning **apparatus**, **anesthesia** apparatus 
+burning torch  
+**Shack**: small **crude** shelter used as a dwelling.  
+**Vengeance** 
+**junction** bolt  
+A **colossal** mistake 
+A **colossal** five-year plan  
+The **remainder** biscuit.  
+
+High quality leather stays strong against **demanding work** environments meaning the shoes will last much longer  
+
+The plan is still in its **embryonic** stages. -  
+The boat were out **trawling** the bay.  
+The carpet was fastened to the floor with **tacks**.  
+She walked off in a **huff**.  
+The wind **subsided** to calm. -  
+A fairer, more **egalitarian** society.  
+**claimant**  
+an ardent **disciple** of Yoga  
+comb **subversives** out of the organization  
+**Perpetuate** the memory of comrade Norman Bethune  
+She is **apt** at languages  
+**swirl** a little cream into the soup.  
+You can see the fresh buffalo **dung** on the country road  
+**annex** a **clause** to a contract 
+**sporadic** fighting in the streets.  
+**shack** up with.  
+
+One of California's most **formidable** natural landscapes, Yosemite National Park features nearly 1,200 square miles of **sheer** **awe**: **towering** waterfalls, **millennia-old** Sequoia trees, striking, **daunting** **cliff faces** and some of the most unique rock formations in the United States
+
+We gonna talk about **the birds and bees**.  
+> Sex education is little bit weird and quit **lacking** in China  
+
+**illicit** intercourse  
 
 
+In winter, heavy rains could **destabilize** snow and increase **avalanche** danger -  
+Before you **grumble** about a gray forecast, it’s worth remembering that giant redwoods, colorful wildflowers and **grandiose** canyons were all made possible by the relentless **pitter patter** of a billion raindrops - 
+
+One of the things that really gets my **goat** is when companies build employer brand by over-indexing on **banalities** -   
+In this blog post, I tackle the really hard **tactics** that help build a good employer brand  
+If I have my **druthers**, this will be one of three posts on brand -  
+
+The interest of **usury** is unfairly high -  
+**heartland**  
+
+The whole point of this law is to establish that a **fetus** is a person with rights.  
+It could be brutal, **grunt work**. -  
+
+
+But TweetDeck has for years **languished** in the **periphery** of Twitter’s product road map, getting new features late or not at all  
+**Archimedes**  
+**bravo**
+
+**merit-based system**.  
+
+We enforce the Twitter Rules **impartially** for all users, regardless of their background or political affiliation  
+
+Get rid of that **hefty** NSCoding code  
+
+
+That's a **tall order**.  
+**crony capitalism**  
+
+**collectivism**  
+**human trafficking**  
+
+I call it truthful **hyperbole**.  
+
+**Chorus** girls   
+A **gospel** singer  
+A **lull** in sales, a **lull** in conversation.  
+Millions of refugees are living in exile, in **limbo**.  
+**ballistic** trajectory, **intercontinental** **ballistic** missile.  
+Disorder that **bespeaks** negligence.  
+**eyebrow** pencil  
+nutrient **deficiency**.  
+**red tape** ? 
+**circumvented** that city 
+
+**Tug of war**  
+A woman who Meghan McCain has had an **on-air** **meltdown** over already.  
+
+
+The ordinary paper is primarily made of **wood pulp**
+**livestock** farming  
+
+## Week 2 
+
+The **ease** of accepting connection requests -  
+
+Full day **itinerary** sightseeing in Brisbane, Australia  
+**Credentials** aren't everything   
+
+You kick him **to the curb**!  
+**High order** functions 
+The **sheer** number of practice questions and prep resources is growing everyday, and trying to keep up can feel overwhelming  
+
+Style 3M 10FT WiFi **Antenna** Extension Cable  
+
+
+High expense of **boring** and tunneling that we face.  
+if you add **seismic** issues and land acquisition 
+**anti-Semitism**  
+
+
+We're taking what's **laborious**, unreliable four-hour drive if you're lucky 
+**private sector**  
+In Switzerland is the longest tunnel of the world - and it goes through the **alps**  
+
+How do you look within for answers to your most **vexing** challenges?  
+
+**Analogue** signal, analogue amplifier  
+She was **dazzled** by the headlights.  
+**nip and tuck**, **tuck** into  
+The **monastery** was a peaceful place.  
+he talked with all the **fervor** of a new **convert**. -   
+Since then, they've been stuck in **limbo**.  
+**concerted catalysis**, **concerted** action.  
+During chairman Mao's **heyday**, he sent millions of students down to the countryside the learn from their **masses**.  
+He **shuddered** with **revulsion**. -  
+
+
+**Tacit** agreement, **tacit** consent, **tacit** knowledge.  
+**acquit** a person of a crime.  
+**sinister** gang  
+**sinister** storm clouds  
+It was **woefully** inadequate.  
+**Disadvantaged** groups.  
+She is not the person she **purports** to be.  
+The 10,000 black folk who make the city **hum**.  
+**Grisly** jokes about **cadavers** and **worms**. -   
+**abstain** from voting.  
+Those black clouds look **ominous** for our picnic.   
+Eastern **orthodoxy**.  
+Fearful weapons that **bespeak** great loss of life. -  
+
+
+**Embarcadero**  
+
+But China last weekend angered the president by trying to **water down** its commitments, according to Lighthizer.  
+
+**In-your-face** shot  
+She said very **atrocious** things -  
+I can't say I'm **applauding** this situation.  
+They want a **subdued** and controlled population domestically   
+their **insatiable** hunger for rare animals -  
+
+Hydra **post mortem**  
+
+You're **out of order**.  
+Trump is **goading** us to impeach him.  
+Every single day, he is just **taunting**, taunting, taunting.  
+I'm not the present Trump's **lapdog**  
+The police were **assailed** with rocks.
+**gestapo**: the secret state police in Nazi Germany
+
+Beginning of **Ramadan** 
+**voila**  
+
+**charbroil** a steak  
+
+**inching**  
+**Nemesis** is notoriously slow
+Since Trump **reneged** the nuclear deal 
+will be met **unrelenting** force  
+That guy in the bar who sees other guys **hitting on** a woman and is like, "Hey guys, **back off**! Can't you see she is not interested?"
+**jack up** on Chinese goods and add new tariffs.  
+
+
+like a **gunslinger** who grabs an enemy’s rifle and starts blasting away.  
+> The losses have **touched off** a debate within the intelligence community over whether the United States should continue to develop some of the world’s most high-tech, stealthy cyberweapons if it is unable to keep them under lock and key  
+
+Including space, satellite and nuclear **propulsion** technology makers
+
+Repeatedly over the past decade, American intelligence agencies have had their hacking tools and details about highly classified cybersecurity programs **resurface** in the hands of other nations or criminal groups.
+**covertly** capturing computer code used in an attack, then **co-opting** it and turning it against new targets  
+
+The name "**Symantec**" is a **portmanteau** of the words "syntax" and "semantics" with "technology".
+
+**Haunt** 
+
+> Today, I'd like to discuss dependency injection with you. It's one of my favorite patterns because it has many benefits, which are often ignored or **overlooked**.  
+
+
+## Week 1 
 **divisive**, decisive  
 
-The news on American's southern border shows no sign of letting up.  
+The news on American's southern border shows no sign of **letting up**.  
 
 
 **rigorous** thinking  
@@ -13,10 +201,10 @@ The news on American's southern border shows no sign of letting up.
 **Acclaim** the winner of a race.  
 An attempt to **subvert** democratic  
 My **impending** departure  
-The forest was **ravaged** by fire.  
+The forest was **ravaged** by fire. -   
 **planetary** **orbit**  
 People are put off by her **strident** voice.  
-The **pedlar** **beckoned** me to follow him -  
+The **pedlar** **beckoned** me to follow him -    
 **walnut creek**
 **Adverse current**, **adverse** balance.  
 **cyclone** dust extractor, tropical cyclone.  
@@ -24,9 +212,7 @@ An **intricate** network of **canals**.
 Her work is executed with **impeccable** taste  
 He is **bedeviled** by his mistaken ideas.  
 
-
 **bungee** **cord**  
-
 
 Not so brave now **tremble** rat  
 It's a pattern I use very, very often and it's one of the patterns I **swear by**.  
@@ -43,6 +229,6 @@ She took a great, **shuddering** breath and started again.
 
 **mouthful**  
 **demonetise** 
-He spent time in the Russian **slammer**.
+He spent time in the Russian **slammer**.  
 I know someone who was treated like a **leper** by the CEO of a startup  
 The natives are restless, the **lepers** are whining

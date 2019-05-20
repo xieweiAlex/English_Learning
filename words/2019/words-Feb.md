@@ -173,7 +173,7 @@ this only helps making sure your whole family have the ability to stay permanent
 Compare California with Guizhou (one of the most **impoverished** regions in the country) and your conclusion is giving birth in CHINA is terrible - 
 
 They were in a state of **euphoria** after the baby was born.  
-The moon is in **conjunction** with the sun. -   
+The moon is in **conjunction** with the sun.    
 Be in a **subordinate** position.  
 The front **parlour** was the hub of her universe. -   
 **unilateral** contract  
@@ -322,7 +322,7 @@ the strange **hinterland** where life begins and ends
 **stymie**: a thwarting and **distressing** situation  
    
    
-**anti-semitic** -  
+**anti-semitic**   
 **Zionist**  
 I saw a problem, I **heroically** stepped up.  
 **caucasus** mountains  
