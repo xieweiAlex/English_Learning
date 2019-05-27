@@ -1,14 +1,124 @@
+Some thought the device seemed quaint.  
+what they’re stripping away will undoubtedly impact Huawei in a material way  
+What hangs in the balance is more than just Huawei’s imminent business health  
+Parisian
+10 Immigration tips for love-struck tech workers 
+
+penalize  
+
+sunken  
+I can't believe you shot me with a tranquilizer dart  
+you cannot tranquilize that which is already tranquil  
+How dare they talk down to the most brilliant mind the world has ever seen.  
+You're perceptive as hell  
+opium poppy  
+I still go to the same bodega as I always go to.  
+
+
+**rabbit hole**  
+
+
+We had **mulled wine** at the party.  
+The business moved onward and upward  
+their advocacy of family values  
+lodge travellers in the shed  
+hunting lodge  
+The **nun** took strait vows.  
+covert action  
+**slog**: work **doggedly** or persistently  
+it would be a hard slog back to the camp  
+contraceptive pill  
+We are gonna **pore over** everything.  
+bestow high praise on the winners.  
+**conquest** of the **Aegean**  
+
+
+
+**agitate** for tax reduction.  
+hen **dung**.  
+**confer** a medal on sb.  
+wrath of the **lich** king. -  
+**tar** the road, **tar** the roof.  
+Do I think L.A. is a **tar pit**
+I couldn't **entrust** my children to strangers.  
+The flame **wavered** in the **draught**.  
+**hip** pocket  
+**booth**  
+He was on the **booze** somewhere  
+let's go out and **booze up**!  
+A **frugal** lunch  
+**peacenik**: someone who prefer negotiations to armed conflict in the confuct of foreign relations.  
+
+
+
+The bones, **ligaments**, and muscles of your neck support your head and allow for motion   
+
+Nancy Pelosi was trying to get "under President Trump's **skin**" this week and "clearly **succeeded** to some degree" in her effort. ?-  
+
+Pelosi **scrambles** to **tamp down** trump impeachment **frenzy** in **caucus** -  
+He didn't have a **temper tantrum** when he ended the meeting  
+
+**tie the knot**  
+Taiwan's **legislature** passed a law last week allowing same-sex marriage  
+The **appellate** court might call back.
+
+Stand up **ovation**    
+**high-mind** **oratory**  
+trying  to **diss** him  
+Just like eating an **Oreo**, you can **dunk** it, you can twist it, you can lick it, or do whatever you want -  
+Democratic presidential **contenders** debate whether they should appear on Fox News, while Trump **fumes over** the network’s decision to host any Democratic candidates at all
+
+In a first, **chimpanzees** seen smashing and eating **tortoises** -   
+
+Apple **sided** with the cloners and took my game down  
+> We are currently losing $200-300/day because our game had to be **taken down** worldwide instead of just China  
+
+**Superfluous** Disable Command Violation  
+
+This area is **thinly** populated
+a **thinly** **veiled** criticism  
+It doesn't make him an **underdog**.
+
+**extend** an offer 
+**debrief** one's mission  
+Facebook found hosting masses of far right EU **disinformation** networks  
+**inconclusive** verdict  
+
+**legitimate**, **legitimize** -  
+A **startling** study found. 
+
+**aptitude**  
+> They're looking for the diamond in coal mines.  
+
+You're **outlier**.  
+A **handicap** hurdle.
+Poor eyesight is a **handicap** to a student.
+
+in **transit**  
+
+**hamster**  
+
+Many of you feel like these are **bogus** charges, they are only meant to punish Assage and ruin his reputation.  
+It's because they have this extremely **expansive** definition of what rape is.  
+**predatory practice**  
+Have you reputation **irreparably** harmed -  
+
+
+## Week 3 
+**hemp pants**  
+**reliant** 
+
 board of **trustees**  
 
-By building our endowment, we can expand student scholarships to make MUM more accessible and attractive to a greater number of student  
+By building our **endowment**, we can expand student scholarships to make MUM more accessible and attractive to a greater number of student -  
 
 **grumpy** cat 
 test **specimen**, **specimen** jar.  
 Air conditioning **apparatus**, **anesthesia** apparatus 
-burning torch  
+burning **torch**  
 **Shack**: small **crude** shelter used as a dwelling.  
 **Vengeance** 
-**junction** bolt  
+**junction** bolt -   
 A **colossal** mistake 
 A **colossal** five-year plan  
 The **remainder** biscuit.  
@@ -20,13 +130,13 @@ The boat were out **trawling** the bay.
 The carpet was fastened to the floor with **tacks**.  
 She walked off in a **huff**.  
 The wind **subsided** to calm. -  
-A fairer, more **egalitarian** society.  
+A fairer, more **egalitarian** society. -  
 **claimant**  
 an ardent **disciple** of Yoga  
 comb **subversives** out of the organization  
 **Perpetuate** the memory of comrade Norman Bethune  
 She is **apt** at languages  
-**swirl** a little cream into the soup.  
+**swirl** a little cream into the soup. -  
 You can see the fresh buffalo **dung** on the country road  
 **annex** a **clause** to a contract 
 **sporadic** fighting in the streets.  
@@ -35,7 +145,7 @@ You can see the fresh buffalo **dung** on the country road
 One of California's most **formidable** natural landscapes, Yosemite National Park features nearly 1,200 square miles of **sheer** **awe**: **towering** waterfalls, **millennia-old** Sequoia trees, striking, **daunting** **cliff faces** and some of the most unique rock formations in the United States
 
 We gonna talk about **the birds and bees**.  
-> Sex education is little bit weird and quit **lacking** in China  
+> Sex education is little bit weird and quite **lacking** in China  
 
 **illicit** intercourse  
 

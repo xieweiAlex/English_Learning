@@ -261,7 +261,7 @@ An island once owned by his **forebears**
    
 **as if** she was scoping out who lives here.  
    
-He got a bit **feisty** by trying to hit me back.  
+He got a bit **feisty** by trying to hit me back. -  
 A **bogus** insurance claim.  
 The plates have a **gilt** edge.  
 **malnutrition**  

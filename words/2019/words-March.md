@@ -54,7 +54,7 @@ His sneaker exploded into a **sandal**
 the Communications Decency Act of 1996, was struck down as an unconstitutional **affront** to free speech.   
 Limited protection: COPA only covered U.S.-based websites, effectively leaving a whole world of porn sites to harm **impressionable** kids
 Since then, the task of protecting U.S. children from the **pernicious** postings of porn sites has returned to its historic home: responsible parents
-a **pernicious** virus -- 
+a **pernicious** virus - 
 Credit cards as **no-brainer** verification tools
 
 > Notice that the droplet still preferred to move left, even though it could move right (and moving right makes it fall quicker.)  
@@ -283,7 +283,7 @@ I know that porn for women is kind of a **burgeoning** industry, but I’m guess
 August, best known for its smart door lock, was purchased by the lock **conglomerate** Assa Abloy in 2017, making it part of the same family of brands as Yale. -  
    
 **shoyu source**  
-**court injunction**  
+**court injunction** -  
 **gag rule**  
    
 The Trump administration has **barred** MUthana, 24, and her son from returning to U.S., **contesting** her claim to U.S. citizenship.  

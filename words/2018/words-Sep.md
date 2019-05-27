@@ -270,8 +270,6 @@ metaphorically
 Going through hardships builds **resilience**.  
 Chinese has developed a very **resilient** economy  
    
-   
-   
 **booby price**  
 **bollinger bands**  
 **statistical arbitrage**  
@@ -428,7 +426,7 @@ The President had a clear **mandate** to end the war.
 Little **lizard** was **drowning** in a pool — so they did whatever they could! Just one small act of kindness saved a life 🦎💓  
    
 Hate leads to **proprietary** software.  
-Brick and **mortar** store  
+Brick and **mortar** store -   
 Reasonable suspicion to stop and **frisk** a person.  
 The thief **frisked** her of her wallet  
    
