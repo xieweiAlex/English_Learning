@@ -2,6 +2,64 @@ words/2017/words-Jul.md
 An **asterisk** indicates that the field is required. -   
   
 
+words/2019/words-June.md
+**rescind** -  
+
+bears a **grudge** about the accident -  
+Yang is all about policies, NOT **platitudes** -  
+A long spiral **ivory** **tusk** -  
+**tusk** were originally second **incisors**. -  
+I like **jasmine** not because it has stunning beauty, but because it gives off elegance and **fragrance**. -  
+Apple **Envisioned** New Mac Pro's '**Cheese Grater**' Design Years Ago -   
+
+The Democrats having using Trump as a **boogeyman**, that's all they are about. -  
+
+
+words/2019/words-May.md
+**Extrapolating** from the U.K. date in the ad, and given how late in the month we now are... -  
+How To Cook **Porridge** Using Slow Cooker -  
+
+How do you **reconcile** the inherent trade-offs between explainability and efficiency and accuracy of algorithms. -  
+What hangs in the balance is more than just Huawei’s **imminent** business health -   
+The assumption is that AI is so **omnipotent** -  
+sounds **eminently** sensible. -  
+Say no not base on one or two **salient** features -  
+I still go to the same **bodega** as I always go to. -   
+**lodge** travellers in the **shed** -  
+**bestow** high praise on the winners. -  
+Pelosi **scrambles** to **tamp down** trump impeachment **frenzy** in **caucus** -  
+Have you reputation **irreparably** harmed -  
+
+
+The plan is still in its **embryonic** stages. -  
+The wind **subsided** to calm. -  
+In winter, heavy rains could **destabilize** snow and increase **avalanche** danger -  
+Before you **grumble** about a gray forecast, it’s worth remembering that giant redwoods, colorful wildflowers and **grandiose** canyons were all made possible by the relentless **pitter patter** of a billion raindrops - 
+
+One of the things that really gets my **goat** is when companies build employer brand by over-indexing on **banalities** -   
+If I have my **druthers**, this will be one of three posts on brand -  
+
+The interest of **usury** is unfairly high -  
+It could be brutal, **grunt work**. -  
+
+
+Millions of refugees are living in exile, in **limbo**. -  
+The **ease** of accepting connection requests -  
+
+He **shuddered** with **revulsion**. -  
+
+
+**Grisly** jokes about **cadavers** and **worms**. -   
+**Embarcadero** -  
+
+She said very **atrocious** things -  
+their **insatiable** hunger for rare animals -  
+
+The forest was **ravaged** by fire. -   
+The **pedlar** **beckoned** me to follow him -    
+**Dislodge** the rock with a shovel. -  
+
+
 words/2019/words-Feb.md
 What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing. -   
 While the Chrome browser itself is not open-source, most of its **innards** are. Chromium, the non-proprietary subset of Chrome, was open-sourced early on with a generously **permissive license** as a sign of commitment to the open Web community. -  
@@ -13,6 +71,9 @@ having lived in China for 3 years and seeing what rights the Chinese people are 
 Spotify's acquisition **spree** won't change the podcast industry on its own. But it's another signal that we're on the **cusp** of a similar change for podcasting --   
 
 Do you have any **arthritis** or pain, aching, or stiffness in your joints? --  
+The six most common elements in living things are carbon, **hydrogen**, oxygen, **nitrogen**, **phosphorus**, and **sulfur**. Atoms of these elements combine and form thousands of large **molecules**. These large molecules make up the structures of cells and **carry out** many processes essential to life. -   
+
+
 The politicians and **warlords** who are **fermenting** this chaos. -   
 An **egregious** lie. -  
 A quiet, **reflective**, **astute** man. -   
@@ -79,36 +140,17 @@ a **renowned** painter -
    
    
 
-words/2019/words-May.md
-The plan is still in its **embryonic** stages. -  
-The wind **subsided** to calm. -  
-In winter, heavy rains could **destabilize** snow and increase **avalanche** danger -  
-Before you **grumble** about a gray forecast, it’s worth remembering that giant redwoods, colorful wildflowers and **grandiose** canyons were all made possible by the relentless **pitter patter** of a billion raindrops - 
+words/2018/words-Jul.md
+And yet, it’s not clear that the Bay Area—historically famous for its **liberalism**, and now **infamous** for its **madcap** **capitalism**—is prepared to handle this **escalation** and these new **tactics** -   
+**Inexplicably** being **ambushed** with ground spinner fireworks three times now. -   
+It’s not a good look for the world’s largest retailer even though the retailer saw **glitches** last year, too. -  
+And once I've got them, the **pampered** little shits... --  
 
-One of the things that really gets my **goat** is when companies build employer brand by over-indexing on **banalities** -   
-If I have my **druthers**, this will be one of three posts on brand -  
-
-The interest of **usury** is unfairly high -  
-It could be brutal, **grunt work**. -  
-
-
-The **ease** of accepting connection requests -  
-
-he talked with all the **fervor** of a new **convert**. -   
-He **shuddered** with **revulsion**. -  
-
-
-**Grisly** jokes about **cadavers** and **worms**. -   
-Fearful weapons that **bespeak** great loss of life. -  
-
-
-She said very **atrocious** things -  
-their **insatiable** hunger for rare animals -  
-
-The forest was **ravaged** by fire. -   
-The **pedlar** **beckoned** me to follow him -    
-**Dislodge** the rock with a shovel. -  
-
+words/2018/words-Aug.md
+He had a thick German accent, and he **stuttered**. -   
+Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  - 
+   
+   
 
 words/2019/words-March.md
 Her **petty** complaints really **gripe** me. -  
@@ -117,7 +159,7 @@ he **huffed out** his **sudden irritation** -
 
 
 The **butler** was an **accomplice** in the robbery. -  
-a **pernicious** virus -- 
+a **pernicious** virus - 
 **deride** a person's ignorance -  
 A **pejorative** (also called a **derogatory** term, a term of abuse, or a term of **disparagement**) -  
 Our troops **withstood** the **onset** of the enemy. -  
@@ -152,6 +194,7 @@ Trump has a long history of **flubbing** people’s names, usually swapping out 
    
 August, best known for its smart door lock, was purchased by the lock **conglomerate** Assa Abloy in 2017, making it part of the same family of brands as Yale. -  
    
+**court injunction** -  
 This is basically where you are **infatuated** with who you are dating, and you can’t get enough of them --  
 Yes, that’s right: Facebook. Cryptocurrency. Earthquake! Revolution! The world is **tilting** on its **axis**! The end times are **cometh** -  
 But then your family in Ghana has to somehow convert them to cedis at an **exchange** — a task which is, as of this writing, likely to be slower, much **clumsier**, far more **user-hostile** -  
@@ -245,6 +288,18 @@ While Taiwan is self-governed and **de-facto** independent, Beijing considers th
 Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people". -  
 In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance --  
 
+words/2018/words-Sep.md
+(Red is **auspicious** in China )  -  
+What kind of **philistine** doesn't have their phone on them at all times!?!  -  
+Elegant and **clumsy**. **mischievous** and obedient. -    
+a very **clumsy** attempt to park  -  
+   
+Brick and **mortar** store -   
+John McCain managed to deliver a final **rebuke** to the man who wasn't there. -   
+   
+In **hindsight**, all of these were part of a narrower range of skills than I realized, and many of these skills were less **transferable** than I’d hoped. -   
+   
+
 words/2019/words-April.md
 Dongbei are very very much **machismo**, male driven culture -  
 Modern **frigates** -   
@@ -304,36 +359,32 @@ She is **disposed** to sudden **bouts** of depression. -
 
 Most **algae** live in water.  -  
 
-words/2018/words-Oct.md
-a center of **maritime trade**, a **conduit** for wealth  - 
-You **mobsters** all suffer from such **hubris** - 
-I was super **pumped**. -   
-Open fields of fire and action **unimpeded** by town natural barrier or **civilian** population -  
-he had been **deposed** by a military **coup** -  
-
-(**alimentary tract**, digestive **tract**, **genital tract**, **respiratory** tract, **intestinal** tract) - 
-
-The Senate confirmation process was **contentious** and emotional, that process is over. -  
-Trump’s greatest superpower is his ability to **wield** **victimhood**. -   
-
-We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -   
-
-words/2018/words-Sep.md
-(Red is **auspicious** in China )  -  
-What kind of **philistine** doesn't have their phone on them at all times!?!  -  
-Elegant and **clumsy**. **mischievous** and obedient. -    
-a very **clumsy** attempt to park  -  
+words/2018/words-Nov.md
+Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken. -  
+You order a vegan donut and very clearly ask the **barista** for three Splendas -  
+You do the **grunt work** and analysis, and finish it just **in time** for him to breathe a sigh of relief and tell you what an “Excel ninja” you are -  
+A **venerable** statesman -  
+an outburst of **profanity** / laughter  -  
+**anatomy** of a sale -  
+After the **last-ditch** defense of Moscow, Russian **counter-attacks** through the snows of winter have **stemmed** the tide of German **conquest** -  
+The soft **underbelly** of the axis.  -  
+The effect of the British victory was **electrifying**  -  
+American and British force made **amphibious** landings in North Africa in **Morocco** -  
+The Americans landed **unopposed** -  
+There was poor **reconnaissance** and intelligence  -  
+The prime minister was **supplanted** by his rival. -   
+China is a **populous** nation in East Asia whose vast landscape **encompasses** grassland, desert, mountains, lakes, rivers and more than 14,000km of **coastline** -  
+  
+To **espouse** the idea of freedom -   
+He got a bit **feisty** by trying to hit me back. -  
+(the **burglar** was spotted by **vigilant** neighbours.) -  
+an **impediment** to reform, he has an **impediment** in speech. -    
    
-John McCain managed to deliver a final **rebuke** to the man who wasn't there. -   
-   
-In **hindsight**, all of these were part of a narrower range of skills than I realized, and many of these skills were less **transferable** than I’d hoped. -   
-   
+Don't make yourself a **nuisance** to others -  
 
-words/2018/words-Jul.md
-And yet, it’s not clear that the Bay Area—historically famous for its **liberalism**, and now **infamous** for its **madcap** **capitalism**—is prepared to handle this **escalation** and these new **tactics** -   
-**Inexplicably** being **ambushed** with ground spinner fireworks three times now. -   
-It’s not a good look for the world’s largest retailer even though the retailer saw **glitches** last year, too. -  
-And once I've got them, the **pampered** little shits... --  
+words/2018/words-Mar.md
+**Apparel** & Fashion -  
+   
 
 words/2018/words-Dec.md
 A **palpable** sense of loss. - 
@@ -428,35 +479,27 @@ China says violators would be banned from issuing bonds or other financing tools
    
 And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  
 
-words/2018/words-Mar.md
-**Apparel** & Fashion -  
-   
+words/2018/words-Oct.md
+a center of **maritime trade**, a **conduit** for wealth  - 
+You **mobsters** all suffer from such **hubris** - 
+I was super **pumped**. -   
+Open fields of fire and action **unimpeded** by town natural barrier or **civilian** population -  
+he had been **deposed** by a military **coup** -  
 
-words/2018/words-Nov.md
-Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken. -  
-You order a vegan donut and very clearly ask the **barista** for three Splendas -  
-You do the **grunt work** and analysis, and finish it just **in time** for him to breathe a sigh of relief and tell you what an “Excel ninja” you are -  
-A **venerable** statesman -  
-an outburst of **profanity** / laughter  -  
-**anatomy** of a sale -  
-After the **last-ditch** defense of Moscow, Russian **counter-attacks** through the snows of winter have **stemmed** the tide of German **conquest** -  
-The soft **underbelly** of the axis.  -  
-The effect of the British victory was **electrifying**  -  
-American and British force made **amphibious** landings in North Africa in **Morocco** -  
-The Americans landed **unopposed** -  
-There was poor **reconnaissance** and intelligence  -  
-The prime minister was **supplanted** by his rival. -   
-China is a **populous** nation in East Asia whose vast landscape **encompasses** grassland, desert, mountains, lakes, rivers and more than 14,000km of **coastline** -  
-  
-(the **burglar** was spotted by **vigilant** neighbours.) -  
-an **impediment** to reform, he has an **impediment** in speech. -    
-   
-Don't make yourself a **nuisance** to others -  
+(**alimentary tract**, digestive **tract**, **genital tract**, **respiratory** tract, **intestinal** tract) - 
 
-words/2018/words-Aug.md
-Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  - 
-   
-   
+The Senate confirmation process was **contentious** and emotional, that process is over. -  
+Trump’s greatest superpower is his ability to **wield** **victimhood**. -   
+
+We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -   
+
+GOT/GOT5.md
+They're **poachers** and thieves, not solder -   
+He swings a sword like a girl with **palsy**. -   
+Refuse the Kingslayer? A dangerous **proposition**. -  
+They did ask for some **concession**. -  
+I did not come back to the Capital to watch you stack the small council with **sycophants**. -   
+
 
 words/2018/words-Jan.md
 **Great Chinese famine** -   
@@ -504,12 +547,21 @@ Spotify's acquisition **spree** won't change the podcast industry on its own. Bu
 Do you have any **arthritis** or pain, aching, or stiffness in your joints? --  
 Another factor is **superstition**. Properties associated with tragedies such as suicide, murder, or "lonely deaths" are thought to bring bad luck in Japanese culture, making it harder to sell them on to a new owner and further feeding the **surfeit** of vacant properties that are slowly falling into **disrepair** around the country --    
 
+words/2019/words-March.md
+This is basically where you are **infatuated** with who you are dating, and you can’t get enough of them --  
+
 words/2019/words-April.md
 Use **obnoxious** **in-your-face** formatting and lists --  
 
-words/2019/words-March.md
-a **pernicious** virus -- 
-This is basically where you are **infatuated** with who you are dating, and you can’t get enough of them --  
+words/2019/words-Jan.md
+**patriotism** is the last refuge of a **scoundrel**. --  
+  
+One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions --  
+  
+Some of Milland's more **remunerative** work came from employers who posted hundreds or thousands of tasks at a time that could be completed in rapid succession --  
+We **vent** our **spleen** on drug **barons**. --  
+The fever was a **sombre** **presage** of his final illness. --  
+In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance --  
 
 words/2018/words-Dec.md
 The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
@@ -524,13 +576,3 @@ I'm a **hokey** **corny** guy --
 
 words/2018/words-Jul.md
 And once I've got them, the **pampered** little shits... --  
-
-words/2019/words-Jan.md
-**patriotism** is the last refuge of a **scoundrel**. --  
-  
-One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions --  
-  
-Some of Milland's more **remunerative** work came from employers who posted hundreds or thousands of tasks at a time that could be completed in rapid succession --  
-We **vent** our **spleen** on drug **barons**. --  
-The fever was a **sombre** **presage** of his final illness. --  
-In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance --  

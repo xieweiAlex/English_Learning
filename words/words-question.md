@@ -1,3 +1,5 @@
+* heuristics
+* druthers
 * bespeak
 * nip and tuck
 * tort 

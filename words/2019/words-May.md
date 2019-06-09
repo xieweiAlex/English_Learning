@@ -1,43 +1,119 @@
-Some thought the device seemed quaint.  
-what they’re stripping away will undoubtedly impact Huawei in a material way  
-What hangs in the balance is more than just Huawei’s imminent business health  
-Parisian
-10 Immigration tips for love-struck tech workers 
-
-penalize  
-
-sunken  
-I can't believe you shot me with a tranquilizer dart  
-you cannot tranquilize that which is already tranquil  
-How dare they talk down to the most brilliant mind the world has ever seen.  
-You're perceptive as hell  
-opium poppy  
-I still go to the same bodega as I always go to.  
 
 
+**extraneous** argument label 'value:' in call in solution  
+prioritizing clarity over **brevity**  
+Home Access **Concierge**  
+
+Arguably, MoviePass’s first mistake with its **ill-fated** subscription was having few terms to limit its use  
+**moviegoer**  
+Today’s subscriptions are a little more complicated (or expensive), with **arcane** rules that change their value proposition entirely  
+AMC could **hypothetically** offer up to 156 showings per year  
+It even shut down for a night because it literally ran out of money, only to be rescued by an emergency **bailout** from a hedge fund  
+
+Peace negotiations between Israel and the Palestinians have been at a **standstill** since 2014, when a US-brokered attempt to reach a deal collapsed.  
+
+All glory, **laud**, and honor to The **Redeemer** King.  
+grievance **mediation**  
+baby **carriage**, **carriage return**  
+be in **contention** for the championship  
+beneath the **gloss** of success 
+**gloss** paint  
+
+My boss just got **demoted** under me, now I have to find a position for him or he gets fired, what do I do?    
+If she has what’s needed for the job, then her looks shouldn't **inhibit** her from getting hired  
+
+I think you're starting to **hallucinate**. I don't hear anything
+**Extrapolating** from the U.K. date in the ad, and given how late in the month we now are... -  
+**swagman**  
+
+**dane**  
+**gobs of money** 
+They don't have the desire to **keep up with the joneses** 
+Buyer's Remorse: High Debt and Low Pay Leave Some College Grads **Rueful** 
+
+**tee up**  
+**sumo wrestler**   
+The President of the United States has been **smooshed**.  
+Trump saying Biden is a low IQ individual is just **baffling**   
+Kim also called Trump a **dotard**.  
+Assassination by **butt cheek** would be fitting for this **jerkwad**
+
+> People have been **scrambling** to understand the situation of Huawei 
+> But if everything **lines up** just right.  
+
+Most notably, Google is **lessening** its relationship with Huawei  
+**doomed** 
+Some news says Huawei could **scrape by**.  
+Because there's much **lower hanging fruit** right here.  
+How To Cook **Porridge** Using Slow Cooker -  
+
+existential **angst**  
+I'm very **envious** of philosophers  
+**double-edged** sword 
+it can bring improvements to life, to work to society but it can bring the **perils**.  
+**dystopia**  
+the resistance is **futile**  
+**eloquently**  
+**strip out**  
+What biases might we **inadvertently** be building into our system.  
+It shouldn't be a kind of **afterthought**.  
+How do you **reconcile** the inherent trade-offs between explainability and efficiency and accuracy of algorithms. -  
+the historical example you've made is a little **unsettling** if I heard your answer correctly  
+We tried and then we gave up, we said we're going **full-throttle** in the United States.  
+It's not something you put on the shelf for some **doomsday** war 
+information **dissemination**  
+**accentuate**  
+**out-compete** the local producers  
+
+## Week 4 
+
+Some thought the device seemed **quaint**.  
+what they’re stripping away will undoubtedly impact Huawei in a **material way**  
+What hangs in the balance is more than just Huawei’s **imminent** business health -   
+**Imminent** attack
+**Parisian**
+10 Immigration tips for **love-struck** tech workers 
+**flowery** metaphors  
+maximize human **flourishing**  
+The assumption is that AI is so **omnipotent** -  
+Five years ago you don't know what AI is, and now you're **extrapolating** too much.  
+**anthropological**  
+**benevolent**  
+sounds **eminently** sensible. -  
+**fertile** ground  
+Say no not base on one or two **salient** features -  
+I as a human being just can not **grasp**.  
+
+**penalize**  
+**sunken**  
+I can't believe you shot me with a **tranquilizer** dart  
+You cannot **tranquilize** that which is already **tranquil**  
+How dare they **talk down** to the most brilliant mind the world has ever seen.  
+You're **perceptive** as hell  
+**opium** poppy  
+I still go to the same **bodega** as I always go to. -   
 **rabbit hole**  
 
-
 We had **mulled wine** at the party.  
-The business moved onward and upward  
-their advocacy of family values  
-lodge travellers in the shed  
-hunting lodge  
+Jon shrugged. There's **hot cider** to drink, or **mulled wine** if you prefer.
+The business moved **onward** and upward  
+their **advocacy** of family values  
+**lodge** travellers in the **shed** -  
+hunting **lodge**  
 The **nun** took strait vows.  
-covert action  
-**slog**: work **doggedly** or persistently  
-it would be a hard slog back to the camp  
-contraceptive pill  
+**covert** action  
+**slog**: work **doggedly** or persistently   
+it would be a hard **slog** back to the camp  
+**contraceptive** pill  
 We are gonna **pore over** everything.  
-bestow high praise on the winners.  
+**bestow** high praise on the winners. -  
 **conquest** of the **Aegean**  
-
 
 
 **agitate** for tax reduction.  
 hen **dung**.  
 **confer** a medal on sb.  
-wrath of the **lich** king. -  
+**wrath** of the **lich** king.   
 **tar** the road, **tar** the roof.  
 Do I think L.A. is a **tar pit**
 I couldn't **entrust** my children to strangers.  
@@ -65,10 +141,10 @@ The **appellate** court might call back.
 Stand up **ovation**    
 **high-mind** **oratory**  
 trying  to **diss** him  
-Just like eating an **Oreo**, you can **dunk** it, you can twist it, you can lick it, or do whatever you want -  
+Just like eating an **Oreo**, you can **dunk** it, you can twist it, you can lick it, or do whatever you want   
 Democratic presidential **contenders** debate whether they should appear on Fox News, while Trump **fumes over** the network’s decision to host any Democratic candidates at all
 
-In a first, **chimpanzees** seen smashing and eating **tortoises** -   
+In a first, **chimpanzees** seen smashing and eating **tortoises**    
 
 Apple **sided** with the cloners and took my game down  
 > We are currently losing $200-300/day because our game had to be **taken down** worldwide instead of just China  
@@ -84,7 +160,7 @@ It doesn't make him an **underdog**.
 Facebook found hosting masses of far right EU **disinformation** networks  
 **inconclusive** verdict  
 
-**legitimate**, **legitimize** -  
+**legitimate**, **legitimize**   
 A **startling** study found. 
 
 **aptitude**  
@@ -110,7 +186,7 @@ Have you reputation **irreparably** harmed -
 
 board of **trustees**  
 
-By building our **endowment**, we can expand student scholarships to make MUM more accessible and attractive to a greater number of student -  
+By building our **endowment**, we can expand student scholarships to make MUM more accessible and attractive to a greater number of student   
 
 **grumpy** cat 
 test **specimen**, **specimen** jar.  
@@ -118,7 +194,7 @@ Air conditioning **apparatus**, **anesthesia** apparatus
 burning **torch**  
 **Shack**: small **crude** shelter used as a dwelling.  
 **Vengeance** 
-**junction** bolt -   
+**junction** bolt    
 A **colossal** mistake 
 A **colossal** five-year plan  
 The **remainder** biscuit.  
@@ -130,13 +206,13 @@ The boat were out **trawling** the bay.
 The carpet was fastened to the floor with **tacks**.  
 She walked off in a **huff**.  
 The wind **subsided** to calm. -  
-A fairer, more **egalitarian** society. -  
+A fairer, more **egalitarian** society.   
 **claimant**  
 an ardent **disciple** of Yoga  
 comb **subversives** out of the organization  
 **Perpetuate** the memory of comrade Norman Bethune  
 She is **apt** at languages  
-**swirl** a little cream into the soup. -  
+**swirl** a little cream into the soup.   
 You can see the fresh buffalo **dung** on the country road  
 **annex** a **clause** to a contract 
 **sporadic** fighting in the streets.  
@@ -186,7 +262,7 @@ I call it truthful **hyperbole**.
 **Chorus** girls   
 A **gospel** singer  
 A **lull** in sales, a **lull** in conversation.  
-Millions of refugees are living in exile, in **limbo**.  
+Millions of refugees are living in exile, in **limbo**. -  
 **ballistic** trajectory, **intercontinental** **ballistic** missile.  
 Disorder that **bespeaks** negligence.  
 **eyebrow** pencil  
@@ -230,7 +306,7 @@ How do you look within for answers to your most **vexing** challenges?
 She was **dazzled** by the headlights.  
 **nip and tuck**, **tuck** into  
 The **monastery** was a peaceful place.  
-he talked with all the **fervor** of a new **convert**. -   
+he talked with all the **fervor** of a new **convert**.    
 Since then, they've been stuck in **limbo**.  
 **concerted catalysis**, **concerted** action.  
 During chairman Mao's **heyday**, he sent millions of students down to the countryside the learn from their **masses**.  
@@ -249,10 +325,8 @@ The 10,000 black folk who make the city **hum**.
 **abstain** from voting.  
 Those black clouds look **ominous** for our picnic.   
 Eastern **orthodoxy**.  
-Fearful weapons that **bespeak** great loss of life. -  
-
-
-**Embarcadero**  
+Fearful weapons that **bespeak** great loss of life.   
+**Embarcadero** -  
 
 But China last weekend angered the president by trying to **water down** its commitments, according to Lighthizer.  
 

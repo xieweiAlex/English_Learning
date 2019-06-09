@@ -62,7 +62,7 @@ FAA: Federal **Aviation** Administration
 
 The two leaders will meet in **Hanoi** on Wednesday and Thursday
 
-The six most common elements in living things are carbon, **hydrogen**, oxygen, **nitrogen**, **phosphorus**, and **sulfur**. Atoms of these elements combine and form thousands of large **molecules**. These large molecules make up the structures of cells and **carry out** many processes essential to life.  
+The six most common elements in living things are carbon, **hydrogen**, oxygen, **nitrogen**, **phosphorus**, and **sulfur**. Atoms of these elements combine and form thousands of large **molecules**. These large molecules make up the structures of cells and **carry out** many processes essential to life. -   
 
 
 ## Week 3 

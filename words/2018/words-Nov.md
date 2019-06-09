@@ -190,7 +190,7 @@ Don't be such a **goody-goody**!
 **tit for tat**  
 (**stunt coordinator**, **stunt girl**, **stunt wards**)  
 an **ill-fated** **expedition**.  
-To **espouse** the idea of freedom  
+To **espouse** the idea of freedom -   
 Edward had **espoused** the lady Grey  
 Wherever there is **oppression**, there is resistance.  
   
