@@ -285,7 +285,7 @@ The $100K on ads wasn't the operation, it was an **expenditure** to recruit **un
 To call someone a sheep is to call them stupid and — more **pointedly** — stupidly **obedient** and in **thrall** to some bad **shepherd**.  
    
 **Lullaby**  
-Lullaby by François Nicholas RissLa Berceuse (œuvre de William Bouguereau - XIXe siècle)  
+**Lullaby** by François Nicholas RissLa Berceuse (œuvre de William Bouguereau - XIXe siècle)  
 A lullaby or **cradle-song**, also spelled cradle song, is a **soothing** song or piece of music, usually played or **sung** to children or adults. The purposes of lullabies vary. In some societies they are used to **pass down** cultural knowledge or tradition. In addition, lullabies are often used for the developing of communication skills, indication of emotional intent, maintenance of infants' **undivided** attention, **modulation** of infants' **arousal**, and regulation of behavior. Perhaps one of the most important uses of lullabies is as a sleep aid for infants. As a result, the music is often simple and **repetitive**. Lullabies can be found in many countries, and have existed since ancient times.  
    
 The state(Detroit) is pushing it hard to sort out its **structural deficit**.  

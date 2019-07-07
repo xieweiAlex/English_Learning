@@ -118,11 +118,11 @@ The dog **cringed** at the sight of the whip -
 Working as an independent mobile, web and software developer in Africa can be a **trying** experience  
 **Infamous** **load shedding** - a practice of cutting off electricity to whole sections of the city in order to conserve power in countries -  
 It takes a lot of **guts** and **zeal** for a good African developer to **turn down** job offers and internships to pursue his **jack of all** passion
-Use **obnoxious** **in-your-face** formatting and lists --  
+Use **obnoxious** **in-your-face** formatting and lists -  
 I'm kind of **appalled** at the existence of this post  
 
 
-**dispensing** his money with such **largesse**.
+**dispensing** his money with such **largesse**.  
 are some of the most **susceptible** to burnout and what psychologists call compassion fatigue, which can impair job performance and increase **turnover**  
 
 These interviews felt like tests, and more than that, they felt **orthogonal** to the work that I would actually end up doing  
@@ -283,7 +283,7 @@ they can still be **salvaged** for parts, but they can't be resold as complete w
 
 
 ## Week 2 
-He was an **inept** politician  
+He was an **inept** politician -  
 Be the **scoff** of the town  
 **scoff** at difficulties  
 **hump day** (Wednesday)
@@ -347,7 +347,7 @@ a physical hole in every office where paper containing illegal ideas or "wrong" 
 
 **latch bolt**, **latch plate**  -  
 Both teams were **severely** **depleted** by injuries.  
-He was **scourge** of by the memory of his misdeeds.  
+He was **scourge** of by the memory of his misdeeds. -  
 The **scourge** of mass unemployment.  
 The war was **protracted** for 4 years  
 a **protracted** and bitter dispute  

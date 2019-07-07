@@ -1,3 +1,11 @@
+* ad hoc
+* charlatan
+* Incumbent 
+* bugbear
+* clobber
+* meandering
+* obstreperous
+* about-face
 * heuristics
 * druthers
 * bespeak

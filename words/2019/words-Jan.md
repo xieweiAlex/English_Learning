@@ -193,8 +193,6 @@ They **threatened** to **baton** him to death.
 A **shroud** of **mist**  
 Apply a **plaster** on a wound.  
 **plaster** bandages. **plaster** walls.  
-**forensic** medicine  
-**forensic** evidence.  
    
 There are other contexts in which smaller numbers have **run afoul of** laws or regulations, or drawn the attention of authorities. -  
    

@@ -185,7 +185,7 @@ A **tidy** arrangement
 She was a **tidy** little girl  
 **enlist** as a volunteer  
 **enlist** for military service  
-The **tsar** protected his personal prerogatives.  
+The **tsar** protected his personal **prerogatives**. -   
 Don't be such a **goody-goody**!  
 **tit for tat**  
 (**stunt coordinator**, **stunt girl**, **stunt wards**)  

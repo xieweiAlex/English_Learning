@@ -177,7 +177,7 @@ in **transit**
 Many of you feel like these are **bogus** charges, they are only meant to punish Assage and ruin his reputation.  
 It's because they have this extremely **expansive** definition of what rape is.  
 **predatory practice**  
-Have you reputation **irreparably** harmed -  
+Have you reputation **irreparably** harmed   
 
 
 ## Week 3 
@@ -237,7 +237,7 @@ The interest of **usury** is unfairly high -
 **heartland**  
 
 The whole point of this law is to establish that a **fetus** is a person with rights.  
-It could be brutal, **grunt work**. -  
+It could be brutal, **grunt work**.   
 
 
 But TweetDeck has for years **languished** in the **periphery** of Twitter’s product road map, getting new features late or not at all  
@@ -262,7 +262,7 @@ I call it truthful **hyperbole**.
 **Chorus** girls   
 A **gospel** singer  
 A **lull** in sales, a **lull** in conversation.  
-Millions of refugees are living in exile, in **limbo**. -  
+Millions of refugees are living in exile, in **limbo**.   
 **ballistic** trajectory, **intercontinental** **ballistic** missile.  
 Disorder that **bespeaks** negligence.  
 **eyebrow** pencil  
@@ -331,7 +331,7 @@ Fearful weapons that **bespeak** great loss of life.
 But China last weekend angered the president by trying to **water down** its commitments, according to Lighthizer.  
 
 **In-your-face** shot  
-She said very **atrocious** things -  
+She said very **atrocious** things   
 I can't say I'm **applauding** this situation.  
 They want a **subdued** and controlled population domestically   
 their **insatiable** hunger for rare animals -  
@@ -409,7 +409,7 @@ to **abet** sb in a crime.
 **Anthrax** is lethal when inhaled or ingested. It's a primary potential weapons in **germ** warfare.  
 a **barrage** of criticism  
 She took a great, **shuddering** breath and started again.  
-**Dislodge** the rock with a shovel. -  
+**Dislodge** the rock with a shovel.   
 
 **mouthful**  
 **demonetise** 
