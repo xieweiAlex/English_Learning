@@ -62,5 +62,26 @@ bought and sold, **scourged** and branded.
 red **priest**  
 shows must over, I'm sure there are girls inside who'd be happy to **oblige**. -  
 
+## E 4
+**Sapphire** Isle  
+We're rescuing my **niece**, bringing her back to her family.  
+the Faith **Militant** **dispensed** the justice of the Seven. -  
+I have no doubt he will sign a **decree** arming the believers you felt worthy. -  
+> May the god judge him **justly**.  
+
+**huffs**  
+(get into a **huff**)  
+do you have any **affection** for me at all?  
+I can't think of my brother locked away in a **grimy** cell.  
+We can't allow **fanatics** to arrest the queen's brother no matter his **perversions**. 
+Give the order and we'll clear out this **rabble**. -  
+you **think highly of** this boy.  
+**once before**, you put your faith in Ser Davos and left me behind.  
+We mustn't let her **sniff out** any trouble.  
+accent **give me away**  
+Our ship **capsized** in the night.  
+Always wanted Dornish **stallion**.  
+
+
 
 

@@ -275,7 +275,7 @@ His **proclivities** were the worst kept secret at **court**.
 I wouldn't **tangle** with you.  
 **Margaery Tyrell** **dotes** on **filthy** **urchins** for a reason.  
 She dresses like a **harlot** for a reason.  
-She married a traitor and known **degenerate** like **Renly** Baratheon for a reason. -  
+She married a traitor and known **degenerate** like **Renly** Baratheon for a reason.   
 He was very **gallant**.  
 Many years before that, one of the boys came down with the **pox**.  
 So I sat with him all through the darkness. Listened to his **ragged** little breaths, his coughing, his **whimpering**.  

@@ -391,7 +391,6 @@ This is the one issue that you can't put as **culpability** on republicans -
 
 Kirstjen Nielsen, Homeland Security chief, is out **amid** surge at US-Mexico border  
 Kirstjen Nielsen, who oversaw President Donald Trump's **hard-line** immigration policies as secretary of Homeland Security, is leaving her post amid tensions with some ... 
-office **renovation** 
 
 Why Your Brain Hates **Slowpokes**  
 **Nietzche**  

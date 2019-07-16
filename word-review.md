@@ -1,3 +1,8 @@
+GOT/GOT3.md
+**haggle over every ounce**. -  
+You will be fair to them. You won't **mutilate** them to **make a point**.  -  
+She married a traitor and known **degenerate** like **Renly** Baratheon for a reason.   
+
 GOT/GOT5.md
 They're **poachers** and thieves, not solder -   
 He swings a sword like a girl with **palsy**. -   
@@ -15,11 +20,6 @@ shows must over, I'm sure there are girls inside who'd be happy to **oblige**. -
 
 
 
-
-GOT/GOT3.md
-**haggle over every ounce**. -  
-You will be fair to them. You won't **mutilate** them to **make a point**.  -  
-She married a traitor and known **degenerate** like **Renly** Baratheon for a reason. -  
 
 GOT/GOT4.md
 Lady Arryn's **predilection** were her own **affair**. -   
@@ -42,7 +42,7 @@ Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're r
 words/2018/words-Dec.md
 A **palpable** sense of loss. - 
 Heat **debilitates** many people. -    
-The crisis led to the **downfall** of the government. -   
+The crisis led to the **downfall** of the government.    
 The republics want **secession** from the union.  -  
 This sign **presage** rains. -  
 a **discourse** on critical theory. -  
@@ -216,67 +216,6 @@ John McCain managed to deliver a final **rebuke** to the man who wasn't there. -
 In **hindsight**, all of these were part of a narrower range of skills than I realized, and many of these skills were less **transferable** than I’d hoped. -   
    
 
-words/2019/words-April.md
-Dongbei are very very much **machismo**, male driven culture -  
-Modern **frigates** -   
-**Acquit** a person of his duty. -  
-**Calamari** is a **culinary** name for **squid**, especially for dishes from the **Mediterranean**, notably fried squid (fried calamari) -  
-
-A **conciliatory** approach. -   
-called for 4:20 p.m. to be the socially accepted hour of the day to consume **cannabis** -  
-The dog **cringed** at the sight of the whip -  
-**Infamous** **load shedding** - a practice of cutting off electricity to whole sections of the city in order to conserve power in countries -  
-Use **obnoxious** **in-your-face** formatting and lists -  
-We can't ignore the **plight** of **crippling** homelessness crisis -  
-Minority and poor neighborhoods are already being swallowed up by **gentrification** in other parts of city. -  
-
-
-**Tumultuous** Trump **era**  -  
-**Crusaders** were offered a **plenary** indulgence by the **Pope**.  -  
-a diplomat with **plenary** powers -
-knowledge will **accrue** to you from reading. -  
-She really did **detest** his mockery. -  
-Barr is more **nefarious** than we anticipated. -  
-The poor painter sold his paintings for a **paltry** sum of money. -  
-Bird **perched** on the branch -   
-He's getting you all **riled up** -  
-muscle **cramp** -  
-bear a **calamity** with **fortitude**. -  
-to **stave off** hunger/illness -  
-They took bloody **reprisals** against the leaders. -  
-
-**feckless** **stooge** -  
-**statutory** agent -  
-an **impediment** to reform -  
-Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
-Configuration files for terminal programs — generally called dotfiles — are much more **amicable** than configuration files for IDEs -  
-
-our chief **diversion** was reading. -  
-He was an **inept** politician -  
-When something is **grotesque**, it's hard to look away. -  
-the **contenders** had been **winnowed** to five -  
-The swifts are a family, **Apodidae**, of highly aerial birds. They are superficially similar to **swallows**, but are not closely related to any of the passerine species. -  
-A **flimsy** table, a **flimsy** excuse -  
-**deride**: to laugh at or insult **contemptuously** -  
-The **despot** who **disposed** of all his enemies, real or imaged. -  
-What's a **pet peeve** that you have -  
-The **fanfare** sounded. -  
-**latch bolt**, **latch plate**  -  
-He was **scourge** of by the memory of his misdeeds. -  
-**oligarch monopoly** -   
-In most thefts, residents report the devices have been **pried** off the side of their home -   
-gives illegal orders and puts people in a completely **untenable** situation. -  
-because you're **maniacally** stupid  -  
-This is the one issue that you can't put as **culpability** on republicans -  
-
-
-**relics** are **enshrined** under **altars**  -   
-A **cheery** smile -  
-Our army **routed** the enemy into running for their lives. - 
-She is **disposed** to sudden **bouts** of depression. -   
-
-Most **algae** live in water.  -  
-
 words/2019/words-Feb.md
 What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing. -   
 While the Chrome browser itself is not open-source, most of its **innards** are. Chromium, the non-proprietary subset of Chrome, was open-sourced early on with a generously **permissive license** as a sign of commitment to the open Web community. -  
@@ -357,27 +296,66 @@ a **renowned** painter -
    
    
 
-words/2019/words-July.md
-Nobody wants to be alone, without anyone to **confide** in or **commiserate** with -  
-voice chat to achieve the interpersonal closeness that can feel **contrived** or **heavy-handed** in a **prearranged** phone call -  
+words/2019/words-April.md
+Dongbei are very very much **machismo**, male driven culture -  
+Modern **frigates** -   
+**Acquit** a person of his duty. -  
+**Calamari** is a **culinary** name for **squid**, especially for dishes from the **Mediterranean**, notably fried squid (fried calamari) -  
 
-For **posterity**’s sake -  
-Every measure of a good developer is **qualitative**. That makes them all subjective -  
+A **conciliatory** approach. -   
+called for 4:20 p.m. to be the socially accepted hour of the day to consume **cannabis** -  
+The dog **cringed** at the sight of the whip -  
+**Infamous** **load shedding** - a practice of cutting off electricity to whole sections of the city in order to conserve power in countries -  
+Use **obnoxious** **in-your-face** formatting and lists -  
+We can't ignore the **plight** of **crippling** homelessness crisis -  
+Minority and poor neighborhoods are already being swallowed up by **gentrification** in other parts of city. -  
 
-Baidu has weathered a **plethora** of troubles. -  
 
-it wasn't a lie, but they just tell it in some sort of weird **maudlin** way. -   
-**Shoe Bandit** - Be Aware!! -  
-The agents will then disappear with the phones in order to **snoop** through them -  
-**Quran** **excerpts** -  
+**Tumultuous** Trump **era**  -  
+**Crusaders** were offered a **plenary** indulgence by the **Pope**.  -  
+a diplomat with **plenary** powers -
+knowledge will **accrue** to you from reading. -  
+She really did **detest** his mockery. -  
+Barr is more **nefarious** than we anticipated. -  
+The poor painter sold his paintings for a **paltry** sum of money. -  
+Bird **perched** on the branch -   
+He's getting you all **riled up** -  
+muscle **cramp** -  
+bear a **calamity** with **fortitude**. -  
+to **stave off** hunger/illness -  
+They took bloody **reprisals** against the leaders. -  
 
-this appears in the API Design Guidelines as a fundamental, but also **pervades** the design of the Swift language itself -  
+**feckless** **stooge** -  
+**statutory** agent -  
+an **impediment** to reform -  
+Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
+Configuration files for terminal programs — generally called dotfiles — are much more **amicable** than configuration files for IDEs -  
 
-**scabs** -  
-It's **nihilistic** and out of touch with progressive thinking! -  
-A **slick** of lip **balm**. -  
-Even if this **humungous** big class was convenient it was highly **clumsy** and hard to modify, maintain and almost impossible to reuse -  
+our chief **diversion** was reading. -  
+He was an **inept** politician -  
+When something is **grotesque**, it's hard to look away. -  
+the **contenders** had been **winnowed** to five -  
+The swifts are a family, **Apodidae**, of highly aerial birds. They are superficially similar to **swallows**, but are not closely related to any of the passerine species. -  
+A **flimsy** table, a **flimsy** excuse -  
+**deride**: to laugh at or insult **contemptuously** -  
+The **despot** who **disposed** of all his enemies, real or imaged. -  
+What's a **pet peeve** that you have -  
+The **fanfare** sounded. -  
+**latch bolt**, **latch plate**  -  
+He was **scourge** of by the memory of his misdeeds. -  
+**oligarch monopoly** -   
+In most thefts, residents report the devices have been **pried** off the side of their home -   
+gives illegal orders and puts people in a completely **untenable** situation. -  
+because you're **maniacally** stupid  -  
+This is the one issue that you can't put as **culpability** on republicans -  
 
+
+**relics** are **enshrined** under **altars**  -   
+A **cheery** smile -  
+Our army **routed** the enemy into running for their lives. - 
+She is **disposed** to sudden **bouts** of depression. -   
+
+Most **algae** live in water.  -  
 
 words/2019/words-Jan.md
 be **persecuted** by the **reactionary** government -   
@@ -462,58 +440,27 @@ While Taiwan is self-governed and **de-facto** independent, Beijing considers th
 Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people". -  
 In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance --  
 
-words/2019/words-June.md
-I suddenly found myself in a awkward **predicament**. -  
-helped turn Apple into America's **preeminent** corporation -  
-Apple's closest thing to a **living embodiment** -  
-Yet his departure from the company **cements** the triumph of operations over design at Apple. -   
-This **Addendum** will cover rental support, to include but not limited to rental search by local leasing agents -  
-Revive negotiations to dismantle North Korea's nuclear weapons program, a goal that has proved **elusive** for years. -   
-Press Secretary Stephanie was bruised in a **tussle** between reporters and North Korea guards -  
-That’s not a **knock** on Tim Cook -  
-It makes me **queasy** to see that Apple’s chief designers are now reporting to operations -  
-You invited your fiend to the gym you can't just **bail** because you are lazy. -  
-the simple fact that someone else in involved would **jumpstart** your work ethic -  
-What a **straight-up** **kiss-ass** -  
-The body of the person who was found **hanged** was **cremated** immediately before an **autopsy** could be done. -  
+words/2019/words-July.md
+Nobody wants to be alone, without anyone to **confide** in or **commiserate** with -  
+voice chat to achieve the interpersonal closeness that can feel **contrived** or **heavy-handed** in a **prearranged** phone call -  
 
-The **usurper** **wrested** the power from the king. -  
+For **posterity**’s sake -  
+Every measure of a good developer is **qualitative**. That makes them all subjective -  
 
-The **upshot** would be a world with fewer stock animals. -  
-Do I **coddle** her more than any other loving parent -  
-If you **botch** this up again. -  
-He made a **scathing** attack on the statement -  
+Baidu has weathered a **plethora** of troubles. -  
 
+it wasn't a lie, but they just tell it in some sort of weird **maudlin** way. -   
+**Shoe Bandit** - Be Aware!! -  
+The agents will then disappear with the phones in order to **snoop** through them -  
+**Quran** **excerpts** -  
 
-the high-tech **denim** jacket pairs with your smartphone through the dedicated Jacquard app -  
-**amnesty** international -  
+this appears in the API Design Guidelines as a fundamental, but also **pervades** the design of the Swift language itself -  
 
+**scabs** -  
+It's **nihilistic** and out of touch with progressive thinking! -  
+A **slick** of lip **balm**. -  
+Even if this **humungous** big class was convenient it was highly **clumsy** and hard to modify, maintain and almost impossible to reuse -  
 
-**insidious** threats -  
-The US is paying for NATO, you had lots of countries that were **delinquent**. -  
-He's like a **meandering** old man **rambling** on the phone about nonsense -  
-the boy is **cocky** and **obstreperous** -  
-
-go after democrats **incumbents** -  
-Only a few people showed up for the so-called Impeachment rallies over the weekend. The numbers were **anemic**, no spirit, no hope -  
-
-The use of the word 'camp' or '**concentration** camp' has a negative **connotation** in English, which directly invokes imagery of Nazis and Nazism -  
-
-**Amnesia** mercifully **obliterated** his memory of the accident - 
-Standford's sailing coach took a call in 2016 that would **ensnare** him into he college-admissions scandal. -  
-the car won't **budge** an inch -  
-**fudge** on an exam -  
-always **fudged** on the important questions -  
-It's **detrimental** because without acknowledging that this happen **in the first place**, it's **doomed** to repeat itself. -   
-
-racism and **bigotry** -  
-Mothers know the **travail** of giving birth to a child. -  
-this **bodes** him no good. -  
-You know, there's no way Harvard **rescinds** my acceptance -  
-
-bears a **grudge** about the accident -  
-Yang is all about policies, NOT **platitudes** -  
-I like **jasmine** not because it has stunning beauty, but because it gives off elegance and **fragrance**. -  
 
 words/2019/words-March.md
 Her **petty** complaints really **gripe** me. -  
@@ -567,6 +514,59 @@ Why Trump's effort to **narrow** the **Trade Cap** has **flopped** so far? -
 Those negotiations were all accelerated, at least in part, by the **imposition** or threat of tariffs. -  
 After **tumultuous** week, a **profane** Trump returns to his base at CPAC. -  
 **prospectus** summary. -  
+
+words/2019/words-June.md
+I suddenly found myself in a awkward **predicament**. -  
+helped turn Apple into America's **preeminent** corporation -  
+Apple's closest thing to a **living embodiment** -  
+Yet his departure from the company **cements** the triumph of operations over design at Apple. -   
+This **Addendum** will cover rental support, to include but not limited to rental search by local leasing agents -  
+Revive negotiations to dismantle North Korea's nuclear weapons program, a goal that has proved **elusive** for years. -   
+Press Secretary Stephanie was bruised in a **tussle** between reporters and North Korea guards -  
+That’s not a **knock** on Tim Cook -  
+It makes me **queasy** to see that Apple’s chief designers are now reporting to operations -  
+You invited your fiend to the gym you can't just **bail** because you are lazy. -  
+the simple fact that someone else in involved would **jumpstart** your work ethic -  
+What a **straight-up** **kiss-ass** -  
+The body of the person who was found **hanged** was **cremated** immediately before an **autopsy** could be done. -  
+
+The **usurper** **wrested** the power from the king. -  
+
+The **upshot** would be a world with fewer stock animals. -  
+Do I **coddle** her more than any other loving parent -  
+If you **botch** this up again. -  
+He made a **scathing** attack on the statement -  
+
+
+the high-tech **denim** jacket pairs with your smartphone through the dedicated Jacquard app -  
+**amnesty** international -  
+
+
+**insidious** threats -  
+The US is paying for NATO, you had lots of countries that were **delinquent**. -  
+He's like a **meandering** old man **rambling** on the phone about nonsense -  
+the boy is **cocky** and **obstreperous** -  
+
+go after democrats **incumbents** -  
+Only a few people showed up for the so-called Impeachment rallies over the weekend. The numbers were **anemic**, no spirit, no hope -  
+
+The use of the word 'camp' or '**concentration** camp' has a negative **connotation** in English, which directly invokes imagery of Nazis and Nazism -  
+
+**Amnesia** mercifully **obliterated** his memory of the accident - 
+Standford's sailing coach took a call in 2016 that would **ensnare** him into he college-admissions scandal. -  
+the car won't **budge** an inch -  
+**fudge** on an exam -  
+always **fudged** on the important questions -  
+It's **detrimental** because without acknowledging that this happen **in the first place**, it's **doomed** to repeat itself. -   
+
+racism and **bigotry** -  
+Mothers know the **travail** of giving birth to a child. -  
+this **bodes** him no good. -  
+You know, there's no way Harvard **rescinds** my acceptance -  
+
+bears a **grudge** about the accident -  
+Yang is all about policies, NOT **platitudes** -  
+I like **jasmine** not because it has stunning beauty, but because it gives off elegance and **fragrance**. -  
 
 words/2019/words-May.md
 **Extrapolating** from the U.K. date in the ad, and given how late in the month we now are... -  
