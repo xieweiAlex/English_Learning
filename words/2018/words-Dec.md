@@ -17,7 +17,7 @@ She should wear a **thinner** shirt in summer
 The clay is very **stiff**, we must make it **thinner** with water  
 **fledgling** skier  
 The **fledgling** democracies of eastern Europe  
-The crisis led to the **downfall** of the government. -   
+The crisis led to the **downfall** of the government.    
 The **curfew** takes effect at midnight  
 The republics want **secession** from the union.  -  
 This sign **presage** rains. -  
@@ -26,7 +26,7 @@ a **discourse** on critical theory. -
 a **pat** of butter  
 I had no idea of the **gaffe** which I was committing  
 **rubble concrete**  
-He **scrape through** the entrance exam -  
+He **scrape through** the entrance exam   
 She has to **scrape** by on Social Security  
 The sights were **reminiscent** of my childhood.   
 Don't apply for the job, you're in danger of **overreaching** yourself.  

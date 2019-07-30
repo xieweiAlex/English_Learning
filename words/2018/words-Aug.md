@@ -298,7 +298,7 @@ This fixes that **regression**. A test has been added to ensure this does not **
 You're **hellish** stubborn.  
 **People person**  
 Genius is one percent inspiration and 99 percent **perspiration**.  
-Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  - 
+Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.   
    
    
 ## Week 2  

@@ -326,7 +326,7 @@ Money can't **budge** me.
 **interrogation**  
 Career has been **trouncing** romance for years.   
 A gunman **sniped** at them from the roof.  
-**fudge** on an exam -  
+**fudge** on an exam   
 always **fudged** on the important questions -  
 Snipers and **irregulars** **fell on** the **hapless** patrol.    
 

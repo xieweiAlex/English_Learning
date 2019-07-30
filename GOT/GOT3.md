@@ -143,7 +143,7 @@ I **knelt** beside his cold body, and said the old words.
 As **restitution** for this betrayal, he demands Harrenhal and all its **attendant** lands.  
 Why should I let that old **ferret** choose my bride for me?  
 We have a war to fight, I have no time to **haggle**.  
-**haggle over every ounce**. -  
+**haggle over every ounce**.   
 He'll **make time** for you.  
 And you will swear to tell your father the truth, that I had nothing to do with your **maiming**.  
 Should we drink this? -- I don't **partake**.  
@@ -261,7 +261,7 @@ My mother's always had a **penchant** for drama.
 Wheat, **barley**, apples. We've had a blessed harvest.  
 To win his **shield**, an **Unsullied** must go to the slave **marts** with a silver mark, find a newborn and kill it before its mother's eyes.  
 What a soft **mewling** fool this one is.  
-You will be fair to them. You won't **mutilate** them to **make a point**.  -  
+You will be fair to them. You won't **mutilate** them to **make a point**.    
 The **warlocks**.  
 I only know the wall is a **long way off**.  
 My mother always told me you **Westerosi** were a **grim** lot. Grim, bearded, **stinking barbarians** that would **row** across Narrow sea and steal us from our beds.  

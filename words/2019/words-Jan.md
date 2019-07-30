@@ -354,7 +354,7 @@ The Chinese president said both sides were part of the same Chinese family and t
 Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people". -  
 Taiwan remains **defiant** of Beijing's sovereignty claims  
 I would like to call on China to face **squarely** the reality of the existence of the Republic of China on Taiwan  
-In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance --  
+In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance   
 China however considers the island to be a **renegade** province - not a country in its own right - which will one day be fully reunited with the mainland  
 In recent years, Beijing has become increasingly assertive over its claims and what it says is a key question of national **sovereignty**  
    

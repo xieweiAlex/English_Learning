@@ -180,7 +180,7 @@ The Mountain and the **Viper**
 ## E9 
 Her **fangs** were sharp, but she knew how to use them.  
 Serve him up a nice juicy slice of ginger **minge**.  
-You're alright, of course your are, my brave little **fella**. -   
+You're alright, of course your are, my brave little **fella**.    
 > Do you know what leadership means, John snow, it means that the person in charge get **second-guessed** by every clever little **twat** with a mouth.  
 
 They got a big fat one and a little **bony** one **manning** the front.  
@@ -196,7 +196,7 @@ Burn the dead before **nightfall**.
 He is completely **insensate**.  
 You're still **betrothed** to Loras Tyrell. -   
 I'm not interested into your another **smug** story of the time you won. 
-Do you think you're the first person dragged int a **sept** to be married against her will? -  
+Do you think you're the first person dragged int a **sept** to be married against her will?   
 I was about to give him essence of **nightsha**  
 Hope I can prove **worthy** of her admiration.  
 I **hobbled** them (horses) last night.  

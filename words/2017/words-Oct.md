@@ -2,7 +2,7 @@
 --- Fourth week  
 **diehard** fan, **paint** your game face.  
   
-Enjoy **concierge** support  
+Enjoy **concierge** support    
   
 Always code as if the guy who ends up maintaining your code will be a violent **psychopath** who knows where you live.  
 Everyone will understand the value **proposition** of **cryptocurrencies**.  

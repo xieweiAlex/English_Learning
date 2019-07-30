@@ -1,7 +1,7 @@
 ### E 1
 You will never **web** the prince, you will web the king.  
 You're a **man of action**, aren't you?  
-They're **poachers** and thieves, not solder -   
+They're **poachers** and thieves, not solder    
 He swings a sword like a girl with **palsy**. -   
 They watch all of us, ready to **dole out** mercy or justice  
 Refuse the Kingslayer? A dangerous **proposition**. -  
@@ -31,12 +31,12 @@ And his efforts to **stamp out** **dissent**.
 They find us **repulsive**.  
 **over there**  
 On this **occasion**, he's asked me to speak on his behalf.  
-I did not come back to the Capital to watch you stack the small council with **sycophants**. -   
+I did not come back to the Capital to watch you stack the small council with **sycophants**.    
 
 ## E 3 
 Wouldn't that be **glorious**?  
 Tommen seems quite **taken** with his new queen.  
-I absolutely **adore** him, you raised a **gallant** young man. -  
+I absolutely **adore** him, you raised a **gallant** young man.   
 He is a half lion, half **stag**.  
 I **flayed** him living along with his wife and brother.  
 he was **famished**, so he borrowed a ham -  
@@ -51,7 +51,7 @@ Hypocrisy is a **boil**
 **Lancing a boil** is never pleasant 
 The High Septon's behavior was **corrosive**, as was his attitude. -  
 **At once**, your grace.  
-Tyrion never **consummated** the marriage. -  
+Tyrion never **consummated** the marriage.   
 It's the name I need, not her **virtue**.  
 He keeps his house in power in **sheer will**.  
 The queen would be **enraged**.  
@@ -60,13 +60,13 @@ You gambled when you drove a **dagger** into Robb Stark's heart.
 You're the **warden** of the North.  
 bought and sold, **scourged** and branded.  
 red **priest**  
-shows must over, I'm sure there are girls inside who'd be happy to **oblige**. -  
+shows must over, I'm sure there are girls inside who'd be happy to **oblige**.   
 
 ## E 4
 **Sapphire** Isle  
 We're rescuing my **niece**, bringing her back to her family.  
-the Faith **Militant** **dispensed** the justice of the Seven. -  
-I have no doubt he will sign a **decree** arming the believers you felt worthy. -  
+he Faith **Militant** **dispensed** the justice of the Seven.   
+I have no doubt he will sign a **decree** arming the believers you felt worthy.   
 > May the god judge him **justly**.  
 
 **huffs**  
@@ -74,7 +74,7 @@ I have no doubt he will sign a **decree** arming the believers you felt worthy. 
 do you have any **affection** for me at all?  
 I can't think of my brother locked away in a **grimy** cell.  
 We can't allow **fanatics** to arrest the queen's brother no matter his **perversions**. 
-Give the order and we'll clear out this **rabble**. -  
+Give the order and we'll clear out this **rabble**.   
 you **think highly of** this boy.  
 **once before**, you put your faith in Ser Davos and left me behind.  
 We mustn't let her **sniff out** any trouble.  
@@ -82,6 +82,29 @@ accent **give me away**
 Our ship **capsized** in the night.  
 Always wanted Dornish **stallion**.  
 
+## E 5
+**round up** the leaders of each of Meereen's great family and bring them to me 
+I'm **furthering** a dynasty  
+**kennel master**'s daughter  
+**whew**  
+She came to gate with a **squalling** baby in her arms.  
+Long **sullen** silence is occasional punch in the face  
+You're going to bring Daenerys a **souvenir** from her **ancestral** homeland in case I'm not enough?  
 
 
+## E 6 
+I sailed from King's Landing to Pentos in a **crate** without ever saying a word.  
+There was a **mutiny**, he was murdered by his own men. -  
+**labored** breathing  
+It's hard to be a **cynic** after that  
+you're talking about **jousting**  
+send the **godless** on the run  
+I'm the insulted **party**, Lord Baelish.  
+Young Lord Robin **heeds** my advice.  
+The High Septon has called for an **inquest**, not a trial.  
+You were said to be **despondent** when he died. -  
+He was **anointed** by the Seven, not Renly.  
+do you deny the charge against you, **fornication**. 
+never **lay** with any other man?  
 
+(In "A Feast for Crows" it is revealed that several major **plot points** have **hinged** on Baelish's **intrigues**)
