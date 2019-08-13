@@ -124,7 +124,7 @@ a **seismic** detector
 force of **inertia**  
 a **phoney** Welsh accent  
 She was an **atheist** but now she says she's seen the light.  
-**Atheism**  
+**Atheism** -  
 He was easily **dissuaded** from going.   
 **glamour girl**  
 He took up the **cause** with **evangelical** fervor. -  

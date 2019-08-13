@@ -39,7 +39,7 @@ Tommen seems quite **taken** with his new queen.
 I absolutely **adore** him, you raised a **gallant** young man.   
 He is a half lion, half **stag**.  
 I **flayed** him living along with his wife and brother.  
-he was **famished**, so he borrowed a ham -  
+he was **famished**, so he borrowed a ham   
 
 I'm giving you the chance to **avenge** your family.  
 But I swore a sacred vow at the godswood, I **pledged** my life to the Night's Watch  
@@ -94,7 +94,7 @@ You're going to bring Daenerys a **souvenir** from her **ancestral** homeland in
 
 ## E 6 
 I sailed from King's Landing to Pentos in a **crate** without ever saying a word.  
-There was a **mutiny**, he was murdered by his own men. -  
+There was a **mutiny**, he was murdered by his own men.   
 **labored** breathing  
 It's hard to be a **cynic** after that  
 you're talking about **jousting**  
@@ -102,9 +102,56 @@ send the **godless** on the run
 I'm the insulted **party**, Lord Baelish.  
 Young Lord Robin **heeds** my advice.  
 The High Septon has called for an **inquest**, not a trial.  
-You were said to be **despondent** when he died. -  
+You were said to be **despondent** when he died.   
 He was **anointed** by the Seven, not Renly.  
 do you deny the charge against you, **fornication**. 
 never **lay** with any other man?  
 
 (In "A Feast for Crows" it is revealed that several major **plot points** have **hinged** on Baelish's **intrigues**)
+
+
+## E 7 
+> Jon prepares for conflict. Sansa tries to talk to Theon. Brienne waits for a sign. Stannis remains stubborn. Jaime attempts to reconnect with family.  
+
+(They don't afraid of death, they care about honor)
+
+Lord Commander, it's my duty to tell you I believe this mission to be **reckless**, **foolhardy**, and an insult to all the brothers who are killed by wildings.    
+but now his fire has **gone out**, and now his watch is ended.  
+His troops are loyal and **battle-tested**.  
+The Stormcrows **rode off** last night.  
+I've trusted in your visions and your **prophecies** for years. -  
+There must another way, **leeches** or --   
+I'm alright, just a little bit **woozy**  
+**How long before** the Queen of Meereen comes to claim my pillow?  
+You think I'm **petty** enough to **speak ill of** a man just because he represents competition?  
+My motivations are entirely **impure**  
+Even if I wanted to do such an **inadvisable** thing, I couldn't.  
+All **rulers** are either **butchers** or meat.  
+Don't **spar** with me, little fellow. -  
+Everyone you meet has a hidden **motive** and you pride yourself on **sniffing it out**.  
+Then you'll remember the **passages** concerning **buggery** and **perjury**.  
+Have you ever **sowed** the filed, Lady Olenna?  
+Have you ever **reaped** the grain?  
+My dagger was **coated** with a special **ointment** from Asshai.  
+I'm sorry about the **locale**  
+Not for your **clientele**, clearly.  
+**flesh market**  
+As you say, our interest are **aligned**.  
+**chapel**  
+The Tyrells' **finery** will be stripped away.  
+
+
+## E 8 
+> Arya makes progress in her training. Sansa confronts an old friend. Cersei struggles. Jon travels.  
+
+I killed my father Tywin Lannister with a **bolt** to the heart.  
+To whom can they **turn for recourse**?  
+I **implored** him to visit you, but he would not.  
+I will not kneel before some barefooted **commoner** beg his forgiveness  
+And you agreed to marry someone you **loathe** for the greater good. Very impressive.  
+Your **queenly** **prerogative**  
+**banish** me?  
+I can make sure you die in a most **hideous** way possible.  
+Men **brawl** from time to time, it's only natural.  
+
+

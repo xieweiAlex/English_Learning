@@ -1,7 +1,50 @@
-He might like their(french) loose views on monogamy  
-he took his beefs to next level  
+
+## Week 5 
+
+**twerking**  
+**coast** through  
+
+They were broke, their struggle became a **bond** for them  
+she decided to **bail on** me  
+then leaves me **stranded** there 
+Some areas may be **roped off** for VIPs  
+If you want to be a **high-roller**, you can get bottle service, which is $200-500 for a bottle of alcohol  
+This place is **on-par** with Vegas nightclubs but with a techie crowd  
+
+**Cut somebody off** 
+
+Asking these kind of **asinine** insane questions -  
+**knife fight**  
+the mainstream media guys are **raking in the dough**  
+
+Hold on, did Joe biden just called Bill De blasio a little as **snitch**.  
+**Adrenaline** **junkies** 
+the biking is **revving up**  
+look past the **apex** of the corner where I want to end up  
+that's what you want to avoid **at all cost**  
+make sure your bike is in **tip-top** shape 
+
+**patio** and pool -  
+
+The app was Apple’s most popular paid app of 2017 and reportedly **boasts over** one million paying subscribers to date. -  
 
 
+I've got a plan to **reinvigorate** collective bargaining so we can increase wages finally.  
+General Motors got a **bailout**  
+**Deductible Amount**  
+Why you **weigh in** here?  
+Making sure **unequivocally** that no sick American goes without the care they need  
+We will hep those who've been victims of this **malfeasance** in this country  
+We need a **Marshall plan**  
+the division that's been **fomented** in this country 
+some who wants major systemic change and some those who wanted to **fiddle in the margin**  
+"if they miss this opportunity", he said, "things are going to look pretty **bleak**".  
+
+The kind of knowledge that one would use in R&D as well as solving hard **tactical** problems  
+This sudden explosion of applications for blockchain has started a serious **fist-fight** for **scarce** blockchain developer talent  
+
+He might like their(french) loose views on **monogamy**  
+he took his **beefs** to next level  
 
 ## Week 4 
 
@@ -39,7 +82,7 @@ It's really a good way to **wear down** your car.
 You can **extract** the value as you can before you return the car.  
 There is a **porta potti** I can use -  
 
-thier competitors' **staffers** for close to free  
+Their competitors' **staffers** for close to free  
 I made a mistake. I got upset, and I acted **impulsively**  
 **hourglass**  
 accidentally got **booted off** the queue  
@@ -72,7 +115,7 @@ This kind of test can be a **ticking** **time bomb**
 Protocols are incredibly useful and **versatile** in Swift  
 reduces at least 90% of **ambient** noise -  
 
-The inconsistency you created is going to create **churn** -  
+The inconsistency you created is going to create **churn**   
 those keyboards are so **mushy** -  
 A **deadpan**  
 
@@ -135,7 +178,7 @@ totally different career **trajectory**
 I am super **stoked** to be here  
 
 That's not nice Russia, you don't cause a blackout in a **heatwave**  
-a **dismissive** shrug -  
+a **dismissive** shrug   
 
 **Coyote** howl  
 The room was **alight** with **lamps**  
@@ -180,7 +223,7 @@ This pain is typically **achy**, but it may be sharp with movement
 
 **postfix notation**  
 **infix notation**  
-a **workaround** is to copy the input array to a doubly linked list. -  
+a **workaround** is to copy the input array to a doubly linked list.   
 **operator** 
 
 Western ideology won the war long ago and the internet is just the **nail in the coffin**  
@@ -204,7 +247,7 @@ It's **quid pro quo**
 We don't have economic **embargoes** or sanctions on Syria -  
 The Iranian politician have been calling for **reprisal** -  
 they don't need a foreign power marching in with **ulterior** motives overturn the govt   
-so it wouldn't make any sense **whatsoever** for Iran to pick a fight and try to escalate into a war -  
+so it wouldn't make any sense **whatsoever** for Iran to pick a fight and try to escalate into a war   
 however, Israel want to **topple** Iran -  
 they don't want to be **imperialize** by the west  
 
@@ -214,7 +257,7 @@ You're married to who is a **naturalized** US citizen
 **quite a scene**  
 A **raucous** fight exposed those deep partisan divided here on the hill.  
 **inquiry**  
-Either this congressman is being **woefully** ignorant, or he is **genuinely** **clueless**. -  
+Either this congressman is being **woefully** ignorant, or he is **genuinely** **clueless**.   
 **condemn** or **condone**  
 The Democrats tried to get him to **retract** his words.  
 The guy **presiding** over the chamber just decided he had enough.  
@@ -234,7 +277,7 @@ In reality Vim has a **tidy** structure, where .vimrc is just one of several inp
 
 **Dubai** - A U.S. naval ship destroyed an Iranian drone that ignored multiple calls to **stand down** on Thursday.  
 a **knockout** punch  
-He must have been a **knockout** when he was young -  
+He must have been a **knockout** when he was young   
 A shower would soon **perk** you up.  
 She is **perking** herself at mirror.  
 The weather seems to be **perking** up.  
@@ -343,7 +386,7 @@ Big and **deep-pocketed** business interests have exploited the H-1B visa progra
 and Indian Nationals have used **dubious** petitions and **fraudulent** means to press this legislation and try to get around the mandated limit  
 **Collectively**, we **wholeheartedly** believe in protecting diversity in our skilled legal immigration systems so that foreign nationals from all countries can come to work in the US and have a chance at their American Dream -  
 
-A fair immigration reform should not benefit just one nationality **detriment** to other nationals -  
+A fair immigration reform should not benefit just one nationality **detriment** to other nationals   
  
 Am I a **booty call**?  
 Go with your **gut**.  

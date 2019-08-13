@@ -148,7 +148,7 @@ When my dad heard the news, he looked up the funeral details and **hopped** on a
 My dad and I watched **mobster** movies together  
 When the **credits rolled**, we’d **flip to** a basketball game  
 And while he rested and **healed**, my dad was laughing along with Barkley. He kept my dad **company**  
-My dad was staying in **palliative care** at the hospital  --  
+My dad was staying in **palliative care** at the hospital    
    
 > But it was a Sunday afternoon, and my dad was tired. The summer light filled his room. Then, the day **faded**, and **dusk** began to enter  
    
@@ -157,7 +157,7 @@ The funeral was set near the **outskirts** of Iowa City in a house by the woods
 I turned to **look behind** me  
 And standing there — **drenched** in sweat from the Iowa summer   
    
-By testing it on real people a company can discover whether users feel like they've been **duped** or forced into an uncomfortable habit.  -  
+By testing it on real people a company can discover whether users feel like they've been **duped** or forced into an uncomfortable habit.    
    
 > “It’s not good enough to just say ‘we told you,'” he said.  
 > as a good **millennial**, I knew that people have very loose definitions of the word "friend"  
@@ -181,7 +181,7 @@ When they tried to cross the **marsh**, their shoes sank into the soft ground
 He is **lame** for both legs  
 **pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
 **pander** to the **vulgar** taste -  
-He **panders** to her every **whim** -  
+He **panders** to her every **whim**   
 the cat **bristled** in annoyance  
 a brush with stiff **bristles**  
 The United Nations High Commission for Human Rights has **lambasted** certain European leaders for **xenophobia** and racism.  

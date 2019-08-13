@@ -235,7 +235,7 @@ an **impediment** to reform -
 ## Week 3 
 Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
 your judgement has been **warped** by your obvious dislike of him  
-When that timer went **buzz**, it was time to stop **foraging** at an unproductive patch or abandon a failing hunt  
+When that timer went **buzz**, it was time to stop **foraging** at an unproductive patch or abandon a failing hunt -  
 
 Today’s update just expands the scope of the security **lapse**  
 law enforcement agencies have tried to eliminate the **once-rampant** street prostitution
