@@ -154,4 +154,27 @@ Your **queenly** **prerogative**
 I can make sure you die in a most **hideous** way possible.  
 Men **brawl** from time to time, it's only natural.  
 
+## E 9  
+> Stannis confronts a troubling decision. Jon returns to The Wall. Mace visits the Iron Bank. Arya encounters someone from her past. Dany reluctantly oversees a traditional celebration of athleticism.  
+
+
+They went in and out before anyone **spotted** them.  
+**burnt** our food stores to ground  
+Unless there is a **thaw**, we can't press forward to Winterfell.  
+How is your **jaw**? -> A **fleabite**
+The princess's necklace in the **jaws** of a **viper**.  
+No, you want to **break bread with** the Lannisters.  
+May I **inquire** as to the fate of my man Bronn?  
+You must love **humiliation**.  
+Oysters, **clams**, and **cockles**.  
+I'm afraid I don't **partake**.  
+The **bareheaded** beggar, the king with his crown.  
+Three **coppers**  
+I will have you **whipped** girl, go, go on, out.  
+I think it's **poetic**.  
+Common **novice** mistake.  
+I've spent much of my life in this **arena**.  
+Well said, you're an **eloquent** man.  
+
+
 
