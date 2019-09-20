@@ -87,7 +87,7 @@ It's a pleasure to make your **acquaintance**, Laddy Arryn.
 There's only one lord of the **Vale**, the others can be **hang**. **Lurking** and **simpering** on the **stairs** like **buzzards**, the moment my husband died, trying to get their **claws** in me.  
 The **deed** is done. **Faded** into nothing. 
 A **strong case** against **Tyrion**  
-This is before he married your father and moved to the North. By the time you were born, your father's **austerity** has become hers.  
+This is before she married your father and moved to the North. By the time you were born, your father's **austerity** has become hers.  
 Petyr had three **crates** brought all the way from King's Landing.  
 In their cluthes and **tried** for murder.  
 Fish. The **sigil** of House Tully  

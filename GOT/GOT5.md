@@ -177,4 +177,25 @@ I've spent much of my life in this **arena**.
 Well said, you're an **eloquent** man.  
 
 
+## E 10 
+The men, many **deserted** before down.  
+Long may them **sneer**  
+You know that the Citadel will make you **swear off** women, too.  
+Neither of you is fit **consort** for a queen.  
+A little **rusty**.  
+You missed a good **scrap**.  
+Trying to **placate** a city on the **brink** of civil war.  
+**If only** I knew someone with a vast network of spies.  
+Who could possibly have any experience managing such a massive **ungainly** beast?  
+I want **absolution**.  
+The **crone** came to me with her lamp raised high. -  
+After your **atonement**.  
+**fornication**  
+To demonstrate her **repentance**, she will cast aside all pride, all **artifice** -  
+She comes before you with a **solemn** heart, **shorn** of secrets. -  
+
+> He is a hero, and hero is inherently not cautiously.  
+
+
+
 

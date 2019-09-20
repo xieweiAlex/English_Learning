@@ -1,13 +1,46 @@
-emoticons  
 
-The climate is cyclical  
-carbon emission  
-which can adversely affect your health over time  
+**Viagra**, **Sildenafil** -  
+Use **rewetting** drops even when your eyes don’t feel dry    
+While it’s tempting to wear your contacts from the time you open your eyes until you **conk out** at night  
+**botnet**  
+In addition to protecting eyes from dirt, dust and **a laundry list of** **projectiles**, sunglasses are the best way to ensure that they won't suffer from **cataracts**, keratitis and other **eye ailments** caused by **UV radiation**  
 
+food **craving**  
+**Senseless** 
+**landfall** 
+Being basic doesn't **negate** that pumpkin spice tastes good.  
+It's a blend of **cinnamon**, **nutmeg**, ginger, **allspice** and **cloves**, and those spices together are delicious when used in the right types of food. -    
 
+He was a bit **scatterbrained**, but in that brilliant sort of way  
+**q-tips**: Cotton **swab**  
+Don't be **square**  
+And when you're at a **dive bar**, you order something **obnoxiously** high end
+Individual bars may be considered to be **disreputable**, **sinister**, of **poor upkeep**, or even a detriment to the community.
+It's an **inquiry** that somehow manages to make you sound both silly and **pretentious**. -  
 
-It's quite useful when I get long-winded questions  
-We can do small talk later, dear.  
+We **equate** this course to a full life-coaching program, some of which run in the thousands of dollars  
+For anyone seeking to improve and transform any **facet** of their life for the better  
+
+**promiscuous** sexual relations -  
+Points are subset to **forfeiture** -  
+Machine learning often feels like an **impenetrable field** that belongs to a select few with years of research experience  
+They don’t need people who know why **manhole covers** are round, nor even why they are called manholes  
+
+When you first joined Lifehack, I promised we would leave **no stone unturned** in helping you improve your life instantly  
+
+**emoticons**  
+This **jingoism** this nonsense goes on all the time  
+These attacks, **vandalism**, happens everywhere all around the world -  
+**Karl Marx**'s **communism**.  
+The **stifling** sort of **setup** that's happening in China  
+It's just like an ex, you just had the most **tumultuous** relationship with in the world -  
+
+The climate is **cyclical**  
+**carbon emission**  
+which can **adversely affect** your health over time  
+
+It's quite useful when I get **long-winded** questions  
+We can do **small talk** later, dear.  
 
 Some **imprudent** ideas 
 A **polemicist**'s role is not sufficient for a leader. A leader must display strategic **acumen** that incorporate respect for those nations that have stood with us when trouble loomed. -  
@@ -15,12 +48,11 @@ A **polemicist**'s role is not sufficient for a leader. A leader must display st
 he has **upsides**, and **downsides**  
 Those numeric keys act kind of **joy stick** for controlling your mouse pointer.  
 
-
 **Chances are** you know someone who’s given the **keto** craze a try, or you've gone keto yourself  
 Keto as a trend **popped up** in the last year or so, a **reincarnation** of the low **carb** **Atkins diet** that became popular in the 1970s. 👀 -  
 So the only way to increase your "brain power"... is to focus on **cultivating** your mind.  
 
-**strapped**  
+I'm suppose to do something but pretty **strapped** now.   
 **ran afoul of** the law.  
 
 They are very much **pumped** and **enthused** to always part of my channel.  
@@ -69,15 +101,15 @@ a full 8 hours of **slumber** -
 **hippocampus**: information inbox of your brain  
 aging and **dementia**  
 They're significantly **interrelated**  
-changes in the physical structure of the brain, that's **fiendishly** difficult to treat.  
+changes in the physical structure of the brain, that's **fiendishly** difficult to treat. -   
 can we **salvage** aspects of their learning and memory function?  
 That's one of our **moon-shot** goals, as it were.  
 what you wish for is a **virile** set of these immune **assassins** at all times. -   
 WHO has classified any form of **nighttime shift** work as a probable **carcinogen**. -  
 **disquieting**  
 It's rather like a broken water pipe in your home, sleep loss will leak down into every **nook** and **cranny** of your physiology. -  
-The **decimation** of sleep throughout industrialized nations, having a catastrophic impact on our health, our wellness. -  
-We can be **reunited** with the most powerful **elixir** of life --  
+The **decimation** of sleep throughout industrialized nations, having a **catastrophic** impact on our health, our wellness. -  
+We can be **reunited** with the most powerful **elixir** of life -  
 We can't **catch up on** sleep, sleep is not like a bank.  
 Our health **deteriorate** so quickly.  
 Human beings are the only **species** that **deliberately** deprive themselves of sleep.  
