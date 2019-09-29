@@ -337,7 +337,7 @@ Attorney General Jeff Sessions should stop this **Rigged** **Witch Hunt** right 
 A nice aspect of using Python this way is that it is very handy in certain applications to play with attached hardware via an interactive **prompt** or dynamically reload scripts on the fly.  
 Surprisingly, ActionScript has **eked out** a small bump up in the rankings. Last year it came in dead last with a ranking of 0.0, so we were **all set** to **eliminate** it.  
 I would be sad to see Forth go, as it’s one of my personal favorites, but if it comes in a zero again next year, it’ll be **axed**.  
-As a condition of using this permit, Permitee shall **indemnify**, hold harmless, defend and protect District.  
+As a condition of using this permit, Permitee shall **indemnify**, hold harmless, defend and protect District. -  
 An **indemnity** is an obligation by a person (**indemnitor**) to provide compensation for a particular loss suffered by another person (indemnitee).  
    
    

@@ -1,12 +1,146 @@
 
-off the cuff
+take the **initiative**  
+a new **initiative** against car crime  
+he is plunging into an **abyss** of **despair**  
+Have you been whipping these men?  
+she is whipping the eggs  
+I have a nagging wife  
+she was the plaything of a wealthy business man  
+I locked my briefcase in my car  
+Hey, where are all my ovulation sticks  
+ovulation occurs only if mating has taken place  
+Ouch, it really hurts  
+as mild as a dove  
+malleable mild steel  
+
+
+but they will also **displace** millions of American jobs and have been doing so for years  
+We are not prepared **in the least**. It is one of the biggest challenges of our **era**  
+I remember hearing the **quip** that if you asked 10 programmers what their favorite editor was, you would get 11 answers  
+It’s not **unheard of** to see $200k+ total compensation with **negligible** prior experience  
+I can tell you I liked teaching Scheme because it would **warp** students heads and **predispose** them to being able to teach themselves new languages -  
+
+The stinky salami, the **gaudy** **chandelier**?  
+It's hard to prevent concret from **creeping**.  
+first order **lag**  
+she gave us a boring **recital** of all her troubles.  
+a **moist** **breeze**  
+**duct** the **moist** air away  
+his eyes were **moist** with tears  
+**twisted cruller**  
+Dude, I'm so **pysched** you're here.  
+A **porcupine** is covered with prickles  
+**strut** your stuff  
+the **structs** are firmly **braced**  
+**struct** like a turkey cock  
+Now who would like a strawberry **daiquiri**?  
+door **knocker**  
+
+The **antarctic** 
+
+**ground rule**  
+**play ball**  
+**ethnicity**, ancestry  
+**Caucasian**  
+constant **flirting** and **lewd comments**  
+Sometimes the images and content in the texts are **vulgar** and include **offensive slurs** and jokes about religion and sexuality  
+Imani is not sure if this type of conduct is **permitted** under company policy.
+Imani **overhears** Lee offering dating advice to his coworker Carlos  
+Harassment cannot **occur** on texts, emails or social media. X  
+he was accused of **groping** office girls.  
+We are **groping** after the truth.  
+**be over the hill**  
+
+**splurge** millions on the wedding  
+
+Real wasabi isn't **grated**, it's pasted  
+That means it's related to many cheap and easy to find plants like **horseradish**, cabbage and **broccoli**  -  
+It likes **shady area**, and **rocky soil** or **gravel**   
+Verything has to be done by hand and it's a **laborious** process   
+it has the **pungency** that everybody likes -  
+
+Trump did not offer a **quid pro quo** with Ukrainian president  
+That's what makes al of this seems a little **seedy**  
+it would be **mass hysteria** over that people  
+because it's his political opponent, it becomes really **muddy** here.  
+the husband says you should not have been **snooping** 
+people turn a **blind eye** to that  
+everybody gonna **come after** you for snooping  
+When it comes to Vietnam war, he was **adamantly** against the Vietnam war  
+he was very **anti-establishment**  
+**Primary election**  
+they know this pretty much **solidifies** his wing  
+wow, you **crossed the line**  
+she's a **wild card** for everybody involved.  
+Is she gonna **flip-flop** on things, we don't know  
+they think maybe they can **reel her into** their world.  
+they certainly know Sanders is going to **tear down** the establishment if he gets into the office  
+the vote of American people is **null and void**  
+They're basically **thumbing their nose** at common man and saying your choice sucked  
+this gonna be new **political normal**  
+it has to be a seriously **egregious** crime  
+Ya Impeach Joe Biden , 50,000 a month with no experience ... classic **cronyism**  
+
+Companies that put multiple interviewers in a room specifically with the goal of **unnerving** candidates  
+sometimes it’s just to put you **at ease**  
+What you need is someone who doesn't care about your money or looking smart by **spouting off** fancy **words of no consequence** - just that you not be a victim -  
+Example #3: manipulating **delimited** blocks -  
+
+The democrats **revered** him    
+It's abuse of power, it's **extortion** -  
+it would be like if the day after Michael Jackson got **acquitted** of touching kid  
+the one **silver lining** just wait long enough he'll just **spill the beans** himself   
+Even if it did, it wouldn't **negate** that Donald Trump abused the power of his office to try to **dig up dirt** on his political **opponent**    
+
+After a **swine disease** **decimated** its pig herd, Chinese demand is driving up beef, pork and poultry prices world-wide  
+China is on a global meat-buying **spree**, pushing up beef, pork and **poultry** prices around the globe as the world’s most populous nation **scrambles** to fill a large void in its meat supply.  
+which has led many farmers to **cull** **hog** **herds** and stop breeding new pigs -  
+**stir-fried** dishes 
+
+You **heart sinks**, your **eyelids** just want to close  
+By making sure it's not **in vain**.  
+
+**Kidney stones**  
+Lemon water is said to be **alkalizing**. However, neither the **pH** of your blood **nor cells** can be **altered** by what you eat  
+In fact, most claims that foods or beverages **cleanse** or **detoxify** your organs are simply **untrue**  
+However, the **acid** in lemons can damage your **tooth enamel** over time, which makes your teeth **more prone to** **cavities** -  
+
+
+## Week 3 
+
+Cold Turkey is an app for macOS and Windows that helps you focus by letting you choose websites and apps to block when you need to **buckle down**  
+
+And the worksheet below will help you to **pinpoint** the areas in your life that are holding you back from success  
+In yesterday’s email, we talked a bit about the importance of taking a **holistic approach**  
+The legendary actor John Wayne still holds the world record for **starring** in the most amount of movies. A staggering 142 to be precise  
+Perhaps settled for a **middle-of-the-road** office job that just about paid the bills  
+Would you like to be as **prolific** as John Wayne?  
+> Instead of say, wanting to be better at time management… think about everything in your life that puts a **strain** on effective time management.  
+> To lead a happy and fulfilling life — one where you achieve your dreams — it’s important to realize that being happy, energized, motivated, successful, and productive all go **hand in hand**.  
+
+Going in to this course I was already **well versed** in productivity literature. -  
+
+Chances are good that there are several aspects of your lifestyle that could use some **restructuring**.  
+Until then, consider how you’d like to improve your life… what makes you **tick**, and what **holds you back**?  
+
+Apple **Chestnut** Street - 
+**godspeed**  
+
+Stripe is part of a broader trend of companies waiting longer to go public, in part because of the **ever-increasing** pools of funds that are now available from venture capital investors  
+
+that combines all we know into a single **laser-focused** program  
+You'll gain the **uncanny** ability to remember everything, know when and what to do, and somehow always stay one step **ahead of the curve**  
+Taking your **newfound** motivation, the next step is to harness it  
+**off the cuff**
 
 How Adam Neumann’s **Over-the-Top** Style Built WeWork   
 How China **Unleashed** Twitter **Trolls** to **Discredit** Hong Kong’s Protesters 
 **Purists** may hate me for this, but perhaps some like to use such tools. Make your own decisions. Have a productive day!
 Android development is hard, and it's mostly due to its relatively **fragmented** ecosystem, and having a million OEM's out the  
 Their **demographic** is millennials, who apparently cook less than any other **living generation**.   
-the Pattern team's inspiration came from their own burnout; they found **solace** in cooking against “the **stream** of emails and notifications following us home each day.”
+the Pattern team's inspiration came from their own **burnout**; 
+They found **solace** in cooking against “the **stream** of emails and notifications following us home each day.”   
+The **invalid** found **solace** in music -  
 
 I think it's **high time** to make a toast. -Sure.  
 **decaf** coffee  
@@ -14,9 +148,10 @@ At this point, iOS feels like it's started to **crystalize**.
 Apple's **app lock-in** is stronger than ever 
 In its latest fund-raising round, Stripe collected $250 million, which is tiny compared with what WeWork and others have needed to reach their own **hefty** valuations  
 
-A senator may request **unanimous consent** on the **floor** to **set aside** a specified rule of procedure so as to expedite proceedings. If no Senator objects, the Senate permits the action, but if any one senator objects, the request is rejected. 
+A senator may request **unanimous consent** on the **floor** to **set aside** a specified rule of procedure so as to **expedite** proceedings. If no Senator **objects**, **the Senate** **permits** the action, but **if any** one senator objects, the request is rejected. 
+(**Set aside** one day a week for a cheat meal)
 **critical mass**  
-When you **ingest** that much sodium in a single **sitting**, your body **overcompensates** by retaining more water. This can cause temporary water weight gain, leaving you feeling **bloated** and **lethargic**    
+When you **ingest** that much sodium in a single **sitting**, your body **overcompensates** by retaining more water. This can cause temporary water weight gain, leaving you feeling **bloated** and **lethargic** -    
 And, perhaps most **disconcerting** of all, this **quick-and-easy** meal may stay with you much longer than you realize  
 the results are **startling**  
 
@@ -43,8 +178,7 @@ That happens with every part of a phone from the screen to the software, but it'
 As multi-shooter gun **massacres** have **mushroomed** since the GOP removed the assault rifle ban in 2004 it is good to have knowledge  
 **Blanket statements** regarding gun deaths are meaning less unless you break the numbers down as to reasons, places and perpatrators  
 
-
-I was wearing a short, **backless** **halter** **sundress**, a **thong**, and **wedge sandals**  
+I was wearing a short, **backless halter** **sundress**, a **thong**, and **wedge sandals**  
 I **pondered** for a minute what to do, and eventually decided to go **red-faced** rather than lose the chance  
 I ran in 90-degree heat and arrived **soaked**   
 When I arrived, the **receptionist** gave me a **wide-eyed** look when she saw me  
@@ -57,7 +191,8 @@ This job was an opportunity **too good to pass**
 All I could do was to **stammer** something about being sorry for the misunderstanding, I can’t even remember what I said  
 **rule of thumb**  
  
-Well not quite, there are **gazillions** of **clickbait** “ten tips for your CV /resume”, mine was an attack on the **arrant** **sloppiness** and **textual** incompetence of some of the most **rotten** CVs I've read -  
+## Week 2 
+Well not quite, there are **gazillions** of **clickbait** “ten tips for your CV /resume”, mine was an attack on the **arrant** **sloppiness** and **textual** incompetence of some of the most **rotten** CVs I've read  -   
 Sometimes, just to **wind me up**, you send me a blue CV -  
 **Not only** does the motivation for this leave me **dumbfounded** **but** when I **blogged** that this was silly several people somehow interpreted “please don’t send blue CVs” as “please do”.  
 However, spell and **identify sloppiness**, which is not ideal for someone **vying** to write the backup script for critical servers  
@@ -74,8 +209,8 @@ you want to build up a delicious little **crescendo** and then enjoy the fruits 
 
 No way, have you **converted**??  
 THis happened on John Daily **Blvd** right before the **overpass** to get onto 280. I called the police    
-everyone's getting **prostate** exam  
-This country is going to an **oligarchic** from of society where a handful billionair control the economy  
+everyone's getting **prostate** exam -  
+This country is going to an **oligarchic** from of society where a handful billionair control the economy -  
 I don't think other candidate said has said **flat out** they're gonna confiscate guns.  
 I didn't belive black on black crime **until now**.  
 That's a **ballsy** satement from Beto O'Reourke  
@@ -88,13 +223,13 @@ with Apple Arcade it could be different, but **turning back the clock** won’t 
 but the Alibaba founder is a **larger-than-life** entrepreneur, which makes his retirement a huge **development**  
 They're literally **breaking down**  
 Authorities are increasingly using the **tactic** to **harass** Americans and other foreign **nationals**, particularly those of **Chinese descent**, he said.  
-the **bitter** U.S.-China trade war has **exacerbated** the **trend**  
+the **bitter** U.S.-China trade war has **exacerbated** the **trend** -  
 
 None - I stand by **vanilla** Vim  
 Taco Bell **tosses out** woman buying food for homeless  
 
-marks the end of a tumultuous two-year saga that saw an once-popular platform go to extreme lengths to keep its business running, despite the obvious and **fraught** financial cost
-Last we heard of MoviePass, the company was laying off huge **swaths** of its staff, including the team responsible for brokering partnerships with movie theaters  
+marks the end of a **tumultuous** two-year **saga** that saw an once-popular platform go to extreme lengths to keep its business running, despite the obvious and **fraught** financial cost -  
+Last we heard of MoviePass, the company was laying off huge **swaths** of its staff, including the team responsible for brokering partnerships with movie theaters -  
 **crosshair** positioning  
 **overlay**  
 people believe they understand how something works when in fact their understanding is superficial **at best**   
@@ -135,6 +270,7 @@ These paint finishes deliver a smooth, subtle look and show little to no **sheen
 **matte finish**: a **dull** finish or surface, as opposed to a shiny one  
 **titanium** and **ceramic**
 
+## Week 1 
 
 Squirrels are **capricious** little creatures. -  
 And aside from **taunting** the neighborhood dogs and using your **gutters** as water slides, it appears they also **eavesdrop** on bird chatter to **gauge** their safety.  
