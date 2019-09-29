@@ -3,3 +3,6 @@
 .DS_Store
 */**/*.sw*
 
+*/**/vim-markdown-preview.html
+vim-markdown-preview.html
+
