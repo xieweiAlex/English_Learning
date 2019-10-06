@@ -191,25 +191,25 @@ After a massive hatch **detonation**.
 Fair enough.  
 xx, xx and xx scattered after the hatch implosion.  
   
-There is a gun under the tarp  
-I'll take two of them hostage.  
-When they arrive, I'll ambush them  
-They'll send scout party to investigage  
-You're putting our lives in danger.  
+There is a gun under the **tarp**  
+I'll take two of them **hostage**.  
+When they arrive, I'll **ambush** them  
+They'll send **scout** party to investigage  
+You're putting our lives **in danger**.  
 why are you lying to me, Sayid?  
 I shouldn't have disagreed with you.  
-Am I interrupting something?  
+Am I **interrupting** something?  
 You never mad soup for me.  
-the other castaways  
-I'm not abandoning him  
+the other **castaways**  
+I'm not **abandoning** him  
   
-chattering over radio  
-Someone posted your bail  
-what would you like to find out?  
-It's pretty much about everything  
-I've his autopsy report  
-you contested the divorce  
-spinal surgeon  
+**chattering** over radio  
+Someone **posted your bail**  
+what would you like to **find out**?  
+It's **pretty much** about everything  
+I've his **autopsy** report  
+you **contested** the divorce  
+**spinal surgeon**  
 Just swell  
 I'll bring your some antiseptic later  
 They scratched you up pretty bad, didn't they?  
@@ -322,7 +322,7 @@ The greatest **road rage** of all time
 I'm not here to **flatter** you  
 They went **nuts**.  
 **I don't blame you, you know.**  
-I'm old-fashioned.  
+I'm **old-fashioned**.  
   
   
 as an **impostor**, 22 years old child  

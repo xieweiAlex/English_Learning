@@ -3,14 +3,14 @@ There are so many temples and **shrines** to cover
   
 **tung** oil tree  
 There is a **palpable** difference in their ages.  
-A **palpable** sense of loss. - 
+A **palpable** sense of loss.  
 She was in **defiant** mood  
 The **defiant** child was punished.  
 The **mastermind** of robbery  
 **paddy** cultural **vegetation**.   
 **paddy** field, **paddy** rice  
 A **Star Trek** **convention**  
-Heat **debilitates** many people. -    
+Heat **debilitates** many people.     
 a **debilitated** patient  
 slider **crank** mechanism  
 She should wear a **thinner** shirt in summer  
@@ -19,7 +19,7 @@ The clay is very **stiff**, we must make it **thinner** with water
 The **fledgling** democracies of eastern Europe  
 The crisis led to the **downfall** of the government.    
 The **curfew** takes effect at midnight  
-The republics want **secession** from the union.  -  
+The republics want **secession** from the union.    
 This sign **presage** rains. -  
 hold **discourse** with sb  
 a **discourse** on critical theory. -  
@@ -58,7 +58,7 @@ Amazon Web Services, is the **cash cow**
 Amazon can use its cloud cash to **subsidize** the goods it ships to customers, helping to **undercut** retail competitors who don’t have similar **adjunct** revenue streams  
 (**adjunct professor**)  
 In 2005, Amazon acquired BookSurge, an **on-demand** self-publishing service, and CustomFlix  
-Amazon is **winding down** the latter. -  
+Amazon is **winding down** the latter.   
 Amazon Lending, an invitation-only program launched in 2011, has **doled out** billions in loans to businesses that may have difficulty obtaining credit elsewhere   
 Amazon Prime, which began in 2005 as a subscription service offering free two-day shipping—but quickly **ballooned** into something much larger  
 Prime **Pantry**, which ships **non-perishable** grocery items for an additional fee  
@@ -136,7 +136,7 @@ Are you still a believer in Santa, because at 7 it's **marginal**.
    
 **deluxe** room  
    
-**Admitting** we’re **fallible** and that we’re working on making things better is a matter of pride for us -  
+**Admitting** we’re **fallible** and that we’re working on making things better is a matter of pride for us   
    
 Grab, the **ride-hailing** company, has hit a **roadblock** in its efforts to improve its mapping and routing service after running into trouble with OpenStreetMap  
 points of interest’ **cultivated** through customer feedback and **groundwork**  
@@ -201,7 +201,7 @@ Image may contain **imperfections** due to compression artifacts
 He stood in **amaze** at the sight  
 **testosterone**  
 **paddling upstream**  
-A water **vole** swam **vigorously** **upstream**  -  
+A water **vole** swam **vigorously** **upstream**    
 A **knack** for teaching  
 **makeshift road**  
 **makeshift** **barricades** against tank attacks.

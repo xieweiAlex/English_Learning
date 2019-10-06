@@ -351,7 +351,7 @@ we'll be the **odd man out**
 
 **Brig**. Gen. Laura Yeager will **assume command** of the California National Guard's 40th **Infantry Division**.    
 
-**op-ed**: opposite editorial page  
+**op-ed**: opposite editorial page -  
 **smack down**  
 
 be **embroiled** in a quarrel  

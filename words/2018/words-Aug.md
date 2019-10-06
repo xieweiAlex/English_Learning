@@ -221,7 +221,7 @@ At Netflix we had to be creative about where we searched for talent, because we 
 Team members provided input, and my team and I also **weighed in**.  
 Netflix was a much sexier place to work, so I was **perplexed**.  
 I can’t **bear** the thought of leaving him.  
-He had a thick German accent, and he **stuttered**. -   
+He had a thick German accent, and he **stuttered**.    
 He still **stuttered**, but he gave me a **riveting** explanation, and I realized, That’s it.  
 We always tried to be creative about probing people and their résumés. Bethany once decided to analyze the résumés of our best data-science people for common features. She found that those people shared an **avid** interest in music.  
 Building a talented team of internal recruiters was a **substantial** investment, but I could make an **irrefutable** business case for doing so.  

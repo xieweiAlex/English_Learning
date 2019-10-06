@@ -1,18 +1,66 @@
 
+You might not interested in a second **side hustle**   
+they're not really **cracked up to be** 
+I never **viewed** a full-time job as the **end-all** **be-all**.  
+salary is **capped**  
+there is nobody there to **cap** your salary when you work for yourself  
+you can **reap** those rewards 
+His ex-FB gig only lasted a year, he was a traveling **hobo** before that  
+
+Trump’s foreign interference scandal **snowballs**  
+he's been using world leaders as his personal **errand boys**  
+That whistle blower is clearly in a very **precarious** situation -  
+It's **imperative** to protect this person's identity at **all costs**  
+no one wants **slipping**  
+She's got her **hands full**  
+
+At the **eleventh hour** 
+**eavaesdropping** on intimate conversation  
+mining **iron ore** locally  
+Is that a **lizard** on your neck?  
+election **rigging**  
+standing **rigging**  
+Tigers are **carnivores**, cattle are not -  
+She is not a **puling** infant  
+
+**Voucher**  
+Apple is continuing to update iOS 13 at a **breakneck** pace   
+Apple is **wasting no time** in addressing them.  
+
+**screencast**  
+Being afraid of exploring **uncharted water** is understandable, but that doesn't mean you shouldn't give it a try    
+
+The movie was a **tableau** of a soldier's life -   
+
+He has been **gung-ho** there is 100% nothing here  
+**in-kind** donation  
+20 **delirious** tweets in 14 hours, you can tell how much trouble Trump is in -  
+70s **sitcom**  
+**political machination**  
+There isn't anything **premeditate** all of this -  
+I'm going to **ecstatic** when you lose  
+He is **incinerated** bridges on his own side  
+Fox News is his last **bulwark** -  
+
+That's it! No fancy syntax, no code. Just a few lines to get you **primed**. -  
+copy (also called 'yank' in vim **parlance**) -  
+Or are you bored, unchallenged...maybe even **dread** it?
+> If you're not sure what your true purpose is, then chances are when you move to a new job, you're going to fall back into the trap of being demotivated and unhappy at work.
+
 take the **initiative**  
 a new **initiative** against car crime  
 he is plunging into an **abyss** of **despair**  
-Have you been whipping these men?  
-she is whipping the eggs  
-I have a nagging wife  
-she was the plaything of a wealthy business man  
-I locked my briefcase in my car  
-Hey, where are all my ovulation sticks  
-ovulation occurs only if mating has taken place  
-Ouch, it really hurts  
-as mild as a dove  
-malleable mild steel  
-
+Have you been **whipping** these men?  
+she is **whipping** the eggs  
+I have a **nagging** wife  
+she was the **plaything** of a wealthy business man  
+I locked my **briefcase** in my car  
+Hey, where are all my **ovulation** sticks -  
+**ovulation** occurs only if **mating** has **taken place**  
+**Ouch**, it really hurts  
+as **mild** as a **dove**  
+**malleable** **mild** steel  
+She was **disciplined** for this  
 
 but they will also **displace** millions of American jobs and have been doing so for years  
 We are not prepared **in the least**. It is one of the biggest challenges of our **era**  
@@ -40,7 +88,7 @@ The **antarctic**
 
 **ground rule**  
 **play ball**  
-**ethnicity**, ancestry  
+**ethnicity**, **ancestry**  
 **Caucasian**  
 constant **flirting** and **lewd comments**  
 Sometimes the images and content in the texts are **vulgar** and include **offensive slurs** and jokes about religion and sexuality  
@@ -93,7 +141,7 @@ the one **silver lining** just wait long enough he'll just **spill the beans** h
 Even if it did, it wouldn't **negate** that Donald Trump abused the power of his office to try to **dig up dirt** on his political **opponent**    
 
 After a **swine disease** **decimated** its pig herd, Chinese demand is driving up beef, pork and poultry prices world-wide  
-China is on a global meat-buying **spree**, pushing up beef, pork and **poultry** prices around the globe as the world’s most populous nation **scrambles** to fill a large void in its meat supply.  
+China is on a global meat-buying **spree**, pushing up beef, pork and **poultry** prices around the globe as the world’s most **populous** nation **scrambles** to fill a large void in its meat supply. -  
 which has led many farmers to **cull** **hog** **herds** and stop breeding new pigs -  
 **stir-fried** dishes 
 
@@ -193,7 +241,7 @@ All I could do was to **stammer** something about being sorry for the misunderst
  
 ## Week 2 
 Well not quite, there are **gazillions** of **clickbait** “ten tips for your CV /resume”, mine was an attack on the **arrant** **sloppiness** and **textual** incompetence of some of the most **rotten** CVs I've read  -   
-Sometimes, just to **wind me up**, you send me a blue CV -  
+Sometimes, just to **wind me up**, you send me a blue CV   
 **Not only** does the motivation for this leave me **dumbfounded** **but** when I **blogged** that this was silly several people somehow interpreted “please don’t send blue CVs” as “please do”.  
 However, spell and **identify sloppiness**, which is not ideal for someone **vying** to write the backup script for critical servers  
 Your education is **pitiful**  
@@ -223,13 +271,13 @@ with Apple Arcade it could be different, but **turning back the clock** won’t 
 but the Alibaba founder is a **larger-than-life** entrepreneur, which makes his retirement a huge **development**  
 They're literally **breaking down**  
 Authorities are increasingly using the **tactic** to **harass** Americans and other foreign **nationals**, particularly those of **Chinese descent**, he said.  
-the **bitter** U.S.-China trade war has **exacerbated** the **trend** -  
+the **bitter** U.S.-China trade war has **exacerbated** the **trend**   
 
 None - I stand by **vanilla** Vim  
 Taco Bell **tosses out** woman buying food for homeless  
 
 marks the end of a **tumultuous** two-year **saga** that saw an once-popular platform go to extreme lengths to keep its business running, despite the obvious and **fraught** financial cost -  
-Last we heard of MoviePass, the company was laying off huge **swaths** of its staff, including the team responsible for brokering partnerships with movie theaters -  
+Last we heard of MoviePass, the company was laying off huge **swaths** of its staff, including the team responsible for brokering partnerships with movie theaters   
 **crosshair** positioning  
 **overlay**  
 people believe they understand how something works when in fact their understanding is superficial **at best**   
@@ -309,7 +357,7 @@ Unlike Trump I'm confident if Bernie's health does start to **decline** he will 
 
 Swift **enthusiast**
 
-Stuck watching **infomercials** for whatever that is  
+Stuck watching **infomercials** for whatever that is   
 He is so **flummoxed**, his brain literally froze. -  
 
 The company is **treading lightly** in a crowded market where Tinder, Bumble, Dig, Vespr, Bound and Hinge already exist  
@@ -319,10 +367,9 @@ Capitalism is a tool of the **upper class** designed to keep the people struggli
 The gunman **evaded** a federal background check to get the firearm he used in the **rampage**.  
 
 Rescheduling will, realistically, give you 4-12 weeks extra **cram** time  
-a measure which ranges from **name-calling** at worst, to **refutation** of the central point at best -  
+a measure which ranges from **name-calling** at worst, to **refutation** of the **central point** at best -  
 Even experienced programmers seem to suffer from this **myopia**  
 With feature flags, you get fine **grained control** over who is exposed to which feature  
-
 
 **tech debt**  
 **sign-off**  
@@ -339,7 +386,7 @@ Their job is just to **slave-drive**, keep pushing
 This is that **age-old** battle between engineering majors and liberal arts majors  
 An **incumbent** company that's already the champion in a lot of market  
 I respect this guy's ability to effortlessly and **unabashedly** advertise himself  
-I have a feeling Facebook HR is **screeching** right now -  
+I have a feeling Facebook HR is **screeching** right now   
 **all-nighter**  
 
 It has some **funky** thing with the lip the shoulders here  

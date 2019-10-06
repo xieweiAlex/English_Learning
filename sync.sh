@@ -18,9 +18,7 @@ echo "" > word-review.md
 
 ag '\*{2,}.*\s-{1,3}\W{0,10}$' --group --nonumbers > word-review.md
 
-echo "" > words-selected.md
+# echo "" > words-selected.md
 head -70 word-review.md > words-selected.md   
- 
-
 
 

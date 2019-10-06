@@ -8,66 +8,61 @@ GOT/GOT5.md
 He swings a sword like a girl with **palsy**. -   
 Refuse the Kingslayer? A dangerous **proposition**. -  
 They did ask for some **concession**. -  
-he was **famished**, so he borrowed a ham -  
-
 It's long past time to dig a new **latrine** pit. -  
 The High Septon's behavior was **corrosive**, as was his attitude. -  
-There was a **mutiny**, he was murdered by his own men. -  
-You were said to be **despondent** when he died. -  
+I've trusted in your visions and your **prophecies** for years. -  
+There must another way, **leeches** or -   
+Don't **spar** with me, little fellow. -  
+The **crone** came to me with her lamp raised high. -  
+To demonstrate her **repentance**, she will cast aside all pride, all **artifice** -  
+She comes before you with a **solemn** heart, **shorn** of secrets. -  
+
 
 words/2017/words-Jul.md
 An **asterisk** indicates that the field is required. -   
   
 
 words/2018/words-Aug.md
-He had a thick German accent, and he **stuttered**.    
+As a condition of using this permit, Permitee shall **indemnify**, hold harmless, defend and protect District. -  
 
 words/2018/words-Dec.md
-A **palpable** sense of loss.  
-Heat **debilitates** many people.     
-The republics want **secession** from the union.    
+The republics want **secession** from the union.  -  
 This sign **presage** rains. -  
 a **discourse** on critical theory. -  
-**Gregorian** calendar.   
+**Gregorian** calendar. -  
   
-Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.    
+Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.  -  
 But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition. -  
-Amazon is **winding down** the latter. -  
-he was one hell of a **snappy** dresser.   
-**canny** investors will switch banks if they think they are getting a **raw deal**.   
-Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard.   
-and as an adult, he kept an **aquarium** in his home.   
-For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food.   
-It occurred to him that it might be possible to **oneup** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
+he was one hell of a **snappy** dresser. -  
+**canny** investors will switch banks if they think they are getting a **raw deal**. -  
+Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard. -  
+and as an adult, he kept an **aquarium** in his home. -  
+For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food. -  
+It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
    
-be in a **bellicose** mood.   
-Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health.   
+be in a **bellicose** mood. -  
+Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health. -  
 **Overture** conditions for a **cease** fire. -  
 Christmas **revels** with feasting and dancing were common in England. -  
 A few Arab leaders recognize that water and energy **profligacy** must be **curbed** if ecological disaster is to be avoided. -  
 the development of **Unitarian** **theology** -  
 The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
-His father was an **ardent** socialist   
+His father was an **ardent** socialist -  
 **scour** a dirty oven -  
 I saw **nunchucks**(**Nunchaku**), ninja smoke, maybe some hairpulling, but not a gun -  
    
-**Admitting** we’re **fallible** and that we’re working on making things better is a matter of pride for us -  
-   
-My dad was staying in **palliative care** at the hospital  --  
-   
-By testing it on real people a company can discover whether users feel like they've been **duped** or forced into an uncomfortable habit.  -  
+**Admitting** we’re **fallible** and that we’re working on making things better is a matter of pride for us   
    
 So superior that tests are **inconsequential** to quality -  
 All this cash comes out of the collection plate that is passed among the **congregation** of ordinary people who come to **worship** at the **altar** of power -  
 The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
 The malware itself is relatively **underwhelming** -  
-His **scheme** to win the girl **backfired** and she went to another guy.   
+His **scheme** to win the girl **backfired** and she went to another guy. -  
 **lame duck** -  
 **pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
 **pander** to the **vulgar** taste -  
-He **panders** to her every **whim**   
 **aboriginal** **inhabitants** -  
-A water **vole** swam **vigorously** **upstream**  -  
+A water **vole** swam **vigorously** **upstream**    
 the group has no **affiliation** to any preservation society -  
 The customer service rep is usually a small **cog** in a big machine -  
    
@@ -136,16 +131,30 @@ And yet, it’s not clear that the Bay Area—historically famous for its **libe
 It’s not a good look for the world’s largest retailer even though the retailer saw **glitches** last year, too. -  
 And once I've got them, the **pampered** little shits... --  
 
-words/2018/words-Mar.md
-**Apparel** & Fashion -  
-   
-
 words/2018/words-May.md
 The new way to make it in business is to spend big, grow fast and use **Kilimanjaro-size** piles of investor cash to **subsidize** your losses, with a plan to become profitable somewhere **down the road**.  - 
 Other devices like Nest Secure and Nest x Yale Locks behaved **erratically**. -   
 However, when you get into the **nitty-gritty** of their usability and feature sets, there are a few **noteworthy** differences. -   
 Lamb or lion, his wound must be washed and **sewn**, or it will **fester**. -  
 The rumors of your **demise** were **unfounded**. -   
+
+words/2018/words-Mar.md
+**Apparel** & Fashion -  
+   
+
+words/2018/words-Oct.md
+a center of **maritime trade**, a **conduit** for wealth  - 
+You **mobsters** all suffer from such **hubris** - 
+I was super **pumped**. -   
+Open fields of fire and action **unimpeded** by town natural barrier or **civilian** population -  
+he had been **deposed** by a military **coup** -  
+
+(**alimentary tract**, digestive **tract**, **genital tract**, **respiratory** tract, **intestinal** tract) - 
+
+The Senate confirmation process was **contentious** and emotional, that process is over. -  
+Trump’s greatest superpower is his ability to **wield** **victimhood**. -   
+
+We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -   
 
 words/2018/words-Nov.md
 Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken. -  
@@ -171,20 +180,6 @@ an **impediment** to reform, he has an **impediment** in speech. -
    
 Don't make yourself a **nuisance** to others -  
 
-words/2018/words-Oct.md
-a center of **maritime trade**, a **conduit** for wealth  - 
-You **mobsters** all suffer from such **hubris** - 
-I was super **pumped**. -   
-Open fields of fire and action **unimpeded** by town natural barrier or **civilian** population -  
-he had been **deposed** by a military **coup** -  
-
-(**alimentary tract**, digestive **tract**, **genital tract**, **respiratory** tract, **intestinal** tract) - 
-
-The Senate confirmation process was **contentious** and emotional, that process is over. -  
-Trump’s greatest superpower is his ability to **wield** **victimhood**. -   
-
-We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -   
-
 words/2018/words-Sep.md
 (Red is **auspicious** in China )  -  
 What kind of **philistine** doesn't have their phone on them at all times!?!  -  
@@ -196,6 +191,69 @@ John McCain managed to deliver a final **rebuke** to the man who wasn't there. -
    
 In **hindsight**, all of these were part of a narrower range of skills than I realized, and many of these skills were less **transferable** than I’d hoped. -   
    
+
+words/2019/words-April.md
+Dongbei are very very much **machismo**, male driven culture -  
+Modern **frigates** -   
+**Acquit** a person of his duty. -  
+**Calamari** is a **culinary** name for **squid**, especially for dishes from the **Mediterranean**, notably fried squid (fried calamari) -  
+
+A **conciliatory** approach. -   
+called for 4:20 p.m. to be the socially accepted hour of the day to consume **cannabis** -  
+The dog **cringed** at the sight of the whip -  
+**Infamous** **load shedding** - a practice of cutting off electricity to whole sections of the city in order to conserve power in countries -  
+Use **obnoxious** **in-your-face** formatting and lists -  
+We can't ignore the **plight** of **crippling** homelessness crisis -  
+Minority and poor neighborhoods are already being swallowed up by **gentrification** in other parts of city. -  
+
+
+**Tumultuous** Trump **era**  -  
+**Crusaders** were offered a **plenary** indulgence by the **Pope**.  -  
+a diplomat with **plenary** powers -
+knowledge will **accrue** to you from reading. -  
+She really did **detest** his mockery. -  
+Barr is more **nefarious** than we anticipated. -  
+The poor painter sold his paintings for a **paltry** sum of money. -  
+Bird **perched** on the branch -   
+He's getting you all **riled up** -  
+muscle **cramp** -  
+bear a **calamity** with **fortitude**. -  
+to **stave off** hunger/illness -  
+They took bloody **reprisals** against the leaders. -  
+
+**feckless** **stooge** -  
+**statutory** agent -  
+an **impediment** to reform -  
+Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
+When that timer went **buzz**, it was time to stop **foraging** at an unproductive patch or abandon a failing hunt -  
+
+Configuration files for terminal programs — generally called dotfiles — are much more **amicable** than configuration files for IDEs -  
+
+our chief **diversion** was reading. -  
+He was an **inept** politician -  
+When something is **grotesque**, it's hard to look away. -  
+the **contenders** had been **winnowed** to five -  
+The swifts are a family, **Apodidae**, of highly aerial birds. They are superficially similar to **swallows**, but are not closely related to any of the passerine species. -  
+A **flimsy** table, a **flimsy** excuse -  
+**deride**: to laugh at or insult **contemptuously** -  
+The **despot** who **disposed** of all his enemies, real or imaged. -  
+What's a **pet peeve** that you have -  
+The **fanfare** sounded. -  
+**latch bolt**, **latch plate**  -  
+He was **scourge** of by the memory of his misdeeds. -  
+**oligarch monopoly** -   
+In most thefts, residents report the devices have been **pried** off the side of their home -   
+gives illegal orders and puts people in a completely **untenable** situation. -  
+because you're **maniacally** stupid  -  
+This is the one issue that you can't put as **culpability** on republicans -  
+
+
+**relics** are **enshrined** under **altars**  -   
+A **cheery** smile -  
+Our army **routed** the enemy into running for their lives. - 
+She is **disposed** to sudden **bouts** of depression. -   
+
+Most **algae** live in water.  -  
 
 words/2019/words-Feb.md
 What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing. -   
@@ -277,67 +335,6 @@ a **renowned** painter -
    
    
 
-words/2019/words-April.md
-Dongbei are very very much **machismo**, male driven culture -  
-Modern **frigates** -   
-**Acquit** a person of his duty. -  
-**Calamari** is a **culinary** name for **squid**, especially for dishes from the **Mediterranean**, notably fried squid (fried calamari) -  
-
-A **conciliatory** approach. -   
-called for 4:20 p.m. to be the socially accepted hour of the day to consume **cannabis** -  
-The dog **cringed** at the sight of the whip -  
-**Infamous** **load shedding** - a practice of cutting off electricity to whole sections of the city in order to conserve power in countries -  
-Use **obnoxious** **in-your-face** formatting and lists -  
-We can't ignore the **plight** of **crippling** homelessness crisis -  
-Minority and poor neighborhoods are already being swallowed up by **gentrification** in other parts of city. -  
-
-
-**Tumultuous** Trump **era**  -  
-**Crusaders** were offered a **plenary** indulgence by the **Pope**.  -  
-a diplomat with **plenary** powers -
-knowledge will **accrue** to you from reading. -  
-She really did **detest** his mockery. -  
-Barr is more **nefarious** than we anticipated. -  
-The poor painter sold his paintings for a **paltry** sum of money. -  
-Bird **perched** on the branch -   
-He's getting you all **riled up** -  
-muscle **cramp** -  
-bear a **calamity** with **fortitude**. -  
-to **stave off** hunger/illness -  
-They took bloody **reprisals** against the leaders. -  
-
-**feckless** **stooge** -  
-**statutory** agent -  
-an **impediment** to reform -  
-Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
-Configuration files for terminal programs — generally called dotfiles — are much more **amicable** than configuration files for IDEs -  
-
-our chief **diversion** was reading. -  
-He was an **inept** politician -  
-When something is **grotesque**, it's hard to look away. -  
-the **contenders** had been **winnowed** to five -  
-The swifts are a family, **Apodidae**, of highly aerial birds. They are superficially similar to **swallows**, but are not closely related to any of the passerine species. -  
-A **flimsy** table, a **flimsy** excuse -  
-**deride**: to laugh at or insult **contemptuously** -  
-The **despot** who **disposed** of all his enemies, real or imaged. -  
-What's a **pet peeve** that you have -  
-The **fanfare** sounded. -  
-**latch bolt**, **latch plate**  -  
-He was **scourge** of by the memory of his misdeeds. -  
-**oligarch monopoly** -   
-In most thefts, residents report the devices have been **pried** off the side of their home -   
-gives illegal orders and puts people in a completely **untenable** situation. -  
-because you're **maniacally** stupid  -  
-This is the one issue that you can't put as **culpability** on republicans -  
-
-
-**relics** are **enshrined** under **altars**  -   
-A **cheery** smile -  
-Our army **routed** the enemy into running for their lives. - 
-She is **disposed** to sudden **bouts** of depression. -   
-
-Most **algae** live in water.  -  
-
 words/2019/words-Jan.md
 be **persecuted** by the **reactionary** government -   
 the **stodgy** **three-storey** building -  
@@ -359,6 +356,7 @@ Because if you get too **aggro**, you might just end up with Trump jumping in th
 The mother usually stops eating her puppies' **feces** around the time that they have begun eating solid food and can leave the **den** to **defecate**  -  
 The **bog** is home to rare **mosses**. -  
 **Reprieve** a condemned prisoner. -  
+**Atheism** -  
 He took up the **cause** with **evangelical** fervor. -  
 A **bastion** of **male chauvinism**. -  
 **Securities** that are **denominated** in dollars or yen. -  
@@ -420,6 +418,160 @@ Amazon partnered with JPMorgan Chase and **Berkshire Hathaway** to create a new,
 While Taiwan is self-governed and **de-facto** independent, Beijing considers the island to be a **breakaway** province -  
 Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people". -  
 
+words/2019/words-Aug.md
+**Viagra**, **Sildenafil** -  
+It's a blend of **cinnamon**, **nutmeg**, ginger, **allspice** and **cloves**, and those spices together are delicious when used in the right types of food. -    
+
+It's an **inquiry** that somehow manages to make you sound both silly and **pretentious**. -  
+
+**promiscuous** sexual relations -  
+Points are subset to **forfeiture** -  
+These attacks, **vandalism**, happens everywhere all around the world -  
+It's just like an ex, you just had the most **tumultuous** relationship with in the world -  
+
+A **polemicist**'s role is not sufficient for a leader. A leader must display strategic **acumen** that incorporate respect for those nations that have stood with us when trouble loomed. -  
+Keto as a trend **popped up** in the last year or so, a **reincarnation** of the low **carb** **Atkins diet** that became popular in the 1970s. 👀 -  
+a full 8 hours of **slumber** -  
+changes in the physical structure of the brain, that's **fiendishly** difficult to treat. -   
+what you wish for is a **virile** set of these immune **assassins** at all times. -   
+WHO has classified any form of **nighttime shift** work as a probable **carcinogen**. -  
+It's rather like a broken water pipe in your home, sleep loss will leak down into every **nook** and **cranny** of your physiology. -  
+The **decimation** of sleep throughout industrialized nations, having a **catastrophic** impact on our health, our wellness. -  
+We can be **reunited** with the most powerful **elixir** of life -  
+He is massive popular in spite of his **reclusive** and more introverted nature -  
+Can I **bum** a smoke? -  
+
+it is a document defined by **audaciousness**, both in terms of the company’s vision and also the **flagrant** disregard for corporate governance norms by its leadership -  
+As he is still in **remission** 5 years later. -  
+
+Tesla is pitching customers on a new rental offering for solar power as a way to **revive** the **flagging fortunes** of its renewable energy business. -  
+
+Did they ever talk about universal **suffrage**? -  
+this basically a big **cauldron** of boiling oil -  
+I think **offal** is awful. -  
+
+Over the next decade they both **transcended** music **stardom**, ascending to a **stratosphere** of **fame** where both became recognizable -   
+Yet in that particular moment, Toffler was truly **mortified**. -  
+He **snapped** into **crisis-management** mode... -  
+Her **prizewinning** song that night and her biggest pop **crossover** **hit to date** -  
+Wale, the show's **emcee**, felt the need to address it from the stage, reportedly telling the audience, "You can't fault a man for speaking his mind", a sentiment that only drew more **boos**. -  
+"Single Ladies" - her **megahit** song that West had rushed the stage to champion -  
+In the **waning minutes** of the **telecast**, Beyoncé **glided** to the stage to accept her trophy, **resplendent** in a red gown. - 
+Even President Barack Obama **weighed in**, accidentally. “He’s a **jackass**,” Obama said in what he believed was **off-the-record** **banter** before a TV interview -  
+Tracii McGregor says seemed to cast West as the angry black man going after the **demure** young white woman, a scenario presented with little nuance -  
+she sang, as the audience **tittered** **expectantly** -  
+As she sang in “You Belong With Me”: “She’s **cheer captain** and I’m on the **bleachers**.” -  
+
+People who develop **Alzheimer**'s tend to sleep more during the day, taking naps or feeling **drowsy** and **dosing off** -  
+
+In Hungary, the **barbed-wire** border between East and West was removed. -  
+The **Iron Curtain** was **unraveling**. -  
+Java, for all you **Masochists** -  
+every **synagogue**, every **mosque** -  
+**Otitis** Media -  
+**obstetrician** -  
+**eustachian tube** -  
+
+**Misogyny** can be a **precursor** to other forms of extremism -  
+they can handle lots and lots of different scenarios with **aplomb** -  
+You start to hit **potholes** and bumps, bruises, this gonna **transmit** all that back to the rider -  
+The president followed that up by saying he could **ratchet** tariffs even higher—even above 25% -  
+Ear **barotrauma** can sometimes lead to a ruptured eardrum, also called **tympanic membrane** **perforation** -  
+**plier** -  
+
+words/2019/words-July.md
+Asking these kind of **asinine** insane questions -  
+**patio** and pool -  
+
+The app was Apple’s most popular paid app of 2017 and reportedly **boasts over** one million paying subscribers to date. -  
+
+
+They skip the needless **banter** and go straight for the "Where is your family from?" -  
+We're similar enough to be accepted, but we're different enough to be **loathed**. -   
+The flying creatures are no sign of the **apocalypse**. -   
+
+**oasis** grill -  
+
+There is a **porta potti** I can use -  
+
+you get **disgruntled** patients who had **botched** operations -  
+the traffic is so **hectic** and crazy -  
+We keep hearing the media **regurgitate** talking points about how the economy is doing so well -  
+I see a **precarious** economy that is built on debt -  
+reduces at least 90% of **ambient** noise -  
+
+those keyboards are so **mushy** -  
+Promotions are a powerful tool for defining organizational culture and values because people tend to **emulate** those who are promoted -  
+now people are **badgering** him with questions he's already answered -  
+I don't want to **jinx** it. -  
+I know you're watching, I made this **collage** for you. -  
+Have a **jubilant** July!  -  
+I let her steal into my **melancholy** heart -   
+
+Warmth **emanated** from the fireplace -  
+**bronchial pneumonia** -  
+The **corridor** opens into Mr. Brown's office -  
+when asked whether he was **relishing** his confrontation with the congresswomen -  
+
+The use of an **armrest**, as in a traditional chair, takes some strain off your neck and shoulders and makes you less likely to **slouch** -  
+There is security **up the wazoo** here.  -  
+in order to support this culture you've got something called **izakaya** -  
+We don't have economic **embargoes** or sanctions on Syria -  
+The Iranian politician have been calling for **reprisal** -  
+however, Israel want to **topple** Iran -  
+vicious, anti-Semitic **screeds**. -  
+Quite often people publish **monstrous** single .vimrc files that try to control every aspect of the editor -  
+They're not **espousing** the views of our country -  
+
+Even though all these hackers indeed sound **menacing** -  
+You apparently can’t be a **self-professed** Nazi, but Twitter has said it’s talking with experts to figure out its more general rules around white supremacy -   
+Sometimes the Apple online store **goes down** due to an **imminent** product refresh -  
+I **saute** spinach and opinions in white wine -   
+But grocery stores have **remained** largely **impervious** to the digital revolution -  
+Don't **fret** the annual membership fee: you get a store credit for the **remainder** if you don't save $60 by the end of the year. -  
+
+I want them to remain in **snotty** conditions. -  
+the **profiteers** can be **held accountable** and brought to justice -  
+**Collectively**, we **wholeheartedly** believe in protecting diversity in our skilled legal immigration systems so that foreign nationals from all countries can come to work in the US and have a chance at their American Dream -  
+
+A **litmus test** for whether an app has all config correctly factored out of the code is whether the codebase could be made open source at any moment, without compromising any credentials -  
+Unless they came in and **ransacked** your journals, these things belong to you -   
+
+There was never an **armistice** so technically nobody won the Chinese Civil war, because it didn't end. -   
+He is a giant **pedophile** -  
+Trump administration is **hell-bent** on adding the citizen question to the census -  
+**Molasses** Sauce -  
+Yogurt **Tahini** -  
+
+A sweetener found in some nut butters can be deadly for **canines**. -  
+
+I'm a programmer/business owner, so perhaps it's useful for other sorts of creative professionals, but it feels like a total **gimmick** to me -  
+Such repositories are **curated**, and have submission guidelines for naming conventions and required components -  
+You basically have the perfect wife and still try desperately to find **demerits** -  
+one of the few countries where Google and Facebook actually faced local competition but things turned **dismal** in the end. -  
+The **Siberian** **taiga** is the largest forest in the world, the lungs of the planet. -   
+**trams buses**, **trolleybuses** fixed-route taxi buses -   
+Nobody wants to be alone, without anyone to **confide** in or **commiserate** with -  
+voice chat to achieve the interpersonal closeness that can feel **contrived** or **heavy-handed** in a **prearranged** phone call -  
+
+For **posterity**’s sake -  
+Every measure of a good developer is **qualitative**. That makes them all subjective -  
+
+Baidu has weathered a **plethora** of troubles. -  
+
+it wasn't a lie, but they just tell it in some sort of weird **maudlin** way. -   
+**Shoe Bandit** - Be Aware!! -  
+The agents will then disappear with the phones in order to **snoop** through them -  
+**Quran** **excerpts** -  
+
+this appears in the API Design Guidelines as a fundamental, but also **pervades** the design of the Swift language itself -  
+
+**scabs** -  
+It's **nihilistic** and out of touch with progressive thinking! -  
+A **slick** of lip **balm**. -  
+Even if this **humungous** big class was convenient it was highly **clumsy** and hard to modify, maintain and almost impossible to reuse -  
+
+
 words/2019/words-June.md
 I suddenly found myself in a awkward **predicament**. -  
 helped turn Apple into America's **preeminent** corporation -  
@@ -471,102 +623,6 @@ You know, there's no way Harvard **rescinds** my acceptance -
 bears a **grudge** about the accident -  
 Yang is all about policies, NOT **platitudes** -  
 I like **jasmine** not because it has stunning beauty, but because it gives off elegance and **fragrance**. -  
-
-words/2019/words-July.md
-They skip the needless **banter** and go straight for the "Where is your family from?" -  
-We're similar enough to be accepted, but we're different enough to be **loathed**. -   
-The flying creatures are no sign of the **apocalypse**. -   
-
-**oasis** grill -  
-
-There is a **porta potti** I can use -  
-
-you get **disgruntled** patients who had **botched** operations -  
-the traffic is so **hectic** and crazy -  
-We keep hearing the media **regurgitate** talking points about how the economy is doing so well -  
-I see a **precarious** economy that is built on debt -  
-reduces at least 90% of **ambient** noise -  
-
-The inconsistency you created is going to create **churn** -  
-those keyboards are so **mushy** -  
-Promotions are a powerful tool for defining organizational culture and values because people tend to **emulate** those who are promoted -  
-now people are **badgering** him with questions he's already answered -  
-I don't want to **jinx** it. -  
-I know you're watching, I made this **collage** for you. -  
-Have a **jubilant** July!  -  
-I let her steal into my **melancholy** heart -   
-
-a **dismissive** shrug -  
-
-Warmth **emanated** from the fireplace -  
-**bronchial pneumonia** -  
-The **corridor** opens into Mr. Brown's office -  
-when asked whether he was **relishing** his confrontation with the congresswomen -  
-
-The use of an **armrest**, as in a traditional chair, takes some strain off your neck and shoulders and makes you less likely to **slouch** -  
-a **workaround** is to copy the input array to a doubly linked list. -  
-There is security **up the wazoo** here.  -  
-in order to support this culture you've got something called **izakaya** -  
-We don't have economic **embargoes** or sanctions on Syria -  
-The Iranian politician have been calling for **reprisal** -  
-so it wouldn't make any sense **whatsoever** for Iran to pick a fight and try to escalate into a war -  
-however, Israel want to **topple** Iran -  
-vicious, anti-Semitic **screeds**. -  
-Either this congressman is being **woefully** ignorant, or he is **genuinely** **clueless**. -  
-Quite often people publish **monstrous** single .vimrc files that try to control every aspect of the editor -  
-He must have been a **knockout** when he was young -  
-They're not **espousing** the views of our country -  
-
-Even though all these hackers indeed sound **menacing** -  
-You apparently can’t be a **self-professed** Nazi, but Twitter has said it’s talking with experts to figure out its more general rules around white supremacy -   
-Sometimes the Apple online store **goes down** due to an **imminent** product refresh -  
-I **saute** spinach and opinions in white wine -   
-But grocery stores have **remained** largely **impervious** to the digital revolution -  
-Don't **fret** the annual membership fee: you get a store credit for the **remainder** if you don't save $60 by the end of the year. -  
-
-I want them to remain in **snotty** conditions. -  
-the **profiteers** can be **held accountable** and brought to justice -  
-**Collectively**, we **wholeheartedly** believe in protecting diversity in our skilled legal immigration systems so that foreign nationals from all countries can come to work in the US and have a chance at their American Dream -  
-
-A fair immigration reform should not benefit just one nationality **detriment** to other nationals -  
- 
-A **litmus test** for whether an app has all config correctly factored out of the code is whether the codebase could be made open source at any moment, without compromising any credentials -  
-Unless they came in and **ransacked** your journals, these things belong to you -   
-
-There was never an **armistice** so technically nobody won the Chinese Civil war, because it didn't end. -   
-He is a giant **pedophile** -  
-Trump administration is **hell-bent** on adding the citizen question to the census -  
-**Molasses** Sauce -  
-Yogurt **Tahini** -  
-
-A sweetener found in some nut butters can be deadly for **canines**. -  
-
-I'm a programmer/business owner, so perhaps it's useful for other sorts of creative professionals, but it feels like a total **gimmick** to me -  
-Such repositories are **curated**, and have submission guidelines for naming conventions and required components -  
-You basically have the perfect wife and still try desperately to find **demerits** -  
-one of the few countries where Google and Facebook actually faced local competition but things turned **dismal** in the end. -  
-The **Siberian** **taiga** is the largest forest in the world, the lungs of the planet. -   
-**trams buses**, **trolleybuses** fixed-route taxi buses -   
-Nobody wants to be alone, without anyone to **confide** in or **commiserate** with -  
-voice chat to achieve the interpersonal closeness that can feel **contrived** or **heavy-handed** in a **prearranged** phone call -  
-
-For **posterity**’s sake -  
-Every measure of a good developer is **qualitative**. That makes them all subjective -  
-
-Baidu has weathered a **plethora** of troubles. -  
-
-it wasn't a lie, but they just tell it in some sort of weird **maudlin** way. -   
-**Shoe Bandit** - Be Aware!! -  
-The agents will then disappear with the phones in order to **snoop** through them -  
-**Quran** **excerpts** -  
-
-this appears in the API Design Guidelines as a fundamental, but also **pervades** the design of the Swift language itself -  
-
-**scabs** -  
-It's **nihilistic** and out of touch with progressive thinking! -  
-A **slick** of lip **balm**. -  
-Even if this **humungous** big class was convenient it was highly **clumsy** and hard to modify, maintain and almost impossible to reuse -  
-
 
 words/2019/words-March.md
 Her **petty** complaints really **gripe** me. -  
@@ -656,98 +712,78 @@ their **insatiable** hunger for rare animals -
 The forest was **ravaged** by fire. -   
 The **pedlar** **beckoned** me to follow him -    
 
+words/2019/words-Sep.md
+Hey, where are all my **ovulation** sticks -  
+I can tell you I liked teaching Scheme because it would **warp** students heads and **predispose** them to being able to teach themselves new languages -  
+
+That means it's related to many cheap and easy to find plants like **horseradish**, cabbage and **broccoli**  -  
+it has the **pungency** that everybody likes -  
+
+What you need is someone who doesn't care about your money or looking smart by **spouting off** fancy **words of no consequence** - just that you not be a victim -  
+Example #3: manipulating **delimited** blocks -  
+
+It's abuse of power, it's **extortion** -  
+which has led many farmers to **cull** **hog** **herds** and stop breeding new pigs -  
+However, the **acid** in lemons can damage your **tooth enamel** over time, which makes your teeth **more prone to** **cavities** -  
+
+
+Going in to this course I was already **well versed** in productivity literature. -  
+
+Apple **Chestnut** Street - 
+The **invalid** found **solace** in music -  
+
+When you **ingest** that much sodium in a single **sitting**, your body **overcompensates** by retaining more water. This can cause temporary water weight gain, leaving you feeling **bloated** and **lethargic** -    
+they started to **revolt** and riot -  
+Well not quite, there are **gazillions** of **clickbait** “ten tips for your CV /resume”, mine was an attack on the **arrant** **sloppiness** and **textual** incompetence of some of the most **rotten** CVs I've read  -   
+Sometimes, just to **wind me up**, you send me a blue CV -  
+**underpass** **mural** design -  
+everyone's getting **prostate** exam -  
+This country is going to an **oligarchic** from of society where a handful billionair control the economy -  
+the **bitter** U.S.-China trade war has **exacerbated** the **trend** -  
+
+marks the end of a **tumultuous** two-year **saga** that saw an once-popular platform go to extreme lengths to keep its business running, despite the obvious and **fraught** financial cost -  
+Last we heard of MoviePass, the company was laying off huge **swaths** of its staff, including the team responsible for brokering partnerships with movie theaters -  
+Squirrels are **capricious** little creatures. -  
+**mazel tov** -   
+Cscope is a developer's tool for browsing source code. It has an **impeccable** Unix **pedigree** -  
+
+He is so **flummoxed**, his brain literally froze. -  
+
+a measure which ranges from **name-calling** at worst, to **refutation** of the central point at best -  
+I have a feeling Facebook HR is **screeching** right now -  
+
 words-selected.md
-**haggle over every ounce**. -  
-You will be fair to them. You won't **mutilate** them to **make a point**.  -  
-
-They're **poachers** and thieves, not solder -   
-He swings a sword like a girl with **palsy**. -   
-Refuse the Kingslayer? A dangerous **proposition**. -  
-They did ask for some **concession**. -  
-I did not come back to the Capital to watch you stack the small council with **sycophants**. -   
-
-he was **famished**, so he borrowed a ham -  
-
-It's long past time to dig a new **latrine** pit. -  
-The High Septon's behavior was **corrosive**, as was his attitude. -  
-Tyrion never **consummated** the marriage. -  
-shows must over, I'm sure there are girls inside who'd be happy to **oblige**. -  
-
-the Faith **Militant** **dispensed** the justice of the Seven. -  
-I have no doubt he will sign a **decree** arming the believers you felt worthy. -  
-Give the order and we'll clear out this **rabble**. -  
-There was a **mutiny**, he was murdered by his own men. -  
-You were said to be **despondent** when he died. -  
-
 Lady Arryn's **predilection** were her own **affair**. -   
 She was always **prone** to **melancholy**. -  
 By staying out of the **fray**, you've allowed Tywin Lannister. -  
-You're alright, of course your are, my brave little **fella**. -   
 You're still **betrothed** to Loras Tyrell. -   
-Do you think you're the first person dragged int a **sept** to be married against her will? -  
 
-An **asterisk** indicates that the field is required. -   
-  
-
-He had a thick German accent, and he **stuttered**. -   
-Our theme at TED this week is dreams, big, bold, **audacious** dreams.  You're really the **antidote** to that.  - 
-   
-   
-
-A **palpable** sense of loss. - 
-Heat **debilitates** many people. -    
-The crisis led to the **downfall** of the government. -   
-The republics want **secession** from the union.  -  
+He swings a sword like a girl with **palsy**. -   
+Refuse the Kingslayer? A dangerous **proposition**. -  
+They did ask for some **concession**. -  
+It's long past time to dig a new **latrine** pit. -  
+The High Septon's behavior was **corrosive**, as was his attitude. -  
 This sign **presage** rains. -  
 a **discourse** on critical theory. -  
-He **scrape through** the entrance exam -  
-**Gregorian** calendar. -  
-  
-Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.  -  
 But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition. -  
 Amazon is **winding down** the latter. -  
-he was one hell of a **snappy** dresser. -  
-**canny** investors will switch banks if they think they are getting a **raw deal**. -  
-Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard. -  
-and as an adult, he kept an **aquarium** in his home. -  
-For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food. -  
-It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
+It occurred to him that it might be possible to **oneup** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
    
-be in a **bellicose** mood. -  
-Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health. -  
 **Overture** conditions for a **cease** fire. -  
 Christmas **revels** with feasting and dancing were common in England. -  
 A few Arab leaders recognize that water and energy **profligacy** must be **curbed** if ecological disaster is to be avoided. -  
 the development of **Unitarian** **theology** -  
 The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
-His father was an **ardent** socialist -  
 **scour** a dirty oven -  
 I saw **nunchucks**(**Nunchaku**), ninja smoke, maybe some hairpulling, but not a gun -  
    
 **Admitting** we’re **fallible** and that we’re working on making things better is a matter of pride for us -  
    
-My dad was staying in **palliative care** at the hospital  --  
-   
-By testing it on real people a company can discover whether users feel like they've been **duped** or forced into an uncomfortable habit.  -  
-   
 So superior that tests are **inconsequential** to quality -  
 All this cash comes out of the collection plate that is passed among the **congregation** of ordinary people who come to **worship** at the **altar** of power -  
 The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
 The malware itself is relatively **underwhelming** -  
-His **scheme** to win the girl **backfired** and she went to another guy. -  
 **lame duck** -  
 **pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
 **pander** to the **vulgar** taste -  
-He **panders** to her every **whim** -  
-**aboriginal** **inhabitants** -  
 A water **vole** swam **vigorously** **upstream**  -  
-the group has no **affiliation** to any preservation society -  
-The customer service rep is usually a small **cog** in a big machine -  
-   
-   
-A **servo** driving an **eccentric** **cam**.  -  
-The **militiaman** walked the spy off. -    
-I **slogged** through the **heather** in the heat - 
-a **bourgeois morality** -  
-He is a **shrewd** businessman man  -  
-I always get the **jitters** before exams. -  

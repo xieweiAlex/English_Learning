@@ -120,7 +120,7 @@ but now his fire has **gone out**, and now his watch is ended.
 His troops are loyal and **battle-tested**.  
 The Stormcrows **rode off** last night.  
 I've trusted in your visions and your **prophecies** for years. -  
-There must another way, **leeches** or --   
+There must another way, **leeches** or    
 I'm alright, just a little bit **woozy**  
 **How long before** the Queen of Meereen comes to claim my pillow?  
 You think I'm **petty** enough to **speak ill of** a man just because he represents competition?  
