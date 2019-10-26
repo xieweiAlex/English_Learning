@@ -271,7 +271,7 @@ You can't be the **quarterback**.
 You don't want that on your **conscience**, man.  
    
 Don’t get into **fistfights** with these kids  
-Keep these voices inside your head and use them as fuel every single day when you wake up.  
+Keep these voices inside your head and use them as **fuel** every single day when you wake up.  
 Then he’ll look at the little **bead of sweat**. Then he’ll **look back at** you  
 You’ll put on a shirt and tie, throw your **backpack** over your shoulder and walk across campus to your first class of the day.  
 The leaves are **crunching** under your feet  
@@ -282,13 +282,13 @@ The championships are like when you were sitting in class at UConn with your shi
 I really mean it from the **bottom of my heart**  
 Finally, around seven o’clock, you give up on sleep and **creep** downstairs  
 You **tiptoe** around them on the way to the kitchen to make some breakfast  
-The sun is coming up, the house is quiet. You have achieved exactly what you set out to do. But you’re still **restless**  
+The sun is coming up, the house is quiet. You have achieved exactly what you **set out to** do. But you’re still **restless**  
 So why do you feel this way? **Isn’t this what you worked so hard for**?  
 the receptionist looks at you and says, “Ray? What … what are you doing here?”  
-“But … you just won the **title**.”  
+“But … you just won the ****title****.”  
 But in order to achieve your dreams, you will become a different kind of person. You’ll become a bit **obsessive** about your **routine**  
-You’ll even have to put your family on the **back-burner** for your job  
-Every day for the rest of your life, you’ll have to choose.  
+You’ll even have to put your family on the **back-burner** for your job -    
+Every day for the **rest of your life**, you’ll have to choose.  
 Do you want to **fit in**, or do you want to **embark** on the lonely pursuit of greatness?  
    
    

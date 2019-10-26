@@ -1,3 +1,7 @@
+* toe to toe
+* hand-over-fist
+* underwriting 
+* mazel tov
 * rip off
 * ad hoc
 * charlatan

@@ -1,3 +1,26 @@
+Well-timed, well-crafted text messages to parents have led to an increase in reading to toddlers and a rise in attendance  
+Reading at home and school attendance shot up with a cheap, easy solution: Texting 
+Antihistamine  
+This beautiful comforting snugly blanket is designed for luxurious feel and elegance, its made of high grade fleece and Sherpa with a classy design and feel, perfect personal gift for any occasion  
+
+
+Warrentless wiretaping program  
+massive surveillance  
+slap on the wrist  
+the other part morphed and continued becoming a larger system of mass surveillance we're dealing with today  
+this is lethal to a democracy  
+speculation of wrongdoing to evidence of wrongdoing  
+Why the Fourth Estate is so central in free and open society  
+I'm heartened to see it, I'm happy to see it  
+
+
+Don't let changing jobs **sidetrack** your retirement -  
+**Roll over** to a new workplace plan  
+Trump won't stop **snubbing** Jared Kusher  
+It's important to review your portfolio at least once a year and rebalance your investment mix as necessary to stay **on-target**  
+self-directed team:  
+some employer-sponsored plans offer a self-directed brokerage option that allows access to brokerage investment options through the plan  
+An individual retirement account (IRA) is a tax-advantaged investing tool  
 
 You might not interested in a second **side hustle**   
 they're not really **cracked up to be** 
@@ -34,13 +57,13 @@ The movie was a **tableau** of a soldier's life -
 
 He has been **gung-ho** there is 100% nothing here  
 **in-kind** donation  
-20 **delirious** tweets in 14 hours, you can tell how much trouble Trump is in -  
+20 **delirious** tweets in 14 hours, you can tell how much trouble Trump is in   
 70s **sitcom**  
 **political machination**  
-There isn't anything **premeditate** all of this -  
+There isn't anything **premeditate** all of this   
 I'm going to **ecstatic** when you lose  
 He is **incinerated** bridges on his own side  
-Fox News is his last **bulwark** -  
+Fox News is his last **bulwark**   
 
 That's it! No fancy syntax, no code. Just a few lines to get you **primed**. -  
 copy (also called 'yank' in vim **parlance**) -  
@@ -102,17 +125,17 @@ We are **groping** after the truth.
 **splurge** millions on the wedding  
 
 Real wasabi isn't **grated**, it's pasted  
-That means it's related to many cheap and easy to find plants like **horseradish**, cabbage and **broccoli**  -  
+That means it's related to many cheap and easy to find plants like **horseradish**, cabbage and **broccoli**    
 It likes **shady area**, and **rocky soil** or **gravel**   
 Verything has to be done by hand and it's a **laborious** process   
-it has the **pungency** that everybody likes -  
+it has the **pungency** that everybody likes   
 
 Trump did not offer a **quid pro quo** with Ukrainian president  
 That's what makes al of this seems a little **seedy**  
 it would be **mass hysteria** over that people  
 because it's his political opponent, it becomes really **muddy** here.  
 the husband says you should not have been **snooping** 
-people turn a **blind eye** to that  
+people turn a **blind eye** to that -  
 everybody gonna **come after** you for snooping  
 When it comes to Vietnam war, he was **adamantly** against the Vietnam war  
 he was very **anti-establishment**  
@@ -132,17 +155,17 @@ Ya Impeach Joe Biden , 50,000 a month with no experience ... classic **cronyism*
 Companies that put multiple interviewers in a room specifically with the goal of **unnerving** candidates  
 sometimes it’s just to put you **at ease**  
 What you need is someone who doesn't care about your money or looking smart by **spouting off** fancy **words of no consequence** - just that you not be a victim -  
-Example #3: manipulating **delimited** blocks -  
+Example #3: manipulating **delimited** blocks   
 
 The democrats **revered** him    
-It's abuse of power, it's **extortion** -  
+It's abuse of power, it's **extortion**   
 it would be like if the day after Michael Jackson got **acquitted** of touching kid  
 the one **silver lining** just wait long enough he'll just **spill the beans** himself   
 Even if it did, it wouldn't **negate** that Donald Trump abused the power of his office to try to **dig up dirt** on his political **opponent**    
 
 After a **swine disease** **decimated** its pig herd, Chinese demand is driving up beef, pork and poultry prices world-wide  
-China is on a global meat-buying **spree**, pushing up beef, pork and **poultry** prices around the globe as the world’s most **populous** nation **scrambles** to fill a large void in its meat supply. -  
-which has led many farmers to **cull** **hog** **herds** and stop breeding new pigs -  
+China is on a global meatbuying **spree**, pushing up beef, pork and **poultry** prices around the globe as the world’s most **populous** nation **scrambles** to fill a large void in its meat supply. -  
+which has led many farmers to **cull** **hog** **herds** and stop breeding new pigs   
 **stir-fried** dishes 
 
 You **heart sinks**, your **eyelids** just want to close  
@@ -166,7 +189,7 @@ Would you like to be as **prolific** as John Wayne?
 > Instead of say, wanting to be better at time management… think about everything in your life that puts a **strain** on effective time management.  
 > To lead a happy and fulfilling life — one where you achieve your dreams — it’s important to realize that being happy, energized, motivated, successful, and productive all go **hand in hand**.  
 
-Going in to this course I was already **well versed** in productivity literature. -  
+Going in to this course I was already **well versed** in productivity literature.   
 
 Chances are good that there are several aspects of your lifestyle that could use some **restructuring**.  
 Until then, consider how you’d like to improve your life… what makes you **tick**, and what **holds you back**?  
@@ -359,6 +382,7 @@ Swift **enthusiast**
 
 Stuck watching **infomercials** for whatever that is   
 He is so **flummoxed**, his brain literally froze. -  
+She can **flummox** anybody by the lip.  
 
 The company is **treading lightly** in a crowded market where Tinder, Bumble, Dig, Vespr, Bound and Hinge already exist  
 Capitalism is a tool of the **upper class** designed to keep the people struggling, oppressed, and **docile**.
