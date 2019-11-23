@@ -1,3 +1,20 @@
+
+## E 3  
+I saw your **pecker**, what kind of god would have a **pecker** that small?  
+**Hold off** on burning my body for now  
+I don't have John Snow or xx to help me **bend the rules**  
+You're a true **liberator**, aren't you?  
+One of our **leather clad** friend back in to carry it  
+You **took your time**.  
+Man can be **fickle** and birds I always trust  
+What he's done to Gregor Clegane is an **abomination** -  
+We never **sanctioned** this experiment  
+When she's fully **atoned** for her sins  
+when your mother made her walk of **atonement**, she did it to get back to you.  
+A true leader **avails** himself of the wisest counsel he can, and no one is wiser then the gods  
+Then it appears we're at a bit of an **impasse**  
+
+
 ## E 2 
 He makes dwarf jokes, I make **eunuch** jokes.  
 **at once**, my load.  

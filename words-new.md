@@ -1,12 +1,57 @@
 Hello World!  
 
  ------------------------ Here is file divider ------------------------
+words/2019/words-Nov.md
+**aqua** **aerobics** -  
+Hong Kong's returned to China was **enshrined** in 1984 with the signing of **sino-british** **joint** declaration -  
+Is China **reneging** on the pledge made in this book? -  
+**pomegranate** -  
+Thus **begins** a **hideously** costly and **drawn-out** negotiation that eventually yields the dollar amount that the doctor will get reimbursed -  
+If you have price tags for every procedure and require that every patient be charged the same price, all of that **bickering** and **chicanery** goes away -  
+As does the need for **gargantuan** bureaucracies to process claims -  
+I was on a much more powerful bike, riding much more **briskly** than I was the first time -  
+He is in **bondage** to his ambition -  
 
+When you ride the bike, small amounts of combustion **by-products** work past the rings introducing, among other **contaminants**, water into the **crankcase** -  
+motor oil is **carcinogens** -  
+**ovoid**, **egg shaped** -  
+
+I'm not an **audiophile** -  
+Frankly, I find it deeply concerning that I might have any **trepidation** in writing that Facebook made the right decision -  
+after a long hard **arduous** day of testing brand new motorcycles -  
+Hey, what’s the plan if there is **inclement** weather and employees can’t get to the office?” -   
+But maybe this purchase will allow them a more **concerted** push to take on the Apple Watch -  
+
+
+ ------------------------ Here is file divider ------------------------
 words/2019/words-Oct.md
+**filet mignon** -  
+**asparagus** lettuce -  
+
+
+The “wounded scooter” has quickly become a **totem** of urban life in 2019, as universal as steam **belching** out of a sewer grate or a flattened rat in the middle of a sidewalk -  
+
+If you need to shift gear while in a turn, you’ll most likely want to **shift down**, so you’ll end up exiting the turn at higher **revs** than you entered -  
+
+Chances are Ctags might a little bit **ornery** depending on how your system is set up -  
+The world rightly **lauds** Linus Torvalds for Linux, but Git will arguably have a bigger impact. -  
+The Mavic Mini, perhaps due to its lightweight design, also doesn't **skimp** on battery life. -  
+
+A runner up for 2018 is a **perennial favorite** -  
+
+**biceps** **brachii** -  
+The **spade** **clanged** when it hit the rock -  
+The **villain** made no **scruples** of committing murder -  
+I'm not being **coy**. - She said, **coyly**. -  
+
+These accounts **peddle** horrific illegal content exploits women and children, what are you doing? -  
+I'm going to give 99 percent of the Facebook shares away during my life to **philanthropic** causes -  
+
 The day of the test, he was **trembling** -  
 you're allowing various bad actors **spew** on your platform -  
 you're okay with **subverting** the political system by allowing political smears to happen -  
 He doesn't wanna start anything that might make her **unduly** upset, and lose whatever perceived **moral high ground** he might have -   
+A package of **beauty pageants** -   
 owners **prerogative** -  
 This is just **speculation** we couldn't **track down** the girl so we couldn't **corroborate** her age in any definitive manner -   
 She has an ongoing **defamation lawsuit** against Donald Trump -  
@@ -24,6 +69,7 @@ There can be **telltale signs** all over a bike that it's been **down** before -
 Some sellers are pretty **reticent** to let their pride and joy go rolling down the road with stranger -  
 it can be **contingent** upon the test ride -  
 I gonna grab some **tie-down** -  
+**truffle** chocolate -  
 I'm not a Pascal language developer, but that's sounds like a **ludicrous** idea -  
 their **tagline** was, it's just Javascript. -  
 we wanted to **hoodwink** them into thinking about Java -  
@@ -71,7 +117,6 @@ Of course, the primary suspect when we have something that is sharply differenti
 All of this is amplified by China’s **enormous** market size, which generates the **treasure trove** of data which is the critical rocket fuel for AI -  
 
  ------------------------ Here is file divider ------------------------
-
 words/2019/words-Sep.md
 Don't let changing jobs **sidetrack** your retirement -  
 That whistle blower is clearly in a very **precarious** situation -  

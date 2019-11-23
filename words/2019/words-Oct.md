@@ -1,5 +1,98 @@
+
+## Week 5 
+
+when leaned over, contact patch is **cone** shaped, which causes the wheel to track an **arc**  
+**No Frills**, Delicious Vietnamese Eats  
+
+**ambient**  
+**filet mignon** -  
+Mash it together and kinda get it **evenly** **incorporated** until it becomes to a **paste**   
+Get your **whisk** ready  
+You want to make sure there is no **lumps**  
+**sear** the steak  
+**asparagus** lettuce -  
+
+
+The “wounded scooter” has quickly become a **totem** of urban life in 2019, as universal as steam **belching** out of a sewer grate or a flattened rat in the middle of a sidewalk -  
+
+**bogeyman**  
+**counter steering**  
+**dimmer switch**  
+**trail braking**  
+**crack down**  
+As you are turning and your vehicle imbalances it could lose traction and depending upon speeds the vehicle could **topple**  
+If you need to shift gear while in a turn, you’ll most likely want to **shift down**, so you’ll end up exiting the turn at higher **revs** than you entered -  
+
+If we're lucky it'll completely **fall apart** you'll see me **wing it**  
+**Off the top of my head**, I don't know  
+20 years project with 20 millions of code, it starts to **chug**  
+It just means **drill down** into all possible folders  
+Chances are Ctags might a little bit **ornery** depending on how your system is set up -  
+Sometime in the **distant past** I ...  
+Just **hammer on** Ctrl T until you get back to where you started  
+
+
+you're **tailgating** someone  
+there is no **driveway**, there is no shoulder even, it's just a **guardrail** right here  
+>  They have air bags, **crumple zones**, seat belts, what protection you have?  
+
+hopefully you're fully **geared up**  
+
+The world rightly **lauds** Linus Torvalds for Linux, but Git will arguably have a bigger impact. -  
+In an impressively **candid** moment of self-reflection, Torvalds said the **impetus** behind Git was to prove to himself that he wasn't just a "one-hit wonder."  
+
+It's going to rain gold and you should go outside when that happens with a bucket not a **thimble**  
+these eat into your **nest egg**  
+ETFs: **Exchange Traded Fund**  
+you can not **time the market**, it's not gonna happen unless you know what you're doing  
+
+**Decapitation** strike  
+there is always more than 1 way to **skin a cat**  
+I can't see if my **blinkers** are on  
+you can't marry **inanimate** objects in this country  
+
+All right, you don't have to **manhandle** me  
+**Piles**  
+The Mavic Mini, perhaps due to its lightweight design, also doesn't **skimp** on battery life. -  
+
+A runner up for 2018 is a **perennial favorite** -  
+
+HBO has ordered a Game of Thrones **spinoff** series, House of the Dragon, straight to series.  
+
+**adjoining** area, adjoining building  
+**frilly** napkin  
+**biceps** **brachii** -  
+**call a spade a spade**  
+The **spade** **clanged** when it hit the rock -  
+I'm told she has some **dingy** little house north of the park  
+he **enlightened** me on this subject  
+**galaxy quest**  
+His **greed** for power knows no bounds  
+sword and **shield**  
+he **stated** his views in broad **outline**  
+**overdue** bill  
+The **villain** made no **scruples** of committing murder -  
+**seize** the present  
+**Cardiovascula**  
+tropical **aquarium**    
+I'm not being **coy**. - She said, **coyly**. -  
+
+Why Stories **Captivate**  
+
+We're a part of it, we helped **stand it out** but we don't control it  
+Why do you think they **drop down**?  
+These accounts **peddle** horrific illegal content exploits women and children, what are you doing? -  
+Facebook can be sometimes an **unkind** place  
+Could risk **imminent** physical harm or voter or census suppression, we'll **take** that content **down**  
+there is some **threshold** where you'll **fact check** political advertisements 
+I'm going to give 99 percent of the Facebook shares away during my life to **philanthropic** causes -  
+
+Scan the party for somebody who doesn't seem too **preoccupied** by a conversation  
+
 **Slap down**  
 he has been **riding high** 
+
+## Week 4 
 
 Moving on, **heartfelt** gratitude  
 **wind sb up**  
@@ -30,7 +123,7 @@ Trump thought he could go **toe to toe** with Erdogan
 they're gonna **warp** his perception of reality  
 those who are misusing Facebook for **nefarious** purpose  
 
-A package of **beauty pageants**  
+A package of **beauty pageants** -   
 owners **prerogative** -  
 beauty pageant **contestants**  
 This is just **speculation** we couldn't **track down** the girl so we couldn't **corroborate** her age in any definitive manner -   
@@ -121,7 +214,7 @@ From an operational and risk perspective, we've handled the **inflows** smoothly
 
 However, sudo **nukes** all environment variables for security reasons, which **interferes** with RVM  
 
-**truffle** chocolate  
+**truffle** chocolate -  
 **off-color** humor  
 how **out of whack** GDP is  
 **rock-paper-scissors**  

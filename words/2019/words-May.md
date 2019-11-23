@@ -102,7 +102,7 @@ their **advocacy** of family values
 hunting **lodge**  
 The **nun** took strait vows.  
 **covert** action  
-**slog**: work **doggedly** or persistently   
+**slog**: work **doggedly** or persistently -  
 it would be a hard **slog** back to the camp  
 **contraceptive** pill  
 We are gonna **pore over** everything.  

@@ -1,3 +1,7 @@
+* knockoff
+* off camber  
+* a basket currency
+* ratcheted up, ratcheted down
 * toe to toe
 * hand-over-fist
 * underwriting 
