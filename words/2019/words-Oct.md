@@ -10,7 +10,7 @@ Mash it together and kinda get it **evenly** **incorporated** until it becomes t
 Get your **whisk** ready  
 You want to make sure there is no **lumps**  
 **sear** the steak  
-**asparagus** lettuce -  
+**asparagus** lettuce
 
 
 The “wounded scooter” has quickly become a **totem** of urban life in 2019, as universal as steam **belching** out of a sewer grate or a flattened rat in the middle of a sidewalk -  
@@ -101,7 +101,7 @@ Moving on, **heartfelt** gratitude
 **Probiotic** **gummies**   
 When you **crunch** the numbers, that means fewer than one in a thousand will make it to the **pros**  
 **Genetic** gifts  
-The day of the test, he was **trembling** -  
+The day of the test, he was **trembling**
 “So that means I’m in the 92nd percentile?” he thought. His heart **sank**  
 
 **one-time process**  
@@ -111,7 +111,7 @@ It was founded by Tucker Carlson, a **libertarian** conservative political **pun
 has a **rigorous** standard  
 **educated guess**  
 **homeboy**  
-you're allowing various bad actors **spew** on your platform -  
+you're allowing various bad actors **spew** on your platform
 We're **incurring** such an inconvenience by dealing with this  
 they're **reinforced** by their insulated news bubble, so they never find out that's a lie  
 you're okay with **subverting** the political system by allowing political smears to happen -  
@@ -130,7 +130,7 @@ This is just **speculation** we couldn't **track down** the girl so we couldn't 
 Some sort of sexual **impropriety**  
 nothing indicates he is an **evangelical**  
 some sort of **kinship** with Jewish Americans  
-She has an ongoing **defamation lawsuit** against Donald Trump -  
+She has an ongoing **defamation lawsuit** against Donald Trump
 he **slammed** her repeatedly **day in and day out** for weeks   
 this predator needs **taken down**.  
 
@@ -155,7 +155,7 @@ He is just **starting out**
 It’s only **after the fact** — sometimes long after the fact, depending on when you open the Uber app next — when riders are asked whether they want to tip  
 
 ## Week 3 
-the throttle is not **ratcheted** up or down but in a nice flat neutral position -  
+the throttle is not **ratcheted** up or down but in a nice flat neutral position
 find a nice big open space that's going to give you plenty **run off** room  
 **peripheral** vision  
 **scoot up** a little bit and dance with the bike  
@@ -163,7 +163,7 @@ find a nice big open space that's going to give you plenty **run off** room
 
 Moving around files can feel like a **slog** if you’re stuck with the basic movement keys  
 
-Chain and **Sprocket** -  
+Chain and **Sprocket**
 You don't have to **outrun** the bear, just your friends   
 
 
@@ -205,7 +205,7 @@ Some sellers are pretty **reticent** to let their pride and joy go rolling down 
 it can be **contingent** upon the test ride -  
 Our success is **contingent** on your support.  
 **chassis** frame??  
-I gonna grab some **tie-down** -  
+I gonna grab some **tie-down**
 make sure nothing is **out of whack**  
 make sure you're not getting **ripped off**  
 
@@ -245,7 +245,7 @@ a **womanizer**
 **tank top**  
 it doesn't **lather up**  
 **manscaping**  
-**groin area** -  
+**groin area**
 
 I'm not very **materialistic**  
 **golden handcuffs**  
@@ -277,7 +277,7 @@ when threatened, it **bristles**
 **back off**  
 **back down**
 They're super sharp, sharper then the **hypodermic needle**. -  
-when you try to remove it, the barbs **fan out**, keeping the **quill** **lodged in**. -  
+when you try to remove it, the barbs **fan out**, keeping the **quill** **lodged in**.
 Porcupines are actually pretty **clumsy**, they've been known to accidentally quill themselves -   
 
 
@@ -392,7 +392,7 @@ The **trauma** is **far-reaching** and impacts us all. -
 **biding your time**  
 **animosity**  
 **is out to** **sabotage** China  
-**meth lab** -  
+**meth lab**
 putting out all the **propaganda** to the Chinese **diaspora**  
 greener **pastures**  
 **meddlers**  

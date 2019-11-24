@@ -43,7 +43,7 @@ mining **iron ore** locally
 Is that a **lizard** on your neck?  
 election **rigging**  
 standing **rigging**  
-Tigers are **carnivores**, cattle are not -  
+Tigers are **carnivores**, cattle are not
 She is not a **puling** infant  
 
 **Voucher**  
@@ -53,7 +53,7 @@ Apple is **wasting no time** in addressing them.
 **screencast**  
 Being afraid of exploring **uncharted water** is understandable, but that doesn't mean you shouldn't give it a try    
 
-The movie was a **tableau** of a soldier's life -   
+The movie was a **tableau** of a soldier's life
 
 He has been **gung-ho** there is 100% nothing here  
 **in-kind** donation  
@@ -66,7 +66,7 @@ He is **incinerated** bridges on his own side
 Fox News is his last **bulwark**   
 
 That's it! No fancy syntax, no code. Just a few lines to get you **primed**. -  
-copy (also called 'yank' in vim **parlance**) -  
+copy (also called 'yank' in vim **parlance**)
 Or are you bored, unchallenged...maybe even **dread** it?
 > If you're not sure what your true purpose is, then chances are when you move to a new job, you're going to fall back into the trap of being demotivated and unhappy at work.
 
@@ -135,7 +135,7 @@ That's what makes al of this seems a little **seedy**
 it would be **mass hysteria** over that people  
 because it's his political opponent, it becomes really **muddy** here.  
 the husband says you should not have been **snooping** 
-people turn a **blind eye** to that -  
+people turn a **blind eye** to that
 everybody gonna **come after** you for snooping  
 When it comes to Vietnam war, he was **adamantly** against the Vietnam war  
 he was very **anti-establishment**  
@@ -164,7 +164,7 @@ the one **silver lining** just wait long enough he'll just **spill the beans** h
 Even if it did, it wouldn't **negate** that Donald Trump abused the power of his office to try to **dig up dirt** on his political **opponent**    
 
 After a **swine disease** **decimated** its pig herd, Chinese demand is driving up beef, pork and poultry prices world-wide  
-China is on a global meatbuying **spree**, pushing up beef, pork and **poultry** prices around the globe as the world’s most **populous** nation **scrambles** to fill a large void in its meat supply. -  
+China is on a global meatbuying **spree**, pushing up beef, pork and **poultry** prices around the globe as the world’s most **populous** nation **scrambles** to fill a large void in its meat supply.
 which has led many farmers to **cull** **hog** **herds** and stop breeding new pigs   
 **stir-fried** dishes 
 
@@ -194,7 +194,7 @@ Going in to this course I was already **well versed** in productivity literature
 Chances are good that there are several aspects of your lifestyle that could use some **restructuring**.  
 Until then, consider how you’d like to improve your life… what makes you **tick**, and what **holds you back**?  
 
-Apple **Chestnut** Street - 
+Apple **Chestnut** Street
 **godspeed**  
 
 Stripe is part of a broader trend of companies waiting longer to go public, in part because of the **ever-increasing** pools of funds that are now available from venture capital investors  

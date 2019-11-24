@@ -1,3 +1,21 @@
+If you’re underweight, you want to gain a balanced amount of muscle mass and subcutaneous fat rather than a lot of unhealthy belly fat.
+ICE departs California gang member convicted of manslaughter on same day he's releaed from prison   
+
+
+We think of medical data as our last sacrosanct pieces of personal information  
+Two days after its big (and slightly botched) unveiling, the Cybertruck is already racking up a lot of interest.  
+
+
+What's the split-second decision you made that changed your life?  
+neat freak  
+
+Arrive at work feeling frazzled and scattered  
+Apple's organizational crossroad  
+gasket  
+
+The best choice for you is wearing goggles with prescription  
+
+near-sighed  
 nearsightedness: myopia
 newer technologies do offer the possibility of a more precise LASIK procedure, with less risk of **complications**  
 Finding the Best LASIK Surgeons  
@@ -55,7 +73,7 @@ The local government's **intransigency** towards their demands is why universal 
 Could we avoid all this **mayhem** over the last two to three moths if Carrie Lam had simply withdrawn the bill back in June   
 Unless we have assurance of universal suffrage, we will always have constant **encroachment** on our freedom  
 Hong Kong's returned to China was **enshrined** in 1984 with the signing of **sino-british** **joint** declaration -  
-Is China **reneging** on the pledge made in this book? -  
+Is China **reneging** on the pledge made in this book?   
 Everything in this book does not involve a **clear-cut** yes or no  
 
 

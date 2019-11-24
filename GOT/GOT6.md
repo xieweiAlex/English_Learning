@@ -1,3 +1,23 @@
+## E 4 
+Tyrion **strikes** a deal
+**Slander** a man in his own home, you might find yourself **crossing swords** with him.  
+money, **finery**, power  
+**Seeking out** family means seeking out **sin**  
+I'm not **maligning** you, I sought those things out, too  
+My father was a **cobbler** -  
+**graveyard**  
+We passed around the wine, passed around the women, and soon we fell into a **stupor** -  
+My **ceaseless** struggle to maintain my position  
+I'm advising the king on our current **predicament**. -  
+We have to be very careful not to **antagonize** him  
+And of course, Margaery's safety is **paramount**  
+We'd **bicker** amongst ourselves instead of seizing it back  
+Queen Margaery will make her walk of **atonement**.  
+Yes, Margaery will **repent** her sins before the good people of the city -  
+When the Tyrell armies come, you will **stand down**.  
+Then **stand aside** and let the people that took him from you be destroyed  
+She's a **midget** -  
+
 
 ## E 3  
 I saw your **pecker**, what kind of god would have a **pecker** that small?  

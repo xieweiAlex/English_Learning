@@ -136,7 +136,7 @@ I let the water **buoy** up my weight.
   
   
 Ricky Jay, who is perhaps the most gifted **leight-of-hand** artist alive, was performing magic with a deck of cards.  
-The trick is done simply by **sleight of hand**  
+The trick is done simply by **sleight of hand** -  
 turn out to be a **clumsy** **sleight of hand**  
   
   
