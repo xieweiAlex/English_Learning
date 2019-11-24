@@ -1,12 +1,13 @@
 #!/bin/bash 
 
-function newWords {
+function getNewWords {
 
   pattern="\*{2,}.*\s-{1,3}\W{0,10}$"
   target_file="words-new.md"
 
   echo "Hello World!  " > "$target_file"
   files=(
+    "GOT/GOT6.md"
     "words/2019/words-Nov.md"
     "words/2019/words-Oct.md"
     "words/2019/words-Sep.md"
@@ -15,9 +16,11 @@ function newWords {
   for file_path in "${files[@]}"
   do 
     echo -e "Checking file ${YELLOW} $file_path ${NC}"
-    printf "\n ------------------------ Here is file divider ------------------------\n" >> "$target_file"
+    printf "\n ## ------------------------ Here is file divider ------------------------\n" >> "$target_file"
     ag "$pattern" -G "$file_path" --group --nonumbers >> "$target_file" 
 
+    words=$(cat "$target_file" | head -100 )
+    echo "$words" > "$target_file"
   done 
 }
 
@@ -45,34 +48,39 @@ function pushBack {
   done <$origin_file
 }
 
-# echo "" > word-review.md
-# FILES=`ag -g .md`
-# ONE_STAR='\*{2,}.*\s-{1,3}\W{0,10}$'
+action=$1
 
-# echo $FILES
-# NAMES=`"$FILES" | tr ' ' '\n'`
+if [[ "$#" -ne 1 ]]; then
+	echo "no parameter inputted, will be default to 'sync'"
+    action="sync"	
+	echo ""
+fi
 
-# echo '--------\n\n'
-# echo $NAMES
+echo ".."
+if [[ $action == 'sync' ]];
+then
+  # Update words files from words-new
+  echo "Update back words to origin files" 
+  pushBack
+  # Get new words to words-new
+  echo "get new words"
+  getNewWords
 
-# for i in "${FILES[@]}" 
-# do
-#   echo "$i" 
-#   echo '-------------\n\n' 
-#   # `ag -G './GOT/GOT5.md' 'You'` 
-# done
+elif [[ $action == 'update' ]]; 
+then
+  echo "get new words"
+  getNewWords
+else 
+  echo -e "${RED}Failed!${NC}"				
+	echo "this is invalid para: $action"		
+	echo "should be \"sync\" or \"disp\""
+fi
 
-# ag '\*{2,}.*\s-{1,3}\W{0,10}$' --group --nonumbers > word-review.md
 
-# echo "" > words-selected.md
-# head -70 word-review.md > words-selected.md   
-
-# Sync new words 
-# newWords
-
-# update origin words file 
-pushBack
-
-# text="Hello trailing - "
-# echo -e "$text"
+# # Sync new words 
+# # getNewWords
+# # update origin words file 
+# pushBack
+# # text="Hello trailing - "
+# # echo -e "$text"
 

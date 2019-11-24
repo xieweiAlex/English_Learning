@@ -201,7 +201,7 @@ Sensing inevitable concern around Google’s upcoming access to a **bevy** of he
 in more recent years it has struggled as the smartwatches category has grown and **encroached** and taken over Fitbit’s tracker territory.
 you are only trying to **gauge** their attitude, learn about their objections to remote work, and then adjust your plan **accordingly**
 Bad Weather **Contingency**  
-Hey, what’s the plan if there is **inclement** weather and employees can’t get to the office?” -   
+Hey, what’s the plan if there is **inclement** weather and employees can’t get to the office?” - 
 “I’d like to make a branch and try out an idea on [X], but I don’t want to do it on the clock. Can I do it from home?”  
 This is a **tactical**, short-term suggestion  
 A **self-saboteur** has bought into the line that ‘by doing nothing, bad things won’t happen.’  

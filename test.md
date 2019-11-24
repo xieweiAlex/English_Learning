@@ -32,6 +32,7 @@ after a long hard **arduous** day of testing brand new motorcycles -
 Hey, what’s the plan if there is **inclement** weather and employees can’t get to the office?” - 
 But maybe this purchase will allow them a more **concerted** push to take on the Apple Watch -  
 
+
  ## ------------------------ Here is file divider ------------------------
 words/2019/words-Oct.md
 **filet mignon** -  
@@ -97,4 +98,3 @@ The rooms were decorated in **delicate** **pastel shades**. -
 But after a few weeks, or even a month, for some reason you start running **out of steam** -  
 (mixed rice with meat and **assorted vegetables**) is probably the most **well-known** Korean dish in the western **hemisphere** -  
 
- ## ------------------------ Here is file divider ------------------------
