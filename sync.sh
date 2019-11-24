@@ -21,21 +21,28 @@ function newWords {
   done 
 }
 
-function update_origin_words {
+function pushBack {
   origin_file="words-new.md"
 
-  # cat $origin_file
+  # record the current file_name
+  file_name=""
   while read -r line; do
-    # string=$(echo "$line" | xargs)
-    string=$(awk '{$line=$line;print}')
-    echo $string
+    if [[ $line == words*  ]] && [[ $line == *md ]]; 
+    then 
+      file_name=$line
+      echo -e " ${YELLOW} $file_name ${NC}"
+    fi
 
-    # if ! [[ $string == .*_ ]]
-    # then 
-    #   echo "$string"
-    # fi 
+    str=$(echo "$line" | sed 's/ *$//g')
+
+    # if str contains "**{char}**" and not ended in -  
+    if [[ $str =~ \*\*.*\*\*  ]] && ! [[ $str == *- ]]; 
+    then 
+      echo -e "Update text: ${GREEN} $str ${NC}" 
+      escapedStr=$(echo "$str" | sed 's/\*/\\*/g')
+      sed -i '' "s/$escapedStr.*/$str/" "$file_name"
+    fi
   done <$origin_file
-
 }
 
 # echo "" > word-review.md
@@ -61,10 +68,11 @@ function update_origin_words {
 # head -70 word-review.md > words-selected.md   
 
 # Sync new words 
-newWords
+# newWords
 
 # update origin words file 
-# update_origin_words
+pushBack
 
 # text="Hello trailing - "
 # echo -e "$text"
+
