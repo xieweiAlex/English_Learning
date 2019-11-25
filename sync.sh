@@ -15,13 +15,16 @@ function getNewWords {
 
   for file_path in "${files[@]}"
   do 
-    echo -e "Checking file ${YELLOW} $file_path ${NC}"
-    printf "\n ## ------------------------ Here is file divider ------------------------\n" >> "$target_file"
+    echo -e "Checking file: ${YELLOW} $file_path ${NC}"
+    echo "## ------------------------ ${file_path} ------------------------  " >> "$target_file"
     ag "$pattern" -G "$file_path" --group --nonumbers >> "$target_file" 
 
-    words=$(cat "$target_file" | head -100 )
-    echo "$words" > "$target_file"
   done 
+
+  # Delete lines above 120, let's keep the file lean  
+  sed -i '' '121, 500d' "$target_file"
+  # words=$(cat "$target_file" | head -120 )
+  # echo "$words" > "$target_file"
 }
 
 function pushBack {
@@ -50,6 +53,7 @@ function pushBack {
 
 action=$1
 
+echo "."
 if [[ "$#" -ne 1 ]]; then
 	echo "no parameter inputted, will be default to 'sync'"
     action="sync"	
@@ -60,7 +64,7 @@ echo ".."
 if [[ $action == 'sync' ]];
 then
   # Update words files from words-new
-  echo "Update back words to origin files" 
+  echo "Update back words to origin files " 
   pushBack
   # Get new words to words-new
   echo "get new words"
@@ -68,12 +72,12 @@ then
 
 elif [[ $action == 'update' ]]; 
 then
-  echo "get new words"
+  echo "Get new words."
   getNewWords
 else 
   echo -e "${RED}Failed!${NC}"				
-	echo "this is invalid para: $action"		
-	echo "should be \"sync\" or \"disp\""
+	echo "this is invalid parameter: $action"		
+	echo "should be \"sync\" or \"update\""
 fi
 
 
