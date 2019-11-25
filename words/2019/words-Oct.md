@@ -61,9 +61,9 @@ HBO has ordered a Game of Thrones **spinoff** series, House of the Dragon, strai
 
 **adjoining** area, adjoining building  
 **frilly** napkin  
-**biceps** **brachii** -  
+**biceps** **brachii**
 **call a spade a spade**  
-The **spade** **clanged** when it hit the rock -  
+The **spade** **clanged** when it hit the rock
 I'm told she has some **dingy** little house north of the park  
 he **enlightened** me on this subject  
 **galaxy quest**  
@@ -75,17 +75,17 @@ The **villain** made no **scruples** of committing murder -
 **seize** the present  
 **Cardiovascula**  
 tropical **aquarium**    
-I'm not being **coy**. - She said, **coyly**. -  
+I'm not being **coy**. - She said, **coyly**.
 
 Why Stories **Captivate**  
 
 We're a part of it, we helped **stand it out** but we don't control it  
 Why do you think they **drop down**?  
-These accounts **peddle** horrific illegal content exploits women and children, what are you doing? -  
+These accounts **peddle** horrific illegal content exploits women and children, what are you doing?
 Facebook can be sometimes an **unkind** place  
 Could risk **imminent** physical harm or voter or census suppression, we'll **take** that content **down**  
 there is some **threshold** where you'll **fact check** political advertisements 
-I'm going to give 99 percent of the Facebook shares away during my life to **philanthropic** causes -  
+I'm going to give 99 percent of the Facebook shares away during my life to **philanthropic** causes
 
 Scan the party for somebody who doesn't seem too **preoccupied** by a conversation  
 
@@ -114,7 +114,7 @@ has a **rigorous** standard
 you're allowing various bad actors **spew** on your platform
 We're **incurring** such an inconvenience by dealing with this  
 they're **reinforced** by their insulated news bubble, so they never find out that's a lie  
-you're okay with **subverting** the political system by allowing political smears to happen -  
+you're okay with **subverting** the political system by allowing political smears to happen
 that's a small **tick** for me  
 He doesn't wanna start anything that might make her **unduly** upset, and lose whatever perceived **moral high ground** he might have -   
 They're not **grounded in reality**  
@@ -232,7 +232,7 @@ we wanted to **hoodwink** them into thinking about Java -
 Ruby at this point is just **skyrocketed** up in popularity   
 **mixed bag**  
 some languages are very **conducive** to programming style  
-Fresh air is **conducive** to health -  
+Fresh air is **conducive** to health
 
 Is ‘tech addiction’ really **akin** to drug addiction? Here’s what the research says  
 the research on technology addictions is **inconclusive**  
@@ -241,7 +241,7 @@ the research on technology addictions is **inconclusive**
 ‘When I first saw him, my heart **skipped a beat**.’ What Russian women think about love  
 a **womanizer**  
 
-**Scratching** your **armpit** all the time -  
+**Scratching** your **armpit** all the time
 **tank top**  
 it doesn't **lather up**  
 **manscaping**  
@@ -339,7 +339,7 @@ But after a few weeks, or even a month, for some reason you start running **out 
 So I would **scribble** notes **furiously**, make plans, and dive into a **flurry** of action  
 
 **razor blade**  
-(mixed rice with meat and **assorted vegetables**) is probably the most **well-known** Korean dish in the western **hemisphere** -  
+(mixed rice with meat and **assorted vegetables**) is probably the most **well-known** Korean dish in the western **hemisphere**
 
 
 ## Week 1 

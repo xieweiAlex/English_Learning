@@ -72,7 +72,7 @@ The government will formally withdraw the bill in order to **allay** public conc
 The local government's **intransigency** towards their demands is why universal **suffrage** is their ultimate goal  
 Could we avoid all this **mayhem** over the last two to three moths if Carrie Lam had simply withdrawn the bill back in June   
 Unless we have assurance of universal suffrage, we will always have constant **encroachment** on our freedom  
-Hong Kong's returned to China was **enshrined** in 1984 with the signing of **sino-british** **joint** declaration -  
+Hong Kong's returned to China was **enshrined** in 1984 with the signing of **sino-british** **joint** declaration
 Is China **reneging** on the pledge made in this book?   
 Everything in this book does not involve a **clear-cut** yes or no  
 
@@ -109,9 +109,9 @@ Reviewers love them and have been **raving** about them. But, like any product, 
 **stick figure**  
 **ingenious companies**  
 **LASIK eye surgery**  
-Thus **begins** a **hideously** costly and **drawn-out** negotiation that eventually yields the dollar amount that the doctor will get reimbursed -  
+Thus **begins** a **hideously** costly and **drawn-out** negotiation that eventually yields the dollar amount that the doctor will get reimbursed
 If you have price tags for every procedure and require that every patient be charged the same price, all of that **bickering** and **chicanery** goes away -  
-As does the need for **gargantuan** bureaucracies to process claims -  
+As does the need for **gargantuan** bureaucracies to process claims
 **Fast forward** to last quarter  
 I have **owned up to** getting the Peak Google article wrong in the Daily Update  
 First, I should have been clear from the **get-go** that the analysis did not apply to YouTube  
@@ -129,7 +129,7 @@ I was a **disciple**
 I was having more and more **close calls**  
 I **berated** him for taking so much risk, "You gonna get yourself killed with that kind of riding!"   
 Maybe I just wasn't **cut out to** ride, I'd be wise to give it up.  
-I was on a much more powerful bike, riding much more **briskly** than I was the first time -  
+I was on a much more powerful bike, riding much more **briskly** than I was the first time
 It's **unequivocally** less risky 
 **trailing off** the motorcycle begins leaning  
 You're braking past the point where the motorcycle **tips in**, with the focus on the front brake  
@@ -201,7 +201,7 @@ Sensing inevitable concern around Google’s upcoming access to a **bevy** of he
 in more recent years it has struggled as the smartwatches category has grown and **encroached** and taken over Fitbit’s tracker territory.
 you are only trying to **gauge** their attitude, learn about their objections to remote work, and then adjust your plan **accordingly**
 Bad Weather **Contingency**  
-Hey, what’s the plan if there is **inclement** weather and employees can’t get to the office?” - 
+"Hey, what’s the plan if there is **inclement** weather and employees can't get to the office?" - 
 “I’d like to make a branch and try out an idea on [X], but I don’t want to do it on the clock. Can I do it from home?”  
 This is a **tactical**, short-term suggestion  
 A **self-saboteur** has bought into the line that ‘by doing nothing, bad things won’t happen.’  

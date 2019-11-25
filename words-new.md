@@ -1,6 +1,5 @@
 Hello World!  
-
- ## ------------------------ Here is file divider ------------------------
+## ------------------------ GOT/GOT6.md ------------------------  
 GOT/GOT6.md
 My father was a **cobbler** -  
 We passed around the wine, passed around the women, and soon we fell into a **stupor** -  
@@ -10,16 +9,11 @@ She's a **midget** -
 
 
 What he's done to Gregor Clegane is an **abomination** -  
-
- ## ------------------------ Here is file divider ------------------------
+## ------------------------ words/2019/words-Nov.md ------------------------  
 words/2019/words-Nov.md
 **aqua** **aerobics** -  
-Hong Kong's returned to China was **enshrined** in 1984 with the signing of **sino-british** **joint** declaration -  
 **pomegranate** -  
-Thus **begins** a **hideously** costly and **drawn-out** negotiation that eventually yields the dollar amount that the doctor will get reimbursed -  
 If you have price tags for every procedure and require that every patient be charged the same price, all of that **bickering** and **chicanery** goes away -  
-As does the need for **gargantuan** bureaucracies to process claims -  
-I was on a much more powerful bike, riding much more **briskly** than I was the first time -  
 He is in **bondage** to his ambition -  
 
 When you ride the bike, small amounts of combustion **by-products** work past the rings introducing, among other **contaminants**, water into the **crankcase** -  
@@ -29,10 +23,10 @@ motor oil is **carcinogens** -
 I'm not an **audiophile** -  
 Frankly, I find it deeply concerning that I might have any **trepidation** in writing that Facebook made the right decision -  
 after a long hard **arduous** day of testing brand new motorcycles -  
-Hey, what’s the plan if there is **inclement** weather and employees can’t get to the office?” - 
+"Hey, what’s the plan if there is **inclement** weather and employees can't get to the office?" - 
 But maybe this purchase will allow them a more **concerted** push to take on the Apple Watch -  
 
- ## ------------------------ Here is file divider ------------------------
+## ------------------------ words/2019/words-Oct.md ------------------------  
 words/2019/words-Oct.md
 **filet mignon** -  
 The “wounded scooter” has quickly become a **totem** of urban life in 2019, as universal as steam **belching** out of a sewer grate or a flattened rat in the middle of a sidewalk -  
@@ -45,15 +39,7 @@ The Mavic Mini, perhaps due to its lightweight design, also doesn't **skimp** on
 
 A runner up for 2018 is a **perennial favorite** -  
 
-**biceps** **brachii** -  
-The **spade** **clanged** when it hit the rock -  
 The **villain** made no **scruples** of committing murder -  
-I'm not being **coy**. - She said, **coyly**. -  
-
-These accounts **peddle** horrific illegal content exploits women and children, what are you doing? -  
-I'm going to give 99 percent of the Facebook shares away during my life to **philanthropic** causes -  
-
-you're okay with **subverting** the political system by allowing political smears to happen -  
 He doesn't wanna start anything that might make her **unduly** upset, and lose whatever perceived **moral high ground** he might have -   
 A package of **beauty pageants** -   
 owners **prerogative** -  
@@ -73,9 +59,6 @@ it can be **contingent** upon the test ride -
 I'm not a Pascal language developer, but that's sounds like a **ludicrous** idea -  
 their **tagline** was, it's just Javascript. -  
 we wanted to **hoodwink** them into thinking about Java -  
-Fresh air is **conducive** to health -  
-
-**Scratching** your **armpit** all the time -  
 Raising a small child in a major **metro area** can be **grueling** -  
 
 fairly **innocuous** his own personal tweet -  
@@ -95,6 +78,43 @@ The rooms were decorated in **delicate** **pastel shades**. -
 **flout** one China policy -  
 
 But after a few weeks, or even a month, for some reason you start running **out of steam** -  
-(mixed rice with meat and **assorted vegetables**) is probably the most **well-known** Korean dish in the western **hemisphere** -  
+The FCC had relied on **specious** arguments **throughout** -  
+The **robber** **rammed** the **gag** in her mouth -  
+The **trauma** is **far-reaching** and impacts us all. -   
 
- ## ------------------------ Here is file divider ------------------------
+if you want **posh**, you want **swank**, if you want **sophistication**, you go to Shanghai. -   
+**Predators** are either **caniores** or **omnivores** -  
+cut a **dash** -  
+**anus** **catheter** -  
+**vicar** of christ -  
+**Sap** flowed from the **gash** in the tree -  
+Of course, the primary suspect when we have something that is sharply differentiated by sex is **testosterone** -  
+
+All of this is amplified by China’s **enormous** market size, which generates the **treasure trove** of data which is the critical rocket fuel for AI -  
+## ------------------------ words/2019/words-Sep.md ------------------------  
+words/2019/words-Sep.md
+Don't let changing jobs **sidetrack** your retirement -  
+That whistle blower is clearly in a very **precarious** situation -  
+That's it! No fancy syntax, no code. Just a few lines to get you **primed**. -  
+Hey, where are all my **ovulation** sticks -  
+I can tell you I liked teaching Scheme because it would **warp** students heads and **predispose** them to being able to teach themselves new languages -  
+
+What you need is someone who doesn't care about your money or looking smart by **spouting off** fancy **words of no consequence** - just that you not be a victim -  
+However, the **acid** in lemons can damage your **tooth enamel** over time, which makes your teeth **more prone to** **cavities** -  
+
+
+The **invalid** found **solace** in music -  
+
+When you **ingest** that much sodium in a single **sitting**, your body **overcompensates** by retaining more water. This can cause temporary water weight gain, leaving you feeling **bloated** and **lethargic** -    
+they started to **revolt** and riot -  
+Well not quite, there are **gazillions** of **clickbait** “ten tips for your CV /resume”, mine was an attack on the **arrant** **sloppiness** and **textual** incompetence of some of the most **rotten** CVs I've read  -   
+**underpass** **mural** design -  
+everyone's getting **prostate** exam -  
+This country is going to an **oligarchic** from of society where a handful billionair control the economy -  
+marks the end of a **tumultuous** two-year **saga** that saw an once-popular platform go to extreme lengths to keep its business running, despite the obvious and **fraught** financial cost -  
+Squirrels are **capricious** little creatures. -  
+**mazel tov** -   
+Cscope is a developer's tool for browsing source code. It has an **impeccable** Unix **pedigree** -  
+
+He is so **flummoxed**, his brain literally froze. -  
+a measure which ranges from **name-calling** at worst, to **refutation** of the **central point** at best -  
