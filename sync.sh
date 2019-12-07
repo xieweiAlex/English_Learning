@@ -1,11 +1,11 @@
 #!/bin/bash 
 
+PATTERN="\*{2,}.*\s-{1,3}\W{0,10}$"
+WORDS_REVIEW="words-new.md"
+
 function getNewWords {
 
-  pattern="\*{2,}.*\s-{1,3}\W{0,10}$"
-  target_file="words-new.md"
-
-  echo "Hello World!  " > "$target_file"
+  echo "Hello World!  " > "$WORDS_REVIEW"
   files=(
     "GOT/GOT4.md"
     "GOT/GOT5.md"
@@ -13,44 +13,52 @@ function getNewWords {
     "words/2019/words-Nov.md"
     "words/2019/words-Oct.md"
     "words/2019/words-Sep.md"
+    "words/2019/words-Aug.md"
   )
 
   for file_path in "${files[@]}"
   do 
     echo -e "Checking file: ${YELLOW} $file_path ${NC}"
-    echo "## ------------------------ ${file_path} ------------------------  " >> "$target_file"
-    ag "$pattern" -G "$file_path" --group --nonumbers >> "$target_file" 
+    file_name=$(basename "$file_path")
+    echo "## ------------------------ ${file_name} ------------------------  " >> "$WORDS_REVIEW"
+    ag "$PATTERN" -G "$file_path" --group --nonumbers >> "$WORDS_REVIEW" 
 
   done 
 
-  # Delete lines above 120, let's keep the file lean  
-  sed -i '' '121, 500d' "$target_file"
-  # words=$(cat "$target_file" | head -120 )
-  # echo "$words" > "$target_file"
+  # Delete lines (120,$) let's keep the file lean  
+  sed -i '' '121, 500d' "$WORDS_REVIEW"
+
 }
 
 function pushBack {
-  origin_file="words-new.md"
 
   # record the current file_name
   file_name=""
   while read -r line; do
-    if [[ $line == words*  ]] && [[ $line == *md ]]; 
+    if [[ $line == *md ]] && [[ -f $line ]]; 
     then 
       file_name=$line
       echo -e " ${YELLOW} $file_name ${NC}"
     fi
 
-    str=$(echo "$line" | sed 's/ *$//g')
-
-    # if str contains "**{char}**" and not ended in -  
-    if [[ $str =~ \*\*.*\*\*  ]] && ! [[ $str == *- ]]; 
-    then 
-      echo -e "Update text: ${GREEN} $str ${NC}" 
-      escapedStr=$(echo "$str" | sed 's/\*/\\*/g')
-      sed -i '' "s/$escapedStr.*/$str/" "$file_name"
+    if ! [[ -f $file_name ]]; then 
+      echo "No file_name line reached yet, it's fine, next line please."
+      continue
     fi
-  done <$origin_file
+
+    # trim ending white spaces  
+    trimmedStr=$(echo "$line" | sed 's/ *$//g')
+
+    # if trimmed_str contains "**{char}**" && not end in -  
+    if [[ $trimmedStr =~ \*\*[a-zA-Z]*\*\*  ]] && ! [[ $trimmedStr =~ -$ ]]; 
+    then 
+      echo -e "Update sentence: ${GREEN} $trimmedStr ${NC}" 
+      # escape from "*" to "\*" to help sed search/replace  
+      escapedStr=$(echo "$trimmedStr" | sed 's/\*/\\*/g')
+      # find from the $file_name and replace the original str with updated string(two white space in the end) from words-review 
+      sed -i '' "s/$escapedStr.*/$trimmedStr  /" "$file_name"
+    fi
+  done <$WORDS_REVIEW
 }
 
 
@@ -72,7 +80,9 @@ then
   # Get new words to words-new
   echo "get new words"
   getNewWords
-
+elif [[ $action == 'pushBack' ]]; 
+then
+  pushBack
 elif [[ $action == 'update' ]]; 
 then
   echo "Get new words."
@@ -84,10 +94,4 @@ else
 fi
 
 
-# # Sync new words 
-# # getNewWords
-# # update origin words file 
-# pushBack
-# # text="Hello trailing - "
-# # echo -e "$text"
 
