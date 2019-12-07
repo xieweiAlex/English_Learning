@@ -38,7 +38,7 @@ there is no **driveway**, there is no shoulder even, it's just a **guardrail** r
 
 hopefully you're fully **geared up**  
 
-The world rightly **lauds** Linus Torvalds for Linux, but Git will arguably have a bigger impact. -  
+The world rightly **lauds** Linus Torvalds for Linux, but Git will arguably have a bigger impact.  
 In an impressively **candid** moment of self-reflection, Torvalds said the **impetus** behind Git was to prove to himself that he wasn't just a "one-hit wonder."  
 
 It's going to rain gold and you should go outside when that happens with a bucket not a **thimble**  
@@ -387,7 +387,7 @@ We got to be a little bit **cryptic**
 
 The jury **deliberated** about 10 hours since Thursday  
 **lured** the boy from a park into an **alley** and shot him **pointblank** in the head  
-The **trauma** is **far-reaching** and impacts us all. -   
+The **trauma** is **far-reaching** and impacts us all.  
 
 **biding your time**  
 **animosity**  
@@ -428,7 +428,7 @@ Ding **dong**, the witch is dead!
 **flame retardant** fabric  
 **dash** and dot line  
 cut a **dash**
-**anus** **catheter** -  
+**anus** **catheter**  
 **turnkey project**  
 
  I started to get the good **vibes** that it could be a business  

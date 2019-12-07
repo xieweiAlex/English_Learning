@@ -16,16 +16,16 @@ Tyrion **strikes** a deal
 money, **finery**, power  
 **Seeking out** family means seeking out **sin**  
 I'm not **maligning** you, I sought those things out, too  
-My father was a **cobbler** -  
+My father was a **cobbler**  
 **graveyard**  
-We passed around the wine, passed around the women, and soon we fell into a **stupor** -  
+We passed around the wine, passed around the women, and soon we fell into a **stupor**  
 My **ceaseless** struggle to maintain my position  
 I'm advising the king on our current **predicament**. -  
 We have to be very careful not to **antagonize** him  
 And of course, Margaery's safety is **paramount**  
 We'd **bicker** amongst ourselves instead of seizing it back  
 Queen Margaery will make her walk of **atonement**.  
-Yes, Margaery will **repent** her sins before the good people of the city -  
+Yes, Margaery will **repent** her sins before the good people of the city  
 When the Tyrell armies come, you will **stand down**.  
 Then **stand aside** and let the people that took him from you be destroyed  
 She's a **midget** -  

@@ -2,7 +2,7 @@
 You will never **web** the prince, you will web the king.  
 You're a **man of action**, aren't you?  
 They're **poachers** and thieves, not solder    
-He swings a sword like a girl with **palsy**. -   
+He swings a sword like a girl with **palsy**.  
 They watch all of us, ready to **dole out** mercy or justice  
 Refuse the Kingslayer? A dangerous **proposition**. -  
 A **drunken** dwarf will never be the savior of the Seven Kingdoms.  
@@ -119,7 +119,7 @@ Lord Commander, it's my duty to tell you I believe this mission to be **reckless
 but now his fire has **gone out**, and now his watch is ended.  
 His troops are loyal and **battle-tested**.  
 The Stormcrows **rode off** last night.  
-I've trusted in your visions and your **prophecies** for years. -  
+I've trusted in your visions and your **prophecies** for years.  
 There must another way, **leeches** or    
 I'm alright, just a little bit **woozy**  
 **How long before** the Queen of Meereen comes to claim my pillow?  
@@ -127,7 +127,7 @@ You think I'm **petty** enough to **speak ill of** a man just because he represe
 My motivations are entirely **impure**  
 Even if I wanted to do such an **inadvisable** thing, I couldn't.  
 All **rulers** are either **butchers** or meat.  
-Don't **spar** with me, little fellow. -  
+Don't **spar** with me, little fellow.  
 Everyone you meet has a hidden **motive** and you pride yourself on **sniffing it out**.  
 Then you'll remember the **passages** concerning **buggery** and **perjury**.  
 Have you ever **sowed** the filed, Lady Olenna?  

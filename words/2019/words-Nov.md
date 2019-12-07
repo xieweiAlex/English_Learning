@@ -1,3 +1,6 @@
+You just have to be brave enough to be on that bleeding edge  
+find a quiet spot to devour its dinner  
+
 
 Stumbled into reading about **hermit crabs** and wut  
 GERMANY’S BATTERED **coalition** is on **shakier ground** than ever after members of the Social Democratic Party (SPD)  
@@ -35,7 +38,7 @@ I'll likely keep it because the eggs are so perfect, but just be aware of the **
 this tiny but **mighty** cooker will put out a continuous, **shrill**, miniature SIREN -  
 **trumpet**  
 
-We've become **custodians** of the motorcycles -  
+We've become **custodians** of the motorcycles  
 **hit or miss**  
 
 Long-time users can be surprised by things changing **out of the blue** for reasons they don’t understand  
@@ -70,7 +73,7 @@ What's the **split-second decision** you made that changed your life?
 **neat freak**  
 
 Arrive at work feeling **frazzled** and **scattered** -  
-Apple's organizational **crossroad** -  
+Apple's organizational **crossroad**  
 **cylinder gasket**  
 
 The best choice for you is wearing **goggles** with prescription  
@@ -80,7 +83,7 @@ The best choice for you is wearing **goggles** with prescription
 newer technologies do offer the possibility of a more precise LASIK procedure, with less risk of **complications**  
 Finding the Best LASIK **Surgeons**  
 If you don't charge extra for enhancements, what is your **cutoff date**  
-She said it's normal to be concerned if you think you lack **rapport** with your eye surgeon -  
+She said it's normal to be concerned if you think you lack **rapport** with your eye surgeon  
 someone who isn't just **running a mill** where they don't even remember who you are  
 Your **cornea** must have sufficient **thickness**  
 extremely irregular and **misshapen**  
@@ -100,8 +103,8 @@ Ali **thrived** in the **spotlight** at a time when many fighters let their mana
 
 The engine oil is the **lifeblood** of your engine  
 Many people don’t know that motor oil is also used to keep your engine cool, similar to engine **coolant**  
-Remember that extreme heat is the ultimate **nemesis** of high-performance motors -  
-The oil filter will help keep your oil clean. It **traps** dirt, **debris**, **metallic particles**, and **sludge** inside the crankcase -  
+Remember that extreme heat is the ultimate **nemesis** of high-performance motors  
+The oil filter will help keep your oil clean. It **traps** dirt, **debris**, **metallic particles**, and **sludge** inside the crankcase  
 
 **heroic**  
 But the **clamshell** design requires double the surface space to spread it open  
@@ -216,7 +219,7 @@ This mixes with the oil and gets distributed through the engine where it can beg
 **Oblivious** man blindly drives into giant pile of rocks  
 
 **red eye flight**  
-motor oil is **carcinogens** -  
+motor oil is **carcinogens**  
 **dipstick**  
 **ovoid**, **egg shaped**
 
@@ -259,7 +262,7 @@ Sensing inevitable concern around Google’s upcoming access to a **bevy** of he
 in more recent years it has struggled as the smartwatches category has grown and **encroached** and taken over Fitbit’s tracker territory.
 you are only trying to **gauge** their attitude, learn about their objections to remote work, and then adjust your plan **accordingly**
 Bad Weather **Contingency**  
-Hey, what’s the plan if there is **inclement** weather and employees can't get to the office? - 
+Hey, what's the plan if there is **inclement** weather and employees can't get to the office  
 I’d like to make a branch and try out an idea on [X], but I don’t want to do it **on the clock**. Can I do it from home?  
 This is a **tactical**, short-term suggestion  
 A **self-saboteur** has bought into the line that ‘by doing nothing, bad things won’t happen.’  

@@ -233,7 +233,7 @@ Whether it’s an absolute **last-resort** option when there’s nothing else in
 **general assembly**  
 you can expect some serious **hikes** in the price of oil  
 **apparatus**  
-they started to **revolt** and riot -  
+they started to **revolt** and riot  
 **jihadi**  
 they also say Israel **cropped up** because of United States   
 
@@ -273,7 +273,7 @@ I approve of this and have **scorn** for **dimwit** arts graduates like Theresa 
 Some people born here **resent** that advice. Fine, I resent having to give it, but my job is to tell it like it is  
 They have simple procedures because they’re cheap and if what you say doesn't exactly match what they see then you get **flagged**  
 
-**underpass** **mural** design -  
+**underpass** **mural** design
 **frenchy** way  
 you want to build up a delicious little **crescendo** and then enjoy the fruits of your labor.  
 
