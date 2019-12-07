@@ -13,7 +13,7 @@ You want to make sure there is no **lumps**
 **asparagus** lettuce
 
 
-The “wounded scooter” has quickly become a **totem** of urban life in 2019, as universal as steam **belching** out of a sewer grate or a flattened rat in the middle of a sidewalk -  
+The “wounded scooter” has quickly become a **totem** of urban life in 2019, as universal as steam **belching** out of a sewer grate or a flattened rat in the middle of a sidewalk
 
 **bogeyman**  
 **counter steering**  
@@ -21,7 +21,7 @@ The “wounded scooter” has quickly become a **totem** of urban life in 2019, 
 **trail braking**  
 **crack down**  
 As you are turning and your vehicle imbalances it could lose traction and depending upon speeds the vehicle could **topple**  
-If you need to shift gear while in a turn, you’ll most likely want to **shift down**, so you’ll end up exiting the turn at higher **revs** than you entered -  
+If you need to shift gear while in a turn, you’ll most likely want to **shift down**, so you’ll end up exiting the turn at higher **revs** than you entered
 
 If we're lucky it'll completely **fall apart** you'll see me **wing it**  
 **Off the top of my head**, I don't know  
@@ -53,9 +53,9 @@ you can't marry **inanimate** objects in this country
 
 All right, you don't have to **manhandle** me  
 **Piles**  
-The Mavic Mini, perhaps due to its lightweight design, also doesn't **skimp** on battery life. -  
+The Mavic Mini, perhaps due to its lightweight design, also doesn't **skimp** on battery life.
 
-A runner up for 2018 is a **perennial favorite** -  
+A runner up for 2018 is a **perennial favorite**
 
 HBO has ordered a Game of Thrones **spinoff** series, House of the Dragon, straight to series.  
 
@@ -71,7 +71,7 @@ His **greed** for power knows no bounds
 sword and **shield**  
 he **stated** his views in broad **outline**  
 **overdue** bill  
-The **villain** made no **scruples** of committing murder -  
+The **villain** made no **scruples** of committing murder
 **seize** the present  
 **Cardiovascula**  
 tropical **aquarium**    
@@ -116,14 +116,14 @@ We're **incurring** such an inconvenience by dealing with this
 they're **reinforced** by their insulated news bubble, so they never find out that's a lie  
 you're okay with **subverting** the political system by allowing political smears to happen
 that's a small **tick** for me  
-He doesn't wanna start anything that might make her **unduly** upset, and lose whatever perceived **moral high ground** he might have -   
+He doesn't wanna start anything that might make her **unduly** upset, and lose whatever perceived **moral high ground** he might have
 They're not **grounded in reality**  
 Trump thought he could go **toe to toe** with Erdogan  
 **empirically** conservative ones lie more  
 they're gonna **warp** his perception of reality  
 those who are misusing Facebook for **nefarious** purpose  
 
-A package of **beauty pageants** -   
+A package of **beauty pageants**
 owners **prerogative** -  
 beauty pageant **contestants**  
 This is just **speculation** we couldn't **track down** the girl so we couldn't **corroborate** her age in any definitive manner -   
@@ -146,7 +146,7 @@ They'll **bulk up** for the **off season**, then cut down for contests mostly by
 Every time you eat you contribute to your **adipose** stores, but over time you can shrink them by eating at a deficit and getting enough protein to fuel your muscles  
 **adipose tissue** aka fat mass -  
 
-Seems a little bit **gimmicky** -  
+Seems a little bit **gimmicky**
 **swat** a fly  
 **DSLR**: Digital Singular Lens Reflex  
 Photographic **bouquet**: **Bokeh**  
@@ -171,7 +171,7 @@ You don't have to **outrun** the bear, just your friends
 
 Vitriol **descended** upon NASA  
 The house has **descended from** our ancestors  
-The spacewalk was meant to be one in a series of five planned **excursions** to **swap out** aging batteries on the outside of the space station with newer **lithium**-ion versions. -  
+The spacewalk was meant to be one in a series of five planned **excursions** to **swap out** aging batteries on the outside of the space station with newer **lithium**-ion versions.
 
 American leaders are **storming out** of the White House  
 Steal that insult **verbatim** with zero shame   
@@ -189,7 +189,7 @@ she **padded** along the **corridor**
 **eminent domain**  
 Our SFPD Vision Zero Enforcement Team went out yesterday in the Richmond District conducting pedestrian **decoy operations**  
 The text editor is the core tool for any programmer, which is why choice of editor evokes such **tongue-in-cheek** **zealotry** in debate among programmers  
-Being a Vim **heretic** myself, here I’ll discuss the **indispensable** features of Vim for programming -  
+Being a Vim **heretic** myself, here I’ll discuss the **indispensable** features of Vim for programming
 **chain of events** 
 who is an **avid** Trump supporter, a trucker  
 **hominem** attack (**Name calling**)  
@@ -214,7 +214,7 @@ From an operational and risk perspective, we've handled the **inflows** smoothly
 
 However, sudo **nukes** all environment variables for security reasons, which **interferes** with RVM  
 
-**truffle** chocolate -  
+**truffle** chocolate
 **off-color** humor  
 how **out of whack** GDP is  
 **rock-paper-scissors**  
@@ -225,10 +225,10 @@ Why isn't functional programming the **Norm**?
 **killer app**  
 Ruby's popularity **tapers off**  
 That's a **cautionary tale**  
-I'm not a Pascal language developer, but that's sounds like a **ludicrous** idea -  
+I'm not a Pascal language developer, but that's sounds like a **ludicrous** idea
 **in the works**  
 their **tagline** was, it's just Javascript. -  
-we wanted to **hoodwink** them into thinking about Java -  
+we wanted to **hoodwink** them into thinking about Java
 Ruby at this point is just **skyrocketed** up in popularity   
 **mixed bag**  
 some languages are very **conducive** to programming style  
@@ -261,24 +261,24 @@ Raising a small child in a major **metro area** can be **grueling** -
 China has managed to **pull off** the past decades    
 **dirty and seedy** side of China  
 **hand-over-fist** kept growing  
-fairly **innocuous** his own personal tweet -  
+fairly **innocuous** his own personal tweet
 of course he **backpedaled**, deleted the tweet, **put out** an apology  
 This is what Chinese people have to **put up with**   
-The NBA is **groveling on its knees** trying their best to apologize to China -  
+The NBA is **groveling on its knees** trying their best to apologize to China
 **tone-deaf** disgusting comments  
-Big companies have been **capitulating** for years in order to get a little bit share -  
+Big companies have been **capitulating** for years in order to get a little bit share
 willing to ignore the very **blatantly** bad things around  
 
-North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African & Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓 -  
+North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African & Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓 -   Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓
 **razorsharp**, design to **impale** and **next to impossible** to remove -  
-A North American porcupine maybe slow, she **plods along**, but don't mess with her. -  
-they are just extra long hairs, **decoys** to make her look even more **spiky** -  
+A North American porcupine maybe slow, she **plods along**, but don't mess with her.
+they are just extra long hairs, **decoys** to make her look even more **spiky**
 when threatened, it **bristles**  
 **back off**  
 **back down**
 They're super sharp, sharper then the **hypodermic needle**. -  
 when you try to remove it, the barbs **fan out**, keeping the **quill** **lodged in**.
-Porcupines are actually pretty **clumsy**, they've been known to accidentally quill themselves -   
+Porcupines are actually pretty **clumsy**, they've been known to accidentally quill themselves
 
 
 To **corner the** Chinese **market**  
@@ -312,7 +312,7 @@ Pulling down Lakers and Net **signage**
 this takes **guts**  
 **lags behind**  
 a **tip of iceberg**  
-**cute dimples** -  
+**cute dimples**
 You got 5 minutes **head start**  
 
 **fruit-fly** eggs  
@@ -361,7 +361,7 @@ In response, major cities **beefed up** security for the movie's opening night
 I will never really **fathom** the female **psyche**.   
 **duct tape**  
 **calcium**  
-The **robber** **rammed** the **gag** in her mouth -  
+The **robber** **rammed** the **gag** in her mouth
 A truck **rammed** a motorbike.  
 **lick sb's spittle**  
 **NATO**: North Altantic Treaty Organization  
@@ -424,10 +424,10 @@ He is a **yellow** **gutless** worm
 you broke out of the **hypnosis**   
 **kiddy** song  
 Ding **dong**, the witch is dead!  
-**Predators** are either **caniores** or **omnivores** -  
+**Predators** are either **caniores** or **omnivores**
 **flame retardant** fabric  
 **dash** and dot line  
-cut a **dash** -  
+cut a **dash**
 **anus** **catheter** -  
 **turnkey project**  
 
@@ -457,7 +457,7 @@ A hardened **lava** flow
 That sounds **chancy**  
 The girl tapped the door with her **knuckles**  
 **knuckle down**  
-**vicar** of christ -  
+**vicar** of christ
 **roller coaster**  
 **endurance** testing machine  
 **sap** green  

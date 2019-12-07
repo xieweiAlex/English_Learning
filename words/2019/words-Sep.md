@@ -14,7 +14,7 @@ Why the Fourth Estate is so central in free and open society
 I'm heartened to see it, I'm happy to see it  
 
 
-Don't let changing jobs **sidetrack** your retirement -  
+Don't let changing jobs **sidetrack** your retirement
 **Roll over** to a new workplace plan  
 Trump won't stop **snubbing** Jared Kusher  
 It's important to review your portfolio at least once a year and rebalance your investment mix as necessary to stay **on-target**  
@@ -65,7 +65,7 @@ I'm going to **ecstatic** when you lose
 He is **incinerated** bridges on his own side  
 Fox News is his last **bulwark**   
 
-That's it! No fancy syntax, no code. Just a few lines to get you **primed**. -  
+That's it! No fancy syntax, no code. Just a few lines to get you **primed**.
 copy (also called 'yank' in vim **parlance**)
 Or are you bored, unchallenged...maybe even **dread** it?
 > If you're not sure what your true purpose is, then chances are when you move to a new job, you're going to fall back into the trap of being demotivated and unhappy at work.
@@ -78,7 +78,7 @@ she is **whipping** the eggs
 I have a **nagging** wife  
 she was the **plaything** of a wealthy business man  
 I locked my **briefcase** in my car  
-Hey, where are all my **ovulation** sticks -  
+Hey, where are all my **ovulation** sticks
 **ovulation** occurs only if **mating** has **taken place**  
 **Ouch**, it really hurts  
 as **mild** as a **dove**  
@@ -89,7 +89,7 @@ but they will also **displace** millions of American jobs and have been doing so
 We are not prepared **in the least**. It is one of the biggest challenges of our **era**  
 I remember hearing the **quip** that if you asked 10 programmers what their favorite editor was, you would get 11 answers  
 It’s not **unheard of** to see $200k+ total compensation with **negligible** prior experience  
-I can tell you I liked teaching Scheme because it would **warp** students heads and **predispose** them to being able to teach themselves new languages -  
+I can tell you I liked teaching Scheme because it would **warp** students heads and **predispose** them to being able to teach themselves new languages
 
 The stinky salami, the **gaudy** **chandelier**?  
 It's hard to prevent concret from **creeping**.  
@@ -222,7 +222,7 @@ In its latest fund-raising round, Stripe collected $250 million, which is tiny c
 A senator may request **unanimous consent** on the **floor** to **set aside** a specified rule of procedure so as to **expedite** proceedings. If no Senator **objects**, **the Senate** **permits** the action, but **if any** one senator objects, the request is rejected. 
 (**Set aside** one day a week for a cheat meal)
 **critical mass**  
-When you **ingest** that much sodium in a single **sitting**, your body **overcompensates** by retaining more water. This can cause temporary water weight gain, leaving you feeling **bloated** and **lethargic** -    
+When you **ingest** that much sodium in a single **sitting**, your body **overcompensates** by retaining more water. This can cause temporary water weight gain, leaving you feeling **bloated** and **lethargic**
 And, perhaps most **disconcerting** of all, this **quick-and-easy** meal may stay with you much longer than you realize  
 the results are **startling**  
 
@@ -381,7 +381,7 @@ Unlike Trump I'm confident if Bernie's health does start to **decline** he will 
 Swift **enthusiast**
 
 Stuck watching **infomercials** for whatever that is   
-He is so **flummoxed**, his brain literally froze. -  
+He is so **flummoxed**, his brain literally froze.
 She can **flummox** anybody by the lip.  
 
 The company is **treading lightly** in a crowded market where Tinder, Bumble, Dig, Vespr, Bound and Hinge already exist  
@@ -391,7 +391,7 @@ Capitalism is a tool of the **upper class** designed to keep the people struggli
 The gunman **evaded** a federal background check to get the firearm he used in the **rampage**.  
 
 Rescheduling will, realistically, give you 4-12 weeks extra **cram** time  
-a measure which ranges from **name-calling** at worst, to **refutation** of the **central point** at best -  
+a measure which ranges from **name-calling** at worst, to **refutation** of the **central point** at best
 Even experienced programmers seem to suffer from this **myopia**  
 With feature flags, you get fine **grained control** over who is exposed to which feature  
 

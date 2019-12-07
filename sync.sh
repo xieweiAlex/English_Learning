@@ -7,6 +7,8 @@ function getNewWords {
 
   echo "Hello World!  " > "$target_file"
   files=(
+    "GOT/GOT4.md"
+    "GOT/GOT5.md"
     "GOT/GOT6.md"
     "words/2019/words-Nov.md"
     "words/2019/words-Oct.md"
@@ -50,6 +52,7 @@ function pushBack {
     fi
   done <$origin_file
 }
+
 
 action=$1
 

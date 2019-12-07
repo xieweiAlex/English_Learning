@@ -1,3 +1,15 @@
+## E 5 
+The time has come to join the **fray**  
+To **come to my aid**?  
+You can't protect yourself when I ask Brienne to **cut you down**  
+**guiding hand**  
+Last I heard, you were **gallivanting** around the world having a grand old time  
+Let the sea wash your **follies** and your **vanities** away  
+is there a **cure**?  
+He seems **trustworthy**, a bit **gallivanting**, perhaps  
+Eat something that isn't **moss**  
+
+
 ## E 4 
 Tyrion **strikes** a deal
 **Slander** a man in his own home, you might find yourself **crossing swords** with him.  
