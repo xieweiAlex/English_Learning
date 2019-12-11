@@ -1,14 +1,7 @@
-You just have to be brave enough to be on that bleeding edge  
-find a quiet spot to devour its dinner  
-
-
-Stumbled into reading about **hermit crabs** and wut  
-GERMANY’S BATTERED **coalition** is on **shakier ground** than ever after members of the Social Democratic Party (SPD)  
-It would also avoid political turmoil before Germany takes over the rotating six-month presidency of the EU Council next July, the last **set-piece** of Mrs Merkel’s time as **chancellor**.  
-Like many leftist parties the SPD has regularly had to balance internal tensions between **idealists** and **realists**.  
 
 
 Simply put, it's a series of (usually) LED lights that you place **on the rear of** your PC monitor or TV, creating a kind of **halo effect** that projects behind it.
+
 Having a light on behind your monitor, like a small **lamp**, greatly reduces **eyestrain** at night  
 Also very **moody** and **cozy**  
 
@@ -35,14 +28,14 @@ a silver pillow top **plush** with no knowledge of the mattress **scam**
 Extreme **sagging**  
 
 I'll likely keep it because the eggs are so perfect, but just be aware of the **banshee** that gets released each time eggs are fully cooked
-this tiny but **mighty** cooker will put out a continuous, **shrill**, miniature SIREN -  
+this tiny but **mighty** cooker will put out a continuous, **shrill**, miniature SIREN  
 **trumpet**  
 
 We've become **custodians** of the motorcycles  
 **hit or miss**  
 
 Long-time users can be surprised by things changing **out of the blue** for reasons they don’t understand  
-met with **derisive** comments challenging their knowledge and skills -  
+met with **derisive** comments challenging their knowledge and skills  
 We want to address all these things and be transparent about how we’re **paying down** some of this community debt  
 
 **humanities**  
@@ -171,7 +164,7 @@ Reviewers love them and have been **raving** about them. But, like any product, 
 **ingenious companies**  
 **LASIK eye surgery**  
 Thus **begins** a **hideously** costly and **drawn-out** negotiation that eventually yields the dollar amount that the doctor will get reimbursed
-If you have price tags for every procedure and require that every patient be charged the same price, all of that **bickering** and **chicanery** goes away -  
+If you have price tags for every procedure and require that every patient be charged the same price, all of that **bickering** and **chicanery** goes away  
 As does the need for **gargantuan** bureaucracies to process claims
 **Fast forward** to last quarter  
 I have **owned up to** getting the Peak Google article wrong in the Daily Update  

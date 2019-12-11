@@ -4,13 +4,13 @@ You're a **man of action**, aren't you?
 They're **poachers** and thieves, not solder    
 He swings a sword like a girl with **palsy**.  
 They watch all of us, ready to **dole out** mercy or justice  
-Refuse the Kingslayer? A dangerous **proposition**. -  
+Refuse the Kingslayer? A dangerous **proposition**.  
 A **drunken** dwarf will never be the savior of the Seven Kingdoms.  
 You've many high qualities, **self-pity** is not one of them.  
 I'm not **well-suited** for work.  
 When did the Unsullied start **patrolling** the streets of Meereen?  
 Our mission to Yunkai was a **resounding** success.  
-They did ask for some **concession**. -  
+They did ask for some **concession**.  
 No **fighting pits**.  
 I do not respect the tradition of human **cockfighting**.  
 
@@ -43,13 +43,13 @@ he was **famished**, so he borrowed a ham
 
 I'm giving you the chance to **avenge** your family.  
 But I swore a sacred vow at the godswood, I **pledged** my life to the Night's Watch  
-It's long past time to dig a new **latrine** pit. -  
+It's long past time to dig a new **latrine** pit.  
 High **Sparrow**  
 **sinner**  
 Have the god send you to **tempt** me?   
 Hypocrisy is a **boil** 
 **Lancing a boil** is never pleasant 
-The High Septon's behavior was **corrosive**, as was his attitude. -  
+The High Septon's behavior was **corrosive**, as was his attitude.  
 **At once**, your grace.  
 Tyrion never **consummated** the marriage.   
 It's the name I need, not her **virtue**.  

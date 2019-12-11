@@ -164,7 +164,7 @@ I've been a hostage in King's Landing, a **plaything** for Joffrey to torture, o
 a **peck** on the **cheek**  
 She **turned on** me 
 You could see it in the way she raised that boy, feeding him from her won **teats** when he is 10 years old.  
-By staying out of the **fray**, you've allowed Tywin Lannister. -  
+By staying out of the **fray**, you've allowed Tywin Lannister.  
 Don't ever **presume** to touch me again, or speak my name.  
 You have until **dusk** to collect your things and leave the city.  
 **Moors**, **fields**, hills 
@@ -194,7 +194,7 @@ I was hoping your loyalty was real when you **pledged** yourself to us, Jon Snow
 It's **customary** to kneel when surrendering to a king.  
 Burn the dead before **nightfall**.  
 He is completely **insensate**.  
-You're still **betrothed** to Loras Tyrell. -   
+You're still **betrothed** to Loras Tyrell.  
 I'm not interested into your another **smug** story of the time you won. 
 Do you think you're the first person dragged int a **sept** to be married against her will?   
 I was about to give him essence of **nightsha**  

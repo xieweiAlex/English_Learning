@@ -33,7 +33,7 @@ This **jingoism** this nonsense goes on all the time
 These attacks, **vandalism**, happens everywhere all around the world -  
 **Karl Marx**'s **communism**.  
 The **stifling** sort of **setup** that's happening in China  
-It's just like an ex, you just had the most **tumultuous** relationship with in the world -  
+It's just like an ex, you just had the most **tumultuous** relationship with in the world  
 
 The climate is **cyclical**  
 **carbon emission**  
@@ -177,7 +177,7 @@ Tesla is pitching customers on a new rental offering for solar power as a way to
 
 Week in Review: Snapchat **beats a dead horse**  
 There was never a **semblance** of democracy  
-Did they ever talk about universal **suffrage**? -  
+Did they ever talk about universal **suffrage**?  
 This is **hypocrisy**.  
 
 this basically a big **cauldron** of boiling oil -  

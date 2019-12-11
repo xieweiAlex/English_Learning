@@ -124,9 +124,9 @@ they're gonna **warp** his perception of reality
 those who are misusing Facebook for **nefarious** purpose  
 
 A package of **beauty pageants**
-owners **prerogative** -  
+owners **prerogative**  
 beauty pageant **contestants**  
-This is just **speculation** we couldn't **track down** the girl so we couldn't **corroborate** her age in any definitive manner -   
+This is just **speculation** we couldn't **track down** the girl so we couldn't **corroborate** her age in any definitive manner  
 Some sort of sexual **impropriety**  
 nothing indicates he is an **evangelical**  
 some sort of **kinship** with Jewish Americans  
@@ -141,7 +141,7 @@ You **flinch out** waiting for the impact coming
 Your body is a complex **biologic** organism. 
 Your body has a careful, yet **robust** group of energy systems **in place** that keep you going. It's carefully regulated by your **hormones** and **sensory organs**  
 **amino acids**  
-Eat enough protein to make sure that if your body requires **amino acids** it doesn't **catabolize** your own muscles -  
+Eat enough protein to make sure that if your body requires **amino acids** it doesn't **catabolize** your own muscles  
 They'll **bulk up** for the **off season**, then cut down for contests mostly by cutting out **carbohydrates** and **living off a deficit**  
 Every time you eat you contribute to your **adipose** stores, but over time you can shrink them by eating at a deficit and getting enough protein to fuel your muscles  
 **adipose tissue** aka fat mass -  
@@ -201,8 +201,8 @@ There can be **telltale signs** all over a bike that it's been **down** before -
 if they are **forthright** about the fact that bike has been down  
 **odds are pretty good** ... 
 **chatty cathy**  
-Some sellers are pretty **reticent** to let their pride and joy go rolling down the road with stranger -  
-it can be **contingent** upon the test ride -  
+Some sellers are pretty **reticent** to let their pride and joy go rolling down the road with stranger  
+it can be **contingent** upon the test ride  
 Our success is **contingent** on your support.  
 **chassis** frame??  
 I gonna grab some **tie-down**
@@ -254,7 +254,7 @@ You can get **lulled** into a software engineering job
 No **haggling**, I am trying to sell it quickly, $2700 is a fair price and is the lowest I will go  
 
 When we **packed up** and headed for farm country 70 miles outside Washington
-Raising a small child in a major **metro area** can be **grueling** -  
+Raising a small child in a major **metro area** can be **grueling**  
 
 ## Week 2 
 
@@ -270,7 +270,7 @@ Big companies have been **capitulating** for years in order to get a little bit 
 willing to ignore the very **blatantly** bad things around  
 
 North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African & Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓 -   Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓
-**razorsharp**, design to **impale** and **next to impossible** to remove -  
+**razorsharp**, design to **impale** and **next to impossible** to remove  
 A North American porcupine maybe slow, she **plods along**, but don't mess with her.
 they are just extra long hairs, **decoys** to make her look even more **spiky**
 when threatened, it **bristles**  
@@ -297,7 +297,7 @@ He introduced a system of **pervasive** and insidious control
 they were **pandering** to China   
 
 The dogs started **fawning** on me.  
-The family have won a temporary **reprieve** from **eviction** -  
+The family have won a temporary **reprieve** from **eviction**  
 What a **fidget** you are! 
 What's **fidgeting** you?  
 **Letter of intent**  
@@ -462,7 +462,7 @@ The girl tapped the door with her **knuckles**
 **endurance** testing machine  
 **sap** green  
 it **saps** the creative juices  
-**Sap** flowed from the **gash** in the tree -  
+**Sap** flowed from the **gash** in the tree  
 **bunker clothing**  
 The tulips are looking a little **ragged**.   
 he was **doodgling** in the margin 

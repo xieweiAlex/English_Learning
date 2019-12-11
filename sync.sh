@@ -1,6 +1,7 @@
 #!/bin/bash 
 
-PATTERN="\*{2,}.*\s-{1,3}\W{0,10}$"
+# 2+ * & 1+ letter & .* & ends either 0 to 5 white space or line change  
+PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 WORDS_REVIEW="words-new.md"
 
 function getNewWords {
@@ -14,18 +15,20 @@ function getNewWords {
     "words/2019/words-Oct.md"
     "words/2019/words-Sep.md"
     "words/2019/words-Aug.md"
+    "words/2019/words-July.md"
   )
 
   for file_path in "${files[@]}"
   do 
     echo -e "Checking file: ${YELLOW} $file_path ${NC}"
     file_name=$(basename "$file_path")
-    echo "## ------------------------ ${file_name} ------------------------  " >> "$WORDS_REVIEW"
+    echo "" >> "$WORDS_REVIEW"
+    echo "## ----------- ${file_name} -----------  " >> "$WORDS_REVIEW"
     ag "$PATTERN" -G "$file_path" --group --nonumbers >> "$WORDS_REVIEW" 
 
   done 
 
-  # Delete lines (120,$) let's keep the file lean  
+  # Delete lines (120,$) let's keep the review short & lean  
   sed -i '' '121, 500d' "$WORDS_REVIEW"
 
 }

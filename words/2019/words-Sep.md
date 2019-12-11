@@ -174,7 +174,7 @@ By making sure it's not **in vain**.
 **Kidney stones**  
 Lemon water is said to be **alkalizing**. However, neither the **pH** of your blood **nor cells** can be **altered** by what you eat  
 In fact, most claims that foods or beverages **cleanse** or **detoxify** your organs are simply **untrue**  
-However, the **acid** in lemons can damage your **tooth enamel** over time, which makes your teeth **more prone to** **cavities** -  
+However, the **acid** in lemons can damage your **tooth enamel** over time, which makes your teeth **more prone to** **cavities**  
 
 
 ## Week 3 
@@ -211,7 +211,7 @@ Android development is hard, and it's mostly due to its relatively **fragmented*
 Their **demographic** is millennials, who apparently cook less than any other **living generation**.   
 the Pattern team's inspiration came from their own **burnout**; 
 They found **solace** in cooking against “the **stream** of emails and notifications following us home each day.”   
-The **invalid** found **solace** in music -  
+The **invalid** found **solace** in music  
 
 I think it's **high time** to make a toast. -Sure.  
 **decaf** coffee  
@@ -299,7 +299,7 @@ the **bitter** U.S.-China trade war has **exacerbated** the **trend**
 None - I stand by **vanilla** Vim  
 Taco Bell **tosses out** woman buying food for homeless  
 
-marks the end of a **tumultuous** two-year **saga** that saw an once-popular platform go to extreme lengths to keep its business running, despite the obvious and **fraught** financial cost -  
+marks the end of a **tumultuous** two-year **saga** that saw an once-popular platform go to extreme lengths to keep its business running, despite the obvious and **fraught** financial cost  
 Last we heard of MoviePass, the company was laying off huge **swaths** of its staff, including the team responsible for brokering partnerships with movie theaters   
 **crosshair** positioning  
 **overlay**  
@@ -368,7 +368,7 @@ Is he **coming after** us?
 **Taste buds** go through a life cycle where they grow from basal cells into taste cells and then die and are sloughed away.
 
 Let's get this **Aussie** party started!  
-Cscope is a developer's tool for browsing source code. It has an **impeccable** Unix **pedigree** -  
+Cscope is a developer's tool for browsing source code. It has an **impeccable** Unix **pedigree**  
 
 I see this life, as a **swinging vine**, swinging my heart across the line in my faces flashing suns.  
 
