@@ -227,7 +227,7 @@ Ruby's popularity **tapers off**
 That's a **cautionary tale**  
 I'm not a Pascal language developer, but that's sounds like a **ludicrous** idea
 **in the works**  
-their **tagline** was, it's just Javascript. -  
+their **tagline** was, it's just Javascript.  
 we wanted to **hoodwink** them into thinking about Java
 Ruby at this point is just **skyrocketed** up in popularity   
 **mixed bag**  
@@ -316,7 +316,7 @@ a **tip of iceberg**
 You got 5 minutes **head start**  
 
 **fruit-fly** eggs  
-**flout** one China policy -  
+**flout** one China policy  
 
 Have you finished **taping** all the presents?  
 I will be **taping** this interview, also  
@@ -346,7 +346,7 @@ So I would **scribble** notes **furiously**, make plans, and dive into a **flurr
 
 Things got a little **out of hand**.  
 **net neutrality**  
-The FCC had relied on **specious** arguments **throughout** -  
+The FCC had relied on **specious** arguments **throughout**  
 This attempt to “create **preemption** authority **out of thin air**” was completely unjustified by any law or **precedent**  
 and that entire section of the new rules was **struck down**.  
 **complainant**  
@@ -397,7 +397,7 @@ putting out all the **propaganda** to the Chinese **diaspora**
 greener **pastures**  
 **meddlers**  
 **be there or be square**  
-if you want **posh**, you want **swank**, if you want **sophistication**, you go to Shanghai. -   
+if you want **posh**, you want **swank**, if you want **sophistication**, you go to Shanghai.  
 **devil's advocate**  
 don't **cut in** the queue  
 that's **alien** to China  
@@ -474,7 +474,7 @@ He looks like a **rabid** **groundhog** who just poped out of his hole
 
 **affective** commitment, **Affective empathy**
 **cognitive empathy**  
-Of course, the primary suspect when we have something that is sharply differentiated by sex is **testosterone** -  
+Of course, the primary suspect when we have something that is sharply differentiated by sex is **testosterone**  
 
 > Purpose is what differentiates the motivated from the demotivated, the achievers from the underachievers, and the happy from the unhappy.
 > It's all about forward movement. Like a snowball, motivation from having progress creates momentum. So to keep this up, you have to keep moving.  
@@ -495,7 +495,7 @@ his **preoccupation** with politics.
 
 **work ethic**  
 **Fierce** competition pushes entrepreneurs to improve the product at **lightning speed**, and to develop **impregnable** business models  
-All of this is amplified by China’s **enormous** market size, which generates the **treasure trove** of data which is the critical rocket fuel for AI -  
+All of this is amplified by China’s **enormous** market size, which generates the **treasure trove** of data which is the critical rocket fuel for AI  
 China’s data **edge** is 3 times the US based on mobile users **ratio**  
 Internet is an area where AI giants **blossomed**  
 China has a number of industrial AI opportunities in “**late mover advantage**”, that is when the industry **lags** the US, AI can make a big difference  

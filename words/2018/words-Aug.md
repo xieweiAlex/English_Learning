@@ -63,7 +63,7 @@ Maybe my resume was automatically getting **binned** everywhere it landed
   
 But in the end if I'm with you, I will **take the change**  
 But what we need the most is a **dud**.  
-The Trump admission gonna **sidestep** the **backlash**  
+The Trump admission gonna **sidestep** the **backlash** -   
 Those **pundits** are absolutely right.  
 **Down syndrome**.  
 Strip club **glitter**.  

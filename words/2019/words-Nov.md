@@ -230,7 +230,7 @@ leaving aside its stance on ads — is increasingly a tool for **stamping out** 
 **Synonym**  
 When a user’s **utterance** is ambiguous enough that it resolves to multiple intents, SiriKit uses the order of the intents in the IntentsSupported key to determine which intent to send to your app  
 
-Frankly, I find it deeply concerning that I might have any **trepidation** in writing that Facebook made the right decision -  
+Frankly, I find it deeply concerning that I might have any **trepidation** in writing that Facebook made the right decision  
 > As a leader I usually focus on the roles of a visionary, a **catalyst**, and a coach  
 
 The passenger should only sit in **pillion**  

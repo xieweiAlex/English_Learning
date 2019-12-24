@@ -280,8 +280,8 @@ you want to build up a delicious little **crescendo** and then enjoy the fruits 
 
 No way, have you **converted**??  
 THis happened on John Daily **Blvd** right before the **overpass** to get onto 280. I called the police    
-everyone's getting **prostate** exam -  
-This country is going to an **oligarchic** from of society where a handful billionair control the economy -  
+everyone's getting **prostate** exam  
+This country is going to an **oligarchic** from of society where a handful billionair control the economy  
 I don't think other candidate said has said **flat out** they're gonna confiscate guns.  
 I didn't belive black on black crime **until now**.  
 That's a **ballsy** satement from Beto O'Reourke  

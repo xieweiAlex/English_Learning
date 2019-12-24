@@ -188,11 +188,11 @@ Trying to **placate** a city on the **brink** of civil war.
 **If only** I knew someone with a vast network of spies.  
 Who could possibly have any experience managing such a massive **ungainly** beast?  
 I want **absolution**.  
-The **crone** came to me with her lamp raised high. -  
+The **crone** came to me with her lamp raised high.  
 After your **atonement**.  
 **fornication**  
 To demonstrate her **repentance**, she will cast aside all pride, all **artifice** -  
-She comes before you with a **solemn** heart, **shorn** of secrets. -  
+She comes before you with a **solemn** heart, **shorn** of secrets.  
 
 > He is a hero, and hero is inherently not cautiously.  
 

@@ -22,7 +22,7 @@ We **equate** this course to a full life-coaching program, some of which run in 
 For anyone seeking to improve and transform any **facet** of their life for the better  
 
 **promiscuous** sexual relations -  
-Points are subset to **forfeiture** -  
+Points are subset to **forfeiture**  
 Machine learning often feels like an **impenetrable field** that belongs to a select few with years of research experience  
 They don’t need people who know why **manhole covers** are round, nor even why they are called manholes  
 
@@ -30,7 +30,7 @@ When you first joined Lifehack, I promised we would leave **no stone unturned** 
 
 **emoticons**  
 This **jingoism** this nonsense goes on all the time  
-These attacks, **vandalism**, happens everywhere all around the world -  
+These attacks, **vandalism**, happens everywhere all around the world  
 **Karl Marx**'s **communism**.  
 The **stifling** sort of **setup** that's happening in China  
 It's just like an ex, you just had the most **tumultuous** relationship with in the world  
@@ -109,7 +109,7 @@ WHO has classified any form of **nighttime shift** work as a probable **carcinog
 **disquieting**  
 It's rather like a broken water pipe in your home, sleep loss will leak down into every **nook** and **cranny** of your physiology. -  
 The **decimation** of sleep throughout industrialized nations, having a **catastrophic** impact on our health, our wellness. -  
-We can be **reunited** with the most powerful **elixir** of life -  
+We can be **reunited** with the most powerful **elixir** of life  
 We can't **catch up on** sleep, sleep is not like a bank.  
 Our health **deteriorate** so quickly.  
 Human beings are the only **species** that **deliberately** deprive themselves of sleep.  
@@ -153,7 +153,7 @@ I feel like a **wizard**
 I will use this reason **every other day**  
 People don't realize those jobs are mostly meetings, and most of your code has been **hamstrung** through bureaucratic processes  
 Running 20 queries and **putting out** fire in prod doesn't count, usually  
-Can I **bum** a smoke? -  
+Can I **bum** a smoke?  
 
 **lumbar** spinal cord 
 **lumbar** support  
@@ -163,7 +163,7 @@ That's a **stone-cold** lie
 Those **pundits** and reporters that cover politics  
 
 it is a document defined by **audaciousness**, both in terms of the company’s vision and also the **flagrant** disregard for corporate governance norms by its leadership -  
-As he is still in **remission** 5 years later. -  
+As he is still in **remission** 5 years later.  
 
 **downplayed** the bad news  
 Today (and tomorrow) investors and press will **descend upon** Pier 48 in San Francisco  
@@ -194,16 +194,16 @@ One of Swift's band members **leaped to her feet**, leading a **standing ovation
 Over the next decade they both **transcended** music **stardom**, ascending to a **stratosphere** of **fame** where both became recognizable -   
 in large part because their actions seemed to hit every **fault line** of culture — race, gender, mental health, **victimhood**, media and politics.  
 Yet in that particular moment, Toffler was truly **mortified**. -  
-He **snapped** into **crisis-management** mode... -  
+He **snapped** into **crisis-management** mode...  
 Her **prizewinning** song that night and her biggest pop **crossover** **hit to date** -  
 the **star-studded** crowd  
-Wale, the show's **emcee**, felt the need to address it from the stage, reportedly telling the audience, "You can't fault a man for speaking his mind", a sentiment that only drew more **boos**. -  
-"Single Ladies" - her **megahit** song that West had rushed the stage to champion -  
+Wale, the show's **emcee**, felt the need to address it from the stage, reportedly telling the audience, "You can't fault a man for speaking his mind", a sentiment that only drew more **boos**.  
+"Single Ladies" - her **megahit** song that West had rushed the stage to champion  
 Maybe she could help **redeem** Swift's ruined evening.  
 In the **waning minutes** of the **telecast**, Beyoncé **glided** to the stage to accept her trophy, **resplendent** in a red gown. - 
 **MTV**: Music Television  
 “It’s like u **stepped on** a kitten,” tweeted Katy Perry.  
-Even President Barack Obama **weighed in**, accidentally. “He’s a **jackass**,” Obama said in what he believed was **off-the-record** **banter** before a TV interview -  
+Even President Barack Obama **weighed in**, accidentally. “He’s a **jackass**,” Obama said in what he believed was **off-the-record** **banter** before a TV interview  
 did little to **stem** the outrage.  
 West’s interruption “completely **uncalled for**.  
 But there was an uncomfortable **undercurrent** to much of the reaction  

@@ -1,3 +1,33 @@
+## E10 
+I perjured myself before the gods, I'm guilty of depravity, dishonesty, profligacy and arrogance.  
+Will you fight or defend your faith against heretics and apostates?  
+Please, Grand Mester.  I bear you no ill will  
+I'm not angry, I'm full of self-pity.  
+That's kind of self-sacrifice that makes for a good ruler, if it's any consolation.  
+For what's worth, I've been a cynic for as long as I can remmember.  
+
+
+
+## E8 
+I will **crucify** the Masters.  
+It's **Double enveloping**   
+A **pincer** move  
+I want him coming at us **full tilt**.  
+Did it ever once **occur to you** that I might have some insight?  
+As long as he lives, Ramsay's claim to Winterfell will be contested  
+
+
+## E7 
+I'd call that's a successful **gambit**, would you?   
+The way all women look at him is frankly **irritating**.  
+You fulfilled your **oath** to Catelyn Stark against **all odds**  
+After **conferring** with his Holiness the High Septon, we've determined that Loras Tyrell ... 
+The love she had for her children, I was a little **awed** by it.  
+I'll launch him into Riverrun with a **catapult**.  
+Lower the **drawbridge**  
+We've **surrendered** our most valuable prisoner  
+
+
 ## E 5 
 The time has come to join the **fray**  
 To **come to my aid**?  
@@ -28,17 +58,7 @@ Queen Margaery will make her walk of **atonement**.
 Yes, Margaery will **repent** her sins before the good people of the city  
 When the Tyrell armies come, you will **stand down**.  
 Then **stand aside** and let the people that took him from you be destroyed  
-She's a **midget** -  
-
-
-
-
-
-
-
-
-
-
+She's a **midget**  
 
 
 ## E 3  
@@ -49,7 +69,7 @@ You're a true **liberator**, aren't you?
 One of our **leather clad** friend back in to carry it  
 You **took your time**.  
 Man can be **fickle** and birds I always trust  
-What he's done to Gregor Clegane is an **abomination** -  
+What he's done to Gregor Clegane is an **abomination**  
 We never **sanctioned** this experiment  
 When she's fully **atoned** for her sins  
 when your mother made her walk of **atonement**, she did it to get back to you.  
