@@ -42,8 +42,8 @@ I was impressed
   
 It's hard to overstate  
   
-cater to  
-Let's try another store. Looks like these guys only cater to the super-rich.  
+**cater to**  
+Let's try another store. Looks like these guys only **cater to** the super-rich.  
   
 the lion's share  
 Since my brother is the oldest son, he will receive the lion's share of my father's estate.  

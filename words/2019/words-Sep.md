@@ -32,7 +32,7 @@ His ex-FB gig only lasted a year, he was a traveling **hobo** before that
 
 Trump’s foreign interference scandal **snowballs**  
 he's been using world leaders as his personal **errand boys**  
-That whistle blower is clearly in a very **precarious** situation -  
+That whistle blower is clearly in a very **precarious** situation  
 It's **imperative** to protect this person's identity at **all costs**  
 no one wants **slipping**  
 She's got her **hands full**  
@@ -154,10 +154,11 @@ Ya Impeach Joe Biden , 50,000 a month with no experience ... classic **cronyism*
 
 Companies that put multiple interviewers in a room specifically with the goal of **unnerving** candidates  
 sometimes it’s just to put you **at ease**  
-What you need is someone who doesn't care about your money or looking smart by **spouting off** fancy **words of no consequence** - just that you not be a victim -  
+What you need is someone who doesn't care about your money or looking smart by **spouting off** fancy **words of no consequence**  
+just that you not be a **victim**   
 Example #3: manipulating **delimited** blocks   
 
-The democrats **revered** him    
+The democrats **revered** him  
 It's abuse of power, it's **extortion**   
 it would be like if the day after Michael Jackson got **acquitted** of touching kid  
 the one **silver lining** just wait long enough he'll just **spill the beans** himself   
@@ -263,7 +264,7 @@ All I could do was to **stammer** something about being sorry for the misunderst
 **rule of thumb**  
  
 ## Week 2 
-Well not quite, there are **gazillions** of **clickbait** “ten tips for your CV /resume”, mine was an attack on the **arrant** **sloppiness** and **textual** incompetence of some of the most **rotten** CVs I've read  -   
+Well not quite, there are **gazillions** of **clickbait** “ten tips for your CV /resume”, mine was an attack on the **arrant sloppiness** and **textual** incompetence of some of the most **rotten** CVs I've read    
 Sometimes, just to **wind me up**, you send me a blue CV   
 **Not only** does the motivation for this leave me **dumbfounded** **but** when I **blogged** that this was silly several people somehow interpreted “please don’t send blue CVs” as “please do”.  
 However, spell and **identify sloppiness**, which is not ideal for someone **vying** to write the backup script for critical servers  
@@ -343,7 +344,7 @@ These paint finishes deliver a smooth, subtle look and show little to no **sheen
 
 ## Week 1 
 
-Squirrels are **capricious** little creatures. -  
+Squirrels are **capricious** little creatures.  
 And aside from **taunting** the neighborhood dogs and using your **gutters** as water slides, it appears they also **eavesdrop** on bird chatter to **gauge** their safety.  
 
 > Empty your mind, be formless. Shapeless, like water.  
@@ -353,7 +354,7 @@ And aside from **taunting** the neighborhood dogs and using your **gutters** as 
 But, that should not stop or even **hinder** you  
 Some of us just **wing it**, some of us set huge milestones or unattainable timelines that set us up for inevitable failure  
 **Deep down**, Kate knew that she had found her passion, and baking was something that gave her fulfillment  
-**mazel tov** -   
+**mazel tov**  
 I have **jam-packed** schedule.  
 
 They actually had a question on the application regarding the date of your last **menstrual period**

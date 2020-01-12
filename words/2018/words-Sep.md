@@ -195,7 +195,7 @@ Many companies are adopting DevOps as a mainstream strategical tool and therefor
 The thief **stole** into the house  
 she **stole** him him an umbrella.  
 Affect the **interlocutor**  
-**surrogate** mother  
+**surrogate** mother -  
 The cat acted as a **surrogate mum** to the chicks  
    
 OL The sandwich generation  

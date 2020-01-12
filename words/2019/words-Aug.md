@@ -1,5 +1,5 @@
 
-**Viagra**, **Sildenafil** -  
+**Viagra**, **Sildenafil**  
 Use **rewetting** drops even when your eyes don’t feel dry    
 While it’s tempting to wear your contacts from the time you open your eyes until you **conk out** at night  
 **botnet**  
@@ -16,7 +16,7 @@ He was a bit **scatterbrained**, but in that brilliant sort of way
 Don't be **square**  
 And when you're at a **dive bar**, you order something **obnoxiously** high end
 Individual bars may be considered to be **disreputable**, **sinister**, of **poor upkeep**, or even a detriment to the community.
-It's an **inquiry** that somehow manages to make you sound both silly and **pretentious**. -  
+It's an **inquiry** that somehow manages to make you sound both silly and **pretentious**.  
 
 We **equate** this course to a full life-coaching program, some of which run in the thousands of dollars  
 For anyone seeking to improve and transform any **facet** of their life for the better  
@@ -43,13 +43,13 @@ It's quite useful when I get **long-winded** questions
 We can do **small talk** later, dear.  
 
 Some **imprudent** ideas 
-A **polemicist**'s role is not sufficient for a leader. A leader must display strategic **acumen** that incorporate respect for those nations that have stood with us when trouble loomed. -  
+A **polemicist**'s role is not sufficient for a leader. A leader must display strategic **acumen** that incorporate respect for those nations that have stood with us when trouble loomed.  
 **half-measure** book  
 he has **upsides**, and **downsides**  
 Those numeric keys act kind of **joy stick** for controlling your mouse pointer.  
 
 **Chances are** you know someone who’s given the **keto** craze a try, or you've gone keto yourself  
-Keto as a trend **popped up** in the last year or so, a **reincarnation** of the low **carb** **Atkins diet** that became popular in the 1970s. 👀 -  
+Keto as a trend **popped up** in the last year or so, a **reincarnation** of the low **carb** **Atkins diet** that became popular in the 1970s. 👀  
 So the only way to increase your "brain power"... is to focus on **cultivating** your mind.  
 
 I'm suppose to do something but pretty **strapped** now.   
@@ -96,19 +96,19 @@ We see equivalent **impairments** in female reproductive health cause by lack of
 **circuits** of brain essentially become **waterlogged** as it was, and you can't absorb new memories  
 **all-night clinic**  
 sleep **deprivation** group  
-a full 8 hours of **slumber** -  
+a full 8 hours of **slumber**  
 **caffeine**  
 **hippocampus**: information inbox of your brain  
 aging and **dementia**  
 They're significantly **interrelated**  
-changes in the physical structure of the brain, that's **fiendishly** difficult to treat. -   
+changes in the physical structure of the brain, that's **fiendishly** difficult to treat.  
 can we **salvage** aspects of their learning and memory function?  
 That's one of our **moon-shot** goals, as it were.  
 what you wish for is a **virile** set of these immune **assassins** at all times. -   
-WHO has classified any form of **nighttime shift** work as a probable **carcinogen**. -  
+WHO has classified any form of **nighttime shift** work as a probable **carcinogen**.  
 **disquieting**  
-It's rather like a broken water pipe in your home, sleep loss will leak down into every **nook** and **cranny** of your physiology. -  
-The **decimation** of sleep throughout industrialized nations, having a **catastrophic** impact on our health, our wellness. -  
+It's rather like a broken water pipe in your home, sleep loss will leak down into every **nook** and **cranny** of your physiology.  
+The **decimation** of sleep throughout industrialized nations, having a **catastrophic** impact on our health, our wellness.  
 We can be **reunited** with the most powerful **elixir** of life  
 We can't **catch up on** sleep, sleep is not like a bank.  
 Our health **deteriorate** so quickly.  
@@ -118,7 +118,7 @@ Human beings are the only **species** that **deliberately** deprive themselves o
 **tossing and turning** in bed  
 This ted talk put me to sleep; not out of boredom—**out of fear**  
 
-He is massive popular in spite of his **reclusive** and more introverted nature -  
+He is massive popular in spite of his **reclusive** and more introverted nature  
 **low self-esteem**  
 **relay attack** ??   
 **punch line**  
@@ -162,7 +162,7 @@ Can I **bum** a smoke?
 That's a **stone-cold** lie  
 Those **pundits** and reporters that cover politics  
 
-it is a document defined by **audaciousness**, both in terms of the company’s vision and also the **flagrant** disregard for corporate governance norms by its leadership -  
+it is a document defined by **audaciousness**, both in terms of the company’s vision and also the **flagrant** disregard for corporate governance norms by its leadership  
 As he is still in **remission** 5 years later.  
 
 **downplayed** the bad news  
@@ -173,16 +173,16 @@ The type of the variable declared in the conforming class must be the same type 
 
 ## Week 2 
 
-Tesla is pitching customers on a new rental offering for solar power as a way to **revive** the **flagging fortunes** of its renewable energy business. -  
+Tesla is pitching customers on a new rental offering for solar power as a way to **revive** the **flagging fortunes** of its renewable energy business.  
 
 Week in Review: Snapchat **beats a dead horse**  
 There was never a **semblance** of democracy  
 Did they ever talk about universal **suffrage**?  
 This is **hypocrisy**.  
 
-this basically a big **cauldron** of boiling oil -  
+this basically a big **cauldron** of boiling oil  
 They're conquering and **pillaging**  
-I think **offal** is awful. -  
+I think **offal** is awful.  
 
 Taylor Swift **VMA** award moment ruined by kanye west
 **VMA**: MTV Video Music Award
@@ -191,27 +191,27 @@ Kanye West **snatched** her microphone and delivered the **quote** that would sh
 Beyonce in the audience, **gaped** in horror  
 He handed back to **dazed** Swift.  
 One of Swift's band members **leaped to her feet**, leading a **standing ovation** for her humiliated boss.  
-Over the next decade they both **transcended** music **stardom**, ascending to a **stratosphere** of **fame** where both became recognizable -   
+Over the next decade they both **transcended** music **stardom**, ascending to a **stratosphere** of **fame** where both became recognizable  
 in large part because their actions seemed to hit every **fault line** of culture — race, gender, mental health, **victimhood**, media and politics.  
 Yet in that particular moment, Toffler was truly **mortified**. -  
 He **snapped** into **crisis-management** mode...  
-Her **prizewinning** song that night and her biggest pop **crossover** **hit to date** -  
+Her **prizewinning** song that night and her biggest pop **crossover** **hit to date**  
 the **star-studded** crowd  
 Wale, the show's **emcee**, felt the need to address it from the stage, reportedly telling the audience, "You can't fault a man for speaking his mind", a sentiment that only drew more **boos**.  
 "Single Ladies" - her **megahit** song that West had rushed the stage to champion  
 Maybe she could help **redeem** Swift's ruined evening.  
-In the **waning minutes** of the **telecast**, Beyoncé **glided** to the stage to accept her trophy, **resplendent** in a red gown. - 
+In the **waning minutes** of the **telecast**, Beyoncé **glided** to the stage to accept her trophy, **resplendent** in a red gown.  
 **MTV**: Music Television  
 “It’s like u **stepped on** a kitten,” tweeted Katy Perry.  
 Even President Barack Obama **weighed in**, accidentally. “He’s a **jackass**,” Obama said in what he believed was **off-the-record** **banter** before a TV interview  
 did little to **stem** the outrage.  
 West’s interruption “completely **uncalled for**.  
 But there was an uncomfortable **undercurrent** to much of the reaction  
-Tracii McGregor says seemed to cast West as the angry black man going after the **demure** young white woman, a scenario presented with little nuance -  
+Tracii McGregor says seemed to cast West as the angry black man going after the **demure** young white woman, a scenario presented with little nuance  
 she sang, as the audience **tittered** **expectantly** -  
-As she sang in “You Belong With Me”: “She’s **cheer captain** and I’m on the **bleachers**.” -  
+As she sang in “You Belong With Me”: “She’s **cheer captain** and I’m on the **bleachers**.”  
 
-People who develop **Alzheimer**'s tend to sleep more during the day, taking naps or feeling **drowsy** and **dosing off** -  
+People who develop **Alzheimer**'s tend to sleep more during the day, taking naps or feeling **drowsy** and **dosing off**  
 
 **death squads**  
 So the US immediately began training up Cuba **exiles** to invade Cuba and **overthrow** Castro.  
@@ -224,8 +224,8 @@ The Cold war was now **taking its toll** on both superpowers.
 **detente**  
 **jaunty** theme music  
 US-Sponsored Islamic **insurgency**  
-In Hungary, the **barbed-wire** border between East and West was removed. -  
-The **Iron Curtain** was **unraveling**. -  
+In Hungary, the **barbed-wire** border between East and West was removed.  
+The **Iron Curtain** was **unraveling**.  
 **plain-clothed** secrete police officer  
 **Gorbachev** had to **give in**.  
 Communist **hardliners** were horrified at what Gorbachev was allowing.  
@@ -317,7 +317,7 @@ Conquer the elements on your bike, and the sense of empowerment—and **smugness
 Fortunately, these symptoms usually **subside** after a week or two of taking the probiotic.  
 May Contribute to **Small intestine** Bacterial **Overgrowth**   
 
-every **synagogue**, every **mosque** -  
+every **synagogue**, every **mosque**  
 mass shooting **epidemic**  
 
 **Otitis** Media -  
@@ -343,25 +343,25 @@ motorcycle is a **terminal illness**
 **do-it-all** bike  
 **cast-aside** **cult** favorite like the Honda Rebel 300   
 **off-road** adventure  
-they can handle lots and lots of different scenarios with **aplomb** -  
+they can handle lots and lots of different scenarios with **aplomb**  
 you'll notice how **sleek** and **aerodynamic** this bike looks  
 Due to the plastic **fairings** on the motorcycle  
 they have **razor sharp** braking and **handling** which doesn't really **bode** well for a beginner.  
 you can see it from the **get-go**  
 this put me in a aggressive **tuck down** position  
-You start to hit **potholes** and bumps, bruises, this gonna **transmit** all that back to the rider -  
+You start to hit **potholes** and bumps, bruises, this gonna **transmit** all that back to the rider  
 You **hit the nail on the head**  
 I'm on my **tippy toes** on this bike   
 
 **semi trailer**  
-The president followed that up by saying he could **ratchet** tariffs even higher—even above 25% -  
+The president followed that up by saying he could **ratchet** tariffs even higher—even above 25%  
 **scuba diving**  
 Ear **barotrauma** can sometimes lead to a ruptured eardrum, also called **tympanic membrane** **perforation** -  
 This allows air to enter or leave the **middle ear** to **equalize** the pressure  
 Taking an over-the-counter (**OTC**) **nasal** **decongestant**, antihistamine, or both  
 Feeding (either at the breast or with a bottle) or providing a **pacifier** can help the baby suck and swallow in order to clear their ears  
 
-**plier** -  
+**plier**  
 Google Maps: **Reigning** Supreme Since 2012  
 
 **Alcatraz**  

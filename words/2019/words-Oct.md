@@ -5,7 +5,7 @@ when leaned over, contact patch is **cone** shaped, which causes the wheel to tr
 **No Frills**, Delicious Vietnamese Eats  
 
 **ambient**  
-**filet mignon** -  
+**filet mignon**  
 Mash it together and kinda get it **evenly** **incorporated** until it becomes to a **paste**   
 Get your **whisk** ready  
 You want to make sure there is no **lumps**  
@@ -27,7 +27,7 @@ If we're lucky it'll completely **fall apart** you'll see me **wing it**
 **Off the top of my head**, I don't know  
 20 years project with 20 millions of code, it starts to **chug**  
 It just means **drill down** into all possible folders  
-Chances are Ctags might a little bit **ornery** depending on how your system is set up -  
+Chances are Ctags might a little bit **ornery** depending on how your system is set up  
 Sometime in the **distant past** I ...  
 Just **hammer on** Ctrl T until you get back to where you started  
 
@@ -144,7 +144,7 @@ Your body has a careful, yet **robust** group of energy systems **in place** tha
 Eat enough protein to make sure that if your body requires **amino acids** it doesn't **catabolize** your own muscles  
 They'll **bulk up** for the **off season**, then cut down for contests mostly by cutting out **carbohydrates** and **living off a deficit**  
 Every time you eat you contribute to your **adipose** stores, but over time you can shrink them by eating at a deficit and getting enough protein to fuel your muscles  
-**adipose tissue** aka fat mass -  
+**adipose tissue** aka fat mass  
 
 Seems a little bit **gimmicky**
 **swat** a fly  
@@ -196,8 +196,8 @@ who is an **avid** Trump supporter, a trucker
 **sex drive**  
 
 
-Your own **cursory** inspection of the motorcycle -  
-There can be **telltale signs** all over a bike that it's been **down** before -  
+Your own **cursory** inspection of the motorcycle  
+There can be **telltale signs** all over a bike that it's been **down** before  
 if they are **forthright** about the fact that bike has been down  
 **odds are pretty good** ... 
 **chatty cathy**  
@@ -276,7 +276,7 @@ they are just extra long hairs, **decoys** to make her look even more **spiky**
 when threatened, it **bristles**  
 **back off**  
 **back down**
-They're super sharp, sharper then the **hypodermic needle**. -  
+They're super sharp, sharper then the **hypodermic needle**.  
 when you try to remove it, the barbs **fan out**, keeping the **quill** **lodged in**.
 Porcupines are actually pretty **clumsy**, they've been known to accidentally quill themselves
 
@@ -296,12 +296,12 @@ If you must brake and **swerve** to avoid danger
 He introduced a system of **pervasive** and insidious control  
 they were **pandering** to China   
 
-The dogs started **fawning** on me.  
+The dogs started **fawning** on me. -   
 The family have won a temporary **reprieve** from **eviction**  
 What a **fidget** you are! 
 What's **fidgeting** you?  
 **Letter of intent**  
-The rooms were decorated in **delicate** **pastel shades**. -  
+The rooms were decorated in **delicate** **pastel shades**.  
 There are **permanent exhibits** and **special exhibits**  
 She has full of **feminine** **delicacy**  
 Many old **ballads** are **sung** to new words  
@@ -335,7 +335,7 @@ How Xiaomi **broke out of** China to go global
 I’m always glad to **stumble upon** total strangers that tells me they've used one of my projects  
 So I've decided to create with my friends an app that **dictate** the address of a venue  
 
-But after a few weeks, or even a month, for some reason you start running **out of steam** -  
+But after a few weeks, or even a month, for some reason you start running **out of steam**  
 So I would **scribble** notes **furiously**, make plans, and dive into a **flurry** of action  
 
 **razor blade**  

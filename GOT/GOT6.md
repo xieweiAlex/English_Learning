@@ -1,3 +1,5 @@
+
+
 ## E10 
 I perjured myself before the gods, I'm guilty of depravity, dishonesty, profligacy and arrogance.  
 Will you fight or defend your faith against heretics and apostates?  
@@ -50,7 +52,7 @@ My father was a **cobbler**
 **graveyard**  
 We passed around the wine, passed around the women, and soon we fell into a **stupor**  
 My **ceaseless** struggle to maintain my position  
-I'm advising the king on our current **predicament**. -  
+I'm advising the king on our current **predicament**.  
 We have to be very careful not to **antagonize** him  
 And of course, Margaery's safety is **paramount**  
 We'd **bicker** amongst ourselves instead of seizing it back  

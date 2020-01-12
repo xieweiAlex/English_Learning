@@ -13,7 +13,7 @@ This place is **on-par** with Vegas nightclubs but with a techie crowd
 
 **Cut somebody off** 
 
-Asking these kind of **asinine** insane questions -  
+Asking these kind of **asinine** insane questions  
 **knife fight**  
 the mainstream media guys are **raking in the dough**  
 
@@ -24,9 +24,9 @@ look past the **apex** of the corner where I want to end up
 that's what you want to avoid **at all cost**  
 make sure your bike is in **tip-top** shape 
 
-**patio** and pool -  
+**patio** and pool  
 
-The app was Apple’s most popular paid app of 2017 and reportedly **boasts over** one million paying subscribers to date. -  
+The app was Apple’s most popular paid app of 2017 and reportedly **boasts over** one million paying subscribers to date.  
 
 
 I've got a plan to **reinvigorate** collective bargaining so we can increase wages finally.  
@@ -56,8 +56,8 @@ The California Service Center will **adjudicate** this case within 15 calendar d
 My parents are tiger parents who won't let me to go **sleepovers**.  
 It was difficult to **reconcile** my so-called exotic Chinese heritage.  
 
-They skip the needless **banter** and go straight for the "Where is your family from?" -  
-We're similar enough to be accepted, but we're different enough to be **loathed**. -   
+They skip the needless **banter** and go straight for the "Where is your family from?"  
+We're similar enough to be accepted, but we're different enough to be **loathed**.  
 I'm a **horrendous** driver.  
 I then moved to an international school because my English was starting to **die out**
 
@@ -74,7 +74,7 @@ It's ton of work to get to the **bulk** of revenue
 
 **priced out** 
 **oasis** farming  
-**oasis** grill -  
+**oasis** grill  
 
 Proficient enough to know the **intricacies** so I can really pass on the **tips and tricks** on how you can do this.  
 once you get into the **grind**, you're just **grinding**.  
@@ -100,23 +100,23 @@ he committed a **burglary** while **on parole**.
 You got **ripped off**, my brother.  
 It's **disproportionate** people are always stabbing people  
 doctors in China went on **strike** and had a big meeting  
-you get **disgruntled** patients who had **botched** operations -  
+you get **disgruntled** patients who had **botched** operations  
 This appears to be a **copycat** of the **hit-and-run** killing  
-the traffic is so **hectic** and crazy -  
+the traffic is so **hectic** and crazy  
 **pound for pound**, China is more dangerous than America  
 this is not to **discredit** China  
 tell us your **perception** of safety in America or wherever you live is **overblown** or under-reported  
 
-We keep hearing the media **regurgitate** talking points about how the economy is doing so well -  
-I see a **precarious** economy that is built on debt -  
+We keep hearing the media **regurgitate** talking points about how the economy is doing so well  
+I see a **precarious** economy that is built on debt  
 A lot of Democratic senators **aid and abet** this  
 
 This kind of test can be a **ticking** **time bomb**  
 Protocols are incredibly useful and **versatile** in Swift  
-reduces at least 90% of **ambient** noise -  
+reduces at least 90% of **ambient** noise  
 
 The inconsistency you created is going to create **churn**   
-those keyboards are so **mushy** -  
+those keyboards are so **mushy**  
 A **deadpan**  
 
 Even when interests and **aspirations** **vary** significantly from person to person  
@@ -129,25 +129,25 @@ Promotions are a powerful tool for defining organizational culture and values be
 
 
 The way you analyze that I'm not saying is **out of ballpark**, I'm not supportive of that 
-now people are **badgering** him with questions he's already answered -  
+now people are **badgering** him with questions he's already answered  
 where is the **clitoris**? 
 **ken doll**  
 compare that **tirade**, to the straightforward questions  
 Democrats kept reading **excerpts** of the report to Muller  
 **went off** on an unhinged rant  
 very **curt** response from Muller  
-I don't want to **jinx** it. -  
-I know you're watching, I made this **collage** for you. -  
+I don't want to **jinx** it.  
+I know you're watching, I made this **collage** for you.  
 I'm super **psyched** about the program  
 
-Have a **jubilant** July!  -  
+Have a **jubilant** July!  
 Show affection in public is pretty **inconsiderate**   
 If brute force doesn't work, give your self some extra **traction** by wrapping the lid in **dish rag**, or better yet, a rubber glove  
 Give the lid a few quick taps on the side with a spoon in order to **dislodge** any food  
 
 
 Thank you for getting back to me and for evaluating our solutions, I will stop **pestering** you  
-I let her steal into my **melancholy** heart -   
+I let her steal into my **melancholy** heart  
 
 you can not remove a cat's **claws**  
 **declawing** was a little weird  
@@ -212,7 +212,7 @@ it can easily **go off the rails**
 That makes him **double over** with laughter 
 when asked whether he was **relishing** his confrontation with the congresswomen -  
 
-The use of an **armrest**, as in a traditional chair, takes some strain off your neck and shoulders and makes you less likely to **slouch** -  
+The use of an **armrest**, as in a traditional chair, takes some strain off your neck and shoulders and makes you less likely to **slouch**  
 When you look at your computer, your **gaze** should be aimed at the middle of your screen  
 **Home Remedies** for Neck & Shoulder Pain
 **Immobilizing** the neck for long periods of time will make painful muscular conditions worse  

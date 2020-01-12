@@ -56,7 +56,7 @@ but in SMILE it is much longer because far more **corneal** tissue is modified b
 The SMILE procedure is quiet and **odourless**  
 From the surgery itself through the **postop** period, small-**incision** **lenticule** **extraction** has many things to recommend it  
 
-If you're underweight, you want to gain a balanced amount of **muscle mass** and **subcutaneous fat** rather than a lot of unhealthy **belly fat**. -  
+If you're underweight, you want to gain a balanced amount of **muscle mass** and **subcutaneous fat** rather than a lot of unhealthy **belly fat**.  
 ICE departs California gang member **convicted** of **manslaughter** on same day he's released from prison   
 
 We think of medical data as our last **sacrosanct** pieces of personal information  
@@ -65,7 +65,7 @@ Two days after its big (and slightly **botched**) **unveiling**, the Cybertruck 
 What's the **split-second decision** you made that changed your life?  
 **neat freak**  
 
-Arrive at work feeling **frazzled** and **scattered** -  
+Arrive at work feeling **frazzled** and **scattered**  
 Apple's organizational **crossroad**  
 **cylinder gasket**  
 
@@ -103,7 +103,7 @@ The oil filter will help keep your oil clean. It **traps** dirt, **debris**, **m
 But the **clamshell** design requires double the surface space to spread it open  
 you tend to **overpack**, a hard-sided piece will **rein you in**; there’s no chance of **overstuffing** it.  
 you’re guaranteed a no-**bulge** fit in your airline’s luggage sizer  
-Of course, it **scuffs** and scratches easily, too -  
+Of course, it **scuffs** and scratches easily, too  
 You’ll need a fixed storage space, which can be a challenge for apartment and small-house **dwellers**  
 
 
@@ -138,7 +138,7 @@ She had only **sarcastic** response
 Some of the things were clear **blind spots** in hindsight  
 The **human capital** will pay much larger **dividends** over your lifetime  
 
-**pomegranate** -  
+**pomegranate**  
 Tech giants Google, Microsoft and Facebook are all applying the lessons of machine learning to translation, but a small company called DeepL has **outdone** them all and raised the bar for the field.  
 
 
@@ -243,7 +243,7 @@ shift **lever**
 **sequential** gearbox  
 **labor-intensive** and difficult morning riding  
 more experienced rider who is looking for a **zany** new motorcycle  
-after a long hard **arduous** day of testing brand new motorcycles -  
+after a long hard **arduous** day of testing brand new motorcycles  
 **turn your stomach**  
 **constant-mesh gearbox**:  
 

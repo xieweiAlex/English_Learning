@@ -154,10 +154,10 @@ Only **whipped** dog would say this way.
 It's **fallen out of fashion**, **flaying**.  
 Master of coin, always been a **grubby** job. Why don't let a **grubby** man do it.    
 When I heard you were **lurking** here, **fawning** over the Lady Arryn 
-Lady Arryn's **predilection** were her own **affair**. -   
+Lady Arryn's **predilection** were her own **affair**.  
 She suicide, **shattered** we all.  
 She was an **odd fish**.  
-She was always **prone** to **melancholy**. -  
+She was always **prone** to **melancholy**.  
 We prefer to hear her testimony **unadulterated**.  
 I've been a hostage in King's Landing, a **plaything** for Joffrey to torture, or Queen Cersei to **torment**.  
 **Smuggled** me away when he had the chance.  

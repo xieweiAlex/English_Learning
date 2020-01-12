@@ -11,6 +11,9 @@ function getNewWords {
     "GOT/GOT4.md"
     "GOT/GOT5.md"
     "GOT/GOT6.md"
+    "GOT/GOT7.md"
+    "GOT/GOT8.md"
+    "words/2020/words-Jan.md"
     "words/2019/words-Dec.md"
     "words/2019/words-Nov.md"
     "words/2019/words-Oct.md"
@@ -54,7 +57,7 @@ function pushBack {
     trimmedStr=$(echo "$line" | sed 's/ *$//g')
 
     # if trimmed_str contains "**{char}**" && not end in -  
-    if [[ $trimmedStr =~ \*\*[a-zA-Z]*\*\*  ]] && ! [[ $trimmedStr =~ -$ ]]; 
+    if [[ $trimmedStr =~ \*\*.+\*\*  ]] && ! [[ $trimmedStr =~ -$ ]]; 
     then 
       echo -e "Update sentence: ${GREEN} $trimmedStr ${NC}" 
       # escape from "*" to "\*" to help sed search/replace  

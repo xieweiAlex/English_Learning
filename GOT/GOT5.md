@@ -191,7 +191,7 @@ I want **absolution**.
 The **crone** came to me with her lamp raised high.  
 After your **atonement**.  
 **fornication**  
-To demonstrate her **repentance**, she will cast aside all pride, all **artifice** -  
+To demonstrate her **repentance**, she will cast aside all pride, all **artifice**  
 She comes before you with a **solemn** heart, **shorn** of secrets.  
 
 > He is a hero, and hero is inherently not cautiously.  
