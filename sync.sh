@@ -8,11 +8,11 @@ function getNewWords {
 
   echo "Hello World!  " > "$WORDS_REVIEW"
   files=(
-    "GOT/GOT4.md"
-    "GOT/GOT5.md"
-    "GOT/GOT6.md"
-    "GOT/GOT7.md"
     "GOT/GOT8.md"
+    "GOT/GOT7.md"
+    "GOT/GOT6.md"
+    "GOT/GOT5.md"
+    "GOT/GOT4.md"
     "words/2020/words-Jan.md"
     "words/2019/words-Dec.md"
     "words/2019/words-Nov.md"
@@ -20,20 +20,30 @@ function getNewWords {
     "words/2019/words-Sep.md"
     "words/2019/words-Aug.md"
     "words/2019/words-July.md"
+    "words/2019/words-June.md"
+    "words/2019/words-May.md"
   )
 
   for file_path in "${files[@]}"
   do 
     echo -e "Checking file: ${YELLOW} $file_path ${NC}"
     file_name=$(basename "$file_path")
-    echo "" >> "$WORDS_REVIEW"
-    echo "## ----------- ${file_name} -----------  " >> "$WORDS_REVIEW"
-    ag "$PATTERN" -G "$file_path" --group --nonumbers >> "$WORDS_REVIEW" 
+    file_content=$(ag "$PATTERN" -G "$file_path" --group --nonumbers | sed '/^[[:space:]]*$/d') 
+    if [ -n "$file_content" ]; then 
+
+      # firstLine=$(echo "$file_content" | head -1 ) 
+      # sed -i '' "1s/.*/##Test" "$file_content"
+
+      echo "" >> "$WORDS_REVIEW"
+      echo "## ----------- ${file_name} -----------  " >> "$WORDS_REVIEW"
+
+      echo "$file_content" >> "$WORDS_REVIEW"
+    fi
 
   done 
 
   # Delete lines (120,$) let's keep the review short & lean  
-  sed -i '' '121, 500d' "$WORDS_REVIEW"
+  sed -i '' '111, 500d' "$WORDS_REVIEW"
 
 }
 
