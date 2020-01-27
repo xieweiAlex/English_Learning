@@ -296,7 +296,7 @@ If you must brake and **swerve** to avoid danger
 He introduced a system of **pervasive** and insidious control  
 they were **pandering** to China   
 
-The dogs started **fawning** on me. -   
+The dogs started **fawning** on me.  
 The family have won a temporary **reprieve** from **eviction**  
 What a **fidget** you are! 
 What's **fidgeting** you?  

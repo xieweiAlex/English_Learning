@@ -21,10 +21,10 @@ Saltwater **gargles** also have a healing benefit and feel soothing for a tootha
 **Swill** the **brine mixture** around your mouth for 60 seconds, paying particular attention to the area of your mouth that’s causing you trouble  
 
 
-**scrumptious** lunch -   
+**scrumptious** lunch  
 You're **scrumptious**  
 
-You will have chunks of time to work. But you can’t let work **spill** **promiscuously** through your whole life, like I used to before I had kids -  
+You will have chunks of time to work. But you can’t let work **spill** **promiscuously** through your whole life, like I used to before I had kids  
 > And attention is a zero-sum game.  
 
 For **strains** and **sprains**, some doctors and pharmacists recommend waiting 48 hours before taking **ibuprofen** as it may slow down healing  
@@ -33,7 +33,7 @@ In fact, the wisdom teeth are the most common **congenitally** missing teeth, Dr
 **gum tissue**  
 If your wisdom teeth are **impacted**, thereby preventing **adequate** oral hygiene, it’s often best to have them removed  
 
-The driven person tends to be more interested in **esoteric** goals that “mean” things to them -  
+The driven person tends to be more interested in **esoteric** goals that “mean” things to them  
 American's **love affair** with driving is cooling.  
 
 Buckle up for America’s ugly election and **faltering** economy  
@@ -237,7 +237,7 @@ It feels like I **bailed out** a friend who’s run out of money again
 You just have to be brave enough to be on that **bleeding edge**  
 find a quiet spot to **devour** its dinner  
 
-**Stumbled into** reading about **hermit crabs** and wut -   
+**Stumbled into** reading about **hermit crabs** and wut  
 GERMANY’S BATTERED **coalition** is on **shakier ground** than ever after members of the Social Democratic Party (SPD)  
 It would also avoid political turmoil before Germany takes over the rotating six-month presidency of the EU Council next July, the last **set-piece** of Mrs Merkel’s time as **chancellor**.  
 Like many leftist parties the SPD has regularly had to balance internal tensions between **idealists** and **realists**.  

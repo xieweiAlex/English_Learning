@@ -62,7 +62,7 @@ I'm a **horrendous** driver.
 I then moved to an international school because my English was starting to **die out**
 
 **Swarms** of **grasshoppers** are invading southern Nevada.  
-The flying creatures are no sign of the **apocalypse**. -   
+The flying creatures are no sign of the **apocalypse**.  
 
 Late 2008 saw widespread expectations that tech was about to **crater** along with all other sectors. This was the **era** of Sequoia Capital’s infamous “R.I.P. Good Times” deck. They could hardly have been more wrong.  
 Apple’s went negative for one **lonesome** quarter, but otherwise stayed north of 20%.  
@@ -80,7 +80,7 @@ Proficient enough to know the **intricacies** so I can really pass on the **tips
 once you get into the **grind**, you're just **grinding**.  
 It's really a good way to **wear down** your car.  
 You can **extract** the value as you can before you return the car.  
-There is a **porta potti** I can use -  
+There is a **porta potti** I can use  
 
 Their competitors' **staffers** for close to free  
 I made a mistake. I got upset, and I acted **impulsively**  
@@ -191,7 +191,7 @@ Christmas **carol**
 a **rabid** football fan  
 **bronchial pneumonia** -  
 an **albino** tiger  
-The **corridor** opens into Mr. Brown's office -  
+The **corridor** opens into Mr. Brown's office  
 **Banqueting** hall 
 he **countered** with a left **hook**.  
 **Over-the-counter** drugs  
@@ -244,7 +244,7 @@ as long as you're not trying to do **dodgy things** you can avoid the **scam** t
 
 
 It's **quid pro quo**  
-We don't have economic **embargoes** or sanctions on Syria -  
+We don't have economic **embargoes** or sanctions on Syria  
 The Iranian politician have been calling for **reprisal** -  
 they don't need a foreign power marching in with **ulterior** motives overturn the govt   
 so it wouldn't make any sense **whatsoever** for Iran to pick a fight and try to escalate into a war   
@@ -324,7 +324,7 @@ I'll probably mostly **lurk**, but I'm sure I'll enjoy
 
 by saying they came from “countries whose governments are a complete and total **catastrophe**”  
 You apparently can’t be a **self-professed** Nazi, but Twitter has said it’s talking with experts to figure out its more general rules around white supremacy -   
-Sometimes the Apple online store **goes down** due to an **imminent** product refresh -  
+Sometimes the Apple online store **goes down** due to an **imminent** product refresh  
 it is possible that the phone’s battery had already **swollen** due to use over the years which ultimately **led** to the fire  
 
 While there’s nothing **inherently** wrong with the use of string literals, there’s room for improvement  
@@ -349,7 +349,7 @@ I was once accused in the **aftermath**
 As a woman of color, she always is going to **tiptoe**  
 
 Uh, excuse me. I have to **tinkle**.  
-I **saute** spinach and opinions in white wine -   
+I **saute** spinach and opinions in white wine  
 a **flirtatious** glance  
 **fraternity**, **frat party**  
 **Streetwalker**
@@ -379,7 +379,7 @@ IT teams are always **on the lookout** for new **ransomware** and exploit spread
 Wayfair **Walkout** is Not Only Absurd, but Immoral
 I want them to remain in **snotty** conditions. -  
 that's you can have **one-up** on Republicans? that's not OK.   
-the **profiteers** can be **held accountable** and brought to justice -  
+the **profiteers** can be **held accountable** and brought to justice  
 The Wayfair **rationale** is **inarguable**. If the **govt** takes steps to provide more humane conditions, it (the sale) deserves support
 
 Big and **deep-pocketed** business interests have exploited the H-1B visa program  
@@ -414,7 +414,7 @@ Your absence in the office means that you can’t quickly ask your deskmate how 
 
 **assistive** technology  
 
-There was never an **armistice** so technically nobody won the Chinese Civil war, because it didn't end. -   
+There was never an **armistice** so technically nobody won the Chinese Civil war, because it didn't end.  
 The Korean war ended in a **stalemate** after 3 years  
 
 He is a giant **pedophile** -  
@@ -452,7 +452,7 @@ The group-chat app can make users feel **tethered** to their devices, often at t
 
 **trilingual**  
 
-Such repositories are **curated**, and have submission guidelines for naming conventions and required components -  
+Such repositories are **curated**, and have submission guidelines for naming conventions and required components  
 > eat your own dog food  
 
 

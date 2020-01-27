@@ -21,7 +21,7 @@ It's an **inquiry** that somehow manages to make you sound both silly and **pret
 We **equate** this course to a full life-coaching program, some of which run in the thousands of dollars  
 For anyone seeking to improve and transform any **facet** of their life for the better  
 
-**promiscuous** sexual relations -  
+**promiscuous** sexual relations  
 Points are subset to **forfeiture**  
 Machine learning often feels like an **impenetrable field** that belongs to a select few with years of research experience  
 They don’t need people who know why **manhole covers** are round, nor even why they are called manholes  
@@ -208,7 +208,7 @@ did little to **stem** the outrage.
 West’s interruption “completely **uncalled for**.  
 But there was an uncomfortable **undercurrent** to much of the reaction  
 Tracii McGregor says seemed to cast West as the angry black man going after the **demure** young white woman, a scenario presented with little nuance  
-she sang, as the audience **tittered** **expectantly** -  
+she sang, as the audience **tittered** **expectantly**  
 As she sang in “You Belong With Me”: “She’s **cheer captain** and I’m on the **bleachers**.”  
 
 People who develop **Alzheimer**'s tend to sleep more during the day, taking naps or feeling **drowsy** and **dosing off**  
@@ -257,7 +257,7 @@ He tried typing in his license plate but the DMV website wouldn't accept it. The
 Britain is **lukewarm** about the proposal
 **french press**  
 TechLead is a true ex-googler proceeds to **bombard** with info ads  
-Java, for all you **Masochists** -  
+Java, for all you **Masochists**  
 Only a **masochist** could ever love such a **narcissist**  
 
 
@@ -331,7 +331,7 @@ YAML is an extremely **finicky** and fragile language.
 
 I'm way too **frugal** to attract those people  
 
-**Misogyny** can be a **precursor** to other forms of extremism -  
+**Misogyny** can be a **precursor** to other forms of extremism  
 Either explicitly expressed **hatred** for women or embraced forms of extremism connected to a **disdain** for them.  
 It's frequently a **gateway**.  
 **hit list**  

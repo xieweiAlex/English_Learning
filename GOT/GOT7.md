@@ -4,15 +4,15 @@ Bug they didn't, did they? So what you **whinging** about?
 
 
 ## E5 
-Maybe we can count on Tyrion to **intercede** on our behalf.  
+Maybe we can count on Tyrion to **intercede** on our behalf. -  
 You saw the **crossbow**, you saw his body.  
 Ser Davos gets **carried away**  
 Perhaps you need more **scribing** work to discipline your mind.  
 I sense a more detailed proposal is **forthcoming**?  
 I was just a **purveyor** of information -  
 Made up by **wet nurses** to frighten children.  
-Abandoned the family home, completely **unsentimental**.  
-To discuss an **armistice**. -  
+Abandoned the family home, completely **unsentimental**. -  
+To discuss an **armistice**.  
 Nobody **glowers** quite like you.  
 
 
@@ -21,14 +21,14 @@ The **spoils of war**
 The playing field is nearly as **lopsided** as it was when we ended episode one.  
 Think about the **upkeep**, the more you own, the more it **weighs you down**.  
 Is that why you're so fucking **glum**, ah?  
-The **granaries** are being emptied and loaded into wagons, my lord. -  
+The **granaries** are being emptied and loaded into wagons, my lord.  
 I'm **merely** an **instrument** of the institution I represent of the institution I represent.   
 Its **well-being** a matter of **arithmetic**, not **sentiment**.  
 We must **device** a way to raise their **spirits**  
 My hand, Qyburn, has made **overtures** to the Golden Company in Essos.  
 You tell us, you're the one **impersonating** her sister.  
 Why would a **cutthroat** have a valyrian steel dagger?  
-**Flogging** **stragglers** has a **marked effect** on mobility. -  
+**Flogging** **stragglers** has a **marked effect** on mobility.  
 **loot** train battle  
 
 
@@ -45,13 +45,13 @@ You father never **minced** words either.
 Euron Greyjoy's **armada** wons the Narrow Sea  
 Her dragon may not as **invulnerable** as someone think  
 You look a lot better **brooding** than I do.  
-It's really hard for me to **fathom**, it really is -  
+It's really hard for me to **fathom**, it really is  
 It's **dreary** in the North  
 The underlying region treated with some sort of **unguent** -    
 Who **forbad** you, or anyone, to attempt to treat him?  
 Casterly Rock is an **impregnable** fortress. 
 Give me 10 good men, and I'll **impregnate** the bitch  
-Widow's **wail** -   
+Widow's **wail**  
 
 
 
