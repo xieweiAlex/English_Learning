@@ -4,14 +4,14 @@ Bug they didn't, did they? So what you **whinging** about?
 
 
 ## E5 
-Maybe we can count on Tyrion to **intercede** on our behalf. -  
+Maybe we can count on Tyrion to **intercede** on our behalf.  
 You saw the **crossbow**, you saw his body.  
 Ser Davos gets **carried away**  
 Perhaps you need more **scribing** work to discipline your mind.  
 I sense a more detailed proposal is **forthcoming**?  
 I was just a **purveyor** of information -  
 Made up by **wet nurses** to frighten children.  
-Abandoned the family home, completely **unsentimental**. -  
+Abandoned the family home, completely **unsentimental**.  
 To discuss an **armistice**.  
 Nobody **glowers** quite like you.  
 

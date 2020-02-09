@@ -193,7 +193,7 @@ He handed back to **dazed** Swift.
 One of Swift's band members **leaped to her feet**, leading a **standing ovation** for her humiliated boss.  
 Over the next decade they both **transcended** music **stardom**, ascending to a **stratosphere** of **fame** where both became recognizable  
 in large part because their actions seemed to hit every **fault line** of culture — race, gender, mental health, **victimhood**, media and politics.  
-Yet in that particular moment, Toffler was truly **mortified**. -  
+Yet in that particular moment, Toffler was truly **mortified**.  
 He **snapped** into **crisis-management** mode...  
 Her **prizewinning** song that night and her biggest pop **crossover** **hit to date**  
 the **star-studded** crowd  
@@ -320,10 +320,10 @@ May Contribute to **Small intestine** Bacterial **Overgrowth**
 every **synagogue**, every **mosque**  
 mass shooting **epidemic**  
 
-**Otitis** Media -  
+**Otitis** Media  
 **otolaryngologist**  
-**obstetrician** -  
-**eustachian tube** -  
+**obstetrician**  
+**eustachian tube**  
 
 YAML is an extremely **finicky** and fragile language.   
 

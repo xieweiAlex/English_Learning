@@ -210,7 +210,7 @@ You're doing a great job of playing **devil's advocate** in the conversation, yo
 it can easily **go off the rails**  
 
 That makes him **double over** with laughter 
-when asked whether he was **relishing** his confrontation with the congresswomen -  
+when asked whether he was **relishing** his confrontation with the congresswomen  
 
 The use of an **armrest**, as in a traditional chair, takes some strain off your neck and shoulders and makes you less likely to **slouch**  
 When you look at your computer, your **gaze** should be aimed at the middle of your screen  
@@ -231,9 +231,9 @@ Japan is everything **written on the box**
 let's **get down to brass tacks** here things like cost of living  
 Here in China is bit of a **mix and match**  
 **lactose intolerant**  
-There is security **up the wazoo** here.  -  
+There is security **up the wazoo** here.  
 I took a look at the Chinese restaurant there and they were not **up to scratch**  
-in order to support this culture you've got something called **izakaya** -  
+in order to support this culture you've got something called **izakaya**  
 it's kind of like after-work **pub**  
 it was really a **blast** and lot of fun  
 It's a big **turn-off** for any **expat** living here  
@@ -245,13 +245,13 @@ as long as you're not trying to do **dodgy things** you can avoid the **scam** t
 
 It's **quid pro quo**  
 We don't have economic **embargoes** or sanctions on Syria  
-The Iranian politician have been calling for **reprisal** -  
+The Iranian politician have been calling for **reprisal**  
 they don't need a foreign power marching in with **ulterior** motives overturn the govt   
 so it wouldn't make any sense **whatsoever** for Iran to pick a fight and try to escalate into a war   
-however, Israel want to **topple** Iran -  
+however, Israel want to **topple** Iran  
 they don't want to be **imperialize** by the west  
 
-vicious, anti-Semitic **screeds**. -  
+vicious, anti-Semitic **screeds**.  
 pretty much everyone watched this thing was **sickened** by what they saw.  
 You're married to who is a **naturalized** US citizen  
 **quite a scene**  
@@ -270,7 +270,7 @@ The result was a massive **dip** in Internet Explorer 6 traffic to YouTube
 Where you roam in the office. What’s on your computer screen employers are parsing those interactions to learn who is **influential**, which teams are most productive and who is a **flight risk**  
 employee **turnover**  
 
-Quite often people publish **monstrous** single .vimrc files that try to control every aspect of the editor -  
+Quite often people publish **monstrous** single .vimrc files that try to control every aspect of the editor  
 In reality Vim has a **tidy** structure, where .vimrc is just one of several inputs  
 
 **buckle up**  
@@ -291,7 +291,7 @@ You look like a **hedgehog**, why don't you put some **gel** in your hair.
 
 
 **storm Area** 51 
-They're not **espousing** the views of our country -  
+They're not **espousing** the views of our country  
 
 **blank check**  
 **appropriated** money 
@@ -323,7 +323,7 @@ But New Yorkers handled the inconvenience **in stride**, from helping to direct 
 I'll probably mostly **lurk**, but I'm sure I'll enjoy  
 
 by saying they came from “countries whose governments are a complete and total **catastrophe**”  
-You apparently can’t be a **self-professed** Nazi, but Twitter has said it’s talking with experts to figure out its more general rules around white supremacy -   
+You apparently can’t be a **self-professed** Nazi, but Twitter has said it’s talking with experts to figure out its more general rules around white supremacy  
 Sometimes the Apple online store **goes down** due to an **imminent** product refresh  
 it is possible that the phone’s battery had already **swollen** due to use over the years which ultimately **led** to the fire  
 
@@ -363,7 +363,7 @@ lots of **dust bunnies**
 **pound on** the product  
 In order to become a really **well-rounded** software engineer, it's not just about technical skills.  
 
-But grocery stores have **remained** largely **impervious** to the digital revolution -  
+But grocery stores have **remained** largely **impervious** to the digital revolution  
 **intimate**, **intimidate**  
 **well curated**.  
 Don't **fret** the annual membership fee: you get a store credit for the **remainder** if you don't save $60 by the end of the year. -  
@@ -393,13 +393,13 @@ Go with your **gut**.
 He is just acting a little **standoffish**?  
 
 Have your view controllers become the **dumps** of your projects?  
-A **litmus test** for whether an app has all config correctly factored out of the code is whether the codebase could be made open source at any moment, without compromising any credentials -  
+A **litmus test** for whether an app has all config correctly factored out of the code is whether the codebase could be made open source at any moment, without compromising any credentials  
 office **renovation** 
 
 This is the **status quo**  
 What they're **codifying** is a right to the self  
 **private property**  
-Unless they came in and **ransacked** your journals, these things belong to you -   
+Unless they came in and **ransacked** your journals, these things belong to you  
 
 I would tell My LA friends, "It's **Mecca**".  
 On a **curated** talent platform like Toptal because that way you will have a much deeper talent pool to choose from.  
@@ -417,8 +417,8 @@ Your absence in the office means that you can’t quickly ask your deskmate how 
 There was never an **armistice** so technically nobody won the Chinese Civil war, because it didn't end.  
 The Korean war ended in a **stalemate** after 3 years  
 
-He is a giant **pedophile** -  
-Trump administration is **hell-bent** on adding the citizen question to the census -  
+He is a giant **pedophile**  
+Trump administration is **hell-bent** on adding the citizen question to the census  
 is it **gerrymandering** 
 **end game** 
 why we have to just go **full-blown** into Medicare for all, **rip off** the **band-aid** and got for it.  
@@ -547,7 +547,7 @@ having no **downtime**
 For **posterity**’s sake -  
 Every measure of a good developer is **qualitative**. That makes them all subjective -  
 
-Baidu has weathered a **plethora** of troubles. -  
+Baidu has weathered a **plethora** of troubles.  
 
 Candidate Source **Breakdown**  
 You got a **glimpse** of how your life on the job would look like  
@@ -612,7 +612,7 @@ it was **edgy** as fuck
 
 
 
-A **slick** of lip **balm**. -  
+A **slick** of lip **balm**.  
 **slick** seals and otters  
 an **egregious** mistake  
 A **lapse** of the tongue  

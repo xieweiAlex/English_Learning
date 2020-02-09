@@ -397,7 +397,7 @@ their graduates would often need a lot of **grooming** before they could really 
 Inventing new algorithms with **theoretical significance** is not your job  
 You were too **obtuse** to take the hint  
 As a self-taught programmer who doesn't have a CS degree, my experience has been that this is not a significant **hurdle** to any workplace that I would seriously consider applying  
-(the seemingly **inexorable** march of new technology)  
+(the seemingly **inexorable** march of new technology) -  
 In the past decade, there has been an **inexorable** adoption of open source in most aspects of computing  
 **proprietary software** vendors  
 When you compare the market cap and revenue of Red Hat to Microsoft or Amazon or Oracle, even Red Hat starts to look like a **lukewarm** success  

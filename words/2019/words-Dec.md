@@ -16,8 +16,8 @@ And when the snow turned to ice, what happens to the **reindeer**?
 
 my new Yamaha **acoustic guitar**.  
 
-Saltwater **gargles** also have a healing benefit and feel soothing for a toothache -  
-**Brine** washes can also provide toothache relief because the salt water can remove some of the **swelling** in your gums that may be causing the pain -  
+Saltwater **gargles** also have a healing benefit and feel soothing for a toothache  
+**Brine** washes can also provide toothache relief because the salt water can remove some of the **swelling** in your gums that may be causing the pain  
 **Swill** the **brine mixture** around your mouth for 60 seconds, paying particular attention to the area of your mouth that’s causing you trouble  
 
 
@@ -29,7 +29,7 @@ You will have chunks of time to work. But you can’t let work **spill** **promi
 
 For **strains** and **sprains**, some doctors and pharmacists recommend waiting 48 hours before taking **ibuprofen** as it may slow down healing  
 
-In fact, the wisdom teeth are the most common **congenitally** missing teeth, Dr. Horan says. -  
+In fact, the wisdom teeth are the most common **congenitally** missing teeth, Dr. Horan says.  
 **gum tissue**  
 If your wisdom teeth are **impacted**, thereby preventing **adequate** oral hygiene, it’s often best to have them removed  
 
