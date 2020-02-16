@@ -4,26 +4,28 @@
 PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 WORDS_REVIEW="words-new.md"
 
+files=(
+  "westWorld/ww1.md"
+  "GOT/GOT8.md"
+  "GOT/GOT7.md"
+  "GOT/GOT6.md"
+  "GOT/GOT5.md"
+  "GOT/GOT4.md"
+  "words/2020/words-Feb.md"
+  "words/2020/words-Jan.md"
+  "words/2019/words-Dec.md"
+  "words/2019/words-Nov.md"
+  "words/2019/words-Oct.md"
+  "words/2019/words-Sep.md"
+  "words/2019/words-Aug.md"
+  "words/2019/words-July.md"
+  "words/2019/words-June.md"
+  "words/2019/words-May.md"
+)
+
 function getNewWords {
 
   echo "Hello World!  " > "$WORDS_REVIEW"
-  files=(
-    "GOT/GOT8.md"
-    "GOT/GOT7.md"
-    "GOT/GOT6.md"
-    "GOT/GOT5.md"
-    "GOT/GOT4.md"
-    "words/2020/words-Feb.md"
-    "words/2020/words-Jan.md"
-    "words/2019/words-Dec.md"
-    "words/2019/words-Nov.md"
-    "words/2019/words-Oct.md"
-    "words/2019/words-Sep.md"
-    "words/2019/words-Aug.md"
-    "words/2019/words-July.md"
-    "words/2019/words-June.md"
-    "words/2019/words-May.md"
-  )
 
   for file_path in "${files[@]}"
   do 
@@ -49,18 +51,20 @@ function getNewWords {
 }
 
 function pushBack {
-
+  # 1. pushBack  
   # record the current file_name
   file_name=""
+  lineNum=0
+  lines=""
   while read -r line; do
-    if [[ $line == *md ]] && [[ -f $line ]]; 
-    then 
+    lineNum=$(( lineNum + 1 ))
+    if [[ $line == *md ]] && [[ -f $line ]]; then 
       file_name=$line
-      echo -e " ${YELLOW} $file_name ${NC}"
+      echo -e " Push back file: ${YELLOW} $file_name ${NC}"
     fi
 
     if ! [[ -f $file_name ]]; then 
-      echo "No file_name line reached yet, it's fine, next line please."
+      echo "No file_name line yet, next line please."
       continue
     fi
 
@@ -68,15 +72,42 @@ function pushBack {
     trimmedStr=$(echo "$line" | sed 's/ *$//g')
 
     # if trimmed_str contains "**{char}**" && not end in -  
-    if [[ $trimmedStr =~ \*\*.+\*\*  ]] && ! [[ $trimmedStr =~ -$ ]]; 
-    then 
-      echo -e "Update sentence: ${GREEN} $trimmedStr ${NC}" 
+    if [[ $trimmedStr =~ \*\*.+\*\*  ]] && ! [[ $trimmedStr =~ -$ ]]; then 
+
+      echo -e "Update sentence: ${GREEN} $trimmedStr ${NC}, line: $lineNum" 
+      
+      # lines="$lines" + "$lineNum" + "d"
+      lines+="$lineNum""d;"
+
       # escape from "*" to "\*" to help sed search/replace  
       escapedStr=$(echo "$trimmedStr" | sed 's/\*/\\*/g')
       # find from the $file_name and replace the original str with updated string(two white space in the end) from words-review 
       sed -i '' "s/$escapedStr.*/$trimmedStr  /" "$file_name"
     fi
+
   done <$WORDS_REVIEW
+
+  # echo lines 
+  echo "We got line: $lines"
+
+
+  cleanWordReview $lines
+
+}
+
+function cleanWordReview {
+
+  echo "Purge the file $WORDS_REVIEW"
+  lines=$1
+
+  # lines="14d;15d;16d;"
+  sed -i '' "$lines" $WORDS_REVIEW
+
+  # for line in $(echo "$lines" | tr " " "\n")
+  # do
+  #   echo "Line: $line"
+  #   sed -i '' "$line"'d' $WORDS_REVIEW
+  # done
 }
 
 
@@ -106,7 +137,7 @@ elif [[ $action == 'update' ]]; then
 else 
   echo -e "${RED}Failed!${NC}"				
 	echo "this is invalid parameter: $action"		
-	echo "should be \"sync\" or \"update\""
+	echo "should be \"sync\", \"pushBack\" or \"update\""
 fi
 
 
