@@ -95,7 +95,7 @@ Following season after season of increasingly clever answers to increasingly cle
 Sawyer and Juliet recalling their amazing, wonderful, **best-ever** relationship.  
 These moments of **recollection** in the finale were beautiful when I first watched the final episode live in May 2010.  
 
-"On the **severability** question, we **remand** to the district court to provide additional analysis of the provisions of the ACA as they currently exist." -  
+"On the **severability** question, we **remand** to the district court to provide additional analysis of the provisions of the ACA as they currently exist."  
 Texas argued that due to the unlawfulness of the individual mandate, the entire ACA must be **scrapped**.  
 maybe crashlytics is **conflating** multiple issues into 1  
 

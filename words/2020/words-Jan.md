@@ -38,7 +38,7 @@ how **hard-edged** and **fearlessly** **candid** should we be
 telling people what steps to follow or what **factual** knowledge they're lacking—can be truly useful  
 That's why we have **checklists** in airplane **cockpits**, more recently, in **operating rooms**  
 what we think of their performance doesn't help them **thrive** and **excel**, and telling people how we think they should improve actually **hinders** learning  
-**Underpinning** the current **conviction** that feedback is an **unalloyed** good are three theories that we in the business world commonly accept as truths -  
+**Underpinning** the current **conviction** that feedback is an **unalloyed** good are three theories that we in the business world commonly accept as truths  
 You do not realize that your suit is shabby, that your presentation is boring, or that your voice is **grating**, so it is up to your colleagues to tell you **as plainly as possible**  
 **Hence** you can, with feedback about what excellence looks like, understand where you **fall short of** this ideal and then strive to **remedy** your shortcomings  
 What these three theories have in common is **self-centeredness**  
@@ -66,7 +66,7 @@ Focusing people on their **shortcomings** or **gaps** doesn't enable learning. I
 the really hard part is **codifying** how we and everyone else on our team should get there  
 We've got it **backward**  
 Excellence is **idiosyncratic** -  
-it’s being **caustic**, blunt, and rude in an **incongruously** **affectless** way -  
+it’s being **caustic**, blunt, and rude in an **incongruously** **affectless** way  
 Examine something as specific and as limited as the **free throws** awarded after **fouls**, and you’ll learn that not only do the top two free-throw shooters in history have **utterly** different styles  
 Excellence seems to be **inextricably** and wonderfully intertwined with whoever demonstrates it. -  
 > Excellence seems to be inextricably and wonderfully intertwined with whoever demonstrates it. Each person’s version of it is uniquely shaped and is an expression of that person’s individuality. Which means that, for each of us, excellence is easy, in that it is a natural, fluid, and intelligent expression of our best extremes. It can be **cultivated**, but it’s **unforced**  
@@ -104,7 +104,7 @@ no fever, no **chills**, no **febrile** and pain nothing to indicate to you -
 the **stopgap** nature of this is really **gut checking** to see dump truck piles of dirt they meant to block people from leaving in infected area -  
 
 This is a very dangerous game by #PMF uncontrolled **factions** to **galvanize** the tense situation.  
-Iranian missile attack on US Base in Iraq left 34 soldiers with **concussions**, pentagon says -  
+Iranian missile attack on US Base in Iraq left 34 soldiers with **concussions**, pentagon says  
 **Baghdad**, Iraq  
 **Adam's apple**  
 It's absolutely **imperative** for you to have the best ride  
@@ -135,14 +135,14 @@ You don't have to **tie up** a 20% down payment
 Huawei sought to steal confidential information from T-Mobile from 2012 to 2014 and that executives at the **top brass** of the company were **aware** of the effort  
 They fear that a "**rip and replace**" method, which would rip Huawei technology from carriers that use the equipment and replace it with something else would be particularly harmful to rural areas  
 **stubborn mystery**   
-as did some of the FBI **bureaucrats** the president so **reviled**. -  
+as did some of the FBI **bureaucrats** the president so **reviled**.  
 **state secret**  
 First, there was the **inescapable** fact that, like Osama bin Laden, 15 of the 19 **hijackers** were Saudis  
 **Qaida** terrorists  
 they were minimally and **grudgingly** helpful when it came to the 9/11 inquiry.  
 Trump administration did not want him to help them because it could **imperil** “good relations with Saudi Arabia  
 The **Encore** investigation exposed a bitter **rift** within the **bureau** over the Saudi connection.  
-For an **encore**, he sang an **unaccompanied** **folk song**. -  
+For an **encore**, he sang an **unaccompanied** **folk song**.  
 Given the **lapse of time**, I don’t know any reason why the truth should be kept from the American people  
 
 When I saw it, I was **livid**  
@@ -259,7 +259,7 @@ She gave me that "**come-hither**" look
 avoid getting **bogged down** on technical details that will not be relevant for long  
 Some of the skills you had that will **atrophy** aren't very impactful, just necessary at the moment. -  
 
-**rectal** bleeding -  
+**rectal** bleeding  
 **hemorrhoids**  
 
 The weather had **exacerbated** another problem by now: **mildew**, oidium and ... snails.  
@@ -350,7 +350,7 @@ How Our Government Is Trying To **Gaslight** Us into A War With Iran
 They commit a lot of acts of **jihad** against Americans in a wheel they call us **infidels**.  
 We need to **sever** those ties with **petro-dollar**  
 
-has sparked a **furore** over the legality and the impact of his assassination -  
+has sparked a **furore** over the legality and the impact of his assassination  
 
 I think the system is **slanted** against us.  
 Stop **manhandle** my intern. That's my job  
@@ -365,7 +365,7 @@ We must **cherish** experience acquired **at the cost of** blood
 
 They sell media at a 15% **markup**  
 
-I use GNU Screen and **Byobu** together to run multiple “tabs” in the terminal -  
+I use GNU Screen and **Byobu** together to run multiple “tabs” in the terminal  
 Ovilia is an **up-and-coming** developer  
 
 I hear the GOP thinks women dancing are **scandalous**. Wait till they find out Congresswomen dance too! 💃 -  
@@ -391,7 +391,7 @@ Anything that isn’t a bug fix is **frowned upon**
 Seriously? C89 is a quarter-century old. The number of people stuck on older compilers can **be counted on one hand**. This is a non-concern. Still, I **acquiesced**  
 The rest of that thread is me being **as civil as possible**, despite discouragement at **every turn**  
 The replies might as well be a **paint-by-numbers** guide on how to **alienate** new contributors  
-Speaking of Bram Moolenaar: His merge criteria are **inscrutable** -  
+Speaking of Bram Moolenaar: His merge criteria are **inscrutable**  
 We did our best to **cater to** Bram’s **every whim**, but it was a waste of time  
 Instead, we were given hope and **strung along**, working on a patch that had no chance of getting merged  
 It was **likewise** rejected  
@@ -401,7 +401,7 @@ here's certainly **a laundry list** of things I would like that have not been im
 Even the way this article was tweeted out by the author was **sophomoric**  
 Bram has always been professional and **courteous**  
 give time for the active community to **suss out** the issues and get them fixed  
-seems like it's a step in the right direction which finally someone had the **cojones** to do -  
+seems like it's a step in the right direction which finally someone had the **cojones** to do  
   
 So it’s appropriate that there’s now tools that promote **wellness** around alcohol consumption  
 We saw product launches **of all stripes** in this space  

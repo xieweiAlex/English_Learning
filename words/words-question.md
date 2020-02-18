@@ -1,3 +1,6 @@
+* seat of the pants
+* anabolic steroids
+* soul train  
 * Adam's apple
 * subcutaneous
 * knockoff

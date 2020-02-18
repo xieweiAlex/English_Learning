@@ -104,7 +104,7 @@ They're significantly **interrelated**
 changes in the physical structure of the brain, that's **fiendishly** difficult to treat.  
 can we **salvage** aspects of their learning and memory function?  
 That's one of our **moon-shot** goals, as it were.  
-what you wish for is a **virile** set of these immune **assassins** at all times. -   
+what you wish for is a **virile** set of these immune **assassins** at all times.  
 WHO has classified any form of **nighttime shift** work as a probable **carcinogen**.  
 **disquieting**  
 It's rather like a broken water pipe in your home, sleep loss will leak down into every **nook** and **cranny** of your physiology.  

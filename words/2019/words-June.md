@@ -154,7 +154,7 @@ A **grudging** apology
 the **putative** father of a boy of two.   
 the sheriff made a **gruesome** discovery today   
 He's a **fervent** believer in free speech  
-If you **botch** this up again. -  
+If you **botch** this up again.  
 I know you **botched** that operation on purpose  
 A warning **snarl** told him that the trespasser was Spitz  
 **snarled** a **retort**  

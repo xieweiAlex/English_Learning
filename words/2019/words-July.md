@@ -366,7 +366,7 @@ In order to become a really **well-rounded** software engineer, it's not just ab
 But grocery stores have **remained** largely **impervious** to the digital revolution  
 **intimate**, **intimidate**  
 **well curated**.  
-Don't **fret** the annual membership fee: you get a store credit for the **remainder** if you don't save $60 by the end of the year. -  
+Don't **fret** the annual membership fee: you get a store credit for the **remainder** if you don't save $60 by the end of the year.  
 
 Rights and **duties**, spectrum of **duties**  
 iPhones in India sell at a much higher price thanks to custom **duties** and other taxes
@@ -377,7 +377,7 @@ IT teams are always **on the lookout** for new **ransomware** and exploit spread
 
 
 Wayfair **Walkout** is Not Only Absurd, but Immoral
-I want them to remain in **snotty** conditions. -  
+I want them to remain in **snotty** conditions.  
 that's you can have **one-up** on Republicans? that's not OK.   
 the **profiteers** can be **held accountable** and brought to justice  
 The Wayfair **rationale** is **inarguable**. If the **govt** takes steps to provide more humane conditions, it (the sale) deserves support
@@ -435,7 +435,7 @@ a **balmy** breeze
 **top off my head**
 
 If not Vim, then maybe Emacs. Or, well, just anything that is not a web browser **masquerading** as a text editor.  
-A sweetener found in some nut butters can be deadly for **canines**. -  
+A sweetener found in some nut butters can be deadly for **canines**.  
 
 So you'll still have to **pony up** if you need more memory and storage  
 I'm a programmer/business owner, so perhaps it's useful for other sorts of creative professionals, but it feels like a total **gimmick** to me -  
@@ -468,7 +468,7 @@ Are they slow and **methodical**
 She's way worse off because she has **put up with** me.  
 You basically have the perfect wife and still try desperately to find **demerits** -  
 **far east**  
-one of the few countries where Google and Facebook actually faced local competition but things turned **dismal** in the end. -  
+one of the few countries where Google and Facebook actually faced local competition but things turned **dismal** in the end.  
 **on the bright side**  
 largest port on the bank of **Volga**  
 **kremlin**  
@@ -476,7 +476,7 @@ Villages in Russia are in a **deplorable** state
 Russia has been suffering from **brain drain** ever since the collapse of the USSR.  
 Russian **Arctic** National Park 
 Lake **Baikal** is the deepest lake in the world and the largest source of fresh water on the planet.  
-The **Siberian** **taiga** is the largest forest in the world, the lungs of the planet. -   
+The **Siberian** **taiga** is the largest forest in the world, the lungs of the planet.  
 **summer houses** and **country cottages**  
 **Vladivostok** 
 **trams buses**, **trolleybuses** fixed-route taxi buses -   
@@ -545,7 +545,7 @@ No debt **in sight**
 
 having no **downtime**  
 For **posterity**’s sake -  
-Every measure of a good developer is **qualitative**. That makes them all subjective -  
+Every measure of a good developer is **qualitative**. That makes them all subjective  
 
 Baidu has weathered a **plethora** of troubles.  
 
@@ -629,7 +629,7 @@ There is a **glut** of cars on the market
 
 
 
-Even if this **humungous** big class was convenient it was highly **clumsy** and hard to modify, maintain and almost impossible to reuse -  
+Even if this **humungous** big class was convenient it was highly **clumsy** and hard to modify, maintain and almost impossible to reuse  
 
 **under siege**  
 
