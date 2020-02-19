@@ -110,7 +110,7 @@ You’ll need a fixed storage space, which can be a challenge for apartment and 
 ## Week 2 
 
 training **apparatus**  
-**aqua** **aerobics** -  
+**aqua** **aerobics**  
 **devil's advocate**  
 
 **passer-by**

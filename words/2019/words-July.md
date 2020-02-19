@@ -384,7 +384,7 @@ The Wayfair **rationale** is **inarguable**. If the **govt** takes steps to prov
 
 Big and **deep-pocketed** business interests have exploited the H-1B visa program  
 and Indian Nationals have used **dubious** petitions and **fraudulent** means to press this legislation and try to get around the mandated limit  
-**Collectively**, we **wholeheartedly** believe in protecting diversity in our skilled legal immigration systems so that foreign nationals from all countries can come to work in the US and have a chance at their American Dream -  
+**Collectively**, we **wholeheartedly** believe in protecting diversity in our skilled legal immigration systems so that foreign nationals from all countries can come to work in the US and have a chance at their American Dream  
 
 A fair immigration reform should not benefit just one nationality **detriment** to other nationals   
  
@@ -429,7 +429,7 @@ whatever you want to say it **shelved**, **withdrawn** dead gone it's not happen
 
 **Molasses** Sauce -  
 **sesame**  
-Yogurt **Tahini** -  
+Yogurt **Tahini**  
 
 a **balmy** breeze  
 **top off my head**
@@ -466,7 +466,7 @@ Are they slow and **methodical**
 
 
 She's way worse off because she has **put up with** me.  
-You basically have the perfect wife and still try desperately to find **demerits** -  
+You basically have the perfect wife and still try desperately to find **demerits**  
 **far east**  
 one of the few countries where Google and Facebook actually faced local competition but things turned **dismal** in the end.  
 **on the bright side**  
@@ -583,8 +583,8 @@ The acronym Make American think harder some what **retroactive**
 at minimum you need another **sentient** human to **sign off** on it just in case the president is not the **decision-maker** you want  
 
 **Shoe Bandit** - Be Aware!! -  
-The agents will then disappear with the phones in order to **snoop** through them -  
-**Quran** **excerpts** -  
+The agents will then disappear with the phones in order to **snoop** through them  
+**Quran** **excerpts**  
 
 He is not **coherent**  
 this appears in the API Design Guidelines as a fundamental, but also **pervades** the design of the Swift language itself -  

@@ -45,7 +45,7 @@ function getNewWords {
 
   done 
 
-  # Delete lines (120,$) let's keep the review short & lean  
+  # Delete lines (111,$) let's keep the review file short & lean  
   sed -i '' '111, 500d' "$WORDS_REVIEW"
 
 }

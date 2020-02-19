@@ -356,7 +356,7 @@ I'm on my **tippy toes** on this bike
 **semi trailer**  
 The president followed that up by saying he could **ratchet** tariffs even higher—even above 25%  
 **scuba diving**  
-Ear **barotrauma** can sometimes lead to a ruptured eardrum, also called **tympanic membrane** **perforation** -  
+Ear **barotrauma** can sometimes lead to a ruptured eardrum, also called **tympanic membrane** **perforation**  
 This allows air to enter or leave the **middle ear** to **equalize** the pressure  
 Taking an over-the-counter (**OTC**) **nasal** **decongestant**, antihistamine, or both  
 Feeding (either at the breast or with a bottle) or providing a **pacifier** can help the baby suck and swallow in order to clear their ears  

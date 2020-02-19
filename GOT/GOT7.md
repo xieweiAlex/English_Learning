@@ -9,7 +9,7 @@ You saw the **crossbow**, you saw his body.
 Ser Davos gets **carried away**  
 Perhaps you need more **scribing** work to discipline your mind.  
 I sense a more detailed proposal is **forthcoming**?  
-I was just a **purveyor** of information -  
+I was just a **purveyor** of information  
 Made up by **wet nurses** to frighten children.  
 Abandoned the family home, completely **unsentimental**.  
 To discuss an **armistice**.  
@@ -47,7 +47,7 @@ Her dragon may not as **invulnerable** as someone think
 You look a lot better **brooding** than I do.  
 It's really hard for me to **fathom**, it really is  
 It's **dreary** in the North  
-The underlying region treated with some sort of **unguent** -    
+The underlying region treated with some sort of **unguent**  
 Who **forbad** you, or anyone, to attempt to treat him?  
 Casterly Rock is an **impregnable** fortress. 
 Give me 10 good men, and I'll **impregnate** the bitch  

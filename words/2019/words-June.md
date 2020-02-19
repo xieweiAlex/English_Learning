@@ -94,7 +94,7 @@ I don’t think that “chief design officer” should have been a **one-off** t
 You invited your fiend to the gym you can't just **bail** because you are lazy. -  
 you don't want to **blow off** your friend. 
 you want your friend **think highly of** you.   
-the simple fact that someone else in involved would **jumpstart** your work ethic -  
+the simple fact that someone else in involved would **jumpstart** your work ethic  
 **rough draft**  
 
 **in spite of**   
