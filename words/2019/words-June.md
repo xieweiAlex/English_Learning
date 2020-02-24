@@ -25,7 +25,7 @@ Apple's closest thing to a **living embodiment** -
 leaving it **rudderless**  
 Its iPhone business is **faltering**  
 It hasn't had a **megahit** new product since the iPad started selling in 2010.  
-Yet his departure from the company **cements** the triumph of operations over design at Apple. -   
+Yet his departure from the company **cements** the triumph of operations over design at Apple.  
 Who they say showed little interest in the product development process - a fact that **dispirited** Mr. Ive.  
 A wireless charging pad that Apple announced with **fanfare** two years ago never came to market.  
 
@@ -35,7 +35,7 @@ Your incentive award will be **pro-rated** based on your hire date
 **set forth** those details  
 a **duo** of negotiators.  
 Revive negotiations to dismantle North Korea's nuclear weapons program, a goal that has proved **elusive** for years. -   
-Press Secretary Stephanie was bruised in a **tussle** between reporters and North Korea guards -  
+Press Secretary Stephanie was bruised in a **tussle** between reporters and North Korea guards  
 rural communities **ravaged** by domestic violence and sexual abuse  
 
 He would **fast** with them during **Ramadan**  
@@ -82,7 +82,7 @@ This may be good news. Ive is, to state the obvious, **preternaturally** talente
 but it certainly seems like a good bet that MacBook keyboard **fiasco** we’re still in the **midst** of is the direct result of Jony Ive’s obsession with device thinness and **minimalism**  
 **5 years from now**  
 But part of what made Apple the Apple we know in the post-1997 **era** is that when Jobs was at the **helm**, all design decisions were going through someone with great taste    
-That’s not a **knock** on Tim Cook -  
+That’s not a **knock** on Tim Cook  
 To his credit, Tim Cook has never pretended to be a product guy, which is exactly the **hubris** that John Sculley **succumbed** to back in the early ’90s  
 Leading to the Newton being launched far before it was ready and the Macintosh platform **languishing**    
 One thing I do know — which Cook **alludes** to in his statement above  
@@ -91,14 +91,14 @@ One thing I do know — which Cook **alludes** to in his statement above
 It makes me **queasy** to see that Apple’s chief designers are now reporting to operations -  
 I don’t think that “chief design officer” should have been a **one-off** title created just for Jony Ive.  
 
-You invited your fiend to the gym you can't just **bail** because you are lazy. -  
+You invited your fiend to the gym you can't just **bail** because you are lazy.  
 you don't want to **blow off** your friend. 
 you want your friend **think highly of** you.   
 the simple fact that someone else in involved would **jumpstart** your work ethic  
 **rough draft**  
 
 **in spite of**   
-What a **straight-up** **kiss-ass** -  
+What a **straight-up** **kiss-ass**  
 Pence is undoubtedly the most **sycophant** VP of all time! People without dignity   
 The last thing I expect to hear about Mike Pence is that he **swings both ways**  
 
@@ -195,7 +195,7 @@ For a particularly **strenuous** hill climb, a brief hilltop rest may be in orde
 **Sunk costs**
 
 Unlawful use of **batons** and rubber bullets 
-**amnesty** international -  
+**amnesty** international  
 
 
 **Hilly terrain** builds your fitness levels up by helping your body learn to use oxygen more efficiently  
@@ -250,7 +250,7 @@ go after democrats **incumbents** -
 2020 gonna be pretty **bleak** for him  
 (a bleak and barren **moor**.)  
 
-Only a few people showed up for the so-called Impeachment rallies over the weekend. The numbers were **anemic**, no spirit, no hope -  
+Only a few people showed up for the so-called Impeachment rallies over the weekend. The numbers were **anemic**, no spirit, no hope  
 
 **Resurfacing** streets  
 **pragmatics**  
@@ -343,7 +343,7 @@ if you want to **delve** into it
 Whenever there is some kind of a historical **atrocity**  
 Jewish **holocaust**  
 You can't justify **mowing down** unarmed students with tanks and AK-47s  
-It's **detrimental** because without acknowledging that this happen **in the first place**, it's **doomed** to repeat itself. -   
+It's **detrimental** because without acknowledging that this happen **in the first place**, it's **doomed** to repeat itself.  
 
 **demonization**  
 racism and **bigotry** -  
@@ -364,21 +364,21 @@ they **pastured** their cows in the water **meadow**.
 **complementary** color  
 **congested** area  
 **punitive** measure  
-this **bodes** him no good. -  
+this **bodes** him no good.  
 heavy seas that **boded** trouble for small craft   
 The earth **revolves** around the sun   
 **revolve** a problem in one's mind  
 **gypsy**  
 digestive **enzyme**  
 
-You know, there's no way Harvard **rescinds** my acceptance -  
+You know, there's no way Harvard **rescinds** my acceptance  
 
 not just the people who don’t fit the **heuristics**—then it’s normal, rather than a mark of the people who are Different. It’s the least we who do fit the heuristics can do.  
 > (Obviously not everyone was wearing them at WWDC, but **the point is** to make it normal.)
 
 **Caspian** Sea
 I can **attest** his tremendous energy  
-bears a **grudge** about the accident -  
+bears a **grudge** about the accident  
 **march hare**  
 colds are **prevalent** in the winter  
 **Aspirin** will **quell** your headache  
@@ -433,7 +433,7 @@ He is a **demon for work**.
 
 > cool, neat, crafty, awesome, perfect, gorgeous, fabulous, marvelous, fantastic, amazing, stunning, impressive, incredible, unbelievable, astonishing 
 
-I like **jasmine** not because it has stunning beauty, but because it gives off elegance and **fragrance**. -  
+I like **jasmine** not because it has stunning beauty, but because it gives off elegance and **fragrance**.  
 **carbon copy**  
 
 Apple **Envisioned** New Mac Pro's '**Cheese Grater**' Design Years Ago    

@@ -1,11 +1,100 @@
 
+## Week 3 
+
+Having a socialist at the top of the party with his background, will **taint** the entire Democratic party  
+
+They **called us in** as experts  
+**punctuality** isn't one of my strenths  
+**press gallery**  
+**prep work**  
+Dan describes that meeting as an **analogy** for what it was like for us in the 1990s **in general**: We had to **barge** our way into things. -  
+**risk parity** investment   
+To remain a beautiful **boutique** or become a great institution?  
+**Nature preserve** on the **banks** of the Saugatuck River  
+**fleshing out** principles -  
+**forming** principles about how to deal with them  
+**if nothing else**, I could better appreciate people I'd once wanted to **strangle**!  
+which is like a **foreman** not understanding how his equipment will behave.  
+**psychometric** testing as a way of learning how people think differently  
+her assessment proved **spot-on** and provided a great road map for how they would develop over the years.  
+**MBTI**: Myers–Briggs Type Indicator  
+**highly relevant** to the conflicts and disagreements  
+most of the **psychologists** I met were surprisingly **squeamish** about exploring differences. -  
+I had most of Bridgewater's managers take the Myers-Briggs assessment. The results **astounded** me. 
+**cognitive bias**  
+That was "**light bulb**" **went off** my head  
+
+This isn’t the first time that the Trump campaign purchased the **coveted** **masthead** ads ahead of important election events -  
+
+**ad-libs** songs 
+**humiliate**, **humility** 
+Based on the Chinese government’s **notoriety**, local officials may claim them as dead from the virus   
+
+**Abu Dhabi**
+Who transformed mosquito-infested **backwater** to a model economy  
+**juggling** work and family has been as much a challenge to me as to anyone else  
+silk **scarves**  
+**put up for sell**  
+we also had an annual "**Sleaze** Day" when everybody would dress up **sleazy** -  
+The **barn** in Wilton, CT  
+one of the most critical builders and **pillars** of Bridgewater  
+**strip mall**  
+I never valued more traditional, **antiseptic** relationships where people put on a **facade** of **politeness** and don't say what they really think. -  
+The media **dubbed** us as among the "Heroes of October."  
+We're **at odds** as to how to proceed with a witness.  
+All great investors and investment approaches have bad **patches**  
+the friends who would be with me through **thick and thin**  
+The next **foothold** for Bridgewater 
+we worked **nonstop** through the weekend  
+> that was a game changer 
+Discovering the "**Holy grail**" of investing
+Annual portfolio standard **deviation** -  
+This was another **key moment** in our education  
+**uncorrelated** return stream  
+the investment management concepts that **underlie** Pure Alpha 
+the journey from conception to general acceptance took many years of learning and **grinding work** by a group of dedicated partners  
+Before long, things came to a **boil**  
+My "**Intractable**" people problem  
+company **morale**  
+leave a **lasting** impression  
+If he doesn't mange people well, growth will be **stunted** and we will all be affected -  
+I wasn't paying them enough money to **put up with** my crap  
+Have **agreed-upon** ways of deciding  
+move beyond without **resentments**  
+He also became like a **godson** to me  
+**inflation-indexed** bond  
+
+**matte finish**  
+**satin color**  
+**close loop**  
+
+**sycophant**  
+
+**ups and downs**  
+so having an opportunity to go behind what was still a mostly "closed door" was **alluring** -  
+Beijing was filled with wonderful and incredibly **hospitable** people  
+**unsettle** time  
+**arm of the law**, regulatory **arm** 
+I could provide **know-how** by introducing Chinese companies to American ones  
+**indebtedness**  
+**gilded age**  
+**deal maker**  
+supposedly **pocketed** a couple hundred millions U.S. dollars on this deal  
+the **Robber Baron** Era -  
+Nonetheless, the **astute** will profit enormously from what I truly believe will be the biggest investment opportunity ever -  
+I had **sorely** **underestimated** the complexity of the task we had set for ourselves -  
+
+Let's give her **a round of applause**
+deep sleep is your **nocturnal** dip in heart rate  
+**questionnaire**  
+
 **glow stick**  
 
 To make **ends meet**, I even had to borrow $4000 from my dad until we could sell our second car.  
 Finding a way past my **intractable** investment problem -  
 Then you **press on**  
-I couldn't **muster** enough money to pay for an airplane ticket to Texas -  
-the future could be perfectly **foretold** -  
+I couldn't **muster** enough money to pay for an airplane ticket to Texas  
+the future could be perfectly **foretold**  
 He who lives by the crystal ball is **destined** to eat ground glass  
 react **appropriately**  
 Doing this helped me educate me and led me to refine my criteria so they were **timeless** and universal  
@@ -29,7 +118,7 @@ This isn't just being **altruistic** -
 **stop and frisk**, **Terry stop**  
 He has a reputation shall we say, not being **scrupulous** in how he counts strokes -   
 A Treasury bill, or T-bill, is a bit like an **IOU** from a friend who’s short on cash for lunch...  
-Buying gold is not for the **faint of heart** -  
+Buying gold is not for the **faint of heart**  
 
 **cause-effect**  
 **pooh-pooh**  
@@ -63,11 +152,11 @@ I was all the way **back to square one**
 **bore hole**  
 
 Most drivers are pretty **courteous** as they will give extra space  
-there is a lot **inattentive** crazy drivers on the road -  
+there is a lot **inattentive** crazy drivers on the road  
 **Arctic** Ocean, **Antarctica** 
 **unrelenting**  
-Just **postulate** about designs without getting their hands dirty -  
-Why Use 2 Pieces Of **Cutlery**, When You Only Need One -  
+Just **postulate** about designs without getting their hands dirty  
+Why Use 2 Pieces Of **Cutlery**, When You Only Need One  
 
 Japan's **dull** election is a sign of **ailing** politics  
 **docile** & **diffidence**   
@@ -99,14 +188,14 @@ I'd say I was a **late bloomer**
 **evacuee**  
 As a **side benefit**, we will also see massively lower administrative costs  
 
-It has to be said, though, that in some modern languages the situation starts to get **murkier** -  
+It has to be said, though, that in some modern languages the situation starts to get **murkier**  
 Even so, for some people,"functions" are their **Waterloo** in the field of programming  
 **Mathematical Induction**  
 
-The deliberate, **indiscriminate** theft of **vast amounts of** sensitive personal data of civilians, as occurred here, cannot be **countenanced**. -  
+The deliberate, **indiscriminate** theft of **vast amounts of** sensitive personal data of civilians, as occurred here, cannot be **countenanced**.  
 Hall said much of the federal government’s efforts have been on raising awareness and on “**low-hanging fruit**,” like enabling two-factor authentication  
 
-These people has no business complaining about breaches of **decorum**. -  
+These people has no business complaining about breaches of **decorum**.  
 additional units are **en route** to **apprehend** the man and remove him from the bus  
 
 These news are **circulating** in the internet  
@@ -152,7 +241,7 @@ After her boss fell sick, she **willy-nilly** found herself directing the projec
 
 Conclusions Dragons blood powder has **broad-spectrum** **sterilization**  
 
-With this ab roller, you can ensure perfect form while **whittling** away that **tummy butter** -   
+With this ab roller, you can ensure perfect form while **whittling** away that **tummy butter**  
 
 retirement **nest egg**  
 you'll think the stock market is just going **gangbusters**  

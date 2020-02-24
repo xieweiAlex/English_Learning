@@ -65,16 +65,16 @@ Focusing people on their **shortcomings** or **gaps** doesn't enable learning. I
 
 the really hard part is **codifying** how we and everyone else on our team should get there  
 We've got it **backward**  
-Excellence is **idiosyncratic** -  
+Excellence is **idiosyncratic**  
 it’s being **caustic**, blunt, and rude in an **incongruously** **affectless** way  
 Examine something as specific and as limited as the **free throws** awarded after **fouls**, and you’ll learn that not only do the top two free-throw shooters in history have **utterly** different styles  
 Excellence seems to be **inextricably** and wonderfully intertwined with whoever demonstrates it. -  
 > Excellence seems to be inextricably and wonderfully intertwined with whoever demonstrates it. Each person’s version of it is uniquely shaped and is an expression of that person’s individuality. Which means that, for each of us, excellence is easy, in that it is a natural, fluid, and intelligent expression of our best extremes. It can be **cultivated**, but it’s **unforced**  
 
-then argue that good leaders should not have big egos, you will lead people **astray** -  
+then argue that good leaders should not have big egos, you will lead people **astray**  
 > Because rigorous studies of the best salespeople reveal that they take rejection deeply personally, too.  
 
-The arguments for radical **candor** and **unvarnished** and **pervasive** transparency have a **swagger** to them, almost **as if** to imply that only the finest and bravest of us can face these truths with **nerveless** **self-assurance**, that those of us who **recoil** at the thought of working in a climate of continual judgment are condemned to **mediocrity**, and that as leaders our ability to look our colleagues **squarely** in the eye and lay out their faults without blinking is a measure of our **integrity** -  
+The arguments for radical **candor** and **unvarnished** and **pervasive** transparency have a **swagger** to them, almost **as if** to imply that only the finest and bravest of us can face these truths with **nerveless** **self-assurance**, that those of us who **recoil** at the thought of working in a climate of continual judgment are condemned to **mediocrity**, and that as leaders our ability to look our colleagues **squarely** in the eye and lay out their faults without blinking is a measure of our **integrity**  
 But at best, this **fetish** with feedback is good only for correcting mistakes  
 And at worst, it’s toxic, because what we want from our people—and from ourselves—is not, for the most part, **tidy** **adherence** to a procedure agreed upon **in advance** or, for that matter, the ability to expose one another’s flaws  
 
@@ -100,7 +100,7 @@ Insurance plans typically won't cover the cost of surgery, as this is considered
 
 Those kids their **saliva** is already half virus **particles** by weight in the first place -   
 This virus **transfers** and **transmits** in an **asymptomatic** state 
-no fever, no **chills**, no **febrile** and pain nothing to indicate to you -  
+no fever, no **chills**, no **febrile** and pain nothing to indicate to you  
 the **stopgap** nature of this is really **gut checking** to see dump truck piles of dirt they meant to block people from leaving in infected area -  
 
 This is a very dangerous game by #PMF uncontrolled **factions** to **galvanize** the tense situation.  
@@ -217,7 +217,7 @@ I feel extra **gassy** today
 coughing clears the lungs of **mucus**  
 she applies **deodorant** to her armpits after she showers  
 **overhand** grip, **overhand** smash  
-**picket** sign, **picket** ship -  
+**picket** sign, **picket** ship  
 **viva**: Spanish for long live 
 Your **spleen** has wandered close to your heart  
 He vented his **spleen** on the assembled crowd  
@@ -368,7 +368,7 @@ They sell media at a 15% **markup**
 I use GNU Screen and **Byobu** together to run multiple “tabs” in the terminal  
 Ovilia is an **up-and-coming** developer  
 
-I hear the GOP thinks women dancing are **scandalous**. Wait till they find out Congresswomen dance too! 💃 -  
+I hear the GOP thinks women dancing are **scandalous**. Wait till they find out Congresswomen dance too! 💃  
 
 They were meant to help **prop up** farm prices and farmers.
 Which is a really nice **sounding line**.  

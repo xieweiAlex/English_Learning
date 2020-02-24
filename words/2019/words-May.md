@@ -23,7 +23,7 @@ My boss just got **demoted** under me, now I have to find a position for him or 
 If she has what’s needed for the job, then her looks shouldn't **inhibit** her from getting hired  
 
 I think you're starting to **hallucinate**. I don't hear anything
-**Extrapolating** from the U.K. date in the ad, and given how late in the month we now are... -  
+**Extrapolating** from the U.K. date in the ad, and given how late in the month we now are...  
 **swagman**  
 
 **dane**  
@@ -45,7 +45,7 @@ Most notably, Google is **lessening** its relationship with Huawei
 **doomed** 
 Some news says Huawei could **scrape by**.  
 Because there's much **lower hanging fruit** right here.  
-How To Cook **Porridge** Using Slow Cooker -  
+How To Cook **Porridge** Using Slow Cooker  
 
 existential **angst**  
 I'm very **envious** of philosophers  
@@ -69,7 +69,7 @@ information **dissemination**
 
 Some thought the device seemed **quaint**.  
 what they’re stripping away will undoubtedly impact Huawei in a **material way**  
-What hangs in the balance is more than just Huawei’s **imminent** business health -   
+What hangs in the balance is more than just Huawei’s **imminent** business health  
 **Imminent** attack
 **Parisian**
 10 Immigration tips for **love-struck** tech workers 

@@ -124,7 +124,7 @@ we've **converged** on a set of **guiding principles** that reflect our values a
 
 > By ensuring we have consistent standards across the company, we can enable fluid internal mobility and further support individual growth  
 
-Promotions are a powerful tool for defining organizational culture and values because people tend to **emulate** those who are promoted -  
+Promotions are a powerful tool for defining organizational culture and values because people tend to **emulate** those who are promoted  
 **Panelists** are trained on **unconscious bias** every cycle and use a **checklist** and a **rubric** to help interrupt bias in the review  
 
 
@@ -308,7 +308,7 @@ sitting alone by yourself on the beach drinking a **Mai Tai**
 
 10 Mastermind Hackers That **Outplayed** Everyone   
 The same picture would eventually become his own **downfall**.  
-Even though all these hackers indeed sound **menacing** -  
+Even though all these hackers indeed sound **menacing**  
 Procedural programming has been with us since the **advent** of the first high-level languages, in the 1950s  
 You'll never get a **smidge** from me 
  
@@ -427,7 +427,7 @@ they gonna spent **boatload** of money in order to do it
 when they **cited** ...   
 whatever you want to say it **shelved**, **withdrawn** dead gone it's not happening  
 
-**Molasses** Sauce -  
+**Molasses** Sauce  
 **sesame**  
 Yogurt **Tahini**  
 
@@ -544,7 +544,7 @@ bought our house in 1985 in Orange County, CA, for $159k, now it's **appraised**
 No debt **in sight**  
 
 having no **downtime**  
-For **posterity**’s sake -  
+For **posterity**’s sake  
 Every measure of a good developer is **qualitative**. That makes them all subjective  
 
 Baidu has weathered a **plethora** of troubles.  
@@ -577,17 +577,17 @@ when opportunity arrives, they **back down**
 You don't think in **orthodox** way  
 economy **dislocation**  
 **broke down** to tears  
-it wasn't a lie, but they just tell it in some sort of weird **maudlin** way. -   
+it wasn't a lie, but they just tell it in some sort of weird **maudlin** way.  
 The acronym Make American think harder some what **retroactive**    
 **blood money**  
 at minimum you need another **sentient** human to **sign off** on it just in case the president is not the **decision-maker** you want  
 
-**Shoe Bandit** - Be Aware!! -  
+**Shoe Bandit** - Be Aware!!  
 The agents will then disappear with the phones in order to **snoop** through them  
 **Quran** **excerpts**  
 
 He is not **coherent**  
-this appears in the API Design Guidelines as a fundamental, but also **pervades** the design of the Swift language itself -  
+this appears in the API Design Guidelines as a fundamental, but also **pervades** the design of the Swift language itself  
 
 The boys’ chance of winning is **in jeopardy**
 We helped him find workers to work during the **strike**.  
@@ -595,13 +595,13 @@ I just need something to **take the edge off**.
 My wife is **going nuts** not getting her package, I told her I can find some **Kush** 
 The **bigwigs** promoted me to manager.  
 **commodity fetishism**  
-**scabs** -  
+**scabs**  
 We gonna be the **laughingstock** of the whole thing!  
 We're outrage about something, we need **glitter and glue**  
 I'm getting back in my **sleigh** now.  
 It's such **bullcrap** 
 100% **hemp** Tegridy Farm  
-It's **nihilistic** and out of touch with progressive thinking! -  
+It's **nihilistic** and out of touch with progressive thinking!  
 I'm trying to help, before there was war between classes, customers and workers **at odds**.  
 
 Kenny's father, Stuart McCormick, is angered that his son is not **boycotting** Amazon in **solidarity** with the strikers   
