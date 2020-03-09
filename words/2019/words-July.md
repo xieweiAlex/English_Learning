@@ -184,7 +184,7 @@ a **dismissive** shrug
 The room was **alight** with **lamps**  
 That morning wee fired our first **kiln** of **charcoal**  
 
-Warmth **emanated** from the fireplace -  
+Warmth **emanated** from the fireplace  
 **whoa** 
 Christmas **carol** 
 **rabid** dog
@@ -198,7 +198,7 @@ he **countered** with a left **hook**.
 I was **gasping** for breath  
 Which part are you **auditioning** for?  
 **Ugh**! You’re all sweaty and horrible!   
-The blackout might be a sign of something a lot more **ominous**  
+The blackout might be a sign of something a lot more **ominous** -  
 
 It's absolutely **abhorrent** to tell her to go back to where she came from  
 he just **sensationalizes** it  
@@ -494,7 +494,7 @@ Programming is so **instantly gratifying**
 Every week, I share my **round-up** of the most important stories at the intersection of psychology, technology, and business  
 Nobody wants to be alone, without anyone to **confide** in or **commiserate** with -  
 **confide** my property to your care
-voice chat to achieve the interpersonal closeness that can feel **contrived** or **heavy-handed** in a **prearranged** phone call -  
+voice chat to achieve the interpersonal closeness that can feel **contrived** or **heavy-handed** in a **prearranged** phone call  
 
 > Men’s relationships, he said in an email, are “underpinned by ‘doing stuff together  
 

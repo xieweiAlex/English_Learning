@@ -57,7 +57,7 @@ the resistance is **futile**
 **strip out**  
 What biases might we **inadvertently** be building into our system.  
 It shouldn't be a kind of **afterthought**.  
-How do you **reconcile** the inherent trade-offs between explainability and efficiency and accuracy of algorithms. -  
+How do you **reconcile** the inherent trade-offs between explainability and efficiency and accuracy of algorithms.  
 the historical example you've made is a little **unsettling** if I heard your answer correctly  
 We tried and then we gave up, we said we're going **full-throttle** in the United States.  
 It's not something you put on the shelf for some **doomsday** war 
@@ -205,7 +205,7 @@ The plan is still in its **embryonic** stages. -
 The boat were out **trawling** the bay.  
 The carpet was fastened to the floor with **tacks**.  
 She walked off in a **huff**.  
-The wind **subsided** to calm. -  
+The wind **subsided** to calm.  
 A fairer, more **egalitarian** society.   
 **claimant**  
 an ardent **disciple** of Yoga  
@@ -226,7 +226,7 @@ We gonna talk about **the birds and bees**.
 **illicit** intercourse  
 
 
-In winter, heavy rains could **destabilize** snow and increase **avalanche** danger -  
+In winter, heavy rains could **destabilize** snow and increase **avalanche** danger  
 Before you **grumble** about a gray forecast, it’s worth remembering that giant redwoods, colorful wildflowers and **grandiose** canyons were all made possible by the relentless **pitter patter** of a billion raindrops - 
 
 One of the things that really gets my **goat** is when companies build employer brand by over-indexing on **banalities** -   
@@ -279,7 +279,7 @@ The ordinary paper is primarily made of **wood pulp**
 
 ## Week 2 
 
-The **ease** of accepting connection requests -  
+The **ease** of accepting connection requests  
 
 Full day **itinerary** sightseeing in Brisbane, Australia  
 **Credentials** aren't everything   
@@ -334,7 +334,7 @@ But China last weekend angered the president by trying to **water down** its com
 She said very **atrocious** things   
 I can't say I'm **applauding** this situation.  
 They want a **subdued** and controlled population domestically   
-their **insatiable** hunger for rare animals -  
+their **insatiable** hunger for rare animals  
 
 Hydra **post mortem**  
 

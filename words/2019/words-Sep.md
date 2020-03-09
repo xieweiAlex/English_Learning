@@ -308,7 +308,7 @@ people believe they understand how something works when in fact their understand
 
 Unnecessary meetings, pointless disputes, bureaucracy, posturing, dealing with other people's mistakes, traffic jams, addictive but unrewarding **pastimes**  
 
-No advertisement from SquareSpace… I am **befuddled**  
+No advertisement from SquareSpace… I am **befuddled** -  
 **cold case**  
 You can't determine what happened that many years ago, what **transpired**," police spokeswoman Therese Barbera said  
 All we know is that he went missing off **the face of the Earth**, and now he's been discovered   
@@ -324,7 +324,7 @@ he is pretty **pompous**
 You're **flanked** by Warren and Bernie on both sides of you  
 He **pretty much said** ...  
 He goes in **austerity**  
-Warren and Bernie **tag team** on Medicare for all  
+Warren and Bernie **tag team** on Medicare for all -  
 **eliminating** private health care insurance  
 
 You didn't **utilize** the sorting rules.  

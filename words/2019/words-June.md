@@ -20,7 +20,7 @@ Facebook’s infinite scroll is particularly **devilish**, but you don’t have 
 
 There was a sense "Jony was gone but reluctant to **hand over** the **reins**"  
 helped turn Apple into America's **preeminent** corporation -  
-Apple's closest thing to a **living embodiment** -  
+Apple's closest thing to a **living embodiment**  
 (she seemed to be a **living embodiment** of vitality)
 leaving it **rudderless**  
 Its iPhone business is **faltering**  
@@ -115,7 +115,7 @@ I hope you don't think I'm a **snob**, throwing shit on the work of people using
 The **malaise** is spreading to core countries including Finland and the Netherlands, which both **contracted** in the first quarter.   
 **cane** chair, sugar cane  
 A horrific video from that night sparked public **outcry**  
-The **usurper** **wrested** the power from the king. -  
+The **usurper** **wrested** the power from the king.  
 
 The **upshot** would be a world with fewer stock animals. -  
 The goose is in the oven, **sputtering** fat.  
@@ -124,7 +124,7 @@ Many small town mayor and city official practice **cronyism**.
 **kraft** bag  
 the treaty gave a fresh **impetus** to trade.  
 
-Do I **coddle** her more than any other loving parent -  
+Do I **coddle** her more than any other loving parent  
 the fact that these **charlatan** still have six-figure salaries 
 **Third way**  
 it's **mind boggling** to me 
@@ -187,7 +187,7 @@ they are willing to be kind of the **pit bull**
 **demonize**, **demonetise**  
 **war monger** 
 
-the high-tech **denim** jacket pairs with your smartphone through the dedicated Jacquard app -  
+the high-tech **denim** jacket pairs with your smartphone through the dedicated Jacquard app  
 bike **handlebar** **grips**   
 chain **lube**  
 For a particularly **strenuous** hill climb, a brief hilltop rest may be in order, especially while training yourself to get used to it  
@@ -203,8 +203,8 @@ The **climb** allows you to work hard, and the **descent** allows you to recover
 Improve your **cardiovascular** fitness  
 **Chainset**, **crankset**  
 
-Physical access (or "evil maid") attacks are some of the most **insidious** threats faced by those of us who travel with our Macs.
-**insidious** threats -  
+Physical access (or "evil maid") attacks are some of the most **insidious** threats  
+**insidious** threats  
 **insidious** propaganda 
 
 
@@ -213,14 +213,14 @@ No doubt, the second try was the **charm**
 who tend to be bleeding edge and often **evangelize** and drive technology adoption by broader groups  
 
 **tailgate party**  
-The US is paying for NATO, you had lots of countries that were **delinquent**. -  
+The US is paying for NATO, you had lots of countries that were **delinquent**.  
 He's like a **meandering** old man **rambling** on the phone about nonsense -  
 cause it seems like you're **meandering**  
 **bathrobe**  
 You've to eat your **pureed** carrot  
 **immunity**  
 It's pretty **cocky** who's only about bricks into his wall  
-the boy is **cocky** and **obstreperous** -  
+the boy is **cocky** and **obstreperous**  
 
 **decomposition**  
 
@@ -246,7 +246,7 @@ that's our strategy, our **end game**
 **petrodollar**  
 **reprehensible** behavior  
 
-go after democrats **incumbents** -  
+go after democrats **incumbents**  
 2020 gonna be pretty **bleak** for him  
 (a bleak and barren **moor**.)  
 
@@ -275,7 +275,7 @@ The enemy is a **heavy-handed** **strong-armed** brainwashing dictatorship of a 
 I know this a **somber** video   
 **imposing**, amazing, **classy city**   
 **whining about**  
-The use of the word 'camp' or '**concentration** camp' has a negative **connotation** in English, which directly invokes imagery of Nazis and Nazism -  
+The use of the word 'camp' or '**concentration** camp' has a negative **connotation** in English, which directly invokes imagery of Nazis and Nazism  
 
 **degeneration** and **regeneration**  
 **pumping out**
@@ -327,7 +327,7 @@ Money can't **budge** me.
 Career has been **trouncing** romance for years.   
 A gunman **sniped** at them from the roof.  
 **fudge** on an exam   
-always **fudged** on the important questions -  
+always **fudged** on the important questions  
 Snipers and **irregulars** **fell on** the **hapless** patrol.    
 
 **Portuguese**  
@@ -355,7 +355,7 @@ we'll be the **odd man out**
 **smack down**  
 
 be **embroiled** in a quarrel  
-Mothers know the **travail** of giving birth to a child. -  
+Mothers know the **travail** of giving birth to a child.  
 the population increased **tenfold**  
 A snake **wriggled** across the road  
 the **wriggle** of the mountains  
