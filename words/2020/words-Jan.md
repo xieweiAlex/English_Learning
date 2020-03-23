@@ -8,7 +8,6 @@ Costco's offerings as an **unbeatable** bargain. **Move over**, Lululemon
 **Toss** the whole **shebang** around until the quinoa is evenly distributed  
 
 **jillion** dollars 
-**frizzy** red hair  
 
 **Fresh off the boat**, I got no friends here  
 **wake up call**  
@@ -98,10 +97,10 @@ Insurance plans typically won't cover the cost of surgery, as this is considered
 
 **consumables**  
 
-Those kids their **saliva** is already half virus **particles** by weight in the first place -   
+Those kids their **saliva** is already half virus **particles** by weight in the first place  
 This virus **transfers** and **transmits** in an **asymptomatic** state 
 no fever, no **chills**, no **febrile** and pain nothing to indicate to you  
-the **stopgap** nature of this is really **gut checking** to see dump truck piles of dirt they meant to block people from leaving in infected area -  
+the **stopgap** nature of this is really **gut checking** to see dump truck piles of dirt they meant to block people from leaving in infected area  
 
 This is a very dangerous game by #PMF uncontrolled **factions** to **galvanize** the tense situation.  
 Iranian missile attack on US Base in Iraq left 34 soldiers with **concussions**, pentagon says  
@@ -213,7 +212,7 @@ he was tagged as a **quitter**
 he made a **beeline** to the bathroom  
 in **unison**  
 I feel extra **gassy** today  
-**fluorescent** lamp/light/paint -  
+**fluorescent** lamp/light/paint   
 coughing clears the lungs of **mucus**  
 she applies **deodorant** to her armpits after she showers  
 **overhand** grip, **overhand** smash  
@@ -226,7 +225,7 @@ He vented his **spleen** on the assembled crowd
 My collage **got the ax** yesterday  
 
 
-I'll just have a **mosey** round  
+I'll just have a **mosey** round -  
 Kim, show them your **mangled** **genitals**  
 Her face was **freckled** all over  
 

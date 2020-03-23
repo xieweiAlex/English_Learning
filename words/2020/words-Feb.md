@@ -4,7 +4,7 @@ I'm a democrat, but I'm not a **card-carrying** democrat
 It's a **high-flying** company  
 
 But economists agree that the U.S. economy would **bounce back** like a yo-yo after health risks **die down**, **buoyed** by an **uptick** in spending once people leave their houses and open up their wallets. 
-If it spreads to SF, it could **hamstring** **ginormous** tech companies. -   
+If it spreads to SF, it could **hamstring** **ginormous** tech companies.  
 But if it doesn't...it won’t. So no one wants to say **unequivocally** what’s going to happen.  
 One economist said the outbreak could **dock** a full percentage point off 2020 growth.   
 
@@ -20,7 +20,7 @@ Now the Trump administration is facing bipartisan backlash for **downplaying** t
 Iger **reinvigorated** the entertainment powerhouse by buying Pixar, Marvel, the Star Wars franchise and 21st Century Fox, and recently launched its own streaming platform. 
 Nearly six decades after the Civil Rights Act, black workers still have to **hustle** to **get ahead**.  
 
-**Locusts** **overran** the **prairie**. -  
+**Locusts** **overran** the **prairie**.  
 **Locusts** ate the country **bare**.  
 
 **on-ramp**  
@@ -47,7 +47,7 @@ which is like a **foreman** not understanding how his equipment will behave.
 her assessment proved **spot-on** and provided a great road map for how they would develop over the years.  
 **MBTI**: Myers–Briggs Type Indicator  
 **highly relevant** to the conflicts and disagreements  
-most of the **psychologists** I met were surprisingly **squeamish** about exploring differences. -  
+most of the **psychologists** I met were surprisingly **squeamish** about exploring differences.  
 I had most of Bridgewater's managers take the Myers-Briggs assessment. The results **astounded** me. 
 **cognitive bias**  
 That was "**light bulb**" **went off** my head  
@@ -67,7 +67,7 @@ we also had an annual "**Sleaze** Day" when everybody would dress up **sleazy**
 The **barn** in Wilton, CT  
 one of the most critical builders and **pillars** of Bridgewater  
 **strip mall**  
-I never valued more traditional, **antiseptic** relationships where people put on a **facade** of **politeness** and don't say what they really think. -  
+I never valued more traditional, **antiseptic** relationships where people put on a **facade** of **politeness** and don't say what they really think.  
 The media **dubbed** us as among the "Heroes of October."  
 We're **at odds** as to how to proceed with a witness.  
 All great investors and investment approaches have bad **patches**  
@@ -110,7 +110,7 @@ I could provide **know-how** by introducing Chinese companies to American ones
 **deal maker**  
 supposedly **pocketed** a couple hundred millions U.S. dollars on this deal  
 the **Robber Baron** Era  
-Nonetheless, the **astute** will profit enormously from what I truly believe will be the biggest investment opportunity ever -  
+Nonetheless, the **astute** will profit enormously from what I truly believe will be the biggest investment opportunity ever  
 I had **sorely** **underestimated** the complexity of the task we had set for ourselves  
 
 Let's give her **a round of applause**
@@ -171,7 +171,7 @@ it would be **irrevocable**.
 life & work principles **interwoven**  
 This is "**seat of the pants**" trading, based on research and executed on instinct.  
 The markets were more **volatile**  
-it was the one of the most **pivotal times** in the last hundred years -  
+it was the one of the most **pivotal times** in the last hundred years  
 Liberal had **ceased to** mean being in favor of progress and had come to mean "paying people not to work."  
 **inflation-hedged** assets  
 My **kooky** views were starting to look right on  
@@ -188,13 +188,13 @@ Just **postulate** about designs without getting their hands dirty
 Why Use 2 Pieces Of **Cutlery**, When You Only Need One  
 
 Japan's **dull** election is a sign of **ailing** politics  
-**docile** & **diffidence** -   
+**docile** **docile** & **diffidence** -    **diffidence**  
 Stop **fantasizing** Japanese girls  
 
 **unmistakable** bias 
 
-My dad's latest **bimbo** hit on me -  
-there is a **mastodon** exhibit **on loan** from Bangkok -  
+My dad's latest **bimbo** hit on me  
+there is a **mastodon** exhibit **on loan** from Bangkok  
 The **corridor** opens into Mr. Brown's office  
 **Jeepers**! Do you think she saw?  
 **Rigatoni** is a form of tube-shaped pasta  
@@ -204,7 +204,7 @@ The **corridor** opens into Mr. Brown's office
 Its **diminutive** nature  
 it's gonna be a little **anemic** for daily street duty  
 excellent track day bike because of their **indestructible** nature 
-We can't **exalt** Suzuki too much now -  
+We can't **exalt** Suzuki too much now  
 
 another **unimaginably** wealthy man  
 It also received a $129 million tax **rebate** from the federal government  

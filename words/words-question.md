@@ -1,3 +1,6 @@
+* discern
+* silver lining
+* stopgap 
 * streatch goal 
 * seat of the pants
 * anabolic steroids

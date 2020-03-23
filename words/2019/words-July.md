@@ -189,7 +189,7 @@ Warmth **emanated** from the fireplace
 Christmas **carol** 
 **rabid** dog
 a **rabid** football fan  
-**bronchial pneumonia** -  
+**bronchial pneumonia**  
 an **albino** tiger  
 The **corridor** opens into Mr. Brown's office  
 **Banqueting** hall 
@@ -198,7 +198,7 @@ he **countered** with a left **hook**.
 I was **gasping** for breath  
 Which part are you **auditioning** for?  
 **Ugh**! You’re all sweaty and horrible!   
-The blackout might be a sign of something a lot more **ominous** -  
+The blackout might be a sign of something a lot more **ominous**  
 
 It's absolutely **abhorrent** to tell her to go back to where she came from  
 he just **sensationalizes** it  
@@ -479,7 +479,7 @@ Lake **Baikal** is the deepest lake in the world and the largest source of fresh
 The **Siberian** **taiga** is the largest forest in the world, the lungs of the planet.  
 **summer houses** and **country cottages**  
 **Vladivostok** 
-**trams buses**, **trolleybuses** fixed-route taxi buses -   
+**trams buses**, **trolleybuses** fixed-route taxi buses  
 subway stations in Russia are generally **works of art** 
 **street crime** and mob 
 **nevertheless** the statistics don't lie 

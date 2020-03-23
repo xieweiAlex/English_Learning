@@ -30,11 +30,11 @@ Who they say showed little interest in the product development process - a fact 
 A wireless charging pad that Apple announced with **fanfare** two years ago never came to market.  
 
 
-This **Addendum** will cover rental support, to include but not limited to rental search by local leasing agents -  
+This **Addendum** will cover rental support, to include but not limited to rental search by local leasing agents  
 Your incentive award will be **pro-rated** based on your hire date  
 **set forth** those details  
 a **duo** of negotiators.  
-Revive negotiations to dismantle North Korea's nuclear weapons program, a goal that has proved **elusive** for years. -   
+Revive negotiations to dismantle North Korea's nuclear weapons program, a goal that has proved **elusive** for years.  
 Press Secretary Stephanie was bruised in a **tussle** between reporters and North Korea guards  
 rural communities **ravaged** by domestic violence and sexual abuse  
 
@@ -88,7 +88,7 @@ Leading to the Newton being launched far before it was ready and the Macintosh p
 One thing I do know — which Cook **alludes** to in his statement above  
 
 > And it’s fascinating to me that Ive is leaving Apple with a single **typeface** — San Francisco — that the company now uses for everything
-It makes me **queasy** to see that Apple’s chief designers are now reporting to operations -  
+It makes me **queasy** to see that Apple’s chief designers are now reporting to operations  
 I don’t think that “chief design officer” should have been a **one-off** title created just for Jony Ive.  
 
 You invited your fiend to the gym you can't just **bail** because you are lazy.  
@@ -104,7 +104,7 @@ The last thing I expect to hear about Mike Pence is that he **swings both ways**
 
 
 Whatever. - No, I've got ten days **pent up** in me  
-The body of the person who was found **hanged** was **cremated** immediately before an **autopsy** could be done. -  
+The body of the person who was found **hanged** was **cremated** immediately before an **autopsy** could be done.  
 
 **alkaline** battery, **alkaline cell**
 **reCaptcha**  
@@ -214,7 +214,7 @@ who tend to be bleeding edge and often **evangelize** and drive technology adopt
 
 **tailgate party**  
 The US is paying for NATO, you had lots of countries that were **delinquent**.  
-He's like a **meandering** old man **rambling** on the phone about nonsense -  
+He's like a **meandering** old man **rambling** on the phone about nonsense  
 cause it seems like you're **meandering**  
 **bathrobe**  
 You've to eat your **pureed** carrot  
@@ -297,14 +297,14 @@ Mass protests in Hong Kong **broke out**
 **admiral**  
 **pow** for 4 years 
 well decorated person who has a lot of **clout**   
-**Amnesia** mercifully **obliterated** his memory of the accident - 
+**Amnesia** mercifully **obliterated** his memory of the accident  
 **ballistics**  
 **False flag** again, an oil country is not going to attack someone else oil tanker  
 
 **get away** with  
 **high class** 
 
-Standford's sailing coach took a call in 2016 that would **ensnare** him into he college-admissions scandal. -  
+Standford's sailing coach took a call in 2016 that would **ensnare** him into he college-admissions scandal.  
 **part ways**  
 **bump into**  
 small **flat** in San Francisco 
@@ -319,7 +319,7 @@ But this was a really good **playdate**
 if it doesn't work, try to **spice things up**. 
 
 Net **Neutrality**  
-the car won't **budge** an inch -  
+the car won't **budge** an inch  
 Money can't **budge** me.  
 **Closet information**, a **closet** socialist  
 **Whooping cough** is very **prevalent** just now  
@@ -346,12 +346,12 @@ You can't justify **mowing down** unarmed students with tanks and AK-47s
 It's **detrimental** because without acknowledging that this happen **in the first place**, it's **doomed** to repeat itself.  
 
 **demonization**  
-racism and **bigotry** -  
+racism and **bigotry**  
 we'll be the **odd man out**  
 
 **Brig**. Gen. Laura Yeager will **assume command** of the California National Guard's 40th **Infantry Division**.    
 
-**op-ed**: opposite editorial page -  
+**op-ed**: opposite editorial page  
 **smack down**  
 
 be **embroiled** in a quarrel  
@@ -411,7 +411,7 @@ Looker customers can **rest assured** that the high-quality support experience t
 
 **fanboy**  
 going **hog-wild** over AI 
-Yang is all about policies, NOT **platitudes** -  
+Yang is all about policies, NOT **platitudes**  
 really like his attitude and problem solving **vigor**  
 
 A Taco Bell ran out of tacos and someone called the police to report the '**travesty**'  
