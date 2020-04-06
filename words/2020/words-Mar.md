@@ -1,10 +1,65 @@
 
 
-Mandated maternity benefits are **meager** compared with those of other developed nations. -   
+## Week 4 
+
+it's like **pandemonium** out in the streets  
+
+**snake oil**  
+American **pollock**  
+
+Turn the bag **inside out** or place it inside a **pillowcase** or laundry bag to avoid straps and **zippers** getting caught inside the machine  
+
+**deregulation**  
+When you're confronting both a) an economic crisis and b) a public health emergency, **the last thing you want to do** is **trip on red tap**  
+You've heard stories of companies **heroically** **rejiggering** their assembly lines to **churn out** emergency medical products  
+Distillers that **pivoted** to make hand sanitizer received some waivers from the government.   
+But **ethanol producers** sitting on millions of gallons of lower-grade alcohol are still **petitioning** the FDA to let them help out in the effort.   
+Because of the coronavirus, we might even start seeing some **midshipmen** with **mullets**  
+Stop **giggling** 
+Wyoming **Asphalt** Sour, a dense oil used to make paving **bitumen**, sold at negative prices in mid-March. As in, producers are paying buyers to take **barrels** off their hands.  
+Some think the U.S. could enter a cold war with one of its biggest **frenemies**  
+
+It's a sign of **detente**  
+As today's report shows, the coronavirus outbreak is economically **akin to** a major hurricane occurring in every state around the country for weeks on end  
+
+
+excessive drinking and **promiscuity**   
+**voluptuous** women  
+**sassy** girl  
+**hands-down** winner  
+**baby-talk**  
+**monkey business**  
+
+Many people have personal travel plans and we ask that you **heed** all government warnings and restrictions around travel. 
+
+In recent weeks, President Trump and his administration have **promoted** public health measures that have effectively shut down large **swaths** of the U.S. economy. But now he's getting **antsy**. -  
+At a news conference Monday night, Trump said he didn't want the "cure" (a **self-induced** economic recession)  
+he'd like to “have the country opened up and **raring** to go by Easter.”   
+The stock market is **mimicking** a **bucking bronco**, and analysts say growth could tank, unemployment could **soar**, and layoffs could be devastating as much of the country's economy is **put on hold** to contain the virus  
+This crisis is unique in that it **pits** economic growth against public health  
+A Mount Olympus-sized pile of advertising just **went poof**  
+The Olympics is a unique media event—the games draw young people and cord-cutters alike back to the **boob tube**.  
+You also don’t have to be a **technophile** to **geek out** on all of its data, like **circadian** rhythm, sleep stages, and heart rate variability. -   
+
+After all, the function of **genitalia** seems simple.  
+He could not get up an **atom** of sympathy for her.  
+So basically the problem is you're **clingy**  
+**escalator**  
+You can't keep a rat in your apartment, they're **unsanitary**.  
+A **buffo** character -  
+A **bumblebee** **stung** me on the check  
+**snowplow**  
+The manager never **faltered** in his duty  
+
+Stocks are **coming off** their worst week since 2008
+India has over 1.3 billion people and a **severely** **strained** healthcare system.  
+Hong Kong’s Economy Is in ‘**Deep Water**,’ Finance Chief Says  
+
+Mandated maternity benefits are **meager** compared with those of other developed nations.  
 that doesn't mean you have to return to the **status quo ante**  
 take **utmost** seriousness  
 only wear face masks when **unwell**  
-Singapore's response has received international **accolades**. -  
+Singapore's response has received international **accolades**.  
 
 Remember the first time you played basketball? The concept was a **no-brainer**. Get the ball into the **hoop**. Anyone can do it!  
 she **mulled** the question over before shaking her head  
@@ -42,13 +97,14 @@ He was lurking **slyly** in the background
 **matriarch**  
 
 U.K. Prime Minister Boris Johnson issued a request Monday for manufacturers to help **churn out** **ventilator** parts.  
-**Ventilators** are expensive, which makes hospitals reluctant to buy them **in bulk** if demand will **taper off** **before long** -  
+**Ventilators** are expensive, which makes hospitals reluctant to buy them **in bulk** if demand will **taper off** **before long**  
 Since launching in 2016, Teams has competed **bitterly** with Slack  
 **silver lining**  
 Billions of people across the globe had their lives **upended** this week by the coronavirus pandemic  
 Platforms like Facebook, Twitter, and Instagram have become **lifelines** for human contact and important **headlines** in the era of #socialdistancing, putting pressure on Big Tech to **clamp down** on misinformation and potentially harmful viral **cure-alls**  
 Apple **trivializes** the concept of ‘work can be fun’.  
 
+## Week 3 
 he had a **goatee**  
 they have **ties** with American corporation   
 we're living with a **possum**  
@@ -67,7 +123,7 @@ Overall, the **stripped down** redesign aims to be more customized and simplifie
 
 That doesn't **square** with our economy’s structure.   
 That’s why everything **hinges** on lawmakers’ response to the economic fallout  
-The question is whether that’ll be enough calories to get us through this self-imposed **hibernation**. -   
+The question is whether that’ll be enough calories to get us through this self-imposed **hibernation**.  
 **aftermath**  
 Thus far, companies have tried to tiptoe into the coronavirus crisis by **furloughing** and cutting down hours instead of **outright** layoffs  
 the former **Fed** chairs **strung together** highly technical words to say this: All the Fed can do is soften the inevitable **blow**.  
@@ -82,7 +138,7 @@ One notorious gang leader is feeling pretty **smug**
 
 **haggle with**  
 **bloodshot** eyes  
-when **push came to shove**, the ECB would have to do what was best for Europe -  
+when **push came to shove**, the ECB would have to do what was best for Europe  
 dealing with their **constituent**  
 they typically operate as if they are merchants in a **bazaar** in which maximizing one's own benefit is the **sole objective**. -  
 Unfortunately, mot policymakers enter their careers as **idealists** and leave **disillusioned**.  
@@ -98,7 +154,7 @@ Dow **plummets** nearly 3000 points as coronavirus anguish on Wall Street wages 
 
 During World War II, Chrysler and GM began making **fuselages**, airplane engines, and tanks. Today, companies are also ditching their day-to-day to serve the greater need.
 The U.K. is talking to **Rolls-Royce**, manufacturer JCB, and other firms to help make **ventilators**.   
-Consumer goods companies are shifting priorities in order to keep stores stocked with **essential** items. They'll stop making nice-but-not-necessary goods, like **scented** bleach, and **crank out** the highest-priority items, like **food staples**. -    
+Consumer goods companies are shifting priorities in order to keep stores stocked with **essential** items. They'll stop making nice-but-not-necessary goods, like **scented** bleach, and **crank out** the highest-priority items, like **food staples**.  
 The government is also **calling on** us, everyday citizens, to make extraordinary sacrifices.   
 no **trivia nights**  
 The "**epicenter**" of the pandemic has now shifted to Europe, the WHO said Friday.  
@@ -110,10 +166,10 @@ Our routines may be a little **out of whack**, but at least the Earth still revo
 ## Week 2 
 
 For humans to understand bird sex, they must first throw out all thoughts of **mammalian** sex organs
-This same opening also serves a less-sexy purpose: the **expulsion** of **urinary** and digestive waste -  
+This same opening also serves a less-sexy purpose: the **expulsion** of **urinary** and digestive waste  
 When birds are feeling **frisky**, they rub their swollen **cloacas** together  
 This delicate **balancing act** can often take several attempts before resulting in successful **copulation** -  
-Perhaps for fun — or to increase the chance of **insemination** — birds often have sex many times throughout the course of their mating period -  
+Perhaps for fun — or to increase the chance of **insemination** — birds often have sex many times throughout the course of their mating period  
 
 She always gets **frisky** after she **hurls**.  
 
@@ -160,7 +216,7 @@ Trump’s coronavirus Address, **Blooper Reel** Included
 
 Seven weeks after **cordoning** off Hubei, the Communist Party is **itching** to declare victory over the novel coronavirus that has **swept across** the country from that central province -  
 
-Oh my god, like a **moth** to a flame, I'm telling you -  
+Oh my god, like a **moth** to a flame, I'm telling you  
 All their food is strictly **kosher**  
 **wigs** and **hairpieces**  
 Do stand up, you are **slouch** like a **field hand**  
@@ -199,9 +255,9 @@ I'm gonna go **pinch of a loaf**. When I come back this is all gone, all right?
 This pool of slave labor you got, you can **underbid** any contractor in town.  
 If I don't get it, I **go under**, that's a fact  
 I **conjured** him **out of thin air**  
-They're gonna **wind up** chasing a **figment** of my imagination -  
+They're gonna **wind up** chasing a **figment** of my imagination  
 On a **two-year stretch** for **B&E**  
-Big, **twitchy**, fucker -  
+Big, **twitchy**, fucker  
 Kind of **roomie** you pray you don't get.  
 some **hotshot** banker  
 He hears your **tale of woe** and quite naturally wants to **cheer you up**.  
@@ -216,7 +272,7 @@ Every man has his **breaking point**.
 **home stretch**   
 Rule number 1, no **blasphemy**  
 Don't you listen to these **nitwits**, you here me?  
-Call the **trustees**. Take that **tub of shit** down to the **infirmary**. -  
+Call the **trustees**. Take that **tub of shit** down to the **infirmary**.  
 I could see why some of the boys **took him for snobby** -  
 Holy shit! That's like winning the **sweepstakes**, isn't it?  
 **Take a big, wet bite outta** my ass is what.  
@@ -240,16 +296,16 @@ Ecommerce works great because China has built **first-rate** infrastructure and 
 Maybe the **contrarian** move however is to recognize the **cleverness** of Congress.  
 Therefore Congress is actually exercising a **judicious** use of political power to bully cash-rich companies to do more on innovation, or at least employment  
 AI is mostly a **vague** product or an **add-on** service whose total industry revenue is difficult to determine, and that goes for many of the other items  
-Chinese firms have **stiffened** their **resolve** to master important technologies after repeated US sanctions -  
+Chinese firms have **stiffened** their **resolve** to master important technologies after repeated US sanctions  
 Chinese share of added value per phone has **zoomed up**, from 4% to 25% over the course of a decade  
 high-speed rail, **shipbuilding**, and **telecommunications** equipment  
 **ingenious**, **indigenous**  
-Chinese aspirations to replace US technology has long been a **whimsical** task -  
+Chinese aspirations to replace US technology has long been a **whimsical** task  
 Britain failed to maintain its control over **textile** technologies  
 the “father of the US industrial revolution” **stateside**  
 it’s hard to stop technical knowledge from **diffusing**  
-“Development” and “reform” are **splendidly** **Hegelian** ideas: both are **forward-looking** and **without end** -  
-**Incantation** alone cannot make something true, but getting names right is a nice part of institutional success -  
+“Development” and “reform” are **splendidly** **Hegelian** ideas: both are **forward-looking** and **without end**  
+**Incantation** alone cannot make something true, but getting names right is a nice part of institutional success  
 tycoon-dominated **polity**  
 His novels feature smart—and often even brilliant—elites, who feel **hemmed in** by forces they cannot understand  
 Even his best novels are **blemished** by a few too many twists and unnecessary complications  
@@ -288,7 +344,7 @@ we want to avoid or **fade** this **lunacy**
 pop has to run, he has to change the direction and bring people together, and stop all this **vitriol** in this country -  
 **Scotch Tape**  
 
-The idea of “**eliminating toil**” - or minimizing day-to-day **drudgery** - became a big part of the DevOps philosophy -  
+The idea of “**eliminating toil**” - or minimizing day-to-day **drudgery** - became a big part of the DevOps philosophy  
 They have over 1000 employees and **spun off** from their parent company in 2018
 they preferred their DevOps engineers to have **familiarity** with **off-the-shelf** tools 
 
@@ -299,7 +355,7 @@ return to **normalcy**
 White House **concedes** US lacks enough test kits  
 
 IATA Chief Economist Brian Pearce said that because many airlines are loaded up with debt and barely **eke out** profits as it is, they’re not exactly in **fighting shape**.    
-They **eke out** a **precarious** existence **foraging** in rubbish **dumps**. -  
+They **eke out** a **precarious** existence **foraging** in rubbish **dumps**.  
 
 U.N. officials say the current **locust** **infestation** is the worst they've seen in 25 years.  
 FAO and U.N. Secretary-General António Guterres have pointed to climate change as an **underpinning** factor in the locust **outbreak**.  
@@ -322,7 +378,7 @@ Did the speaker talk clearly and **audibly**?
 
 **ingrown** **toenails**  
 **Zeitgeist**  
-that’s a shame, because no one better **epitomizes** the intense **financialization** of the American stock market from 2001 – 2007 than Angelo -  
+that’s a shame, because no one better **epitomizes** the intense **financialization** of the American stock market from 2001 – 2007 than Angelo  
 walk away **scot-free** from ALL criminal prosecution is something I will NEVER forgive Eric Holder and Barack Obama for  
 who also **skated** from any criminal OR civil prosecution  
 This is a note about Countrywide’s quarterly earnings call in 2008, when Angelo, in response to an analyst’s question, said that sharply increasing mortgage **delinquencies** and failures were NOT limited to sub-prime, but were now in Alt-A mortgages, too.

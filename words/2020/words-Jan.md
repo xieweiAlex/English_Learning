@@ -225,7 +225,7 @@ He vented his **spleen** on the assembled crowd
 My collage **got the ax** yesterday  
 
 
-I'll just have a **mosey** round -  
+I'll just have a **mosey** round  
 Kim, show them your **mangled** **genitals**  
 Her face was **freckled** all over  
 

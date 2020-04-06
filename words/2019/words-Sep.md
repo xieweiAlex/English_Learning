@@ -324,7 +324,7 @@ he is pretty **pompous**
 You're **flanked** by Warren and Bernie on both sides of you  
 He **pretty much said** ...  
 He goes in **austerity**  
-Warren and Bernie **tag team** on Medicare for all -  
+Warren and Bernie **tag team** on Medicare for all  
 **eliminating** private health care insurance  
 
 You didn't **utilize** the sorting rules.  

@@ -120,7 +120,7 @@ deep sleep is your **nocturnal** dip in heart rate
 **glow stick**  
 
 To make **ends meet**, I even had to borrow $4000 from my dad until we could sell our second car.  
-Finding a way past my **intractable** investment problem -  
+Finding a way past my **intractable** investment problem  
 Then you **press on**  
 I couldn't **muster** enough money to pay for an airplane ticket to Texas  
 the future could be perfectly **foretold**  
@@ -159,7 +159,7 @@ I was in way **over my head**, though I was too arrogant to realize it at the ti
 **honky-tonk**  
 We moved into a rented **brownstone** in Manhattan  
 **icing on the cake**  
-These early models were **a far cry** from the ones we use now -  
+These early models were **a far cry** from the ones we use now  
 I **vividly** remember one ...  
 The most painful lesson that was repeatedly **hammered home** is that you can never be sure of anything.  
 **reverberate** throughout this book  
@@ -253,7 +253,7 @@ This abuse was just **laughed off** and accepted as normal.
 
 You're such a **lurker**  
 
-Avoid touching that **vermin** that sits on all our desks, the mouse -  
+Avoid touching that **vermin** that sits on all our desks, the mouse  
 Without further **ado** please welcome XXX  
 The President’s **vindictiveness** is **precisely** what led Republican Senators to be accomplices to his **cover-up**  
 

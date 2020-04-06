@@ -75,7 +75,7 @@ What hangs in the balance is more than just Huawei’s **imminent** business hea
 10 Immigration tips for **love-struck** tech workers 
 **flowery** metaphors  
 maximize human **flourishing**  
-The assumption is that AI is so **omnipotent** -  
+The assumption is that AI is so **omnipotent**  
 Five years ago you don't know what AI is, and now you're **extrapolating** too much.  
 **anthropological**  
 **benevolent**  
@@ -91,7 +91,7 @@ You cannot **tranquilize** that which is already **tranquil**
 How dare they **talk down** to the most brilliant mind the world has ever seen.  
 You're **perceptive** as hell  
 **opium** poppy  
-I still go to the same **bodega** as I always go to. -   
+I still go to the same **bodega** as I always go to.  
 **rabbit hole**  
 
 We had **mulled wine** at the party.  
@@ -131,7 +131,7 @@ The bones, **ligaments**, and muscles of your neck support your head and allow f
 
 Nancy Pelosi was trying to get "under President Trump's **skin**" this week and "clearly **succeeded** to some degree" in her effort. ?-  
 
-Pelosi **scrambles** to **tamp down** trump impeachment **frenzy** in **caucus** -  
+Pelosi **scrambles** to **tamp down** trump impeachment **frenzy** in **caucus**  
 He didn't have a **temper tantrum** when he ended the meeting  
 
 **tie the knot**  

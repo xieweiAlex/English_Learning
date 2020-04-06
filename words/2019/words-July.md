@@ -492,7 +492,7 @@ football **indisputably** holds a leading position
 Programming is so **instantly gratifying**  
 **Roster** of contractors  
 Every week, I share my **round-up** of the most important stories at the intersection of psychology, technology, and business  
-Nobody wants to be alone, without anyone to **confide** in or **commiserate** with -  
+Nobody wants to be alone, without anyone to **confide** in or **commiserate** with  
 **confide** my property to your care
 voice chat to achieve the interpersonal closeness that can feel **contrived** or **heavy-handed** in a **prearranged** phone call  
 

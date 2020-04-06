@@ -6,6 +6,7 @@ WORDS_REVIEW="words-new.md"
 
 files=(
   "westWorld/ww1.md"
+  "westWorld/ww2.md"
   "GOT/GOT8.md"
   "GOT/GOT7.md"
   "GOT/GOT6.md"
@@ -22,6 +23,8 @@ files=(
   "words/2019/words-July.md"
   "words/2019/words-June.md"
   "words/2019/words-May.md"
+  "words/2019/words-April.md"
+  "words/2019/words-March.md"
 )
 
 function getNewWords {

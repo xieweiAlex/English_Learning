@@ -3,7 +3,7 @@ Alaska **cod**
 Now matter how **shriveled** their dicks are.  
 The **ebb and flow** of the sea   
 My enthusiasm was **ebbing** away  
-I suddenly found myself in a awkward **predicament**. -  
+I suddenly found myself in a awkward **predicament**.  
 He sees **culling** deer as **necessity**.  
 **Anecdotes** **culled** from Greek and Roman  
 
@@ -117,7 +117,7 @@ The **malaise** is spreading to core countries including Finland and the Netherl
 A horrific video from that night sparked public **outcry**  
 The **usurper** **wrested** the power from the king.  
 
-The **upshot** would be a world with fewer stock animals. -  
+The **upshot** would be a world with fewer stock animals.  
 The goose is in the oven, **sputtering** fat.  
 she had a **flair** for languages.  
 Many small town mayor and city official practice **cronyism**.  
@@ -165,7 +165,7 @@ A warning **snarl** told him that the trespasser was Spitz
 He was **beset** by fear 
 the project was **beset** with difficulties  
 **intractable** materials/pain/temper/disease/problem   
-He made a **scathing** attack on the statement -  
+He made a **scathing** attack on the statement  
 
 
 **thoroughly** 
