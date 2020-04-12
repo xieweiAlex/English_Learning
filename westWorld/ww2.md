@@ -1,3 +1,38 @@
+## E 4 
+**about time**  
+Most **potent** thing these creations will give me is grape juice   
+let's **get on with** it  
+I own a **biotechnology** company, and I'm dying of a disease whose research I **defunded** 15 years ago. I think my sense of humor is fucking **intact**  
+**fidelity**  
+Seems a little **far-fetched**, doesn't it, William?  
+you little fucking **chancer**  
+she's **whip-smart**  
+**shithead**  
+These fuckers have **poked and prodded** me **ad infinitum**.  
+all the death make you **agitated**  
+Death is an old **amigo** of mine -  
+Your husband looks **parched**, let's get him a drink, what do you say?  
+
+> If you can't tell, does it matter?  
+
+## E 3 
+
+> I miss taking the chances  
+
+got back from **recon**.  
+And leave these **mongrels** to **scourge** our land our dignity? -  
+I will stand in **defiance**  
+Major, why is this **flaxen plum** riding ahead of you? -  
+really **dampens** the **knickers**  
+the **feeble** among us need some rest -  
+Someone **jury-rigged** a thin character, and programmed it into him.   
+they've **sullied** him, and used him as a **pawn** in their game.  
+But you ain't even sure about the **termagant** you take your orders from. -  
+there is a certain level of **persona** that you have to craft for that, especially as a woman.    
+who is a war general, and a **vengeful** goddess.  
+we can **blow** the **squibs**, and then move on. -  
+
+
 ## E 2 
 
 Have you ever seen anything so full of **splendor**?  

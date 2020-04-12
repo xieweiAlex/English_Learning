@@ -194,7 +194,7 @@ We were always careful to stay safely short of being too big, **lest** we **kill
 it was inevitable that many of them would **fall short**  
 we need people with high standards who wouldn't hesitate to **eliminate** people who couldn't **cut it**  
 it's tough to be **tough on** people  
-new hires typically go through an **acclimation** period of about 18 to 24 months before becoming comfortable with the truthfulness and transparency that's an essential party of Bridgewater culture -  
+new hires typically go through an **acclimation** period of about 18 to 24 months before becoming comfortable with the truthfulness and transparency that's an essential party of Bridgewater culture  
 suck the **marrow out of life**  
 **proof in the pudding**  
 We're free to **savor life**  
@@ -273,7 +273,7 @@ Every man has his **breaking point**.
 Rule number 1, no **blasphemy**  
 Don't you listen to these **nitwits**, you here me?  
 Call the **trustees**. Take that **tub of shit** down to the **infirmary**.  
-I could see why some of the boys **took him for snobby** -  
+I could see why some of the boys **took him for snobby**  
 Holy shit! That's like winning the **sweepstakes**, isn't it?  
 **Take a big, wet bite outta** my ass is what.  
 I think a man working **outdoors** feels more like a man if he can have a bottle of **suds**. That's only my opinion...Sir  
@@ -341,7 +341,7 @@ As in 1982, when conditions **deteriorated** and circumstances increasingly **tr
 We walked him through the numbers and he literally **turned white**  
 we want to avoid or **fade** this **lunacy**  
 
-pop has to run, he has to change the direction and bring people together, and stop all this **vitriol** in this country -  
+pop has to run, he has to change the direction and bring people together, and stop all this **vitriol** in this country  
 **Scotch Tape**  
 
 The idea of “**eliminating toil**” - or minimizing day-to-day **drudgery** - became a big part of the DevOps philosophy  

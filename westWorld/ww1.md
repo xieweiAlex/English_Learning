@@ -157,7 +157,7 @@ It's MRSA in her **abdomen**.
 I've **vivisection**, self-**cannibalism**  
 seducing **nubile** maidens  
 befriend **ill-fated** **side-kicks**  
-The **titillation**, horror, **elation** -- they're **parlor tricks** -  
+The **titillation**, horror, **elation** -- they're **parlor tricks**  
 
 ## E 1 
 I recommend you **hang back**  

@@ -256,7 +256,7 @@ the **bombardment** was **intermittent**.
 She gave me that "**come-hither**" look  
 
 avoid getting **bogged down** on technical details that will not be relevant for long  
-Some of the skills you had that will **atrophy** aren't very impactful, just necessary at the moment. -  
+Some of the skills you had that will **atrophy** aren't very impactful, just necessary at the moment.  
 
 **rectal** bleeding  
 **hemorrhoids**  

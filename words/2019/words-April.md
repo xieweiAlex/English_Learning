@@ -108,13 +108,13 @@ You're my closest brother, why are you acting so **despicable**?
 
 Because he is an adorable **goofball**.  
 
-called for 4:20 p.m. to be the socially accepted hour of the day to consume **cannabis** -  
+called for 4:20 p.m. to be the socially accepted hour of the day to consume **cannabis**  
 **pot-smoking**  
 
 **double down** 
 If you're in a **head-on** car crash, you might be safest in the front seat and not in the back.  
 
-The dog **cringed** at the sight of the whip -  
+The dog **cringed** at the sight of the whip  
 Working as an independent mobile, web and software developer in Africa can be a **trying** experience  
 **Infamous** **load shedding** - a practice of cutting off electricity to whole sections of the city in order to conserve power in countries -  
 It takes a lot of **guts** and **zeal** for a good African developer to **turn down** job offers and internships to pursue his **jack of all** passion
@@ -130,7 +130,7 @@ These interviews felt like tests, and more than that, they felt **orthogonal** t
 **Ornate** Victorian houses  
 We can't ignore the **plight** of **crippling** homelessness crisis -  
 **inconsequential** to the city.  
-Minority and poor neighborhoods are already being swallowed up by **gentrification** in other parts of city. -  
+Minority and poor neighborhoods are already being swallowed up by **gentrification** in other parts of city.  
 
 
 **concierge** assistance 
@@ -290,7 +290,7 @@ Be the **scoff** of the town
 **bumper sticker**  
 the beast in you is **rearing** its ugly head  
 **medicare** insurance  
-When something is **grotesque**, it's hard to look away. -  
+When something is **grotesque**, it's hard to look away.  
 the **contenders** had been **winnowed** to five -  
 He is rising too quickly into becoming a top-tier **contender** for the American president  
 

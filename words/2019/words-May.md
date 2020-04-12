@@ -98,11 +98,11 @@ We had **mulled wine** at the party.
 Jon shrugged. There's **hot cider** to drink, or **mulled wine** if you prefer.
 The business moved **onward** and upward  
 their **advocacy** of family values  
-**lodge** travellers in the **shed** -  
+**lodge** travellers in the **shed**  
 hunting **lodge**  
 The **nun** took strait vows.  
 **covert** action  
-**slog**: work **doggedly** or persistently -  
+**slog**: work **doggedly** or persistently  
 it would be a hard **slog** back to the camp  
 **contraceptive** pill  
 We are gonna **pore over** everything.  
@@ -231,7 +231,7 @@ Before you **grumble** about a gray forecast, it’s worth remembering that gian
 
 One of the things that really gets my **goat** is when companies build employer brand by over-indexing on **banalities** -   
 In this blog post, I tackle the really hard **tactics** that help build a good employer brand  
-If I have my **druthers**, this will be one of three posts on brand -  
+If I have my **druthers**, this will be one of three posts on brand  
 
 The interest of **usury** is unfairly high -  
 **heartland**  
