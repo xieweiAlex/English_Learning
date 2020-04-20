@@ -15,6 +15,8 @@ that's fucking **morbid** if you ask me.
 
 ## E 9 
 
+> I will keep them busy  
+
 I'll **raze** this place to ground  
 He's got a **keen sense** of irony, our **jailer**. But I see the logic   
 Realize your whole life is a **hideous** fiction  
@@ -55,7 +57,7 @@ You know you're **shorthanded**
 But happily, in your **convalescence**, I've had time to consider the best way to make you talk.  
 A **glorified** **pimp**  
 an ordinary **homesteader** and her daughter 
-No **inflection point** at which we become full alive -  
+No **inflection point** at which we become full alive  
 
 
 ## E 7  
@@ -120,7 +122,8 @@ you have your **tells**
 I'm sure they'll be happy to **oblige**  
 He has a sensitive **disposition**  
 Please don't **get in my way**  
-If you don't **bang** her by tomorrow, I'm **calling dibs**  
+> If you don't **bang** her by tomorrow, I'm **calling dibs**  
+
 **go black hat** with me  
 cause we need a little bit more time than the **constabulary** will allow  
 

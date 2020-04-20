@@ -1,3 +1,10 @@
+* squibs
+* Arroyo vs creek 
+* mendacity vs lie  
+* in the offing
+* marooned
+* onus vs responsibility, obligation 
+* ingratiating
 * discern
 * silver lining
 * stopgap 

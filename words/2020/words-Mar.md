@@ -32,14 +32,14 @@ excessive drinking and **promiscuity**
 
 Many people have personal travel plans and we ask that you **heed** all government warnings and restrictions around travel. 
 
-In recent weeks, President Trump and his administration have **promoted** public health measures that have effectively shut down large **swaths** of the U.S. economy. But now he's getting **antsy**. -  
+In recent weeks, President Trump and his administration have **promoted** public health measures that have effectively shut down large **swaths** of the U.S. economy. But now he's getting **antsy**.  
 At a news conference Monday night, Trump said he didn't want the "cure" (a **self-induced** economic recession)  
 he'd like to “have the country opened up and **raring** to go by Easter.”   
 The stock market is **mimicking** a **bucking bronco**, and analysts say growth could tank, unemployment could **soar**, and layoffs could be devastating as much of the country's economy is **put on hold** to contain the virus  
 This crisis is unique in that it **pits** economic growth against public health  
 A Mount Olympus-sized pile of advertising just **went poof**  
 The Olympics is a unique media event—the games draw young people and cord-cutters alike back to the **boob tube**.  
-You also don’t have to be a **technophile** to **geek out** on all of its data, like **circadian** rhythm, sleep stages, and heart rate variability. -   
+You also don’t have to be a **technophile** to **geek out** on all of its data, like **circadian** rhythm, sleep stages, and heart rate variability.  
 
 After all, the function of **genitalia** seems simple.  
 He could not get up an **atom** of sympathy for her.  
@@ -63,9 +63,9 @@ Singapore's response has received international **accolades**.
 
 Remember the first time you played basketball? The concept was a **no-brainer**. Get the ball into the **hoop**. Anyone can do it!  
 she **mulled** the question over before shaking her head  
-**harping** on social **blights** like racism, sexism, inequality and war. -  
+**harping** on social **blights** like racism, sexism, inequality and war.  
 optimism is **justified**.  
-It has been based on **crass** political calculation and willful ignorance. -  
+It has been based on **crass** political calculation and willful ignorance.  
 But just because Trump **et al** have indulged in irresponsible optimism during this crisis doesn't mean that all optimism is **irresponsible**. -  
 Optimism in a time like this is crucial. As with climate change and war, we need to be realistic, to face the problem **squarely**, while resisting fear and **fatalism**.  
 We need to retain our faith that human intelligence and decency will **prevail**.  
@@ -140,7 +140,7 @@ One notorious gang leader is feeling pretty **smug**
 **bloodshot** eyes  
 when **push came to shove**, the ECB would have to do what was best for Europe  
 dealing with their **constituent**  
-they typically operate as if they are merchants in a **bazaar** in which maximizing one's own benefit is the **sole objective**. -  
+they typically operate as if they are merchants in a **bazaar** in which maximizing one's own benefit is the **sole objective**.  
 Unfortunately, mot policymakers enter their careers as **idealists** and leave **disillusioned**.  
 a **no-nonsense** man who can be trusted to get stuff done  
 

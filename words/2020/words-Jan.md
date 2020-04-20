@@ -67,7 +67,7 @@ We've got it **backward**
 Excellence is **idiosyncratic**  
 it’s being **caustic**, blunt, and rude in an **incongruously** **affectless** way  
 Examine something as specific and as limited as the **free throws** awarded after **fouls**, and you’ll learn that not only do the top two free-throw shooters in history have **utterly** different styles  
-Excellence seems to be **inextricably** and wonderfully intertwined with whoever demonstrates it. -  
+Excellence seems to be **inextricably** and wonderfully intertwined with whoever demonstrates it.  
 > Excellence seems to be inextricably and wonderfully intertwined with whoever demonstrates it. Each person’s version of it is uniquely shaped and is an expression of that person’s individuality. Which means that, for each of us, excellence is easy, in that it is a natural, fluid, and intelligent expression of our best extremes. It can be **cultivated**, but it’s **unforced**  
 
 then argue that good leaders should not have big egos, you will lead people **astray**  

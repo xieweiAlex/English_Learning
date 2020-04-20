@@ -310,7 +310,7 @@ he talked with all the **fervor** of a new **convert**.
 Since then, they've been stuck in **limbo**.  
 **concerted catalysis**, **concerted** action.  
 During chairman Mao's **heyday**, he sent millions of students down to the countryside the learn from their **masses**.  
-He **shuddered** with **revulsion**. -  
+He **shuddered** with **revulsion**.  
 
 
 **Tacit** agreement, **tacit** consent, **tacit** knowledge.  
@@ -385,7 +385,7 @@ The news on American's southern border shows no sign of **letting up**.
 **Acclaim** the winner of a race.  
 An attempt to **subvert** democratic  
 My **impending** departure  
-The forest was **ravaged** by fire. -   
+The forest was **ravaged** by fire.  
 **planetary** **orbit**  
 People are put off by her **strident** voice.  
 The **pedlar** **beckoned** me to follow him -    

@@ -1,7 +1,140 @@
-## Wee 2 
-colander: bowl-shaped strainer, used to wash or drain foods   
-want some crackers?  
+## Week 3 
 
+efficacy test   
+No, I don’t presume any kind of inoculation or anything from the trial  
+mandatory, mandate  
+We leveled off new cases 
+out of woods  
+a lot of people can’t do because they’re under so many more stressors, and have so many more immediate concerns.  
+
+mobster  
+dignify  
+educated guess  
+
+You will want to try creating some **deviant** nodes and mixing them in the network to fully test.
+
+**Hostile takeover**  
+
+**trilogy**  
+A **triplet** sleeps amongst its two siblings  
+The old man **gasped** out  few words  
+**audition**  
+**earl grey**  
+You've got good **gene**, kid.  
+**Shh**  
+English **muffin**  
+the people **groaned** under the load of taxes  
+He put everything into a plastic **tray**  
+she never stopped **quacking**. Drove me nuts.  
+British **paleontologist** who worked in Tanzania  
+**hung up**, **hung over**  
+Her **dankish** hair **hung down** in **hanks**  
+you are a complete **ray** of sunshine  
+I've been **bumming** about for the last year without a job  
+he drooped out of college and became a beach **bum**  
+on the **bum**  
+I was really **bummed** out that there were no ticket left  
+He tried to **bum** a ride  
+Aidan looks so handsome in a **tux** (**tuxedo**) -  
+**jade** **bracelet**  
+Your faith in my brother is **touching**  
+
+**Aches and pains**  
+**bank run**  
+**demand deposit**  
+**equilibrium** -  
+
+**slush fund**  
+The snow had turned to **slush**  
+Her eyes/pupils **dilated** with terror  
+There are some drifting **petals** in that river.  
+**cleric**: a clergyman or other person in religious orders  
+You honor me, sir, she **murmured** sweetly.  
+
+During a search, officers **located** the van and attempted to pull it over, but the driver did not stop and a **pursuit** **ensued**  
+she was holding the cat in her arms and petting it **tenderly**  
+
+
+I'm a very jealous and **possessive** man.  
+
+Like a good pain **au chocolat**, yesterday’s news from French consumer **behemoths** LVMH and L’Oréal is **bittersweet**
+LVMH said it’s hopeful for a **relaxation** of lockdowns in May or June and will reopen some manufacturing **plants** **accordingly** -  
+
+Trump’s Guidelines to Reopen Economy Put **Onus** on Governors -  
+
+	
+Why this pandemic could **cleave** America in two. -  
+
+Have you, like me, cried over a bag of **wilted** organic **arugula** before? Because sometimes it’s really hard to shop and cook for one person before your **produce** goes bad? -  
+And always, always **swaddle** your herbs. -  
+**attic** window  
+
+**tamper-proof**  
+**integral** part of the organization.  
+**fixed expression**  
+
+The **chapel** was built in 1843.  
+Stupid **Cupid**, stop picking on me  
+He swore never to **divulge** the secret.  
+**oil derrick**  
+why don't you show us the rest of your **casa**?  
+crash **cymbal**, small **cymbals**  
+the piece ends with **cymbal crash**  
+the **aroma** of roasting coffee beans.  
+
+**hit home** 
+> A priest, a rabbit, and a monk walk into a bar.  The rabbit says, "I think I'm a typo." 
+
+**Advanced economy**  
+The Treasury said all major carriers would be covered. $5.8 billion is **earmarked** for American Airlines, while $3.2 billion is headed to Southwest Airlines, according to the companies. 
+
+**Cumulative** GDP loss over 2020 and 2021: about $9 trillion, more than the economies of Japan and Germany combined. 
+I am grateful to say that I can easily sleep eight hours, uninterrupted. Which makes my recent daytime **drowsiness** all the more baffling  
+
+My eye doctor hates the **flinch** I have every time he tries to get near my eyes.
+
+The bride and the **bridesmaids** usual carry **bouquets**.  
+The **musket** discharged loudly  
+**blotter** paper  
+if one sheep **leap over** the **dyke**, all the rest will follow.  
+**prance**: to walk with lofty proud **gait**, often in an attempt to impress others -  
+**prance** around  
+**airily**: in a **flippant** manner -  
+she looked very plain and **dowdy**  
+he brought **discredit** on the whole family  
+
+**inexplicable**  
+
+Exhausted, I **slid** into bed and fell fast asleep.  
+She **fell over** and **slid** across the shiny floor  
+they **resemble** each other in shape but not in color  
+**superintendent** engineer  
+he is the **superintendent** of this school  
+the horses were **swiftly** **corralled**. 
+the kids were kept in the small **corral** -  
+I'm not going back to social **oblivion**  
+The ancient civilization fell into **oblivion**.  
+
+## Wee 2 
+
+> I don't want it sounds arrogant, but I think I can win it by 5:0  
+
+She is still **taunting** us from the **grave**.  
+do we have to make an appointment **beforehand**?  
+**antenatal** training, **antenatal** development -   
+
+Negative **mentality**   
+**fiat money** system  
+**stimulant**  
+**mimic** human intuition  
+**smackdown**  
+**delusional**  
+You feel **elated**, you feel a little bit scared.  
+
+**colander**: bowl-shaped **strainer**, used to wash or drain foods -  
+He **strained** every **sinew** to help us, but didn't succeed.  
+I put on my **strained** smile for the next customer  
+want some **crackers**?  
 
 **The Game of Chicken**  
 
@@ -15,7 +148,7 @@ explore it **graphically**
 
 this seems to be **the final straw** for most of the world to change their manufacoring strategy  
 they have **too many eggs in one basket**  
-that doesn't mean China will be giving up its **mantle** for being the world's Factory anytime soon -  
+that doesn't mean China will be giving up its **mantle** for being the world's Factory anytime soon  
 
 I wonder the old **intercom** system still works.  
 My hometown is famous for **pottery** and **porcelain**  
@@ -26,7 +159,7 @@ A **mole** can undermine the strongest **rampart** -
 It has a huge mast, with the **mainsail** attached  
 From **glen** to glen, and down the mountain side  
 I need you to help me get **outta** this **hellhole**  
-The Tower of Remoteness is scored for piano and **clarinet**.  
+The Tower of Remoteness is scored for piano and **clarinet**. -  
 **merriment**  
 When we did, our board of directors **sided** with him  
 **colony** formation  
@@ -34,15 +167,13 @@ penal **colony**
 A **colony** of seals lay **basking** in the sun  
 **dispersal** area  
 **hammerhead** shark
-**doorpost**: a **jamb** for a door  
+**doorpost**: a **jamb** for a door -  
 if there an **apocalypse**, good luck.  
 **windscreen**  
 
-
-
 **Neither is better**  
 When they **line up**, we're good.  
-I saw a pack of **hyenas** take down a young **wildebeest**.  
+I saw a pack of **hyenas** take down a young **wildebeest**. -  
 **omniscience**  
 
 as authorities world-wide **implored** citizens to main lockdowns despite the Easter holiday weekend. -  
@@ -70,7 +201,7 @@ Friendship is the finest **balm** **in need**.
 
 the piglet's **popping** the **snout out**.  
 Once **pie-in-the-sky**, initiatives he championed like Medicare for All and the Green New Deal now have the support of many Democrats.  
-Sanders will still be on the **ballot** as state primaries continue, enabling him to **rack up** delegates so he can **exert** more influence at the party convention in August. -  
+Sanders will still be on the **ballot** as state primaries continue, enabling him to **rack up** delegates so he can **exert** more influence at the party convention in August.  
 Then Mr. Trump opens the door for questions, and the session deteriorates into a **dispiriting** **brawl** between the President and his antagonists in the White House press corps. -  
 He likes to **exert** his authority  
 His father **exerted** a lot of pressure on him to succeed.  
@@ -83,7 +214,7 @@ prevent the deaths of their loved ones or help the family **breadwinner** stay e
 The goal was to eventually **wind down** the separate Walmart Grocery experience entirely after customers had made the shift.  
 
 It makes me **homesick** to look at it.  
-He **fumbled** behind him for the latch on the door -  
+He **fumbled** behind him for the latch on the door  
 who wants to play **Scrabble**?  
 She posted a poll on Twitter, asking "are you a bad **hombre** or a nasty woman?"  
 One dark, **stormy** night I visited the dying woman.  
@@ -119,12 +250,12 @@ A **whimsical** personality
 **eyedropper**  
 The **stress** falls on the last **syllable**  
 **ballplayer**  
-She **rattled** some coins in the box -   
+She **rattled** some coins in the box  
 Why should you get involved in their **fray**?  
 the **frayed** collar of her old coat  
 card **fiche**  
 The **diaphragm** draws air into the lungs  
-now the production's **on hiatus** -  
+now the production's **on hiatus**  
 **spiral** **chute**  
 no **suds**, no save  
 **suds**: the **froth** produced by soaps or detergents -  
@@ -155,9 +286,11 @@ While you **prematurely** fill out a 2020 scorecard, keep a close eye on...
 **grippe**, **grippy**   
 He was **spurred** on by ambition  
 **infotainment** screen  
-When chained together, three of the reported Safari flaws could have allowed **malicious** sites to **impersonate** any legit site a victim trusts and access camera or microphone -  
+When chained together, three of the reported Safari flaws could have allowed **malicious** sites to **impersonate** any legit site a victim trusts and access camera or microphone  
 
 ## Week 1  
+
+> Cal me Wyatt
 
 **bootstrap** process 
 **upfront cost**  
@@ -191,7 +324,7 @@ Pain in the **arse**
 The police are **guardians** of law and or  
 modern **welfare state**  
 
-**xenophobia** and racism related to the 2019-20 coronavirus pandemic”: they range from **taunts** to outright assault. -  
+**xenophobia** and racism related to the 2019-20 coronavirus pandemic”: they range from **taunts** to outright assault.  
 **demonisation**  
 Not all surveillance is inherently **malign**   
 

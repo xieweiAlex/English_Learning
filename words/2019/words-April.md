@@ -118,7 +118,7 @@ The dog **cringed** at the sight of the whip
 Working as an independent mobile, web and software developer in Africa can be a **trying** experience  
 **Infamous** **load shedding** - a practice of cutting off electricity to whole sections of the city in order to conserve power in countries -  
 It takes a lot of **guts** and **zeal** for a good African developer to **turn down** job offers and internships to pursue his **jack of all** passion
-Use **obnoxious** **in-your-face** formatting and lists -  
+Use **obnoxious** **in-your-face** formatting and lists  
 I'm kind of **appalled** at the existence of this post  
 
 
