@@ -1,3 +1,4 @@
+* spatter vs sputter  
 * squibs
 * Arroyo vs creek 
 * mendacity vs lie  

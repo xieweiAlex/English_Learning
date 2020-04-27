@@ -63,6 +63,9 @@ As much as anything, to see Euron's pure, **psycho glee** at watching this happe
 
 
 ## E 1 
+
+> Jon Snow: I will not punish a son for his father's sins, and I will not take a family home away from a family it has belonged to for centuries. That is my decision, and my decision is final.
+
 Cersei tries to **even the odds**  
 We need to **shore up** our defenses  
 The Starks have **manned** the wall for thousands of years  

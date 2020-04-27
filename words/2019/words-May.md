@@ -227,13 +227,13 @@ We gonna talk about **the birds and bees**.
 
 
 In winter, heavy rains could **destabilize** snow and increase **avalanche** danger  
-Before you **grumble** about a gray forecast, it’s worth remembering that giant redwoods, colorful wildflowers and **grandiose** canyons were all made possible by the relentless **pitter patter** of a billion raindrops - 
+Before you **grumble** about a gray forecast, it’s worth remembering that giant redwoods, colorful wildflowers and **grandiose** canyons were all made possible by the relentless **pitter patter** of a billion raindrops  
 
 One of the things that really gets my **goat** is when companies build employer brand by over-indexing on **banalities** -   
 In this blog post, I tackle the really hard **tactics** that help build a good employer brand  
 If I have my **druthers**, this will be one of three posts on brand  
 
-The interest of **usury** is unfairly high -  
+The interest of **usury** is unfairly high  
 **heartland**  
 
 The whole point of this law is to establish that a **fetus** is a person with rights.  

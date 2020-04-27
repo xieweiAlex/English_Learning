@@ -1,15 +1,102 @@
+
+## Week 4 
+
+Make sure it's hot, like piping hot.  
+**Salmonella** 
+
+how this two cohere  
+
+this has caused considerable consternation, heartache for customers.  
+**tales of woe**  
+Bitcoin miners can recoup a reasonable fraction of their initial exp4enses.  
+the emobodied energy will be amortized over years and years of mining  
+**Three Gorges Dam** in China -  
+gold **bullion** -  
+they're hurting the pool by doing that, this is **purely** an act of **vandalism**.  
+
+**centennial**  
+**mining rigs**  
+game-**theoretic**  
+**punitive**   
+
+Is he going crazy or did he actually have an **epiphany**? -  
+**prana**, **Qi**
+
+She was very **gregarious**. -  
+I took pleasure in **tormenting** my teachers. -  
+my dad kind of **jollied** me into it.  
+**coined the term** of "value investing"  
+I was a **lopsided** person  
+> Chains of habit that are too light to be felt until they're too heavy to be broken.  
+
+she was a **cinch** -  
+they've got a **common heart**, which they got from their mother.  
+Truth forever on the **scaffold**, long forever on the throne, but that scaffold **sways** the future  
+**misthinkings**  
+I thought he was a **prodigy** -  
+**crew cut**  
+He's **ungodly** smart  
+neither of us like **frivolous** things -  
+he is always a **loner** in a sense  
+Prepare for any **eventuality**  
+He believed that, at that particular point, his reputation was **on the line**.  
+whether he is going forward or just **bow out**  
+We had this **death knell** from the Treasury, so I called the Treasury. -  
+I really did feel that it was going to be a **colossal disaster**. -  
+my dad is a **solitary** guy -  
+the fact I married somebody who makes **piles of money** is really the **antithesis** of what I ever thought -  
+
+everybody do the same, and he is gonna win  
+a shred of reputation, I wlll be ruthless  
+
+
+He is a **peach** to work with.  
+**claimant**  
+Reheat food until **piping hot** **throughout**  
+
+Order on him is shoot **on sight**  
+
+**aspirational** and **inspirational**  
+
+he **mumbleed** a few words and left  
+**vietnamese** 
+
+I look **dejected** and **forlorn**, as if I had no home to go to. -  
+she looked **sorrowful** and **dejected**.  
+
+Check out the **rack** on that chick  
+**dopamine**  
+Ross didn't get the **annulment**. We're still married  
+Her hair is natural **wavy**  
+The earth's surface is like an **armadillo**'s armor -  
+The walls were **draped** with the maps  
+
+**arcane**  
+**deadpan**  
+
+**throwback**
+
+Democrats and the White House said they're close to reaching a deal to **replenish** a fund for small-business loans.
+A SHOOTING **RAMPAGE** IN CANADA -  
+Essential, but not **eligible**  
+Marijuana companies are used to being denied by large institutions: Big banks won’t touch the stuff, fearing legal **blowback**  
+**pot-belly**  
+
+
 ## Week 3 
 
-efficacy test   
-No, I don’t presume any kind of inoculation or anything from the trial  
-mandatory, mandate  
-We leveled off new cases 
-out of woods  
-a lot of people can’t do because they’re under so many more stressors, and have so many more immediate concerns.  
+I can't stand by with partisan **gridlock**  
 
-mobster  
-dignify  
-educated guess  
+**efficacy** test   
+No, I don’t presume any kind of **inoculation** or anything from the trial -   
+**mandatory**, **mandate**  
+We **leveled off** new cases 
+**out of woods**  
+a lot of people can’t do because they’re under so many more **stressors**, and have so many more immediate concerns.  
+
+**mobster**  
+**dignify**  
+**educated guess**  
 
 You will want to try creating some **deviant** nodes and mixing them in the network to fully test.
 
@@ -33,9 +120,9 @@ you are a complete **ray** of sunshine
 I've been **bumming** about for the last year without a job  
 he drooped out of college and became a beach **bum**  
 on the **bum**  
-I was really **bummed** out that there were no ticket left  
+I was really **bummed out** that there were no ticket left  
 He tried to **bum** a ride  
-Aidan looks so handsome in a **tux** (**tuxedo**) -  
+Aidan looks so handsome in a **tux** (**tuxedo**)  
 **jade** **bracelet**  
 Your faith in my brother is **touching**  
 
@@ -54,7 +141,6 @@ You honor me, sir, she **murmured** sweetly.
 During a search, officers **located** the van and attempted to pull it over, but the driver did not stop and a **pursuit** **ensued**  
 she was holding the cat in her arms and petting it **tenderly**  
 
-
 I'm a very jealous and **possessive** man.  
 
 Like a good pain **au chocolat**, yesterday’s news from French consumer **behemoths** LVMH and L’Oréal is **bittersweet**
@@ -62,11 +148,10 @@ LVMH said it’s hopeful for a **relaxation** of lockdowns in May or June and wi
 
 Trump’s Guidelines to Reopen Economy Put **Onus** on Governors -  
 
-	
 Why this pandemic could **cleave** America in two. -  
 
-Have you, like me, cried over a bag of **wilted** organic **arugula** before? Because sometimes it’s really hard to shop and cook for one person before your **produce** goes bad? -  
-And always, always **swaddle** your herbs. -  
+Have you, like me, cried over a bag of **wilted** organic **arugula** before? Because sometimes it’s really hard to shop and cook for one person before your **produce** goes bad?  
+And always, always **swaddle** your herbs.  
 **attic** window  
 
 **tamper-proof**  
@@ -77,7 +162,7 @@ The **chapel** was built in 1843.
 Stupid **Cupid**, stop picking on me  
 He swore never to **divulge** the secret.  
 **oil derrick**  
-why don't you show us the rest of your **casa**?  
+why don't you show us the rest of your **casa**? -  
 crash **cymbal**, small **cymbals**  
 the piece ends with **cymbal crash**  
 the **aroma** of roasting coffee beans.  
@@ -94,12 +179,12 @@ I am grateful to say that I can easily sleep eight hours, uninterrupted. Which m
 My eye doctor hates the **flinch** I have every time he tries to get near my eyes.
 
 The bride and the **bridesmaids** usual carry **bouquets**.  
-The **musket** discharged loudly  
+The **musket** **discharged** loudly  
 **blotter** paper  
 if one sheep **leap over** the **dyke**, all the rest will follow.  
-**prance**: to walk with lofty proud **gait**, often in an attempt to impress others -  
+**prance**: to walk with lofty proud **gait**, often in an attempt to impress others  
 **prance** around  
-**airily**: in a **flippant** manner -  
+**airily**: in a **flippant** manner  
 she looked very plain and **dowdy**  
 he brought **discredit** on the whole family  
 
@@ -131,7 +216,7 @@ Negative **mentality**
 **delusional**  
 You feel **elated**, you feel a little bit scared.  
 
-**colander**: bowl-shaped **strainer**, used to wash or drain foods -  
+**colander**: bowl-shaped **strainer**, used to wash or drain foods  
 He **strained** every **sinew** to help us, but didn't succeed.  
 I put on my **strained** smile for the next customer  
 want some **crackers**?  
@@ -154,12 +239,12 @@ I wonder the old **intercom** system still works.
 My hometown is famous for **pottery** and **porcelain**  
 We were sent to eliminate a **mole**  
 She had a tiny **mole** on her cheek  
-A **mole** can undermine the strongest **rampart** -  
+A **mole** can undermine the strongest **rampart**  
 **goalie**, goalkeeper  
 It has a huge mast, with the **mainsail** attached  
 From **glen** to glen, and down the mountain side  
 I need you to help me get **outta** this **hellhole**  
-The Tower of Remoteness is scored for piano and **clarinet**. -  
+The Tower of Remoteness is scored for piano and **clarinet**.  
 **merriment**  
 When we did, our board of directors **sided** with him  
 **colony** formation  
@@ -227,7 +312,7 @@ they hopefully **resuscitate** you -
 I'm **fed up**  
 
 **violet** red  
-She said she wants to **slather** my body with stuff and then **lick it off**  
+She said she wants to **slather** my body with stuff and then **lick it off**  -   
 **maniacal**  
 industry **lingo**  
 The **Waltz**, the **Salsa**, the **Tango**  
@@ -424,7 +509,7 @@ Annie was **ecstatic** about the idea
 **furnishings**  
 the **incessant** talking jarred on my nerves  
 Oh, but **go easy** on **mayo** this time  
-There's a pay rise **in the offing**, I hear. -  
+There's a pay rise **in the offing**, I hear.  
 
 
 

@@ -46,7 +46,7 @@ He could not get up an **atom** of sympathy for her.
 So basically the problem is you're **clingy**  
 **escalator**  
 You can't keep a rat in your apartment, they're **unsanitary**.  
-A **buffo** character -  
+A **buffo** character  
 A **bumblebee** **stung** me on the check  
 **snowplow**  
 The manager never **faltered** in his duty  
@@ -73,7 +73,7 @@ Trump, **in spite of** all his missteps, has sense enough to seek the advice of 
 Trump, for all his **missteps**, at least has the sense to rely for advice on Anthony Fauci, who since the **dawn** of the AIDS pandemic in the 1980s has been a **leading authority** on **infectious** disease.
 Now let me **spell out**, in this dark time, some of my hopes:
 
-The coronavirus crisis will bring about the end of the Trump **era**. In November, voters **appalled** by the incompetence and **mendacity** of the Trump administration will vote for Joe Biden, who will win **in a landslide**. -  
+The coronavirus crisis will bring about the end of the Trump **era**. In November, voters **appalled** by the incompetence and **mendacity** of the Trump administration will vote for Joe Biden, who will win **in a landslide**.  
 
 World leaders will recognize the **impracticality**, and immorality, of military spending. 
 
@@ -91,7 +91,7 @@ I was able to **step out** of my temporary **stint** as CEO after one year, in A
 
 the **sensationalism** of the popular pres
 Try to laugh at it instead of getting **uptight**  
-the children were all **agog** to see their presents -  
+the children were all **agog** to see their presents  
 He was lurking **slyly** in the background  
 
 **matriarch**  
@@ -244,7 +244,7 @@ The NBA will use this **hiatus** to determine next steps for moving forward in r
 
 if America ever got a president with bunch of **lackeys** in Congress  
 These insects could **decimate** the region's food supply, and it's concerned it could become a full-blown **plague**  
-people bang utensils to try and **ward off** an increasing **menace** to their living livelihood, all to **no avail** -   
+people bang utensils to try and **ward off** an increasing **menace** to their living livelihood, all to **no avail**  
 A **voracious** appetite mean these locusts eat the equivalent of their own body weight in a single day  
 Beans, **maize**, pasture for animals, nothing stands a chance   
 
