@@ -1,15 +1,133 @@
+## Week 5
+**pseudonymous**  
+**a state of art**  
+
+**resurgence** of the virus 
+**jam-packed**  
+
+**Prominent** at time and then **went under**
+no way to **recourse**  
+**watering hole**  
+**strawman** 
+**poker chips**  
+
+**daikon**  
+**paraffin** **wax** -  
+**sand down**  
+**groomsman**  
+some people are said to have **psychic**   
+The garden is a **blaze** of color  
+He can wear a little **blazer** to school.  
+**Ripped out**, **rip apart** 
+They **ripped us off** at that hotel  
+
+COVID-19 can push kidneys into failure, send the body’s immune system into **catastrophic** **overdrive**, and cause blood **clots** that **impede** circulation to the lungs, heart, or brain  
+
+The coronavirus pandemic has **upended** the gun-rights organization during what should be **heady times** for the group  
+in the middle of presidential election and with gun owners **riled up** over what they see as an effort by authorities to **trample on** their Second Amendment rights. -  
+
+It doesn't even **aspire to** be really anonymous 
+**rendezvous** point -   
+**inherent**  
+
+**feasible** vs plausible 
+**beefing up**  
+
+**peephole** in the door  
+Are you going to the movie **premiere**?  
+**clunk**: a **decrepit** car -  
+**rhyme or reason**  
+Changes were being made without **rhyme or reason**.  
+A **reverent** gentleman is here to see you.  
+**shush**  
+**cranberry**  
+Can't talk! I'll be in my **stall**.  
+This is a **stall tactic**, Your Honor.   
+A sliver of glass **nicked** my hand  
+English **Scones**  
+
+He made **strenuous** attempts to stop her   
+As you may have heard, our industry has been under **strenuous** attacks by certain US copyright holders  
+We thank you for your past loyalty and **patronage** and wish you health and safety during the present health crisis and beyond  
+JavaScript **Sorcerer** 🧙  
+
+Pets have been shown to reduce the **gnawing** feelings of loneliness, depression, isolation, and anxiety, which makes them great in a quarantine -  
+**window shopper**  
+What Is **Contemporary Art**  
+
+
+My mother lives **upstate** new York.  
+**Canoodling**? - well, I can't say **hump** or **screw**... -  
+**humanitarian**  
+**Wiener Dog**: **dachshund** 
+**In a puff of smoke**  
+
+Before HIV was understood, a **folklore** arose in Uganda that a person could become **deathly** sick because of a **hex**   
+an earthquake deep beneath the Indian Ocean triggered a **tsunami** that devastated the Indonesian **archipelago**, killing nearly 230,000 people -  
+
+He was a bit **scatterbrained**, but in that brilliant sort of way  
+A **voracious** appetite for learning -  
+Frankly, if you think you are the best engineer a year out of college, you are **deluding** yourself  
+
+**wagyu** steak  
+a **landlocked** republic in south central Africa   
+**mucous** **membrane** -  
+
+He was **bamboozled** into joining the club.  
+He **muffled** his face and went to sleep  
+In his anger he hit the man, and a fight **ensued**.  
+He cut his food up into **teeny** pieces.  
+He acknowledged his mistake with a **wry** **grimace**. -  
+**jellyfish**  
+He scrubbed the sink and **bathtub** 
+We gonna get a triple **whammy** -  
+
+I'm an **apothecary** of that hospital. -  
+A **porcelain** **vase**  
+You make too much **fuss** about **trifles** -  
+**boobies**  
+He **winced** **inwardly** at her harsh tone.  
+slow down, let me get a **grip** on it.  
+that **poky** little house  
+He heard glasses **clinking** in the other room  
+
+Belgians are being asked to eat fries at least twice a week as the nation faces a huge potato **surplus**  
+businesses are worried their "all employees must wash hands — we actually mean that" signs won't cut it as the world's most **litigious** population **peeps** **aboveground**. -   
+Time for **torts** -  
+Last week, President Trump said his administration was exploring ways to help **shield** businesses  
+Studios and theaters were **tussling** over releases way before the pandemic struck  
+the owner of the High Times cannabis magazine announced plans to buy 13 California **dispensaries** from Harvest Health, one of the country’s largest distributors.  
+
+Do I look serious? - You look **stoned**  
+Her **blouse** and skirt match up nicely  
+I'm stuck in an ATM **vestibule**... -  
+
+He fell in love with a stripper again--what a **maroon**!  
+The knowledge of future evils **mortified** the present **felicities**. -  
+Communist Party officials’ **instinct** was to **hush it up**  
+After its initial **bungling**, China’s ruling party swiftly **imposed** a quarantine of breathtaking scope and **severity** -  
+
+Especially for us **Gen Zers** who never had the pleasure to see MJ **in his prime**.  
+Some have been forced to **euthanize** their pigs -  
+
+I was until I reached the **age of reason**  
+**sanctity of life**  
+Silicon Valley has become **Sanctimonious** Valley -  
+Too much the moral **arbiter** of the world
+
+Boeing has walked away from a $4.2 billion deal with Embraer, accusing the Brazilian aircraft manufacturer of failing to meet the **fine print**.   
 
 ## Week 4 
 
-Make sure it's hot, like piping hot.  
+Make sure it's hot, like **piping hot**.  
 **Salmonella** 
 
-how this two cohere  
+how this two **cohere**  
 
-this has caused considerable consternation, heartache for customers.  
+this has caused **considerable** **consternation**, heartache for customers. -  
 **tales of woe**  
-Bitcoin miners can recoup a reasonable fraction of their initial exp4enses.  
-the emobodied energy will be amortized over years and years of mining  
+Bitcoin miners can **recoup** a reasonable fraction of their initial expense. -  
+the emobodied energy will be **amortized** over years and years of mining  
 **Three Gorges Dam** in China -  
 gold **bullion** -  
 they're hurting the pool by doing that, this is **purely** an act of **vandalism**.  
@@ -19,11 +137,11 @@ they're hurting the pool by doing that, this is **purely** an act of **vandalism
 game-**theoretic**  
 **punitive**   
 
-Is he going crazy or did he actually have an **epiphany**? -  
+Is he going crazy or did he actually have an **epiphany**?  
 **prana**, **Qi**
 
 She was very **gregarious**. -  
-I took pleasure in **tormenting** my teachers. -  
+I took pleasure in **tormenting** my teachers.  
 my dad kind of **jollied** me into it.  
 **coined the term** of "value investing"  
 I was a **lopsided** person  
@@ -46,8 +164,8 @@ I really did feel that it was going to be a **colossal disaster**. -
 my dad is a **solitary** guy -  
 the fact I married somebody who makes **piles of money** is really the **antithesis** of what I ever thought -  
 
-everybody do the same, and he is gonna win  
-a shred of reputation, I wlll be ruthless  
+> everybody do the same, and he is gonna win  
+> a shred of reputation, I will be ruthless  
 
 
 He is a **peach** to work with.  
@@ -61,7 +179,7 @@ Order on him is shoot **on sight**
 he **mumbleed** a few words and left  
 **vietnamese** 
 
-I look **dejected** and **forlorn**, as if I had no home to go to. -  
+I look **dejected** and **forlorn**, as if I had no home to go to.  
 she looked **sorrowful** and **dejected**.  
 
 Check out the **rack** on that chick  
@@ -69,7 +187,7 @@ Check out the **rack** on that chick
 Ross didn't get the **annulment**. We're still married  
 Her hair is natural **wavy**  
 The earth's surface is like an **armadillo**'s armor -  
-The walls were **draped** with the maps  
+The walls were **draped** with the maps -  
 
 **arcane**  
 **deadpan**  
@@ -77,7 +195,7 @@ The walls were **draped** with the maps
 **throwback**
 
 Democrats and the White House said they're close to reaching a deal to **replenish** a fund for small-business loans.
-A SHOOTING **RAMPAGE** IN CANADA -  
+a shooting **rampage** in canada   
 Essential, but not **eligible**  
 Marijuana companies are used to being denied by large institutions: Big banks won’t touch the stuff, fearing legal **blowback**  
 **pot-belly**  
@@ -129,11 +247,11 @@ Your faith in my brother is **touching**
 **Aches and pains**  
 **bank run**  
 **demand deposit**  
-**equilibrium** -  
+**equilibrium**  
 
 **slush fund**  
 The snow had turned to **slush**  
-Her eyes/pupils **dilated** with terror  
+Her eyes/pupils **dilated** with terror -  
 There are some drifting **petals** in that river.  
 **cleric**: a clergyman or other person in religious orders  
 You honor me, sir, she **murmured** sweetly.  
@@ -144,11 +262,11 @@ she was holding the cat in her arms and petting it **tenderly**
 I'm a very jealous and **possessive** man.  
 
 Like a good pain **au chocolat**, yesterday’s news from French consumer **behemoths** LVMH and L’Oréal is **bittersweet**
-LVMH said it’s hopeful for a **relaxation** of lockdowns in May or June and will reopen some manufacturing **plants** **accordingly** -  
+LVMH said it’s hopeful for a **relaxation** of lockdowns in May or June and will reopen some manufacturing **plants** **accordingly**  
 
-Trump’s Guidelines to Reopen Economy Put **Onus** on Governors -  
+Trump’s Guidelines to Reopen Economy Put **Onus** on Governors  
 
-Why this pandemic could **cleave** America in two. -  
+Why this pandemic could **cleave** America in two.  
 
 Have you, like me, cried over a bag of **wilted** organic **arugula** before? Because sometimes it’s really hard to shop and cook for one person before your **produce** goes bad?  
 And always, always **swaddle** your herbs.  
@@ -162,7 +280,7 @@ The **chapel** was built in 1843.
 Stupid **Cupid**, stop picking on me  
 He swore never to **divulge** the secret.  
 **oil derrick**  
-why don't you show us the rest of your **casa**? -  
+why don't you show us the rest of your **casa**?  
 crash **cymbal**, small **cymbals**  
 the piece ends with **cymbal crash**  
 the **aroma** of roasting coffee beans.  
@@ -196,11 +314,11 @@ they **resemble** each other in shape but not in color
 **superintendent** engineer  
 he is the **superintendent** of this school  
 the horses were **swiftly** **corralled**. 
-the kids were kept in the small **corral** -  
+the kids were kept in the small **corral**  
 I'm not going back to social **oblivion**  
 The ancient civilization fell into **oblivion**.  
 
-## Wee 2 
+## Week 2 
 
 > I don't want it sounds arrogant, but I think I can win it by 5:0  
 
@@ -252,7 +370,7 @@ penal **colony**
 A **colony** of seals lay **basking** in the sun  
 **dispersal** area  
 **hammerhead** shark
-**doorpost**: a **jamb** for a door -  
+**doorpost**: a **jamb** for a door  
 if there an **apocalypse**, good luck.  
 **windscreen**  
 
@@ -261,23 +379,23 @@ When they **line up**, we're good.
 I saw a pack of **hyenas** take down a young **wildebeest**. -  
 **omniscience**  
 
-as authorities world-wide **implored** citizens to main lockdowns despite the Easter holiday weekend. -  
+as authorities world-wide **implored** citizens to main lockdowns despite the Easter holiday weekend.  
 I also want to express my **heartfelt thanks** and appreciation to all of you for your loyalty to AirAsia   
 
 **looted** and **pillaged**  
 **plagiarize**  
 if you combine that with focus and **perseverance**, then you may be creating something of value. Start small and see where it takes you.  
 
-Saudi Arabia and Russia agreed to production cuts to **revive** the **sputtering** oil market -  
+Saudi Arabia and Russia agreed to production cuts to **revive** the **sputtering** oil market  
 Why bother when your tongue's already so **far up** his ass?  
-Experts don't know how **far up** the mountain we are, but they're pretty sure the summit is a **ways off** -  
+Experts don't know how **far up** the mountain we are, but they're pretty sure the summit is a **ways off**  
 If you need us, we will be building our immune systems, taking our nutrition to the next level, and **slurping** the green **deliciousness** that is Athletic Greens.  
 
 They believe that -- on the night before Christmas -- he travels through the air in a **sleigh** pulled by **reindeer**.  
 **abridgment** of expenses  
 The **abridgment** and distortion of Chinese textbooks during Japanese invasion of China was to **carry out** its **obscurantism** and cultural invasion  
 **Thatcher**  
-The small **ballyhoo** fish is mere snack for this hungry **barracuda** -  
+The small **ballyhoo** fish is mere snack for this hungry **barracuda**  
 **amenities**  
 I know it was **impulsive**  
 you also don't want to be **caught off guard**  
@@ -312,7 +430,7 @@ they hopefully **resuscitate** you -
 I'm **fed up**  
 
 **violet** red  
-She said she wants to **slather** my body with stuff and then **lick it off**  -   
+She said she wants to **slather** my body with stuff and then **lick it off**  
 **maniacal**  
 industry **lingo**  
 The **Waltz**, the **Salsa**, the **Tango**  
@@ -343,10 +461,10 @@ The **diaphragm** draws air into the lungs
 now the production's **on hiatus**  
 **spiral** **chute**  
 no **suds**, no save  
-**suds**: the **froth** produced by soaps or detergents -  
+**suds**: the **froth** produced by soaps or detergents  
 They are not only **ornamental**, but also quite useful.  
 
-**plasma** **transfusion** -  
+**plasma** **transfusion**  
 Bank got caught in **crossfire**  
 It's a bit like the bank is **constipated**  
 seek any **forbearance** on your mortgage.  
@@ -419,7 +537,7 @@ Her house is **furnished** with excellent taste
 **fuzz**: **derogatory** **slang term** for police offers  
 the **fuzz** isn't letting them through  
 You could touch the duck's **fuzz**  
-The travellers were **marooned** by the **blizzard** -  
+The travellers were **marooned** by the **blizzard**  
 She **leered** at him, showing **mossy** teeth. Harry **backed away**  
 
 
@@ -502,7 +620,7 @@ And when it comes to investing, basically we have one question: Should we even b
 If **propped up** vertically, it'd be the 13th tallest building in the city.  
 
 The **mistletoe** plant is a **parasite** on trees.  
-A few torches burnt **smokily** from **sconces** -  
+A few torches burnt **smokily** from **sconces**  
 A **sauna** is a type of steam bath  
 **tadpole**: a **larval** frog or **toad** -  
 Annie was **ecstatic** about the idea  

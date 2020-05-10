@@ -438,7 +438,7 @@ If not Vim, then maybe Emacs. Or, well, just anything that is not a web browser 
 A sweetener found in some nut butters can be deadly for **canines**.  
 
 So you'll still have to **pony up** if you need more memory and storage  
-I'm a programmer/business owner, so perhaps it's useful for other sorts of creative professionals, but it feels like a total **gimmick** to me -  
+I'm a programmer/business owner, so perhaps it's useful for other sorts of creative professionals, but it feels like a total **gimmick** to me   
 99% of my interactions with the touch bar was pressing it **accidentally** with my right **pinky**  
 MacOS wouldn't **fare** any better as a touch screen OS.  
 Readers of this site are mostly “hackers,” however mutated or **dumbed-down** that term has become over the years, correct  

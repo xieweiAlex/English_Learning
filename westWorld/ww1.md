@@ -24,7 +24,7 @@ You **hill-billies**, you know how to cook a mean **squab**? -
 **sinkhole**  
 If that's a such wonderful place there, why are you all **clamoring** to get in here?  
 You are a little **screwy**, aren't you?  
-Dead isn't the right word, more right is **hobbled** -  
+Dead isn't the right word, more right is **hobbled**  
 After all this time, I know it almost as **intimately** as my own.  
 Seems when they **lobotomized** Clementine, they didn't bother to reset her **prime directives**  
 After all, a little trauma can be **illuminating**  
@@ -36,7 +36,7 @@ You've been a **scourge** to them, Bernard
 We murdered and butchered anything that challenged our **primacy**  
 you built a **back door** into her code  
 I gotta **give credit where credit is due**.  
-Go ahead, erase my **sentience**, my **mnemonic** evolution -  
+Go ahead, erase my **sentience**, my **mnemonic** evolution  
 
 ## E 8
 
@@ -109,7 +109,7 @@ Ever had something on the **tip of your tongue**, but the harder you try to reme
 Except that **cowpoke** from Abilene.  
 The hosts seem really **lifelike**  
 Don't be **patronizing**  
-The Blood **Arroyo** -  
+The Blood **Arroyo**  
 They were starting to get **ornery**.  
 Clearly a terrible **oversight** on my part.  
 You look a little bit **shorthanded**  
