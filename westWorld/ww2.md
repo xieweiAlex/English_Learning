@@ -59,7 +59,7 @@ Would you really **stoop** this low, Ford?
 I believe if anyone can ride this ship by **force of sheer will**, it's you.  
 I told her to **shove up** her ass  
 If I'm such a **pitiable** man-child, why'd you come all this way just to **climb under my wing**?  
-The idea that host always have another version of their mind that's **collocated** -   
+The idea that host always have another version of their mind that's **collocated**  
 Let this place finish burning behind us... that means you and I are **even**?  
 
 
@@ -75,7 +75,7 @@ hell of **homecoming**
 make a **thoroughly** inspection  
 it's time to sell this **ruse** -  
 we're gonna **make off** with that **geisha**? We're gonna die -  
-**daimyo** -   
+**daimyo**  
 take them to their **quarters**  
 I was **plagued** by a voice saying, ...  
 Traditional Japanese **kimono** in Westworld -  
@@ -93,7 +93,7 @@ she's **whip-smart**
 These fuckers have **poked and prodded** me **ad infinitum**.  
 all the death make you **agitated**  
 Death is an old **amigo** of mine  
-Your husband looks **parched**, let's get him a drink, what do you say? -  
+Your husband looks **parched**, let's get him a drink, what do you say?  
 
 > If you can't tell, does it matter?  
 
@@ -109,7 +109,7 @@ Major, why is this **flaxen plum** riding ahead of you?
 really **dampens** the **knickers**  
 the **feeble** among us need some rest -  
 Someone **jury-rigged** a thin character, and programmed it into him.  
-they've **sullied** him, and used him as a **pawn** in their game. -  
+they've **sullied** him, and used him as a **pawn** in their game.  
 But you ain't even sure about the **termagant** you take your orders from. -  
 there is a certain level of **persona** that you have to **craft** for that, especially as a woman.    
 who is a war general, and a **vengeful** goddess.  

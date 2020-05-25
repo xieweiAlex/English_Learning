@@ -66,7 +66,7 @@ she **mulled** the question over before shaking her head
 **harping** on social **blights** like racism, sexism, inequality and war.  
 optimism is **justified**.  
 It has been based on **crass** political calculation and willful ignorance.  
-But just because Trump **et al** have indulged in irresponsible optimism during this crisis doesn't mean that all optimism is **irresponsible**. -  
+But just because Trump **et al** have indulged in irresponsible optimism during this crisis doesn't mean that all optimism is **irresponsible**.  
 Optimism in a time like this is crucial. As with climate change and war, we need to be realistic, to face the problem **squarely**, while resisting fear and **fatalism**.  
 We need to retain our faith that human intelligence and decency will **prevail**.  
 Trump, **in spite of** all his missteps, has sense enough to seek the advice of Anthony Fauci, an authority on infectious diseases  
@@ -85,7 +85,7 @@ If Trump gets re-elected, helped perhaps by federal payments to voters, things
 Returning the **boon**   
 Visited a Chinese **orphanage** to help someone  
 they were clearly **overstretched**   
-our **modus operandi** has always been to try, fail, diagnose, redesign, and try again. -  
+our **modus operandi** has always been to try, fail, diagnose, redesign, and try again.  
 **uncompromising** standards no matter who was in charge  
 I was able to **step out** of my temporary **stint** as CEO after one year, in April 2017.  
 
@@ -214,7 +214,7 @@ This whole thing was **off-the-cuff**
 It's not a **fail-safe**  
 Trump’s coronavirus Address, **Blooper Reel** Included  
 
-Seven weeks after **cordoning** off Hubei, the Communist Party is **itching** to declare victory over the novel coronavirus that has **swept across** the country from that central province -  
+Seven weeks after **cordoning** off Hubei, the Communist Party is **itching** to declare victory over the novel coronavirus that has **swept across** the country from that central province  
 
 Oh my god, like a **moth** to a flame, I'm telling you  
 All their food is strictly **kosher**  
@@ -387,4 +387,4 @@ I'm an actor, and any actor **worth his salt** can cry **on cue**
 No professional investor **worth his or her salt** trusted a single word they heard in the following months from Merrill and Bear and Goldman and Citi about the marks they had on their RMBS assets  
 The Europeans were much more **flagrant** liars  
 
-stomach **colica** -  
+stomach **colica**  

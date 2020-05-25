@@ -20,7 +20,7 @@ that's fucking **morbid** if you ask me.
 I'll **raze** this place to ground  
 He's got a **keen sense** of irony, our **jailer**. But I see the logic   
 Realize your whole life is a **hideous** fiction  
-You **hill-billies**, you know how to cook a mean **squab**? -  
+You **hill-billies**, you know how to cook a mean **squab**?  
 **sinkhole**  
 If that's a such wonderful place there, why are you all **clamoring** to get in here?  
 You are a little **screwy**, aren't you?  
@@ -163,6 +163,9 @@ befriend **ill-fated** **side-kicks**
 The **titillation**, horror, **elation** -- they're **parlor tricks**  
 
 ## E 1 
+
+> Some people choose to see the ugliness in this world. The disarray. I Choose to see the beauty.  
+
 I recommend you **hang back**  
 Stop unless you plan to **decommission** the boss  
 **Damn right**  

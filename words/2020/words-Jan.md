@@ -218,7 +218,7 @@ she applies **deodorant** to her armpits after she showers
 **overhand** grip, **overhand** smash  
 **picket** sign, **picket** ship  
 **viva**: Spanish for long live 
-Your **spleen** has wandered close to your heart  
+Your **spleen** has wandered close to your heart -  
 He vented his **spleen** on the assembled crowd  
 **vulva** adoration  
 **frizzy** red hair  

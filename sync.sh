@@ -5,9 +5,9 @@ PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 WORDS_REVIEW="words-new.md"
 
 files=(
-  "westWorld/ww1.md"
-  "westWorld/ww2.md"
   "westWorld/ww3.md"
+  "westWorld/ww2.md"
+  "westWorld/ww1.md"
   "GOT/GOT8.md"
   "GOT/GOT7.md"
   "GOT/GOT6.md"

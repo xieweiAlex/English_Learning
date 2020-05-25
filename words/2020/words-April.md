@@ -12,7 +12,7 @@ no way to **recourse**
 **poker chips**  
 
 **daikon**  
-**paraffin** **wax** -  
+**paraffin** **wax**  
 **sand down**  
 **groomsman**  
 some people are said to have **psychic**   
@@ -24,7 +24,7 @@ They **ripped us off** at that hotel
 COVID-19 can push kidneys into failure, send the body’s immune system into **catastrophic** **overdrive**, and cause blood **clots** that **impede** circulation to the lungs, heart, or brain  
 
 The coronavirus pandemic has **upended** the gun-rights organization during what should be **heady times** for the group  
-in the middle of presidential election and with gun owners **riled up** over what they see as an effort by authorities to **trample on** their Second Amendment rights. -  
+in the middle of presidential election and with gun owners **riled up** over what they see as an effort by authorities to **trample on** their Second Amendment rights.  
 
 It doesn't even **aspire to** be really anonymous 
 **rendezvous** point -   
@@ -57,7 +57,7 @@ What Is **Contemporary Art**
 
 
 My mother lives **upstate** new York.  
-**Canoodling**? - well, I can't say **hump** or **screw**... -  
+**Canoodling**? - well, I can't say **hump** or **screw**...  
 **humanitarian**  
 **Wiener Dog**: **dachshund** 
 **In a puff of smoke**  
@@ -66,25 +66,25 @@ Before HIV was understood, a **folklore** arose in Uganda that a person could be
 an earthquake deep beneath the Indian Ocean triggered a **tsunami** that devastated the Indonesian **archipelago**, killing nearly 230,000 people -  
 
 He was a bit **scatterbrained**, but in that brilliant sort of way  
-A **voracious** appetite for learning -  
+A **voracious** appetite for learning  
 Frankly, if you think you are the best engineer a year out of college, you are **deluding** yourself  
 
 **wagyu** steak  
 a **landlocked** republic in south central Africa   
-**mucous** **membrane** -  
+**mucous** **membrane**  
 
 He was **bamboozled** into joining the club.  
 He **muffled** his face and went to sleep  
 In his anger he hit the man, and a fight **ensued**.  
 He cut his food up into **teeny** pieces.  
-He acknowledged his mistake with a **wry** **grimace**. -  
+He acknowledged his mistake with a **wry** **grimace**.  
 **jellyfish**  
 He scrubbed the sink and **bathtub** 
-We gonna get a triple **whammy** -  
+We gonna get a triple **whammy**  
 
 I'm an **apothecary** of that hospital. -  
 A **porcelain** **vase**  
-You make too much **fuss** about **trifles** -  
+You make too much **fuss** about **trifles**  
 **boobies**  
 He **winced** **inwardly** at her harsh tone.  
 slow down, let me get a **grip** on it.  
@@ -92,27 +92,27 @@ that **poky** little house
 He heard glasses **clinking** in the other room  
 
 Belgians are being asked to eat fries at least twice a week as the nation faces a huge potato **surplus**  
-businesses are worried their "all employees must wash hands — we actually mean that" signs won't cut it as the world's most **litigious** population **peeps** **aboveground**. -   
-Time for **torts** -  
+businesses are worried their "all employees must wash hands — we actually mean that" signs won't cut it as the world's most **litigious** population **peeps** **aboveground**.  
+Time for **torts**  
 Last week, President Trump said his administration was exploring ways to help **shield** businesses  
 Studios and theaters were **tussling** over releases way before the pandemic struck  
 the owner of the High Times cannabis magazine announced plans to buy 13 California **dispensaries** from Harvest Health, one of the country’s largest distributors.  
 
 Do I look serious? - You look **stoned**  
 Her **blouse** and skirt match up nicely  
-I'm stuck in an ATM **vestibule**... -  
+I'm stuck in an ATM **vestibule**...  
 
 He fell in love with a stripper again--what a **maroon**!  
-The knowledge of future evils **mortified** the present **felicities**. -  
+The knowledge of future evils **mortified** the present **felicities**.  
 Communist Party officials’ **instinct** was to **hush it up**  
-After its initial **bungling**, China’s ruling party swiftly **imposed** a quarantine of breathtaking scope and **severity** -  
+After its initial **bungling**, China’s ruling party swiftly **imposed** a quarantine of breathtaking scope and **severity**  
 
 Especially for us **Gen Zers** who never had the pleasure to see MJ **in his prime**.  
-Some have been forced to **euthanize** their pigs -  
+Some have been forced to **euthanize** their pigs  
 
 I was until I reached the **age of reason**  
 **sanctity of life**  
-Silicon Valley has become **Sanctimonious** Valley -  
+Silicon Valley has become **Sanctimonious** Valley  
 Too much the moral **arbiter** of the world
 
 Boeing has walked away from a $4.2 billion deal with Embraer, accusing the Brazilian aircraft manufacturer of failing to meet the **fine print**.   
@@ -126,10 +126,10 @@ how this two **cohere**
 
 this has caused **considerable** **consternation**, heartache for customers. -  
 **tales of woe**  
-Bitcoin miners can **recoup** a reasonable fraction of their initial expense. -  
+Bitcoin miners can **recoup** a reasonable fraction of their initial expense.  
 the emobodied energy will be **amortized** over years and years of mining  
-**Three Gorges Dam** in China -  
-gold **bullion** -  
+**Three Gorges Dam** in China  
+gold **bullion**  
 they're hurting the pool by doing that, this is **purely** an act of **vandalism**.  
 
 **centennial**  
@@ -140,7 +140,7 @@ game-**theoretic**
 Is he going crazy or did he actually have an **epiphany**?  
 **prana**, **Qi**
 
-She was very **gregarious**. -  
+She was very **gregarious**.  
 I took pleasure in **tormenting** my teachers.  
 my dad kind of **jollied** me into it.  
 **coined the term** of "value investing"  
@@ -154,14 +154,14 @@ Truth forever on the **scaffold**, long forever on the throne, but that scaffold
 I thought he was a **prodigy** -  
 **crew cut**  
 He's **ungodly** smart  
-neither of us like **frivolous** things -  
+neither of us like **frivolous** things  
 he is always a **loner** in a sense  
 Prepare for any **eventuality**  
 He believed that, at that particular point, his reputation was **on the line**.  
 whether he is going forward or just **bow out**  
-We had this **death knell** from the Treasury, so I called the Treasury. -  
-I really did feel that it was going to be a **colossal disaster**. -  
-my dad is a **solitary** guy -  
+We had this **death knell** from the Treasury, so I called the Treasury.  
+I really did feel that it was going to be a **colossal disaster**.  
+my dad is a **solitary** guy  
 the fact I married somebody who makes **piles of money** is really the **antithesis** of what I ever thought -  
 
 > everybody do the same, and he is gonna win  
@@ -186,8 +186,8 @@ Check out the **rack** on that chick
 **dopamine**  
 Ross didn't get the **annulment**. We're still married  
 Her hair is natural **wavy**  
-The earth's surface is like an **armadillo**'s armor -  
-The walls were **draped** with the maps -  
+The earth's surface is like an **armadillo**'s armor  
+The walls were **draped** with the maps  
 
 **arcane**  
 **deadpan**  
@@ -376,7 +376,7 @@ if there an **apocalypse**, good luck.
 
 **Neither is better**  
 When they **line up**, we're good.  
-I saw a pack of **hyenas** take down a young **wildebeest**. -  
+I saw a pack of **hyenas** take down a young **wildebeest**.  
 **omniscience**  
 
 as authorities world-wide **implored** citizens to main lockdowns despite the Easter holiday weekend.  
@@ -405,7 +405,7 @@ Friendship is the finest **balm** **in need**.
 the piglet's **popping** the **snout out**.  
 Once **pie-in-the-sky**, initiatives he championed like Medicare for All and the Green New Deal now have the support of many Democrats.  
 Sanders will still be on the **ballot** as state primaries continue, enabling him to **rack up** delegates so he can **exert** more influence at the party convention in August.  
-Then Mr. Trump opens the door for questions, and the session deteriorates into a **dispiriting** **brawl** between the President and his antagonists in the White House press corps. -  
+Then Mr. Trump opens the door for questions, and the session deteriorates into a **dispiriting** **brawl** between the President and his antagonists in the White House press corps.  
 He likes to **exert** his authority  
 His father **exerted** a lot of pressure on him to succeed.  
 On Tuesday Mr. Trump was asked, in a typically **tendentious** question, why he had compared the coronavirus to the flu  
@@ -478,7 +478,7 @@ even suggesting that H7N9 might **rival** the fierce influenza virus that caused
 > Many Chinese people, even city dwellers, insist that freshly slaughtered poultry is tastier and more healthful than refrigerated or frozen meat  
 
 I asked the vendor to **discard** the feet. This made him wary  
-Half a dozen **forlorn** ducks, legs tied, lay on a tiled and blood-**spattered** floor, alongside dozens of caged chickens -  
+Half a dozen **forlorn** ducks, legs tied, lay on a tiled and blood-**spattered** floor, alongside dozens of caged chickens  
 Are you targeting Fort **Forlorn Hope**  
 **avian flu**  
 Some of China's border regions are themselves relatively **impoverished**, raising the possibility of persistent and recurring outbreaks on both sides of the **rugged** frontier.  
@@ -584,7 +584,7 @@ I'll do whatever you want. I'm **putty**.
 The South Asian country is a global hub for the **garment** industry—garment exports accounted for 84% of the country’s total exports last fiscal year  
 We Like Our Recessions Like We Like Our **Vendettas** -  
 Best-case scenario: like our favorite **necklines—shaped** like a V.  
-**cooped-up** consumers could **embark on** a **spending spree** that **catapults** output back up. -  
+**cooped-up** consumers could **embark on** a **spending spree** that **catapults** output back up.  
 Worst-case scenario: An L-shaped recession, where output **plummets** **to the floor** and stays there. 
 **containment measures** may be necessary for 18 months.  
 a “**Nike swoosh**”-shaped recession  

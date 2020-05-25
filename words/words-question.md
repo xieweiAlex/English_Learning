@@ -1,8 +1,10 @@
+* spar vs squabble vs brawl 
+* cheesy  
 * intrusive vs invasive 
 * spatter vs sputter  
 * squibs
 * Arroyo vs creek 
-* mendacity vs lie  
+* mendacity vs lie O 
 * in the offing
 * marooned
 * onus vs responsibility, obligation 
