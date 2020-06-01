@@ -129,7 +129,7 @@ cause we need a little bit more time than the **constabulary** will allow
 
 
 ## E 3
-Personal questions are an **ingratiating** scheme -  
+Personal questions are an **ingratiating** scheme  
 Looking for **desperados**.  
 Could cut you in if you're **amendable**.  
 I asked you **point-blank** if the problem with the update was resolved.  

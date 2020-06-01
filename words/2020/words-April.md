@@ -35,7 +35,7 @@ It doesn't even **aspire to** be really anonymous
 
 **peephole** in the door  
 Are you going to the movie **premiere**?  
-**clunk**: a **decrepit** car -  
+**clunk**: a **decrepit** car  
 **rhyme or reason**  
 Changes were being made without **rhyme or reason**.  
 A **reverent** gentleman is here to see you.  
@@ -63,7 +63,7 @@ My mother lives **upstate** new York.
 **In a puff of smoke**  
 
 Before HIV was understood, a **folklore** arose in Uganda that a person could become **deathly** sick because of a **hex**   
-an earthquake deep beneath the Indian Ocean triggered a **tsunami** that devastated the Indonesian **archipelago**, killing nearly 230,000 people -  
+an earthquake deep beneath the Indian Ocean triggered a **tsunami** that devastated the Indonesian **archipelago**, killing nearly 230,000 people  
 
 He was a bit **scatterbrained**, but in that brilliant sort of way  
 A **voracious** appetite for learning  
@@ -82,7 +82,7 @@ He acknowledged his mistake with a **wry** **grimace**.
 He scrubbed the sink and **bathtub** 
 We gonna get a triple **whammy**  
 
-I'm an **apothecary** of that hospital. -  
+I'm an **apothecary** of that hospital.  
 A **porcelain** **vase**  
 You make too much **fuss** about **trifles**  
 **boobies**  
@@ -425,7 +425,7 @@ One dark, **stormy** night I visited the dying woman.
 
 They were all **crammed in** together   
 The **collateral deaths** are going to be way out number  
-they hopefully **resuscitate** you -   
+they hopefully **resuscitate** you  
 **whisky** you **off** to the hospital  
 I'm **fed up**  
 
@@ -622,7 +622,7 @@ If **propped up** vertically, it'd be the 13th tallest building in the city.
 The **mistletoe** plant is a **parasite** on trees.  
 A few torches burnt **smokily** from **sconces**  
 A **sauna** is a type of steam bath  
-**tadpole**: a **larval** frog or **toad** -  
+**tadpole**: a **larval** frog or **toad**  
 Annie was **ecstatic** about the idea  
 **furnishings**  
 the **incessant** talking jarred on my nerves  

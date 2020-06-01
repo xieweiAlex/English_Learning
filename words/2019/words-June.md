@@ -19,7 +19,7 @@ your television set seems to urge you to turn it on by its **mere presence**
 Facebook’s infinite scroll is particularly **devilish**, but you don’t have to **fall prey** to it  
 
 There was a sense "Jony was gone but reluctant to **hand over** the **reins**"  
-helped turn Apple into America's **preeminent** corporation -  
+helped turn Apple into America's **preeminent** corporation  
 Apple's closest thing to a **living embodiment**  
 (she seemed to be a **living embodiment** of vitality)
 leaving it **rudderless**  

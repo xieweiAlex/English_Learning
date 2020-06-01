@@ -1,3 +1,6 @@
+* eminent & preeminent 
+* thrilled vs pumped 
+* crave vs long 
 * spar vs squabble vs brawl 
 * cheesy  
 * intrusive vs invasive 

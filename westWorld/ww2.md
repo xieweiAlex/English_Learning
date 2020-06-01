@@ -54,7 +54,7 @@ The tools you use to rebuild us, **re-purpose** us, and trap us here in your **w
 ## E6  
 
 I thought you want to ride at **sunup**. - They're just filling the **furnace** now. We'll be gone **before long**.  
-Do you want to **duel** while you're protected by that witch? -  
+Do you want to **duel** while you're protected by that witch?  
 Would you really **stoop** this low, Ford?  
 I believe if anyone can ride this ship by **force of sheer will**, it's you.  
 I told her to **shove up** her ass  
@@ -70,7 +70,7 @@ What's really **unsettling** is is third part has nothing.
 An experience **expressly** designed for the guests who find Westworld too **tame**.   
 Japan's **edo period** -  
 what's why your vocal **voodoo** doesn't work for them, you spoke wrong language  
-is that a butterfly?  A **mariposa** -  
+is that a butterfly?  A **mariposa**  
 hell of **homecoming**  
 make a **thoroughly** inspection  
 it's time to sell this **ruse** -  
@@ -107,7 +107,7 @@ And leave these **mongrels** to **scourge** our land our dignity?
 
 Major, why is this **flaxen plum** riding ahead of you?  
 really **dampens** the **knickers**  
-the **feeble** among us need some rest -  
+the **feeble** among us need some rest  
 Someone **jury-rigged** a thin character, and programmed it into him.  
 they've **sullied** him, and used him as a **pawn** in their game.  
 But you ain't even sure about the **termagant** you take your orders from. -  
@@ -125,7 +125,7 @@ They'll be **dazzled** even without her.
 > Forgive the interruption, but I believe that we have an appointment  
 
 Laurence, get the gun, you **ingrate** -  
-Just some fairy tale to convince people to behave, pay their taxes, and not take a **machete** to their neighbors. -  
+Just some fairy tale to convince people to behave, pay their taxes, and not take a **machete** to their neighbors.  
 the whole thing is **folly**  
 my **fuckup** of a son invested in this place because he believed in the future  
 You're a **cheeky** little cunt, aren't you?  

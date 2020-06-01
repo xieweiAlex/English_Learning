@@ -202,7 +202,7 @@ We're free to **savor life**
 The biggest question I **wrestled** with was whether I should leave management completely or sty involved as a mentor  
 **suboptimally**  
 I didn't think that Bridgewater or I **held a candle to** Apple and Jobs  
-I read them and **probed** him about them to try to get **glean** what characteristics they had in common -  
+I read them and **probed** him about them to try to get **glean** what characteristics they had in common  
 **connoisseur**  
 
 **safe-haven**  

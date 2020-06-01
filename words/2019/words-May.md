@@ -201,7 +201,7 @@ The **remainder** biscuit.
 
 High quality leather stays strong against **demanding work** environments meaning the shoes will last much longer  
 
-The plan is still in its **embryonic** stages. -  
+The plan is still in its **embryonic** stages.  
 The boat were out **trawling** the bay.  
 The carpet was fastened to the floor with **tacks**.  
 She walked off in a **huff**.  

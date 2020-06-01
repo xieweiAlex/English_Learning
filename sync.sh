@@ -5,6 +5,7 @@ PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 WORDS_REVIEW="words-new.md"
 
 files=(
+  "siliconValley/sv3.md"
   "westWorld/ww3.md"
   "westWorld/ww2.md"
   "westWorld/ww1.md"
@@ -121,9 +122,8 @@ action=$1
 
 echo "."
 if [[ "$#" -ne 1 ]]; then
-	echo "no parameter inputted, will be default to 'sync'"
-    action="sync"	
-	echo ""
+	echo "no parameter inputted, default action to 'sync'"
+  action="sync"	
 fi
 
 echo ".."
