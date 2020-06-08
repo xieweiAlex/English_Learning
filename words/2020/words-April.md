@@ -27,7 +27,7 @@ The coronavirus pandemic has **upended** the gun-rights organization during what
 in the middle of presidential election and with gun owners **riled up** over what they see as an effort by authorities to **trample on** their Second Amendment rights.  
 
 It doesn't even **aspire to** be really anonymous 
-**rendezvous** point -   
+**rendezvous** point  
 **inherent**  
 
 **feasible** vs plausible 
@@ -151,7 +151,7 @@ she was a **cinch** -
 they've got a **common heart**, which they got from their mother.  
 Truth forever on the **scaffold**, long forever on the throne, but that scaffold **sways** the future  
 **misthinkings**  
-I thought he was a **prodigy** -  
+I thought he was a **prodigy**  
 **crew cut**  
 He's **ungodly** smart  
 neither of us like **frivolous** things  
@@ -162,7 +162,7 @@ whether he is going forward or just **bow out**
 We had this **death knell** from the Treasury, so I called the Treasury.  
 I really did feel that it was going to be a **colossal disaster**.  
 my dad is a **solitary** guy  
-the fact I married somebody who makes **piles of money** is really the **antithesis** of what I ever thought -  
+the fact I married somebody who makes **piles of money** is really the **antithesis** of what I ever thought  
 
 > everybody do the same, and he is gonna win  
 > a shred of reputation, I will be ruthless  
@@ -582,7 +582,7 @@ I'll do whatever you want. I'm **putty**.
 > For all of us asking, “When will this end?” it’s a light at the end of the tunnel.
 
 The South Asian country is a global hub for the **garment** industry—garment exports accounted for 84% of the country’s total exports last fiscal year  
-We Like Our Recessions Like We Like Our **Vendettas** -  
+We Like Our Recessions Like We Like Our **Vendettas**  
 Best-case scenario: like our favorite **necklines—shaped** like a V.  
 **cooped-up** consumers could **embark on** a **spending spree** that **catapults** output back up.  
 Worst-case scenario: An L-shaped recession, where output **plummets** **to the floor** and stays there. 
@@ -613,7 +613,7 @@ No one thinks you're **pansy**
 they won a **miraculous** victory over much stronger enemy  
 
 BlackRock CEO Larry Fink said the asset manager is **doubling down** on confronting climate change, a **watershed moment** for the environment's role in business decisions  
-Trump's Oval Office address sent travelers **scurrying** home from Europe. -   
+Trump's Oval Office address sent travelers **scurrying** home from Europe.  
 the Fed cut rates half a percentage point. March 9, a stock plunge **tripped** the **circuit breaker**  
 **behind-the-scenes**  
 And when it comes to investing, basically we have one question: Should we even be doing that right now?  So to help us come up with an answer for such a **beguiling** question, ...  

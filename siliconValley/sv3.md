@@ -1,3 +1,52 @@
+## E 9  
+You and I have never really had much of a **rapport**, have we?  
+It... **wanting**  
+Gilfoyle, you **crack me up**  
+to do **outreach**, tutorials, user meetups, create a **guerrilla marketing** **campaign** that explains how cool the platform is  
+You **tepid** response to our **intrepid** boss makes me ill. -  
+I'm the **possum** to which I refer. Playing dead to **outwit** those who wish me harm, but it's time to end the **charade**. -  
+are you **indisposed**?  
+we still have few weeks of **runway**  
+You **pulled** us **out** of a **nosedive**  
+
+## E 8  
+Monica, **throw me a bone** here.  
+It may appear he is losing in his race against his **nemesis**, the **insolent** and **cocksure** **hare**. -  
+he plays **coy**  
+rumors spread like **light speed**  
+This is **thorny**  
+the same **onerous** terms you accepted when you took Russ Hanneman's money -  
+
+## E 7 
+
+It's going to be **rad**  
+**Shuttering** a company in the tech world is almost a **rite of passage**, like **herpes simplex** one.  
+we only got 10 each, this could be **prickly**  
+sure, **knock yourself out**.  
+you're accusing me of **impropriety**?  
+We may have a healthy **brood** on our hands.  
+You're **flipping out** -  
+I have an inbox full of **raves** here -  
+I'd like to **vie** for a lesser **sentence** **if after** he makes full **restitution** he would write a very **convincing** public apology. -  
+that's a **tough sell**  
+even for a **plaintiff** who's more, uh, **sympathetic**  
+I see two **able-bodied**, entitled young white men...   
+**dummy** out an email account in his name, sent a beta request to Hendricks, and then **voila**.  
+you're so **needy**  
+when we have a totally open and **hedonistic** relationship that allows for behavior like that. (She still lied to me)  
+
+## E 6  
+
+She is **magnificent**  
+she could be **hideous**  
+maybe now I'll **fan out** my xx, so to speak, and see what pretty **birdies** might share my nest.  
+what other company's secret did he **blab** to you? -  
+The rest is **untoward**  
+Who was that gorgeous **gazelle** in the driveway? -  
+you're the **dogface**  
+I'm **on the fence**  
+
+
 ## E 5 
 
 You do tend to **babble** on when you're under pressure.  

@@ -67,7 +67,7 @@ compliment, **complement**
 
 If you have **piercings**, tattoos, or a unique hairstyle, remove and or cover, not all people like the new trends
 
-**Acquit** a person of his duty. -  
+**Acquit** a person of his duty.  
 The ship made little **headway** in the storm.  
 Don't **trample** on the grass  
 **Trample** on on sb.'s feelings 
@@ -86,7 +86,7 @@ He was healthy but **distraught**, pleading for **leniency** in a North Korea co
 
 **Calamari** is a **culinary** name for **squid**, especially for dishes from the **Mediterranean**, notably fried squid (fried calamari) -  
 
-A **conciliatory** approach. -   
+A **conciliatory** approach.  
 Did you take part in the **brawl** yesterday?  
 **Thrift** institutions
 **thrift** shop  
@@ -116,7 +116,7 @@ If you're in a **head-on** car crash, you might be safest in the front seat and 
 
 The dog **cringed** at the sight of the whip  
 Working as an independent mobile, web and software developer in Africa can be a **trying** experience  
-**Infamous** **load shedding** - a practice of cutting off electricity to whole sections of the city in order to conserve power in countries -  
+**Infamous** **load shedding** - a practice of cutting off electricity to whole sections of the city in order to conserve power in countries  
 It takes a lot of **guts** and **zeal** for a good African developer to **turn down** job offers and internships to pursue his **jack of all** passion
 Use **obnoxious** **in-your-face** formatting and lists  
 I'm kind of **appalled** at the existence of this post  
@@ -154,7 +154,7 @@ The tax **write-off** alone makes financial sense
 they lacked the **wherewithal** to pay.
 **bidding**  
 
-**Tumultuous** Trump **era**  -  
+**Tumultuous** Trump **era**  
 Intelligence warning allegedly went **unheeded** before the bombings in Sri Lanka. Political **infighting** may help explain why.  
 
 

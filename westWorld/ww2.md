@@ -68,7 +68,7 @@ Let this place finish burning behind us... that means you and I are **even**?
 
 What's really **unsettling** is is third part has nothing.  
 An experience **expressly** designed for the guests who find Westworld too **tame**.   
-Japan's **edo period** -  
+Japan's **edo period**  
 what's why your vocal **voodoo** doesn't work for them, you spoke wrong language  
 is that a butterfly?  A **mariposa**  
 hell of **homecoming**  
@@ -78,7 +78,7 @@ we're gonna **make off** with that **geisha**? We're gonna die -
 **daimyo**  
 take them to their **quarters**  
 I was **plagued** by a voice saying, ...  
-Traditional Japanese **kimono** in Westworld -  
+Traditional Japanese **kimono** in Westworld  
 
 ## E4 
 **about time**  
@@ -124,7 +124,7 @@ They'll be **dazzled** even without her.
 > I used to see the beautify of the world, now I see the truth  
 > Forgive the interruption, but I believe that we have an appointment  
 
-Laurence, get the gun, you **ingrate** -  
+Laurence, get the gun, you **ingrate**  
 Just some fairy tale to convince people to behave, pay their taxes, and not take a **machete** to their neighbors.  
 the whole thing is **folly**  
 my **fuckup** of a son invested in this place because he believed in the future  

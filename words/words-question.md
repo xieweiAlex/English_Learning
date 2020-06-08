@@ -1,3 +1,4 @@
+* banalities vs cliche
 * eminent & preeminent 
 * thrilled vs pumped 
 * crave vs long 

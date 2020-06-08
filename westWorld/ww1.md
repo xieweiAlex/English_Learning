@@ -24,7 +24,7 @@ You **hill-billies**, you know how to cook a mean **squab**?
 **sinkhole**  
 If that's a such wonderful place there, why are you all **clamoring** to get in here?  
 You are a little **screwy**, aren't you?  
-Dead isn't the right word, more right is **hobbled**  
+Dead isn't the right word, more right is **hobbled** -  
 After all this time, I know it almost as **intimately** as my own.  
 Seems when they **lobotomized** Clementine, they didn't bother to reset her **prime directives**  
 After all, a little trauma can be **illuminating**  

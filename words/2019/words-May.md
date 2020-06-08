@@ -229,7 +229,7 @@ We gonna talk about **the birds and bees**.
 In winter, heavy rains could **destabilize** snow and increase **avalanche** danger  
 Before you **grumble** about a gray forecast, it’s worth remembering that giant redwoods, colorful wildflowers and **grandiose** canyons were all made possible by the relentless **pitter patter** of a billion raindrops  
 
-One of the things that really gets my **goat** is when companies build employer brand by over-indexing on **banalities** -   
+One of the things that really gets my **goat** is when companies build employer brand by over-indexing on **banalities**  
 In this blog post, I tackle the really hard **tactics** that help build a good employer brand  
 If I have my **druthers**, this will be one of three posts on brand  
 
@@ -388,7 +388,7 @@ My **impending** departure
 The forest was **ravaged** by fire.  
 **planetary** **orbit**  
 People are put off by her **strident** voice.  
-The **pedlar** **beckoned** me to follow him -    
+The **pedlar** **beckoned** me to follow him  
 **walnut creek**
 **Adverse current**, **adverse** balance.  
 **cyclone** dust extractor, tropical cyclone.  

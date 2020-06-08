@@ -12,7 +12,7 @@ Look at her **platelet** account, she has none
 He has a **mole** inside our company  
 You want a **leg up**, Cal? I can help  
 Let's **lighten the mood**  
-She was **institutionalized** six moths later for **schizophrenia** -   
+She was **institutionalized** six moths later for **schizophrenia**  
 You're angry. -- No, I'm **enraged**  
 
 ## E2  

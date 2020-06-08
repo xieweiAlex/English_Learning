@@ -189,7 +189,6 @@ Joy and **grief** are extremes.
 We're not **unduly** worried. -   
 **duly authorized**
 
-
 **indignation** at the injustice. -   
 **Antenna**  
 **hobbled** by responsibilities.  

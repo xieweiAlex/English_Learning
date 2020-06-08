@@ -1,11 +1,16 @@
+## Week 4
+
+**makeshift** grocery store in Minneapolis
+
+**MBTI**: Myers-Briggs Type Indicator  
 
 It's a very **lofty** title I'm probably not **live up to** but I'll try my best.  
-We must reckon with Asian American **complicity** in white supremacy.  
+We must reckon with Asian American **complicity** in white supremacy. -  
 
 Even a small miner or mining pool on a large network can **demolish** a small Altcoin.  
 Cities **racked** by another night of Violent protests 
 
-**twirl** center  
+**twirl** center -  
 she **swirled** the pencil round in her fingers.  
 fruit **jelly**  
 our plan hasn't **jelled** yet  
@@ -15,10 +20,10 @@ I went out **in spite of** the rain
 **threshold** value  
 the country seemed to be on the **threshold** of war  
 **triumphantly**  
-you do not wanna to **tick** her off  
+you do not wanna to **tick her off**  
 the clock is **ticking** on Jenna's life  
 
-In order to **defray** the cost of launch overall  
+In order to **defray** the cost of launch overall -  
 
 **wager**  
 Zuckerberg **Cravenly** **Goes All-In on** Trump -  
@@ -31,8 +36,8 @@ police **precinct office**
 **chime in**  
 **lucid** chart  
 
-India and China **square up** on their Himalayan border -  
-Reports of Chinese **incursions** into India raise tensions between the nuclear-armed neighbors   
+India and China **square up** on their Himalayan border  
+Reports of Chinese **incursions** into India raise tensions between the nuclear-armed neighbors -  
 
 The Chinese Communist Party last week unveiled a **sweeping** new security law that will criminalize **sedition**, foreign influence and **secession** in Hong Kong -  
 The **State Department** is required by the Hong Kong Policy Act to assess the autonomy of the territory from China  
@@ -53,7 +58,7 @@ I was called into **sub** today
 **pipe dream**  
   
 While many businesses will never recover, “there will be new businesses that would have been **inconceivable** just a few years ago.  
-**Crude** prices, along with U.S. government bond yields, are typically viewed as key **barometers** of economic health and confidence -  
+**Crude** prices, along with U.S. government bond yields, are typically viewed as key **barometers** of economic health and confidence  
 office, workers world-wide are **hunkering down** for what might be a new normal for greater **swaths** of the global workforce.  
 Instead he gives every appearance of wanting to **settle scores** with anyone who contributed in any way to impeachment.  
 In the wake of his Senate **acquittal**, Mr. Trump should be campaigning for re-election and enjoying the **disarray** of his opponents  
@@ -61,7 +66,7 @@ When the Mueller probe finally ended, Mr. Trump could have claimed **vindication
 Mr. Trump doesn’t understand, or perhaps doesn’t care, that all of this hurts Mr. Barr, whom he can **ill-afford** to lose  
 The **uproar** is **obscuring** that Mr. Barr had every reason and authority to reduce the sentencing recommendation  
 A team of private security experts hired to **spirit** Mr. Ghosn out of Japan hadn't done a **dry run** of their scheme to **sneak** the box containing the former auto executive past airport security  
-The serial **scofflaws** collectively **amassed** 370,000 citations -  
+The serial **scofflaws** collectively **amassed** 370,000 citations  
   
 The two had an **animated** discussion as Forstall waited  
   
@@ -81,7 +86,7 @@ I don't think the argument **holds water**
 Your Explanation **Holds Water**  
 RSI: **Repetitive Strain Injury**  
 That statement is one of those **catty** **oft** repeated things we are supposed to take as **gospel** for some reason -  
-The alleged **perpetrator**, who has not yet been apprehended, reportedly wielded a knife.  
+The alleged **perpetrator**, who has not yet been apprehended, reportedly wielded a knife. -  
 **unfrequented** area  
   
   
@@ -89,13 +94,12 @@ The alleged **perpetrator**, who has not yet been apprehended, reportedly wielde
 however the rendering of these **glyphs** depends on the browser and the platform -  
 Let's stop **pussyfooting** around and address the **elephant in the room**  
 **reams** of paper  
-**lumbar** pillow  
+**lumbar** pillow -  
 **one size fits all**  
-  
 **misfits**  
   
 **arbitration**  
-they don't have any **recourse** here -  
+they don't have any **recourse** here  
 An **outlandish** way that you've **rigged** the system  
 **Collectively**, they(prediction market) can often beat **opinions polls** or asking experts.  
 there is also been a **tortured** regulatory history here.  
@@ -144,7 +148,7 @@ When specific knowledge is taught, it’s through **apprenticeships**, not schoo
   
 The young man has a **singular** ear for music.  
 **uncluttered** calendar  
-**Amputate** the “bad” parts -  
+**Amputate** the “bad” parts  
 **headless** testing  
   
 **braised** **veal**  
@@ -238,7 +242,7 @@ During the **polio** epidemic, thousands of people died.
 **chaise** **lounger**, airport **lounge**  
 Don't **lounge** away your working hours  
 The gym is across from the **lounge**.  
-the **hammock** swings -  
+the **hammock** swings  
 We **anchored** the **hammock** to the tree  
 **hamster** tube  
 **strained** **bilateral** relations  
@@ -353,7 +357,7 @@ many of them living in **cramped** **dormitories**
 **unwell**  
 nursing homes have been the **tinder** for tragic outbreaks in the West  
 Countries that are relatively **isolated** have **reaped** health benefits from their **seclusion**  
-**far-flung** nations, such as some in the South Pacific and parts of **sub-Saharan** Africa, have not been as **inundated** with visitors bringing the virus with them. -  
+**far-flung** nations, such as some in the South Pacific and parts of **sub-Saharan** Africa, have not been as **inundated** with visitors bringing the virus with them.  
   
 He had not a **peg** to **hang on** and got dumb for some time.  
   
@@ -378,7 +382,7 @@ He was **foiled** in his attempt.
 **fizzy drink**  
 Why listening to your customers is not a **foolproof** plan  
   
-You definitely have my interest **piqued**. -  
+You definitely have my interest **piqued**.  
 After the **stressor** disappears, the body returns to its normal state (**homeostasis**).  
 **dopamine** **detox**  
    
