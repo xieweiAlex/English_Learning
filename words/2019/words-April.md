@@ -179,7 +179,7 @@ She really did **detest** his mockery. -
 a **glorious** sunset  
 
 Official **solicitor**  
-Barr is more **nefarious** than we anticipated. -  
+Barr is more **nefarious** than we anticipated.  
 **Exquisite**  
 
 The physical **ailments** that **condemned** him to a lonely childhood  

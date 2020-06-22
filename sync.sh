@@ -5,6 +5,7 @@ PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 WORDS_REVIEW="words-new.md"
 
 files=(
+  "siliconValley/sv4.md"
   "siliconValley/sv3.md"
   "westWorld/ww3.md"
   "westWorld/ww2.md"
@@ -14,6 +15,7 @@ files=(
   "GOT/GOT6.md"
   "GOT/GOT5.md"
   "GOT/GOT4.md"
+  "words/2020/words-Jun.md"
   "words/2020/words-May.md"
   "words/2020/words-April.md"
   "words/2020/words-Mar.md"

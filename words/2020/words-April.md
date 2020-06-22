@@ -324,7 +324,7 @@ The ancient civilization fell into **oblivion**.
 
 She is still **taunting** us from the **grave**.  
 do we have to make an appointment **beforehand**?  
-**antenatal** training, **antenatal** development -   
+**antenatal** training, **antenatal** development  
 
 Negative **mentality**   
 **fiat money** system  
@@ -409,7 +409,7 @@ Then Mr. Trump opens the door for questions, and the session deteriorates into a
 He likes to **exert** his authority  
 His father **exerted** a lot of pressure on him to succeed.  
 On Tuesday Mr. Trump was asked, in a typically **tendentious** question, why he had compared the coronavirus to the flu  
-This sort of exchange usually **devolves** into a useless **squabble** that helps Mr. Trump’s **critics** and contributes little to public understanding. -  
+This sort of exchange usually **devolves** into a useless **squabble** that helps Mr. Trump’s **critics** and contributes little to public understanding.  
 or whether the Obama Administration filled the national pandemic **stockpile**  
 There will be time for **recriminations**  
 prevent the deaths of their loved ones or help the family **breadwinner** stay employed.  

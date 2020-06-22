@@ -1,16 +1,227 @@
+
+## Week 3 
+
+Don’t be a victim of grandiosity  
+Even someone with years of experience will jump into an interview after a three-month hiatus and choke  
+
+Museum to remove Roosevelt statue decried as white supremacy  
+
+Delicious smells were emanating from the kitchen  
+tater tots  
+kettlebell  
+
+
+Maize, called corn in the United States, is a staple food throughout most of the world,  
+America is a melting pot  
+
+It happens 25 percents of the time  
+When a female ate a male after a mating event, she was found to have around 17.7 per cent more of his biological material in her reproductive tissues, including her eggs and ovaries, than a female who only mated and did not cannibalise her mate  
+
+superb performance  
+anticipate vs expect  
+utter disrespect and insubordination coming from Alex in return   
+undertone  
+phrasal verbs  
+
+**Annular** Solar Eclipse 2020
+
+born out of **wedlock**   
+the **informant** is real  
+All the time, it's called **mescaline**. It's the only way to fly. -  
+You can't scare me with this **gestapo** crap -  
+**at last**  
+this is a **sparring program** -  
+Someone can be **bent**, others and be broken.  
+**Sentient** programs  
+**sentinel** program
+
+Basic **plotting**  
+
+**lambo doors**, **scissor doors**  
+it's pretty **badass**  
+**lacrosse**  
+they're suppose to shoot **off-handed**  
+It's a **nerve-wracking** thing  
+they have the **stick arms**  
+eat a **hummingbird**  
+**praying mantis** versus a murder hornet 
+he **camouflaged** himself -  
+most mantis are also **cannibalistic** -  
+
+**grisly** 
+Keep a **curb** on your anger.  
+University of **Apologetics**  
+
+The value of the **pound** **swung** downwards  
+
+**spuds**, **spud in**  
+**spud**: an **edible** **tuber** native to South America  
+Open your mouth, I'd like to inspect your **tonsils**  
+**orgie** **orgy** 
+**swinger parties**  
+**phalange** bone -  
+Chinese **yam**  
+**falafel**: The Arabic word **falāfil** has been globalized into many other languages and spread around the rest of the world as the general name for this food. In English, it is first **attested** in 1941
+**rookie** mistake  
+He's a **devious**, secret person and I don't trust him.  
+
+Roof **terrace**, garden **terrace**  
+The dinning-room opens onto a paved **terrace**  
+**bean curd** in **casserole** -  
+He had a good **rummage** inside the sofa -  
+**wicker chair**  
+Ben has a **wicked** sense of humour  
+You should **sheer off** the wicked urchin  
+**Styrofoam**: foamed plastic  
+strawberry **torte**  
+fruit **tartlet**  
+**clarinet**: a single-reed instrument with a straight **tube**  
+she was attacked by a **maniac**  
+**pillar** industry  
+His cruel and **callous** comments made me **shiver** -  
+
+It's a **grueling** day  
+**lead question**  
+
+All media requests require at least 48 hours **lead time**, and I often decline  
+As new York claimed it "**tamed** the beast"  
+
+The **flight** of advertisers accelerated on Tuesday, when the watchdog group Sleeping Giants tagged T-Mobile in a Twitter post, saying that Fox News had **aired** what **amounted** to an “extremely racist segment **scaremongering** about the Black community.”  
+
+## Week 2
+A **surfeit** of food makes one sick  
+I'm **surfeited** with shopping 
+Boys win and girls **drool**  
+**whitewater** **rafting**  
+**koi pond**  
+**disinterested**, **unbiased**
+
+Why not use something to abstract away the **nitty-gritty** of URLs, parameters, etc?  
+**kickstarter**  
+possible but **unwieldy**  
+**wieldy** vs **unwieldy**  
+
+This is what makes the whole system **tick**  
+what this **boils down** to ... 
+
+**sobriety test** -  
+**autodidact**  
+**cuddle** vs **snuggle**  
+
+The desire to travel has been **pent up** for the last two years  
+Why were they keeping him **pent up** in this narrow **crate** -  
+for example, expanding cross-border digital-payments systems that bypass much of the existing global **plumbing**  
+
+**racial profiling**   
+
+The Nazis carried out the **Holocaust** -  
+**unparalleled**  
+It's based on **heinous** sounding theories -  
+Mao remains **revered** in China -  
+
+**cynophobia**  
+**xenophobia**
+suspected robbery **gone awry**  
+Wow, that guy is so **sketchy**.  
+**Ventro-ventral** **copulation**, **missionary position**  
+
+**secession** crisis  
+the War of **Secession**  
+The **Sedition** Act -  
+
+**take out on** some people 
+**midget**  
+No **off-color** material  
+
+**Bugger off**, will you? I don't want you here. -  
+**Pine nuts** 
+The **pesto** will get up your nose  
+
+you can't play **bagpipe** at the wedding!  
+walking on **stilts**  
+**furry**: covered with a dense coat of fine **silky** hairs  
+don't **burp** at the table  
+It'll be like the Pilgrims bringing the Indians **syphilis**. -  
+**asphalt** **binder**  
+**sun shade**  
+the actress still remains **in the shade**.  
+**burgundy** dinner jacket -  
+She **stayed off** the **claret** for the **main course**. -  
+**light reflex**  
+The cat **hissed** as the dog came near it.  
+We're **frosting** cupcakes.  
+
+I will not participate in any **malarkey** or **monkeyshines** -  
+That includes your Irish **chippy**  
+**loaf** of bread  
+**squirt** gun  
+
+**miraculously**, she still lives!  
+Aged 24, not only is she one of the oldest **grizzlies** living outside a zoo, she has also continued having **cubs** to a **venerable** age, becoming a **poster child** for the recovery of bears in the greater Yellowstone ecosystem. -  
+**pharmaceutical** industry  
+
+Souvenir: something of **sentimental** value  
+
+Third, and most **strikingly**, Mr Stoltenberg **envisages** the alliance taking a more global approach—in particular, **adjusting** to China’s rise.  
+Mr Trump, worryingly **ambivalent** about the alliance.  
+But he sees closer collaboration with **like-minded** countries in the region, including Australia, Japan, New Zealand and South Korea  
+A document has a **preamble** and document part -  
+
+I'd probably **jab** a **tampon** in it.  
+The **indignant** customer complained to the manager. -  
+Stop **fiddling** with that pen!  
+the legal **tangle** was never really **unravelled**. -  
+a dull **thud**  
+glass **panel**  
+it was all very **seductive**, **loose** and pretty  
+I don't need her to be all **smug** and **snooty**  
+**helium** and **neon** are **inert** gases -  
+**hydrogen**  
+there is a lot of **ornaments** on the wall  
+he **crouched** down to **stroke** the dog  
+The **jester** **brandished** his **bauble** -  
+
+**on the beat**  
+**chilly** **gusts** of wind with a taste of rain  
+**long since**  
+**lost track of each other**  
+**get one's pile**  
+**in a groove**  
+**brilliant with electric light**  
+**twirling** his **club**   
+**stalwart form** and slight **swagger**  
+
+Antifa **provocateur**  
+
+Racism, inequality and discrimination are **unequivocally** wrong  
+
+Willing to **roll the dice**  
+Hinge Labs is more of a **crash course** on dating, designed to be deleted once you've found your match.
+
+Protests against systemic racism, which fosters the **disproportionate** burden of COVID-19 on Black communities and also **perpetuates** police violence, must be supported." -  
+We’ll see in a few weeks whether COVID-19 **caseloads** spike.  
+But with **amped up** testing capacity and public health measures, the city managed to **trample** the curve.  
+
 ## Week 1 
 
-Satan's dark abyss  
-tanning bed  
-He was squirming on the floor in agony  
+**Get In A Groove**  
+**vicinity**  
+**Stalwart** policemen stood guard outside.  
+**old chap**  
+He was a kind of **plodder**, though, good fellow as he was. -  
 
+He did it in a deliberate **manner**  
+**salami** pizza  
 
+**Satan**'s dark abyss  
+**tanning** bed  
+He was **squirming** on the floor in agony -  
 
-Funding Cuts Threaten to Hobble American Science  
-Makingtrouble out of nothing  
+Funding Cuts Threaten to **Hobble** American Science  
+Makingtrouble **out of nothing**  
 
 disorientated, for example, is a version of disoriented more commonly used in the UK, but they both describe someone who’s **lost their bearings**  
-vigilance  
+His **vigilance** never **languished** -  
 
 **Spooky** castle  
 spray **nozzle**  
@@ -37,13 +248,13 @@ He **jabbed** at the lid with a knife.
 **crack of dawn**  
 Only until she finds a **chump** husband  
 **chump chop**  
-**velveteen** plush  
+**velveteen** **plush**  
 Moss is soft like **velvet**.   
 After years of **extravagant** R&D  
 **dork**  
 **mash** potato  
 **nasal** tip  
-**nasal** discharge  
+**nasal** **discharge**  
 you're an **evilly** genius 
 > Idleness is the root of all evils  
 
@@ -68,7 +279,7 @@ His **yearning** for home food eventually **prompted** him to quit a stable fina
 **paved its way** to profitability.  
 
 > modularity, modular 
-> The notion of "intricate and beautiful complexities" is almost an oxymoron. Unix programmers vie with each other for "simple and beautiful" honors — a point that's implicit in these rules, but is well worth making overt.
+> The notion of "intricate and beautiful complexities" is almost an oxymoron. Unix programmers vie with each other for "simple and beautiful" honors — a point that's implicit in these rules, but is well worth making **overt**.
 
 **my heart sinks** for Linux when I see the size of it  
 

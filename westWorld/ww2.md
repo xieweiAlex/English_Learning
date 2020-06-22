@@ -73,8 +73,8 @@ what's why your vocal **voodoo** doesn't work for them, you spoke wrong language
 is that a butterfly?  A **mariposa**  
 hell of **homecoming**  
 make a **thoroughly** inspection  
-it's time to sell this **ruse** -  
-we're gonna **make off** with that **geisha**? We're gonna die -  
+it's time to sell this **ruse**  
+we're gonna **make off** with that **geisha**? We're gonna die  
 **daimyo**  
 take them to their **quarters**  
 I was **plagued** by a voice saying, ...  

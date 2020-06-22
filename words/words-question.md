@@ -1,3 +1,5 @@
+* shim
+* indisposed  
 * banalities vs cliche
 * eminent & preeminent 
 * thrilled vs pumped 

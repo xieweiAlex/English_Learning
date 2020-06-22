@@ -321,12 +321,12 @@ It was **woefully** inadequate.
 **Disadvantaged** groups.  
 She is not the person she **purports** to be.  
 The 10,000 black folk who make the city **hum**.  
-**Grisly** jokes about **cadavers** and **worms**. -   
+**Grisly** jokes about **cadavers** and **worms**.  
 **abstain** from voting.  
 Those black clouds look **ominous** for our picnic.   
 Eastern **orthodoxy**.  
 Fearful weapons that **bespeak** great loss of life.   
-**Embarcadero** -  
+**Embarcadero**  
 
 But China last weekend angered the president by trying to **water down** its commitments, according to Lighthizer.  
 

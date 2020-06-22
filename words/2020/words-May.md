@@ -5,12 +5,12 @@
 **MBTI**: Myers-Briggs Type Indicator  
 
 It's a very **lofty** title I'm probably not **live up to** but I'll try my best.  
-We must reckon with Asian American **complicity** in white supremacy. -  
+We must reckon with Asian American **complicity** in white supremacy.  
 
 Even a small miner or mining pool on a large network can **demolish** a small Altcoin.  
 Cities **racked** by another night of Violent protests 
 
-**twirl** center -  
+**twirl** center  
 she **swirled** the pencil round in her fingers.  
 fruit **jelly**  
 our plan hasn't **jelled** yet  
@@ -26,7 +26,7 @@ the clock is **ticking** on Jenna's life
 In order to **defray** the cost of launch overall -  
 
 **wager**  
-Zuckerberg **Cravenly** **Goes All-In on** Trump -  
+Zuckerberg **Cravenly** **Goes All-In on** Trump  
 
 A **staunch** **materialist**, he **decries** economy.  
 
@@ -39,9 +39,9 @@ police **precinct office**
 India and China **square up** on their Himalayan border  
 Reports of Chinese **incursions** into India raise tensions between the nuclear-armed neighbors -  
 
-The Chinese Communist Party last week unveiled a **sweeping** new security law that will criminalize **sedition**, foreign influence and **secession** in Hong Kong -  
+The Chinese Communist Party last week unveiled a **sweeping** new security law that will criminalize **sedition**, foreign influence and **secession** in Hong Kong  
 The **State Department** is required by the Hong Kong Policy Act to assess the autonomy of the territory from China  
-Hong Kong and its dynamic, enterprising, and free people have **flourished** for decades as a **bastion** of liberty, and this decision gives me no pleasure -  
+Hong Kong and its dynamic, enterprising, and free people have **flourished** for decades as a **bastion** of liberty, and this decision gives me no pleasure  
 But **sound policy** making requires a recognition of reality  
 
 These conspiracy theorists, including most recently the President of the United States, continue to spread their **bile** and misinformation on your platform **disparaging** the memory of my wife and our marriage -  
@@ -70,14 +70,14 @@ The serial **scofflaws** collectively **amassed** 370,000 citations
   
 The two had an **animated** discussion as Forstall waited  
   
-The soccer team thought they were getting **mannequins** to fill the **stands**, but instead, they received sex dolls. -  
+The soccer team thought they were getting **mannequins** to fill the **stands**, but instead, they received sex dolls.  
 stimulus **serenade** -  
 **stoner** friend  
 loading **dock**  
 in dry **dock**  
 the company **docks** its employee for **unauthorized** absences  
 My turn to **ride shotgun** today  
-she had a quick **swig** of water and then **set off** again -  
+she had a quick **swig** of water and then **set off** again  
 and **thus** ends your tedious, little life.  
 little **veins** popping out of your **temple**.  
   
@@ -196,7 +196,7 @@ The agency is **stuffed** with American experts from the National Institutes of 
 Its action to control covid-19 has been **exemplary**  
 The clash has **drawn fire** on the director-general of the WHO, Tedros Adhanom, a **mild-mannered** and **amiable** Ethiopian  
 To some **extent** these political **machinations** are taking place where they should  
-America’s criticism of Dr Tedros is **wide of the mark** -  
+America’s criticism of Dr Tedros is **wide of the mark**  
 But keeping politics out of the WHO has allowed the world to **cajole** even secretive and **repressive regimes** to keep their doors open wide enough to allow scientists, doctors, and experts to work together across borders and save lives.  
 He must be polite to everyone for the sake of global health. He has to **tend** the **dying** flames of international co-operation  
 Vaccines, tests and treatments should be distributed according to need, not **auctioned off** to the highest **bidder**  
@@ -205,7 +205,7 @@ Vaccines, tests and treatments should be distributed according to need, not **au
 Lobby bars. **Rooftop** pools. **Chic** **lounges**  
 These 10 downloadable scenes from our team at HotelTonight will have you **reminiscing** about hotel **getaways**.  
    
-Amelia **gulped** down her coffee and rushed out -  
+Amelia **gulped** down her coffee and rushed out  
 **hemorrhoid** problems  
 not a deal breaker compared to my **coccyx** not killing me and having **shooting pain** up my lag and back -  
   
@@ -272,7 +272,7 @@ she was **thrilled to bits** when I said I'd come
 Chinese people are generally more easy-going than South Korean people. I think South Koreans lack **substantially** on this matter.  
 **individualistic**  
   
-**lynx**, **bobcat** -  
+**lynx**, **bobcat**  
   
 **dietary supplement**  
 North America and **EMEA** saw almost identical **pullbacks** to China and to each other - and both are starting to recover  
@@ -344,7 +344,7 @@ The fundamentals don’t matter quite as much with that kind of **liquidity** **
 Experts are trying to figure out why the coronavirus is so **capricious**  
 **fatality** vs **mortality**  
 **metropolis**  
-while **teeming** cities like Bangkok, Baghdad, New Delhi and Lagos have, so far, largely been spared. -  
+while **teeming** cities like Bangkok, Baghdad, New Delhi and Lagos have, so far, largely been spared.  
 **hypertension**  
 countries like Peru, Indonesia and Brazil, tropical countries in the **throes** of growing epidemics, throw **cold water** on that idea. -  
 One theory that is unproven but impossible to **refute**: maybe the virus just hasn't gotten to those countries yet  
@@ -365,7 +365,6 @@ Most people would **recoil** at the sight of the snake.
 What did you think a **nubbin** was?  
 He **flapped** the flies away with a fan  
 There is no use **flapping** about it now.  
-Chinese **yam**  
 chocolat **mousse**  
 Was she naked, or was she wear **lingerie**?  
 No one would call her a **pushover**  
@@ -423,6 +422,6 @@ She has a gentle **forgiving** nature.
 **bachelorette** party **etiquette**  
   
 Extremely **disillusioned** with technology. Please help  
-Many of the investors turned out to be **bloodthirsty** **vultures** who tore the **carcass** to pieces -  
+Many of the investors turned out to be **bloodthirsty** **vultures** who tore the **carcass** to pieces  
 The young, **wide-eyed** engineers seem **hopelessly** naive to me now  
 I want to see past the **cynicism**  
