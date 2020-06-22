@@ -8,6 +8,9 @@ Remembering English words/phrase is tedious and time-consuming, I try to record 
 ### Westworld 
 [S1](./westWorld/ww1.md) | [S2](./westWorld/ww2.md) | [S3](./westWorld/ww3.md)  
 
+### Silicon Valley
+[S3](./siliconValley/sv3.md) | [S4](./siliconValley/sv4.md) 
+
 ### Game of Thrones 
 [S2](./GOT/GOT2.md) | [S3](./GOT/GOT3.md) | [S4](./GOT/GOT4.md) | [S5](./GOT/GOT5.md)  | [S6](./GOT/GOT6.md)  | [S7](./GOT/GOT7.md)  | [S8](./GOT/GOT8.md)  
 
