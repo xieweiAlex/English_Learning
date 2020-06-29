@@ -35,8 +35,6 @@ files=(
 
 function getNewWords {
 
-  echo "Hello World!  " > "$WORDS_REVIEW"
-
   for file_path in "${files[@]}"
   do 
     echo -e "Checking file: ${YELLOW} $file_path ${NC}"
@@ -137,7 +135,7 @@ then
   # Get new words to words-new
   echo "get new words"
   getNewWords
-elif [[ $action == 'pushBack' ]]; then
+elif [[ "$action" == 'pushBack' || "$action" == 'push' ]]; then
   pushBack
 elif [[ $action == 'update' ]]; then
   echo "Get new words."

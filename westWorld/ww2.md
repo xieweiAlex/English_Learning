@@ -25,9 +25,9 @@ I tried to **chart** a path for you, to force you to escape, but I was wrong.
 
 ## E8  
 She is the **madam** from the Mariposa  
-Get me a **scalpel** and lock this place down. -  
+Get me a **scalpel** and lock this place down.  
 **victrola** singing  
-He get bored with his **exquisitely** **dull**, **pastoral** existence? -  
+He get bored with his **exquisitely** **dull**, **pastoral** existence?  
 A total **bloodshed**  
 This is a **misbegotten** symbol, an idea that was meant to die.  
 

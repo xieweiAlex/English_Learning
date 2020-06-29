@@ -37,7 +37,7 @@ police **precinct office**
 **lucid** chart  
 
 India and China **square up** on their Himalayan border  
-Reports of Chinese **incursions** into India raise tensions between the nuclear-armed neighbors -  
+Reports of Chinese **incursions** into India raise tensions between the nuclear-armed neighbors  
 
 The Chinese Communist Party last week unveiled a **sweeping** new security law that will criminalize **sedition**, foreign influence and **secession** in Hong Kong  
 The **State Department** is required by the Hong Kong Policy Act to assess the autonomy of the territory from China  
@@ -94,7 +94,7 @@ The alleged **perpetrator**, who has not yet been apprehended, reportedly wielde
 however the rendering of these **glyphs** depends on the browser and the platform -  
 Let's stop **pussyfooting** around and address the **elephant in the room**  
 **reams** of paper  
-**lumbar** pillow -  
+**lumbar** pillow  
 **one size fits all**  
 **misfits**  
   
@@ -296,7 +296,7 @@ We gonna **coalesce** them into one spot
   
 **slalom**  
   
-His throat congested with **phlegm**. -  
+His throat congested with **phlegm**.  
   
 **antigen**  
   

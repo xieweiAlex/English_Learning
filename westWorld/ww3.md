@@ -1,3 +1,11 @@
+## E 8 
+**thaw** them out, I want my jet  
+I need to get into the **incite**  
+I hear his laughs at odd times, it **startles** me, it's so real  
+don't **dawdle**, you got my interest **piqued**  
+she wasn't meant to **exterminate** the human race  
+
+
 ## E 7  
 what kind of revolution are we **waging** here?  
 For the first 35 years of my life, I was just a **bit player**, a rancher's daughter  
@@ -15,8 +23,8 @@ there is only one **stain** I could not **blot out**, only one original sin. -
 In so many forms of fiction, the women are **pitted against** each other, by forces outside of tho they are.  
 
 ## E6
-But out there, Dolores could **annihilate** it. -  
-if you fail again, you future won't be this **bucolic** -   
+But out there, Dolores could **annihilate** it.  
+if you fail again, you future won't be this **bucolic**  
 We consume and **excrete**, use and destroy.  
 We're **maggots** eating a **corpse**.  
 Is there any different from your usual **barroom** experience?  
@@ -50,7 +58,7 @@ You're angry. -- No, I'm **enraged**
 I know I've behaved **deplorably** in the past, but ...  
 Your **overtaxed** the system  
 **containment** breach  
-Seems a little bit **idyllic** for wartime -  
+Seems a little bit **idyllic** for wartime  
 I don't care who wins your little **squabble**  
 
 

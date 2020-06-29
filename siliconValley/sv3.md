@@ -4,13 +4,13 @@
 he **stone-faced** to me  
 I **deftly** played Ross Loma against Index Ventures.  
 It's my **Mona Lisa**  
-That's **preposterous** -  
+That's **preposterous**  
 We're thrilled to be getting into Pied Piper right at this **inflection point**.  
 **click farm**  
-suddenly grew a thick, **girthy** **conscience** and fucked me with it. -   
+suddenly grew a thick, **girthy** **conscience** and fucked me with it.  
 you **caked my pants**  
-Even **a whiff of** fraud is a **mortal sin** for VCs. -  
-I'll expect you **off the premises** by end of day -  
+Even **a whiff of** fraud is a **mortal sin** for VCs.  
+I'll expect you **off the premises** by end of day  
 a firm **no-shop clause**  
 as a **contemptible** asshole, you were talking about Erlich?   
 
@@ -28,7 +28,7 @@ You **pulled** us **out** of a **nosedive**
 
 ## E 8  
 Monica, **throw me a bone** here.  
-It may appear he is losing in his race against his **nemesis**, the **insolent** and **cocksure** **hare**. -  
+It may appear he is losing in his race against his **nemesis**, the **insolent** and **cocksure** **hare**.  
 he plays **coy**  
 rumors spread like **light speed**  
 This is **thorny**  
@@ -44,7 +44,7 @@ you're accusing me of **impropriety**?
 We may have a healthy **brood** on our hands.  
 You're **flipping out**  
 I have an inbox full of **raves** here  
-I'd like to **vie** for a lesser **sentence** **if after** he makes full **restitution** he would write a very **convincing** public apology. -  
+I'd like to **vie** for a lesser **sentence** **if after** he makes full **restitution** he would write a very **convincing** public apology.  
 that's a **tough sell**  
 even for a **plaintiff** who's more, uh, **sympathetic**  
 I see two **able-bodied**, entitled young white men...   
@@ -96,7 +96,7 @@ This is it, **no turning back** now.
 
 ## E 2  
 the **flute**-playing guy  
-I don't know you guys realize it, it was a little **phallic** -  
+I don't know you guys realize it, it was a little **phallic**  
 the **conjoined** triangle of success?  
 I made some major **inroads** with **Hiroki**.  
 It kinda all **evens out**, right?  

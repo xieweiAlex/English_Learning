@@ -141,7 +141,7 @@ I'm just asking how your **roach** come by my car.
 While I'm **stumped**, officer.  
 Fuck makes you think I was in **foster care**? -- Just playing the odds.  
 First lesson of **poker**: Unless it's a **bluff**, never make a bet that can only be called by hands that beat you.  
-I will put an **old-fasioned** **country** **ass-whuppin**.  
+I will put an **old-fashion** **country** **ass-whuppin**.  
 Go for a walk, Hector, **Cool off**.  
 My preference would be to **walk you out**, but I don't have to.  
 It doesn't give you the **right** to **disrescpect** my place.  

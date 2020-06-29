@@ -14,7 +14,7 @@ sure you do, **slugger**
 I can't have another **intersite** on my hands.  
 We have to **bifurcate** our relationship.  
 I kind of **zoned out**  
-That's the **frothiest** space in the Valley right now -  
+That's the **frothiest** space in the Valley right now  
 You're in **gross violation** of this act  
 they'd probably **turn you in**  
 Exactly like Hooli-Chat but without the **suck-ass** part  

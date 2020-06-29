@@ -51,7 +51,7 @@ As you may have heard, our industry has been under **strenuous** attacks by cert
 We thank you for your past loyalty and **patronage** and wish you health and safety during the present health crisis and beyond  
 JavaScript **Sorcerer** 🧙  
 
-Pets have been shown to reduce the **gnawing** feelings of loneliness, depression, isolation, and anxiety, which makes them great in a quarantine -  
+Pets have been shown to reduce the **gnawing** feelings of loneliness, depression, isolation, and anxiety, which makes them great in a quarantine  
 **window shopper**  
 What Is **Contemporary Art**  
 
@@ -124,7 +124,7 @@ Make sure it's hot, like **piping hot**.
 
 how this two **cohere**  
 
-this has caused **considerable** **consternation**, heartache for customers. -  
+this has caused **considerable** **consternation**, heartache for customers.  
 **tales of woe**  
 Bitcoin miners can **recoup** a reasonable fraction of their initial expense.  
 the emobodied energy will be **amortized** over years and years of mining  
