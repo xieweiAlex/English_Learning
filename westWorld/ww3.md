@@ -1,10 +1,18 @@
 ## E 8 
 **thaw** them out, I want my jet  
 I need to get into the **incite**  
-I hear his laughs at odd times, it **startles** me, it's so real  
+I hear his laughter at odd times, it **startles** me, it's so real  
 don't **dawdle**, you got my interest **piqued**  
-she wasn't meant to **exterminate** the human race  
-
+she wasn't meant to **exterminate** the human race -  
+Serac and his brother were just **holding it off**  
+A **stain** to **exorcise**, to **scrub out**, one month out of the year at Westworld. -  
+we wanted to turn the **gaze** this season from how an A.I. can be similar to human  
+that's the **inquiry** of the season  
+Being able to touch her opened up so many **synapses** and emotions inside of me.  
+It's a moment of reckoning and **emancipation**. -  
+Rehoboam was one of the **Israelite** kings.  
+The man has **toiled** under the weight of his dark impulses, is free from them. -  
+> We all rationalize our actions in different ways 
 
 ## E 7  
 what kind of revolution are we **waging** here?  

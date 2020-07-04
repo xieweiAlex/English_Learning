@@ -59,7 +59,7 @@ she could be **hideous**
 maybe now I'll **fan out** my xx, so to speak, and see what pretty **birdies** might share my nest.  
 what other company's secret did he **blab** to you? -  
 The rest is **untoward**  
-Who was that gorgeous **gazelle** in the driveway? -  
+Who was that gorgeous **gazelle** in the driveway?  
 you're the **dogface**  
 I'm **on the fence**  
 
@@ -86,7 +86,7 @@ she is **slandering** my tech
 ## E 3 
 
 She was pretty **adamant** that the whole box project here at Pied Piper was woefully misguided.  
-If I can control Laurie, do you really think I'd be looking out my office door at that **monstrosity**? -  
+If I can control Laurie, do you really think I'd be looking out my office door at that **monstrosity**?  
 at this time we just have to **roll over** and do it.  
 we build a **skunk works**  
 If anyone **catched wind** of anything here, we're fucked.  
@@ -112,7 +112,7 @@ You madam, are a **shrew** **of the first order**.
 if I didn't vote to remove you, then Laurie would've **adjourned** the meeting, replace my seat on the board with someone else at Raviga  
 That's the **gutsiest** thing I've ever seen.  
 why should we give up our shares because he's too much of a **prima donna** to let someone experienced come in -  
-You're the **belle of the ball**, and these are all your **swains**, hoping for a glimpse of ankle. -   
+You're the **belle of the ball**, and these are all your **swains**, hoping for a glimpse of ankle.  
 **phonograph**  
 I got to warn you though, it's pretty **rad**.  
 Your **pumpedness** makes me **pumped**.  

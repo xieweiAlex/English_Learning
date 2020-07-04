@@ -54,7 +54,7 @@ they suffered a lot under the invader's **heel**
 I immediately fell **head over heels** for Don  
 I was called into **sub** today  
 
-**Tack on** **skyrocketing** unemployment and a **pent up** wave of evictions could hammer working families further -  
+**Tack on** **skyrocketing** unemployment and a **pent up** wave of evictions could hammer working families further  
 **pipe dream**  
   
 While many businesses will never recover, “there will be new businesses that would have been **inconceivable** just a few years ago.  
@@ -85,7 +85,7 @@ This is hard to achieve with a traditional keyboard, especially when you startin
 I don't think the argument **holds water**  
 Your Explanation **Holds Water**  
 RSI: **Repetitive Strain Injury**  
-That statement is one of those **catty** **oft** repeated things we are supposed to take as **gospel** for some reason -  
+That statement is one of those **catty** **oft** repeated things we are supposed to take as **gospel** for some reason  
 The alleged **perpetrator**, who has not yet been apprehended, reportedly wielded a knife. -  
 **unfrequented** area  
   
@@ -282,7 +282,7 @@ America’s pressure on China over **Tibet** will come to **naught**
   
 We proudly celebrated the graduation of our first Dev Degree program **cohort**  
   
-Asynchronous programming **glossary** -  
+Asynchronous programming **glossary**  
 **kale**  
 **semen**  
 Cutting Through the **Clutter**  
@@ -346,7 +346,7 @@ Experts are trying to figure out why the coronavirus is so **capricious**
 **metropolis**  
 while **teeming** cities like Bangkok, Baghdad, New Delhi and Lagos have, so far, largely been spared.  
 **hypertension**  
-countries like Peru, Indonesia and Brazil, tropical countries in the **throes** of growing epidemics, throw **cold water** on that idea. -  
+countries like Peru, Indonesia and Brazil, tropical countries in the **throes** of growing epidemics, throw **cold water** on that idea.  
 One theory that is unproven but impossible to **refute**: maybe the virus just hasn't gotten to those countries yet  
 Time may still prove the greatest **equalizer**  
 **die down**  

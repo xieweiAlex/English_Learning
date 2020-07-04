@@ -1,5 +1,17 @@
-## Week 4 
+# Week 4 
 
+**oldie** but still a **goodie** 
+her **migraine** led to a constant headache -  
+
+Force or tension is used to stretch or pull the head away from the neck. Creating space between the **vertebrae** relieves compression and allows the muscles to relax -  
+This may even lead to **fainting**  
+Don’t **overexert** yourself by doing cervical traction for too long -  
+
+> I couldn't find anyone like me in the world and it felt like my dreams were foreclosed simply because my gender was less typical than others. If I can be that person for someone else, then the sacrifice of my private civic life may have value.
+
+I didn't feel **obligated** to be here, but I wanted to do something. And it's **serendipitous** that the awards were a couple of weeks later and our show was up for an award  
+
+V for **Vendetta** 
 **fiduciary** business  
 **belly up**  
 He has **exquisite** tastes and manners  
@@ -10,16 +22,16 @@ Rust has **corroded** the **steel rails**
 he **rails** at his hard luck  
 school **counselor**  
 I would **counsel** caution in such a case.  
-A **thesaurus** is a kind of dictionary. It can help you replace a word with a synonym, another word having the same or similar meaning.  
+A **thesaurus** is a kind of dictionary. It can help you replace a word with a synonym, another word having the same or similar meaning. -  
 
-the word (depression) is an **evocative** word. -  
+the word depression is an **evocative** word. -  
 **austerity**  
 those are stable, **meat-and-potatoes**, not-**leverage** kind of companies  
 **thucydides trap**  
 
 The policy implies **insidious** dangers to the national economy.  
 **repercussion**  
-what are these fucking **cretins** talking about?  
+what are these fucking **cretins** talking about? -  
 **own** vs **owe**  
 I don't just **roll over** what I'm told to  
 languages always **give you away**  
@@ -52,7 +64,7 @@ she is **up and running**
 **biodiversity**  
 **poachers**  
 you do get those little **geckos** by the way  
-those giant **centipedes**  
+those giant **centipedes** -  
 you can't just **willy-nilly** like eat every creature  
 
 No crowd **materialized**  
@@ -76,16 +88,16 @@ Robot servers today are both **gimmicks** and safety measures, but tomorrow they
 **rudimentary** physical automation of the 20th century  
 AI for perception and **fine-motor** manipulation  
 We can already see the **contours** of the post-covid business environment taking shape -  
-Although automation changes some jobs and **decimates** others, many new jobs are created too -  
-Many sectors will be reimagined in the form of human-digital **symbiosis** -  
+Although automation changes some jobs and **decimates** others, many new jobs are created too  
+Many sectors will be reimagined in the form of human-digital **symbiosis**  
 > In education, for example, AI will become the **tutor** and **always-on** instructor, while the human is the wise mentor and motivator  
 
 China’s early adoption of automation technologies—and its successful transition from an **impoverished** **agrarian** economy to an industrial powerhouse—means its experience offers valuable lessons.  
-After the second world war, American business practices became the global standard to which all companies around the world **aspired** -  
+After the second world war, American business practices became the global standard to which all companies around the world **aspired**  
 
 Their intake **orifices** had rocky **pegs**, that would crush them into **paste** -  
 They had an entire network that was **devoted** to **dissemination** of pictures of these things  
-we don't have **genitalia**  
+we don't have **genitalia** -  
 
 Post-**apocalyptic** city  
 Emotional **Granularity**  
@@ -100,33 +112,21 @@ Hark! The **infernal** **orgies**! That **revelry** is forward! Mark the **unfal
 **aromatic** **flavouring** can be extracted  
 
 **mind-bending**  
-All I see is **Blonde**, **Brunette**, **redhead**.  
-I can arrange a much more personalized **milieu**. -  
-you're **right on time**  
-**know thyself**  
-I'm tried of that **jagoff** and all of his bullshit  
-Billions of people just living out their lives... **oblivious**  
-**ranking officer**  
-why isn't the **serum** working? -  
-It's **repulsive**, I must get out of here, I must get free.  
-
 **doorframe**  
 **barbell**  
-
 **home stretch**  
 Here we go, my **cure-all** **remedy**, honey!  
 A bowl of **shredded** wheat **paste**  
-The EU plans to ban US travelers indefinitely after **haphazard** COVID-19 response -  
-The town grew in a **haphazard** way  
+The EU plans to ban US travelers indefinitely after **haphazard** COVID-19 response  
+The town grew in a **haphazard** way -  
 As Pandemic slows Business, workers **fret**: is my job relevant? -  
 
 ## Week 3 
-
 Don’t be a victim of **grandiosity**  
 Even someone with years of experience will jump into an interview after a three-month **hiatus** and choke  
 
 Museum to remove Roosevelt statue **decried** as white supremacy  
-Delicious smells were **emanating** from the kitchen -  
+Delicious smells were **emanating** from the kitchen  
 **tater tots** -  
 **kettlebell**  
 
@@ -143,17 +143,7 @@ When a female ate a male after a mating event, she was found to have around 17.7
 **phrasal** verbs  
 
 **Annular** Solar Eclipse 2020
-
 born out of **wedlock**   
-the **informant** is real  
-All the time, it's called **mescaline**. It's the only way to fly. -  
-You can't scare me with this **gestapo** crap -  
-**at last**  
-this is a **sparring program** -  
-Someone can be **bent**, others and be broken.  
-**Sentient** programs  
-**sentinel** program
-
 Basic **plotting**  
 
 **lambo doors**, **scissor doors**  
@@ -175,7 +165,7 @@ The value of the **pound** **swung** downwards
 
 **spuds**, **spud in**  
 **spud**: an **edible** **tuber** native to South America  
-Open your mouth, I'd like to inspect your **tonsils** -  
+Open your mouth, I'd like to inspect your **tonsils**  
 **orgie** **orgy** 
 **swinger parties**  
 **phalange** bone  
@@ -197,7 +187,7 @@ fruit **tartlet** -
 **clarinet**: a single-reed instrument with a straight **tube**  
 she was attacked by a **maniac**  
 **pillar** industry  
-His cruel and **callous** comments made me **shiver** -  
+His cruel and **callous** comments made me **shiver**  
 
 It's a **grueling** day  
 **lead question**  
@@ -294,7 +284,7 @@ a dull **thud**
 glass **panel**  
 it was all very **seductive**, **loose** and pretty  
 I don't need her to be all **smug** and **snooty**  
-**helium** and **neon** are **inert** gases -  
+**helium** and **neon** are **inert** gases  
 **hydrogen**  
 there is a lot of **ornaments** on the wall  
 he **crouched** down to **stroke** the dog  
@@ -318,7 +308,7 @@ Racism, inequality and discrimination are **unequivocally** wrong
 Willing to **roll the dice**  
 Hinge Labs is more of a **crash course** on dating, designed to be deleted once you've found your match.
 
-Protests against systemic racism, which fosters the **disproportionate** burden of COVID-19 on Black communities and also **perpetuates** police violence, must be supported." -  
+Protests against systemic racism, which fosters the **disproportionate** burden of COVID-19 on Black communities and also **perpetuates** police violence, must be supported."  
 We’ll see in a few weeks whether COVID-19 **caseloads** spike.  
 But with **amped up** testing capacity and public health measures, the city managed to **trample** the curve.  
 
@@ -341,7 +331,7 @@ Funding Cuts Threaten to **Hobble** American Science
 Makingtrouble **out of nothing**  
 
 disorientated, for example, is a version of disoriented more commonly used in the UK, but they both describe someone who’s **lost their bearings**  
-His **vigilance** never **languished** -  
+His **vigilance** never **languished**  
 
 **Spooky** castle  
 spray **nozzle**  
@@ -356,7 +346,7 @@ the **haze** of smoke
 **karate** tournament  
 culture **potpourri**  
 
-Georgiades said there has long been an unsupported myth that Bay Area residents are leaving the city **in droves** because of high cost of living, **steep** taxes, **snarled** traffic and homeless issues -   
+Georgiades said there has long been an unsupported myth that Bay Area residents are leaving the city **in droves** because of high cost of living, **steep** taxes, **snarled** traffic and homeless issues  
 **Fitful** nightly sleep linked to **chronic** inflammation, **hardened** **arteries** (berkeley.edu)
 
 even when it's speech we strongly and **viscerally disagree** with  
@@ -451,5 +441,5 @@ Am I making a difference? Am I doing something **worthwhile**?
 where she was required to attend **a stream of** **monotonous** meetings where much was said but little was accomplished.  
 
 **thriftiness**  
-The **thrifty** man mends his own clothes, including torn socks. -  
+The **thrifty** man mends his own clothes, including torn socks.  
 **tone down**  

@@ -147,7 +147,7 @@ my dad kind of **jollied** me into it.
 I was a **lopsided** person  
 > Chains of habit that are too light to be felt until they're too heavy to be broken.  
 
-she was a **cinch** -  
+she was a **cinch**  
 they've got a **common heart**, which they got from their mother.  
 Truth forever on the **scaffold**, long forever on the throne, but that scaffold **sways** the future  
 **misthinkings**  

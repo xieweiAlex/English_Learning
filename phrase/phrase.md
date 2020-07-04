@@ -1,9 +1,18 @@
+
+I kind of **zoned out**  
+Ed Chen run this event just to **suck up to** Laurie  
+
+tack sth on  
+
+Social distancing via automation will have **wide-ranging** **implications**  
+
 ## June  
+Our TargetType is **shaping up**, but we're not done yet  
   
 Many traders **went under** during the war.  
 A simple handshake would **give them away**  
 
-### Hold back  
+#### Hold back  
 Promise me, you would not **hold me back** from killing Stannis.  
 **hold back**, let's go for a walk.  
 Probably what's **holding me back** from making rank.  
@@ -18,6 +27,7 @@ Creating a makefile for every small Latex project is **over the top**
 you can't just **willy-nilly** like eat every creature  
   
 It's a **nerve-wracking** thing  
+**nerve-racking**
 The idea of other universes out there is **mind-bending**, but scientists say in some ways it actually makes sense  
   
 **over the years**  
@@ -38,6 +48,4 @@ she had a quick **swig** of water and then **set off** again
 we're gonna **make off** with that **geisha**? We're gonna die  
   
 Disney, Papa John’s, Poshmark and T-Mobile **backed away** from “Tucker Carlson Tonight” after the host’s comments about Black Lives Matter protests.  
-  
-  
   
