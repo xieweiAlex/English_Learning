@@ -19,7 +19,7 @@ what kind of revolution are we **waging** here?
 For the first 35 years of my life, I was just a **bit player**, a rancher's daughter  
 We captured the leader of the **insurgency**  
 We have some questions - Then I will **endeavor** to have some answers.  
-Both of those **analogies** are somewhat **facile** -  
+Both of those **analogies** are somewhat **facile**  
 I'm a fucking **bastion** of the society  
 This is kind of my thing in the park, watching over the **unruly** **flock**.  
 the **evac** never came  

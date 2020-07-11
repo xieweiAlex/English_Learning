@@ -16,7 +16,7 @@ files=(
   "GOT/GOT6.md"
   "GOT/GOT5.md"
   "GOT/GOT4.md"
-  "./words/2020/words-Jul.md"
+  "./words/2020/words-July.md"
   "words/2020/words-Jun.md"
   "words/2020/words-May.md"
   "words/2020/words-April.md"

@@ -1,3 +1,5 @@
+* particularly vs specially 
+* except vs besides 
 * shim
 * indisposed  
 * banalities vs cliche

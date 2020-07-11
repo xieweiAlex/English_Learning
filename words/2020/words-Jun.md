@@ -5,7 +5,7 @@ her **migraine** led to a constant headache -
 
 Force or tension is used to stretch or pull the head away from the neck. Creating space between the **vertebrae** relieves compression and allows the muscles to relax -  
 This may even lead to **fainting**  
-Don’t **overexert** yourself by doing cervical traction for too long -  
+Don’t **overexert** yourself by doing cervical traction for too long  
 
 > I couldn't find anyone like me in the world and it felt like my dreams were foreclosed simply because my gender was less typical than others. If I can be that person for someone else, then the sacrifice of my private civic life may have value.
 
@@ -22,7 +22,7 @@ Rust has **corroded** the **steel rails**
 he **rails** at his hard luck  
 school **counselor**  
 I would **counsel** caution in such a case.  
-A **thesaurus** is a kind of dictionary. It can help you replace a word with a synonym, another word having the same or similar meaning. -  
+A **thesaurus** is a kind of dictionary. It can help you replace a word with a synonym, another word having the same or similar meaning.  
 
 the word depression is an **evocative** word. -  
 **austerity**  
@@ -72,7 +72,7 @@ It's unlikely they were **solely** responsible for this low **turnout**, their *
 getting **foiled** by a bunch of **meddling** kids.  
 Kennedy was **lauded** for putting a man on the Moon. -  
 
-Have a little **pretzel** with your **mustard**, Maya.  
+Have a little **pretzel** with your **mustard**, Mayo. -  
 
 **cost-cutting** measure  
 **chartering** a boat  
@@ -80,7 +80,7 @@ Have a little **pretzel** with your **mustard**, Maya.
 Though the shift **predates** covid-19, the crisis has accelerated it  
 Social distancing via automation will have **wide-ranging** **implications**  
 **back-office** white-collar jobs in finance  
-Historically, automation tends to happen when economic difficulties **coincide** with maturing technologies -  
+Historically, automation tends to happen when economic difficulties **coincide** with maturing technologies  
 And once a company has replaced an employee with a robot and proven its **efficacy**, it is unlikely to go back  
 **metallic** colleagues  
 a fleet of robots was **scurrying** inside for disinfecting and delivering medical supplies -  
@@ -127,7 +127,7 @@ Even someone with years of experience will jump into an interview after a three-
 
 Museum to remove Roosevelt statue **decried** as white supremacy  
 Delicious smells were **emanating** from the kitchen  
-**tater tots** -  
+**tater tots**  
 **kettlebell**  
 
 **Maize**, called corn in the United States, is a staple food throughout most of the world -  
@@ -155,7 +155,7 @@ they have the **stick arms**
 eat a **hummingbird**  
 **praying mantis** versus a murder hornet 
 he **camouflaged** himself  
-most mantis are also **cannibalistic** -  
+most mantis are also **cannibalistic**  
 
 **grisly** 
 Keep a **curb** on your anger.  
@@ -177,10 +177,10 @@ He's a **devious**, secret person and I don't trust him.
 Roof **terrace**, garden **terrace**  
 The dinning-room opens onto a paved **terrace**  
 **bean curd** in **casserole**  
-He had a good **rummage** inside the sofa -  
+He had a good **rummage** inside the sofa  
 **wicker chair**  
 Ben has a **wicked** sense of humour  
-You should **sheer off** the wicked urchin  
+You should **sheer off** the **wicked** **urchin** -  
 **Styrofoam**: foamed plastic  
 strawberry **torte** -  
 fruit **tartlet** -  
@@ -213,7 +213,7 @@ possible but **unwieldy**
 This is what makes the whole system **tick**  
 what this **boils down** to ... 
 
-**sobriety test** -  
+**sobriety test**  
 **autodidact**  
 **cuddle** vs **snuggle**  
 
@@ -226,7 +226,7 @@ for example, expanding cross-border digital-payments systems that bypass much of
 The Nazis carried out the **Holocaust**  
 **unparalleled**  
 It's based on **heinous** sounding theories -  
-Mao remains **revered** in China -  
+Mao remains **revered** in China  
 
 **cynophobia**  
 **xenophobia**
@@ -250,7 +250,7 @@ you can't play **bagpipe** at the wedding!
 walking on **stilts**  
 **furry**: covered with a dense coat of fine **silky** hairs  
 don't **burp** at the table  
-It'll be like the Pilgrims bringing the Indians **syphilis**. -  
+It'll be like the Pilgrims bringing the Indians **syphilis**.  
 **asphalt** **binder**  
 **sun shade**  
 the actress still remains **in the shade**.  
@@ -266,7 +266,7 @@ That includes your Irish **chippy**
 **squirt** gun  
 
 **miraculously**, she still lives!  
-Aged 24, not only is she one of the oldest **grizzlies** living outside a zoo, she has also continued having **cubs** to a **venerable** age, becoming a **poster child** for the recovery of bears in the greater Yellowstone ecosystem. -  
+Aged 24, not only is she one of the oldest **grizzlies** living outside a zoo, she has also continued having **cubs** to a **venerable** age, becoming a **poster child** for the recovery of bears in the greater Yellowstone ecosystem.  
 **pharmaceutical** industry  
 
 Souvenir: something of **sentimental** value  
@@ -412,7 +412,7 @@ It's gong to come **one way or another**
 **dietary fiber**  
 They May Have **Prebiotic** Effects and Promote Good **Gut Bacteria**  
 Your small **intestine** doesn't absorb fiber during digestion  
-Apples Contain **Compounds** That Can Help Fight **Asthma** -  
+Apples Contain **Compounds** That Can Help Fight **Asthma**  
 
 Calmaria is a breathing app with an **enviable** **aesthetic**, the aim is to reduce anxiety and promote focus.
 **orchestrator**  

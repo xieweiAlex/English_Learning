@@ -44,7 +44,7 @@ The **State Department** is required by the Hong Kong Policy Act to assess the a
 Hong Kong and its dynamic, enterprising, and free people have **flourished** for decades as a **bastion** of liberty, and this decision gives me no pleasure  
 But **sound policy** making requires a recognition of reality  
 
-These conspiracy theorists, including most recently the President of the United States, continue to spread their **bile** and misinformation on your platform **disparaging** the memory of my wife and our marriage -  
+These conspiracy theorists, including most recently the President of the United States, continue to spread their **bile** and misinformation on your platform **disparaging** the memory of my wife and our marriage  
 We got the industry to **retool** and restructure.  
 
 There’s a whole ‘nother rant here about **Camus** and **Heidegger** and absurd-ism and **being-towards-death** too. I will save that **sophomoric** rant for my “I’m turning 40” post.
@@ -71,7 +71,7 @@ The serial **scofflaws** collectively **amassed** 370,000 citations
 The two had an **animated** discussion as Forstall waited  
   
 The soccer team thought they were getting **mannequins** to fill the **stands**, but instead, they received sex dolls.  
-stimulus **serenade** -  
+stimulus **serenade**  
 **stoner** friend  
 loading **dock**  
 in dry **dock**  

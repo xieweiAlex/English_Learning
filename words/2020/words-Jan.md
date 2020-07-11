@@ -25,7 +25,7 @@ Apple today announced that it has closed all of its **corporate offices**, store
 **proponent**  
 He is a Obama **holdover**  
 Everything that was leaked was meant to make Trump look really **inept**  
-**lieutenant** **colonel**  
+**lieutenant** **colonel** -  
 
 The last matching pattern has the most **precedence**  
 **memoire**  

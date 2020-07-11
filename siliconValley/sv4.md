@@ -1,24 +1,53 @@
+## E 7 
+
+**What brings you here today**?  
+Did you **graze** your **penis** against a toilet seat?  
+There is a **grotesque** gender **imbalance** in the VC field right now. I can help you navigate the **toxicity** of this male culture which is **encroaching** on our **feminist** island.   
+**Mansplaining** is when a man will **condescendingly** explain something to a woman that she already knows.  
+She has never shown a **proclivity** for getting around infrastructure.  
+he'll come here fix it **posthaste**  
+I'll **concede** that spending all my time inside of a house with you **scrawny** code jockeys, the incredible shrinking Hendricks...  
+I'll send him a harshly **worded** **cease and desist** letter. -  
+this is a **shakedown**, he's a **crook**.  
+It seems that I've committed the **cardinal sin** of being early. -  
+it's like that old **fraternity** game, uh, the **limp biscuit**.    
+May I borrow this hammer to **pound in** these **flamboyant** little **nails**?  
+They have reached out to me **preemptively** to settle  
+> I'm not **going down** without a fight  
+
+looks like I can **slay** that troll -  
+
+## E 6 
+
+Someone pissed in someone's car? -- It's an **adage**  
+Clearly, she has a lot of **pent-up** sexual energy, likely from working in this **worm farm**  
+I really wish I could, but my dick is the **abacus** upon which this **equation** will be ... -  
+You didn't **come off** in that story as well as you think you do.  
+I'll be the first one here at 10:30 am, and the last one to leave a **smidge** after 4:00.  
+there they are, **atop** your little **paunch** -  
+I don't want to **pry**, but did I do something wrong?  
+we just need to **extricate** you from this situation -  
+Listen baby, you're getting **hitched**, and I was born to roam.  
+
 ## E 5 
 He is my **transfusion** associate  
 Are you really not familiar with **parabiosis**? 
-nobody likes a **braggart**, Jin-Yang  
+nobody likes a **braggart**, Jin-Yang -  
 Ed Chen run this event just to **suck up to** Laurie  
 we will take another half, **walled off** on their phone for our own future use. 
 He is even not in the company, he just **butted in**  
 that's actually for my **astigmatism**  
 oh, dear. That does not **bode** well for you.  
-Just some creatine, protein powder, soy extract  
-You muscle-bound handsome Adonis  
-Tech is reserved for people like me! The freaks, the weirdos, the misfits, the geeks, the dweebs, the dorks! Not you.   
-You days of leeching off Gavin Belson are over.  
-You're referring to the baby shower ruse.  
-I'm no stanger to these types of machinations  
-However, I have countervailed it with my ...  
-He is writing a tell-all?  
-He landed a very lucrative deal to air my dirty laundry over the years  
-You ratted your girlfriend out to the FBI, because you're too big of a pussy to break up with her?  
-
-
+Just some **creatine**, protein powder, soy extract  
+You **muscle-bound** handsome **Adonis**  
+Tech is reserved for people like me! The freaks, the weirdos, the **misfits**, the geeks, the **dweebs**, the **dorks**! Not you. -   
+You days of **leeching off** Gavin Belson are over.  
+You're referring to the **baby shower** **ruse**.  
+I'm no stranger to these types of **machinations**  
+However, I have **countervailed** it with my ... -  
+He is writing a **tell-all**?  
+He landed a very **lucrative** deal to **air** my **dirty laundry** over the years  
+You **ratted** your girlfriend out to the FBI, because you're too big of a pussy to break up with her?  
 
 ## E 4 
 You're **demented**!  

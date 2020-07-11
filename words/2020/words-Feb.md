@@ -174,7 +174,7 @@ The markets were more **volatile**
 it was the one of the most **pivotal times** in the last hundred years  
 Liberal had **ceased to** mean being in favor of progress and had come to mean "paying people not to work."  
 **inflation-hedged** assets  
-My **kooky** views were starting to look right on  
+My **kooky** views were starting to look right on -  
 The greatest **whipsaw** ever  
 I was all the way **back to square one**  
 
