@@ -6,7 +6,7 @@ echo "Hello World!"
 #   ""
 # )
 
-all_md_files=$(ls -R . ./*md)
+all_md_files=$(ls -R ./words/**/*md)
 
 for filename in "${all_md_files[@]}"; do 
   echo "filename: $filename"
