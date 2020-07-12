@@ -1,15 +1,10 @@
 #!/bin/bash 
 
 echo "Hello World!"
+my_files=$(ls -R ./media-record/**/*md & ls -Rr ./words/**/*md)
 
-# exclude_files=(
-#   ""
-# )
-
-all_md_files=$(ls -R ./words/**/*md)
-
-for filename in "${all_md_files[@]}"; do 
-  echo "filename: $filename"
+for filename in "${my_files[@]}"; do 
+  echo "We've got files: $filename"
 done 
 
 

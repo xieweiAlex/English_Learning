@@ -5,18 +5,18 @@ PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 WORDS_REVIEW="words-new.md"
 
 files=(
-  "movie-show-record.md"
-  "siliconValley/sv4.md"
-  "siliconValley/sv3.md"
-  "westWorld/ww3.md"
-  "westWorld/ww2.md"
-  "westWorld/ww1.md"
-  "GOT/GOT8.md"
-  "GOT/GOT7.md"
-  "GOT/GOT6.md"
-  "GOT/GOT5.md"
-  "GOT/GOT4.md"
-  "./words/2020/words-July.md"
+  "./media-record/movie-show-record.md"
+  "./media-record/siliconValley/sv4.md"
+  "./media-record/siliconValley/sv3.md"
+  "./media-record/westWorld/ww3.md"
+  "./media-record/westWorld/ww2.md"
+  "./media-record/westWorld/ww1.md"
+  "./media-record/GOT/GOT8.md"
+  "./media-record/GOT/GOT7.md"
+  "./media-record/GOT/GOT6.md"
+  "./media-record/GOT/GOT5.md"
+  "./media-record/GOT/GOT4.md"
+  "words/2020/words-July.md"
   "words/2020/words-Jun.md"
   "words/2020/words-May.md"
   "words/2020/words-April.md"
@@ -36,28 +36,25 @@ files=(
 )
 
 function getNewWords {
-
   for file_path in "${files[@]}"
   do 
     echo -e "Checking file: ${YELLOW} $file_path ${NC}"
     file_name=$(basename "$file_path")
     file_content=$(ag "$PATTERN" -G "$file_path" --group --nonumbers | sed '/^[[:space:]]*$/d') 
-    if [ -n "$file_content" ]; then 
 
+    if [ -n "$file_content" ]; then 
       # firstLine=$(echo "$file_content" | head -1 ) 
       # sed -i '' "1s/.*/##Test" "$file_content"
-
       echo "" >> "$WORDS_REVIEW"
       echo "## ----------- ${file_name} -----------  " >> "$WORDS_REVIEW"
-
       echo "$file_content" >> "$WORDS_REVIEW"
     fi
-
   done 
 
+  length=$(cat $WORDS_REVIEW | wc -l)
+  echo -e "File length: ${YELLOW} $length ${NC}, cut off lines beyond 110!"
   # Delete lines (111,$) let's keep the review file short & lean  
   sed -i '' '111, 500d' "$WORDS_REVIEW"
-
 }
 
 function pushBack {
@@ -99,8 +96,6 @@ function pushBack {
 
   # echo lines 
   echo "We got line: $lines"
-
-
   cleanWordReview $lines
 }
 
@@ -131,11 +126,13 @@ fi
 echo ".."
 if [[ $action == 'sync' ]];
 then
-  # Update words files from words-new
   echo "Update back words to origin files " 
   pushBack
-  # Get new words to words-new
-  echo "get new words"
+
+  echo "Clean up the WORDS_REVIEW file."
+  echo "" > "$WORDS_REVIEW"
+
+  echo "Get new words for various resources to WORDS_REVIEW file."
   getNewWords
 elif [[ "$action" == 'pushBack' || "$action" == 'push' ]]; then
   pushBack
