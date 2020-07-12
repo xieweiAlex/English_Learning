@@ -100,7 +100,7 @@ the owner of the High Times cannabis magazine announced plans to buy 13 Californ
 
 Do I look serious? - You look **stoned**  
 Her **blouse** and skirt match up nicely  
-I'm stuck in an ATM **vestibule**...  
+I'm stuck in an ATM **vestibule**... -  
 
 He fell in love with a stripper again--what a **maroon**!  
 The knowledge of future evils **mortified** the present **felicities**.  

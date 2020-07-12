@@ -1,4 +1,27 @@
 
+### V for Vendetta
+The world's biggest **leper colony**. -  
+The only **verdict** is **vengeance**, a **vendetta**, held as a **votive** not **in vain**, for the value and **veracity** of such shall one day **vindicate** the **vigilant** and the **virtuous**. -  
+**Verily**, the **vichyssoise** of **verbiage** **veers** most **verbose**.  
+first, the **overture**  
+Here comes **crescendo**!  
+A cow getting **crucified**. It's **hysterical**   
+The security of the **familiar**, the **tranquility** of repetition.  
+I enjoy them as much as any **bloke**.  
+for those who will listen, the **enunciation** of truth. -  
+I **maced** that **detective**. Why did I do that?  
+**interrogation** cell  
+They were **interned** at Belmarsh  
+for obvious reasons, we have to keep this **discreet**  
+As only **celluloid** can deliver  
+**reclamation**  
+I'm in need of someone with some **theatrical** skill  
+the security of these information is **paramount**   
+You started as a **botanist**, didn't you? -  
+**Bonjour**, **mademoiselle**  
+**chemical shed**  
+
+
 ### The Matrix 
 
 the **informant** is real  

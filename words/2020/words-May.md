@@ -173,7 +173,7 @@ a **loner**
 **golden handshake** and pension  
 **at stake**, **stake someone to something**  
 **go to the stake**  
-V-neck **cardigan** -  
+V-neck **cardigan**  
 We were **inundated** with applications for the job.  
   
 **fall short**  
@@ -207,7 +207,7 @@ These 10 downloadable scenes from our team at HotelTonight will have you **remin
    
 Amelia **gulped** down her coffee and rushed out  
 **hemorrhoid** problems  
-not a deal breaker compared to my **coccyx** not killing me and having **shooting pain** up my lag and back -  
+not a deal breaker compared to my **coccyx** not killing me and having **shooting pain** up my lag and back  
   
 Ancient **Athens**  
 thank **goodness**  

@@ -1,11 +1,34 @@
 
-gaunt: extremely thin and bony; haggard and drawn, as from great hunger, weariness, or torture; emaciated. -  
+**archaic** word   
+**ancient** Greece 
+As adjectives the difference between **auspicious** and **propitious** is that auspicious is of good **omen**; indicating future success while propitious is favorable; **benevolent** (eg propitious weather ).  
+
+**tossing and turning** all night, talking **gibberish**.  
+cookies and **crackers**  
+**wedge**, **wedgie**  
+baby **bassinet** -  
+**planetarium**  
+some marriage are meant to be **annulled**.  
+sexy **lingerie**  
+No words **availed** to **pacify** him  
+we **sallied** forth at dawn.  
+a pair of **tweezers**.  
+let's get this **icky** diaper off you.  
+
+his long and **eventful** life.  
+stocks has outperformed gold **by a long shot**  
+**itemize**  
+don't let **headlines** **deter** you from this, stay the **course** no matter what   
+
+COVID-19 cases have surged in Florida, where the park is located, and ICU beds are now **at a premium**.  
+The theme park's contribution to the company's top line is **staggering**  
+stating that they "actually feel like part of the story rather than an **afterthought**  
+
+**gaunt**: extremely thin and **bony**; **haggard** and **drawn**, **as from** great hunger, weariness, or torture; **emaciated**. -  
 She **blotted** water off the table with a towel.  
 That new factory is a **blot** on the landscape.  
 She **blotted** her **copybook** when she arrived late for work  
-
-
-transitive verb  
+**transitive** verb  
 
 We need leaders to make these hard decisions about distributing based on **equity**, not just on **market-driven** factors.
 The **hut** isn't safe; it was just **flung** together  

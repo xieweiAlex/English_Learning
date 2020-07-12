@@ -254,7 +254,7 @@ It'll be like the Pilgrims bringing the Indians **syphilis**.
 **asphalt** **binder**  
 **sun shade**  
 the actress still remains **in the shade**.  
-**burgundy** dinner jacket -  
+**burgundy** dinner jacket  
 She **stayed off** the **claret** for the **main course**. -  
 **light reflex**  
 The cat **hissed** as the dog came near it.  
@@ -274,7 +274,7 @@ Souvenir: something of **sentimental** value
 Third, and most **strikingly**, Mr Stoltenberg **envisages** the alliance taking a more global approach—in particular, **adjusting** to China’s rise.  
 Mr Trump, worryingly **ambivalent** about the alliance.  
 But he sees closer collaboration with **like-minded** countries in the region, including Australia, Japan, New Zealand and South Korea  
-A document has a **preamble** and document part -  
+A document has a **preamble** and document part  
 
 I'd probably **jab** a **tampon** in it.  
 The **indignant** customer complained to the manager. -  
@@ -318,7 +318,7 @@ But with **amped up** testing capacity and public health measures, the city mana
 **vicinity**  
 **Stalwart** policemen stood guard outside.  
 **old chap**  
-He was a kind of **plodder**, though, good fellow as he was. -  
+He was a kind of **plodder**, though, good fellow as he was.  
 
 He did it in a deliberate **manner**  
 **salami** pizza  
