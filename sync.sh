@@ -5,7 +5,7 @@ PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 WORDS_REVIEW="words-new.md"
 
 files=(
-  "./media-record/movie-show-record.md"
+  "./media-record/movie.md"
   "./media-record/siliconValley/sv4.md"
   "./media-record/siliconValley/sv3.md"
   "./media-record/westWorld/ww3.md"
@@ -126,13 +126,13 @@ fi
 echo ".."
 if [[ $action == 'sync' ]];
 then
-  echo "Update back words to origin files " 
+  echo -e "${GREEN}Update back words to origin files ${NC}" 
   pushBack
 
-  echo "Clean up the WORDS_REVIEW file."
+  echo -e "${GREEN}Clean up the WORDS_REVIEW file.${NC}"
   echo "" > "$WORDS_REVIEW"
 
-  echo "Get new words for various resources to WORDS_REVIEW file."
+  echo -e "${GREEN}Get new words for various resources to WORDS_REVIEW file.${NC}"
   getNewWords
 elif [[ "$action" == 'pushBack' || "$action" == 'push' ]]; then
   pushBack

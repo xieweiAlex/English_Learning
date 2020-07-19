@@ -57,7 +57,7 @@ when we have a totally open and **hedonistic** relationship that allows for beha
 She is **magnificent**  
 she could be **hideous**  
 maybe now I'll **fan out** my xx, so to speak, and see what pretty **birdies** might share my nest.  
-what other company's secret did he **blab** to you? -  
+what other company's secret did he **blab** to you?  
 The rest is **untoward**  
 Who was that gorgeous **gazelle** in the driveway?  
 you're the **dogface**  
@@ -70,7 +70,7 @@ You do tend to **babble** on when you're under pressure.
 **shylock**  
 Laurie Bream is out there **gallivanting** around the Valley, interviewing every **dickhole** on Earth for my job.  
 Richard must not be perceived as being the most **expedient** candidate.  
-he's shown **mettle**. -  
+he's shown **mettle**.  
 I found my **retainer** in the school dumpster.  
 Did you tell them that my Fage's **off-limits**?  
 
@@ -111,7 +111,7 @@ I stay here for a year, I pay no rent, you have no **recourse**
 You madam, are a **shrew** **of the first order**.  
 if I didn't vote to remove you, then Laurie would've **adjourned** the meeting, replace my seat on the board with someone else at Raviga  
 That's the **gutsiest** thing I've ever seen.  
-why should we give up our shares because he's too much of a **prima donna** to let someone experienced come in -  
+why should we give up our shares because he's too much of a **prima donna** to let someone experienced come in  
 You're the **belle of the ball**, and these are all your **swains**, hoping for a glimpse of ankle.  
 **phonograph**  
 I got to warn you though, it's pretty **rad**.  

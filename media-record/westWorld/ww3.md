@@ -11,7 +11,7 @@ that's the **inquiry** of the season
 Being able to touch her opened up so many **synapses** and emotions inside of me.  
 It's a moment of reckoning and **emancipation**. -  
 Rehoboam was one of the **Israelite** kings.  
-The man has **toiled** under the weight of his dark impulses, is free from them. -  
+The man has **toiled** under the weight of his dark impulses, is free from them.  
 > We all rationalize our actions in different ways 
 
 ## E 7  
@@ -23,11 +23,11 @@ Both of those **analogies** are somewhat **facile**
 I'm a fucking **bastion** of the society  
 This is kind of my thing in the park, watching over the **unruly** **flock**.  
 the **evac** never came  
-You look **gaunt** -  
+You look **gaunt**  
 **Bigwig** like you got K&R insurance.  
 an old **acquaintance**, probably gonna kill me.  
 That strategy **decohered** from this world.  
-there is only one **stain** I could not **blot out**, only one original sin. -  
+there is only one **stain** I could not **blot out**, only one original sin.  
 In so many forms of fiction, the women are **pitted against** each other, by forces outside of tho they are.  
 
 ## E6
@@ -48,7 +48,7 @@ I've been here for weeks, **gutting** this company of data, money, resources.
 Serac knows by now that you're trying to **outbid** him on Delos.  
 **recessive traits** detected  
 **outliers**  
-You can't **geld** humankind -  
+You can't **geld** humankind  
 
 ## E3 
 **Snatching up** stock in micro-transactions for years  

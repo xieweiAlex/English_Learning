@@ -1,23 +1,18 @@
 
-mind blowing  
+Eventually the **hysteria** **died down**.  
 
-if only  
-only if  
-
+the pandemic could have **knock-on effect** on global co-operation and economic growth 
+**mind blowing**  
+**if only**  
+**only if**  
 **it goes without saying** 
-
 You didn't **come off** in that story as well as you think you do.  
-
 Well, he was a big guy and… well, I don't like to complain or **make a fuss**.  
 **Tipping point**
-
 China will try to make sure that Hong Kong continues to **prosper**, **not least** by pumping up its stockmarket  
-
 I kind of **zoned out**  
 Ed Chen run this event just to **suck up to** Laurie  
-
 **tack sth on**  
-
 Social distancing via automation will have **wide-ranging** **implications**  
 
 ## June  

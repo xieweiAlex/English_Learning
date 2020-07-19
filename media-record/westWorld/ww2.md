@@ -110,7 +110,7 @@ really **dampens** the **knickers**
 the **feeble** among us need some rest  
 Someone **jury-rigged** a thin character, and programmed it into him.  
 they've **sullied** him, and used him as a **pawn** in their game.  
-But you ain't even sure about the **termagant** you take your orders from. -  
+But you ain't even sure about the **termagant** you take your orders from.  
 there is a certain level of **persona** that you have to **craft** for that, especially as a woman.    
 who is a war general, and a **vengeful** goddess.  
 we can **blow** the **squibs**, and then move on.  

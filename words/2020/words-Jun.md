@@ -49,7 +49,7 @@ A man of **manifold** interests, his achievements ranged from developing ideas b
 
 he paused and looked at her **quizzically**.  
 
-Facebook says "can **misconstrue** the state of current events." -  
+Facebook says "can **misconstrue** the state of current events."  
 Everyone's **larynx** grows during **puberty**, but a girl's larynx doesn't grow as much as a boy's does. That's why boys have **Adam's apples**.
 gulf of **Suez** 
 
@@ -64,15 +64,15 @@ she is **up and running**
 **biodiversity**  
 **poachers**  
 you do get those little **geckos** by the way  
-those giant **centipedes** -  
+those giant **centipedes**  
 you can't just **willy-nilly** like eat every creature  
 
 No crowd **materialized**  
 It's unlikely they were **solely** responsible for this low **turnout**, their **antics** may have **inflated** the campaign's expectations.   
 getting **foiled** by a bunch of **meddling** kids.  
-Kennedy was **lauded** for putting a man on the Moon. -  
+Kennedy was **lauded** for putting a man on the Moon.  
 
-Have a little **pretzel** with your **mustard**, Mayo. -  
+Have a little **pretzel** with your **mustard**, Mayo.  
 
 **cost-cutting** measure  
 **chartering** a boat  
@@ -83,11 +83,11 @@ Social distancing via automation will have **wide-ranging** **implications**
 Historically, automation tends to happen when economic difficulties **coincide** with maturing technologies  
 And once a company has replaced an employee with a robot and proven its **efficacy**, it is unlikely to go back  
 **metallic** colleagues  
-a fleet of robots was **scurrying** inside for disinfecting and delivering medical supplies -  
+a fleet of robots was **scurrying** inside for disinfecting and delivering medical supplies  
 Robot servers today are both **gimmicks** and safety measures, but tomorrow they may be a normal part of **table service** for most restaurants, save for **posh** ones  
 **rudimentary** physical automation of the 20th century  
 AI for perception and **fine-motor** manipulation  
-We can already see the **contours** of the post-covid business environment taking shape -  
+We can already see the **contours** of the post-covid business environment taking shape  
 Although automation changes some jobs and **decimates** others, many new jobs are created too  
 Many sectors will be reimagined in the form of human-digital **symbiosis**  
 > In education, for example, AI will become the **tutor** and **always-on** instructor, while the human is the wise mentor and motivator  
@@ -97,7 +97,7 @@ After the second world war, American business practices became the global standa
 
 Their intake **orifices** had rocky **pegs**, that would crush them into **paste** -  
 They had an entire network that was **devoted** to **dissemination** of pictures of these things  
-we don't have **genitalia** -  
+we don't have **genitalia**  
 
 Post-**apocalyptic** city  
 Emotional **Granularity**  
@@ -119,7 +119,7 @@ Here we go, my **cure-all** **remedy**, honey!
 A bowl of **shredded** wheat **paste**  
 The EU plans to ban US travelers indefinitely after **haphazard** COVID-19 response  
 The town grew in a **haphazard** way -  
-As Pandemic slows Business, workers **fret**: is my job relevant? -  
+As Pandemic slows Business, workers **fret**: is my job relevant?  
 
 ## Week 3 
 Don’t be a victim of **grandiosity**  
@@ -130,7 +130,7 @@ Delicious smells were **emanating** from the kitchen
 **tater tots**  
 **kettlebell**  
 
-**Maize**, called corn in the United States, is a staple food throughout most of the world -  
+**Maize**, called corn in the United States, is a staple food throughout most of the world  
 America is a **melting pot**  
 
 It happens **25 percents** of the time  

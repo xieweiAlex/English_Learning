@@ -1,3 +1,4 @@
+* geld
 * particularly vs specially 
 * except vs besides 
 * shim
