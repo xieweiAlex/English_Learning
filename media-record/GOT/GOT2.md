@@ -1,5 +1,30 @@
 
-## GOT E 3  
+## E 2 
+GOT II Episode 2  
+---  
+It was **well struck**, your grace.  
+More **ravishing** than ever, big sister.  (The prince was **ravished** by Cinderella's beauty)  
+You love your children, it's your one **redeeming** quality, that and your **cheekbones**.  
+Disappeared? What, in a **puff** of smoke?  
+Father will be **furious**.  
+I'm afraid the **masons** today, are not fit to carry their fathers' hammers.  
+Joffrey killed my father, your **liege** lord.  
+Heard a **stableboy** say it's the color of blood, to mark the death of your father.  
+That's **foul**. - It's beyond **foul**.  
+I haven't seen Benjen Stark in three years. Haven't missed him, always treated me like **scum**.  
+You got a nice wet **twat** between your legs?  
+Let them come. My roots are **sunk** deep.  
+I might just **gouge** his eye out.  
+For the night is dark and full of **terror**.  
+He is surrounded by fools and **fanatics**.  
+You have proof? Or do you want to trade gossip like a couple of **fishwives**?  
+Joffrey and the Queen **Regent** must **renounce** all claim to **dominion** of the North.  
+We can **avenge** him together.  
+I don't trust Lord Greyjoy because he is not **trustworthy**.  
+If Renly sides with us, we'll **outnumber** them **two to one**.  
+It needs a room to match it, not **vines** and flowers.  
+
+## E 3  
 ------  
 Those boys are Craster's **offerings**.  
 Maybe magic once was a **mighty** force in the world.  

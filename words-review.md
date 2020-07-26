@@ -35,6 +35,19 @@ It's a moment of reckoning and **emancipation**. -
 media-record/westWorld/ww2.md  
 So I **imbued** the hosts I made with a worldview that reflected my own. -  
   
+## ----------- GOT3.md -----------  
+media-record/GOT/GOT3.md  
+Half a  million **bushels** each of **barley**, oats, and **rye**. -  
+  
+## ----------- GOT2.md -----------  
+media-record/GOT/GOT2.md  
+And once I've got them, the **pampered** little shits... -  
+  
+## ----------- GOT1.md -----------  
+media-record/GOT/GOT1.md  
+Lamb or lion, his wound must be washed and **sewn**, or it will **fester**. -  
+The rumors of your **demise** were **unfounded**. -  
+  
 ## ----------- words-July.md -----------  
 words/2020/words-July.md  
 It's like a digital **purgatory** -  
@@ -133,16 +146,3 @@ He's getting you all **riled up** -
 muscle **cramp** -  
 bear a **calamity** with **fortitude**. -  
 to **stave off** hunger/illness -  
-They took bloody **reprisals** against the leaders. -  
-**feckless** **stooge** -  
-**statutory** agent -  
-an **impediment** to reform -  
-Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
-When that timer went **buzz**, it was time to stop **foraging** at an unproductive patch or abandon a failing hunt -  
-Configuration files for terminal programs — generally called dotfiles — are much more **amicable** than configuration files for IDEs -  
-our chief **diversion** was reading. -  
-He was an **inept** politician -  
-the **contenders** had been **winnowed** to five -  
-The swifts are a family, **Apodidae**, of highly aerial birds. They are superficially similar to **swallows**, but are not closely related to any of the passerine species. -  
-A **flimsy** table, a **flimsy** excuse -  
-**deride**: to laugh at or insult **contemptuously** -  

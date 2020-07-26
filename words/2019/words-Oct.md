@@ -3,7 +3,6 @@
 
 when leaned over, contact patch is **cone** shaped, which causes the wheel to track an **arc**  
 **No Frills**, Delicious Vietnamese Eats  
-
 **ambient**  
 **filet mignon**  
 Mash it together and kinda get it **evenly** **incorporated** until it becomes to a **paste**   
@@ -11,8 +10,6 @@ Get your **whisk** ready
 You want to make sure there is no **lumps**  
 **sear** the steak  
 **asparagus** lettuce
-
-
 The “wounded scooter” has quickly become a **totem** of urban life in 2019, as universal as steam **belching** out of a sewer grate or a flattened rat in the middle of a sidewalk
 
 **bogeyman**  
@@ -30,7 +27,6 @@ It just means **drill down** into all possible folders
 Chances are Ctags might a little bit **ornery** depending on how your system is set up  
 Sometime in the **distant past** I ...  
 Just **hammer on** Ctrl T until you get back to where you started  
-
 
 you're **tailgating** someone  
 there is no **driveway**, there is no shoulder even, it's just a **guardrail** right here  
@@ -54,9 +50,7 @@ you can't marry **inanimate** objects in this country
 All right, you don't have to **manhandle** me  
 **Piles**  
 The Mavic Mini, perhaps due to its lightweight design, also doesn't **skimp** on battery life.
-
 A runner up for 2018 is a **perennial favorite**
-
 HBO has ordered a Game of Thrones **spinoff** series, House of the Dragon, straight to series.  
 
 **adjoining** area, adjoining building  

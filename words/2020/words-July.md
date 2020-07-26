@@ -1,6 +1,5 @@
 
 ## Week 4 
-
 Mavis is a **petty** **featherhead**.  
 
 It's like a digital **purgatory** -  
@@ -14,7 +13,6 @@ recalled by the **lead paint**
 **soft landing**  
 you try to **coax** the person toward the end  
 American **okeydoke**  
-
 
 He is **austere** and **grave** in **deportment** -  
 The coffin was placed in the **grace**  
