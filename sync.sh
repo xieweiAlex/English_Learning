@@ -5,6 +5,7 @@ PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 WORDS_REVIEW="words-new.md"
 
 files=(
+  "./media-record/houseOfCards/HOC1.md"
   "./media-record/movie.md"
   "./media-record/siliconValley/sv4.md"
   "./media-record/siliconValley/sv3.md"
@@ -52,9 +53,9 @@ function getNewWords {
   done 
 
   length=$(cat $WORDS_REVIEW | wc -l)
-  echo -e "File length: ${YELLOW} $length ${NC}, cut off lines beyond 110!"
+  echo -e "File length: ${YELLOW} $length ${NC}, cut off lines beyond 150!"
   # Delete lines (111,$) let's keep the review file short & lean  
-  sed -i '' '111, 500d' "$WORDS_REVIEW"
+  sed -i '' '151, 500d' "$WORDS_REVIEW"
 }
 
 function pushBack {

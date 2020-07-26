@@ -1,4 +1,17 @@
 
+**poles apart** -  
+Three fugitives from the prison are still **at large**  
+Their pranks are amusing **at times**.   
+**up until now**  
+I don't **rule it out**, I'm keeping my options open  
+
+**up to speed** 
+it’s a **monkey on the back**
+Just want to **touch base** with you  
+Staying true to its **no-frills** form
+There are some **silver linings** to this flu season.  
+
+We weren't **well off** but we were comfortable  
 Eventually the **hysteria** **died down**.  
 
 the pandemic could have **knock-on effect** on global co-operation and economic growth 

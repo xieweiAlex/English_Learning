@@ -3,9 +3,9 @@
 I need to get into the **incite**  
 I hear his laughter at odd times, it **startles** me, it's so real  
 don't **dawdle**, you got my interest **piqued**  
-she wasn't meant to **exterminate** the human race -  
+she wasn't meant to **exterminate** the human race  
 Serac and his brother were just **holding it off**  
-A **stain** to **exorcise**, to **scrub out**, one month out of the year at Westworld. -  
+A **stain** to **exorcise**, to **scrub out**, one month out of the year at Westworld.  
 we wanted to turn the **gaze** this season from how an A.I. can be similar to human  
 that's the **inquiry** of the season  
 Being able to touch her opened up so many **synapses** and emotions inside of me.  

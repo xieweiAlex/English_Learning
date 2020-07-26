@@ -24,7 +24,7 @@ school **counselor**
 I would **counsel** caution in such a case.  
 A **thesaurus** is a kind of dictionary. It can help you replace a word with a synonym, another word having the same or similar meaning.  
 
-the word depression is an **evocative** word. -  
+the word depression is an **evocative** word.  
 **austerity**  
 those are stable, **meat-and-potatoes**, not-**leverage** kind of companies  
 **thucydides trap**  
@@ -118,7 +118,7 @@ Hark! The **infernal** **orgies**! That **revelry** is forward! Mark the **unfal
 Here we go, my **cure-all** **remedy**, honey!  
 A bowl of **shredded** wheat **paste**  
 The EU plans to ban US travelers indefinitely after **haphazard** COVID-19 response  
-The town grew in a **haphazard** way -  
+The town grew in a **haphazard** way  
 As Pandemic slows Business, workers **fret**: is my job relevant?  
 
 ## Week 3 
@@ -182,7 +182,7 @@ He had a good **rummage** inside the sofa
 Ben has a **wicked** sense of humour  
 You should **sheer off** the **wicked** **urchin** -  
 **Styrofoam**: foamed plastic  
-strawberry **torte** -  
+strawberry **torte**  
 fruit **tartlet** -  
 **clarinet**: a single-reed instrument with a straight **tube**  
 she was attacked by a **maniac**  
@@ -255,7 +255,7 @@ It'll be like the Pilgrims bringing the Indians **syphilis**.
 **sun shade**  
 the actress still remains **in the shade**.  
 **burgundy** dinner jacket  
-She **stayed off** the **claret** for the **main course**. -  
+She **stayed off** the **claret** for the **main course**.  
 **light reflex**  
 The cat **hissed** as the dog came near it.  
 We're **frosting** cupcakes.  

@@ -1,7 +1,27 @@
 
+### Amazon 
+
+That's a **tall order**  
+I hope your words are **prophetic** once again.  
+Is that an **apt** description of Jeff? -  
+it didn't take long for Bezos' vision to prove **prescient** -  
+He was a small, **nondescript**, **sandy-haired** man setting on the desk  
+**eruptive** laugh  
+**napoleonic** ambition  
+one percent of inspiration, 99 percent of **perspiration** -  
+from the **get-go**  
+A little bit exciting, a little bit **nutty**  
+Customer obsession was our **North Star**  
+you know what they're **falling for**  
+that felt a little more **unsavory**, but that was the business of Amazon. -  
+**fourfold**  
+We're going to **forego** profits, in order to take market share. -  
+it was very **irksome**, early, big issue for the book vendors  
+he owns the **main street**, not the build on the corner, the entire main street   
+
 ### V for Vendetta
 The world's biggest **leper colony**. -  
-The only **verdict** is **vengeance**, a **vendetta**, held as a **votive** not **in vain**, for the value and **veracity** of such shall one day **vindicate** the **vigilant** and the **virtuous**. -  
+The only **verdict** is **vengeance**, a **vendetta**, held as a **votive** not **in vain**, for the value and **veracity** of such shall one day **vindicate** the **vigilant** and the **virtuous**.  
 **Verily**, the **vichyssoise** of **verbiage** **veers** most **verbose**.  
 first, the **overture**  
 Here comes **crescendo**!  
@@ -17,7 +37,7 @@ As only **celluloid** can deliver
 **reclamation**  
 I'm in need of someone with some **theatrical** skill  
 the security of these information is **paramount**   
-You started as a **botanist**, didn't you? -  
+You started as a **botanist**, didn't you?  
 **Bonjour**, **mademoiselle**  
 **chemical shed**  
 
@@ -27,8 +47,7 @@ a young, **up-and-coming** politician
 he is completed **single-minded** and has no regard for the political process.  
 a memorial is built to **canonize** their victims  
 tonight, we must retain **steadfast**, we must remain determined  
-**bollocks**, what are you gonna do, huh? -  
-
+**bollocks**, what are you gonna do, huh?  
 
 ### The Matrix 
 

@@ -489,8 +489,6 @@ or even give **alms** to a **panhandler**—they often wear QR codes **slung** a
    
 It's time to **rouse** the children.  
 **catholicism**  
-a **subdued** plaid shirt, There is a **subdued** atmosphere in the school at exam time  
-The country was **subdued** by the enemy  
 a vibrant **cosmopolitan** city  
 The hotel was run by a **trio** of brothers.  
 She was **subjected** to a **torrent** of abuse  

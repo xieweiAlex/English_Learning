@@ -1,3 +1,5 @@
+
+* it was great meeting you -- You too 
 * geld
 * particularly vs specially 
 * except vs besides 

@@ -1,3 +1,12 @@
+## E 9
+A **veritable** who's of nobodies  
+they'll download a **doctored** version of Hooli app.  
+Last night I was sitting there by the **smoldering** husk of my palapa ... which led me to my **epiphany**.  
+**gents**  
+those whole space-tab thing was ... kind of **petty**  
+we just **snubbed** the fuck out of Keenan Feldspar. -  
+
+
 ## E 8 
 What was the one little **pesky** deal point? -  
 It's the highest honor you can **bestow on** a VC.  
@@ -6,8 +15,8 @@ It's the highest honor you can **bestow on** a VC.
 it was just such an **in the weeds** deal  
 up in the hill, there is a **tavern**  
 there is a **barmaid**  
-I'm not one to **gush**, but the possibilities of your consequence-free reality are **darkly** promising. -  
-wait to see our new hardware, which is **en route** from China, it's gorgeous -   
+I'm not one to **gush**, but the possibilities of your consequence-free reality are **darkly** promising.  
+wait to see our new hardware, which is **en route** from China, it's gorgeous  
 You want a beer? I just put in a fresh **keg**.  
 **subfloor** heating  
 Why does everyone in this state have to such a **wimp** about it? -  
@@ -15,14 +24,14 @@ I was going to **descend** onto the stage, in a giant box.
 **world-class** **puns**, now I got nothing  
 The VR is **rad** now.  
 You have been sucked entirely into his little Keenan **vortex**. -  
-Considering our **looming** debt, and the **embryonic** state of our network, this is a very generous offer. -  
-I have to be the **ogre** that say no to him.  
+Considering our **looming** debt, and the **embryonic** state of our network, this is a very generous offer.  
+I have to be the **ogre** that say no to him. -  
 I will sleep in the **bilge** with the **vermin**, and I will eat **hardtack** and I will say, "Thank you." -  
 I risk having a **mutiny** on my hands.  
-Richie had the **quail eggs** to counter 25 million. -  
+Richie had the **quail eggs** to counter 25 million.  
 This adorable little **wombat** made clear his intentions that he wants me to be the new COO.  
 We're gonna be fucking **cutting class** and crushing ass.  
-You're not exactly **chomping** **at the chance** to fund us, are you? -  
+You're not exactly **chomping** **at the chance** to fund us, are you?  
 I saw him grab his lighter and his **bong** and head out to the Palapa to **sulk** a few minutes ago -  
 
 ## E 7 
@@ -31,12 +40,12 @@ I saw him grab his lighter and his **bong** and head out to the Palapa to **sulk
 Did you **graze** your **penis** against a toilet seat?  
 There is a **grotesque** gender **imbalance** in the VC field right now. I can help you navigate the **toxicity** of this male culture which is **encroaching** on our **feminist** island.   
 **Mansplaining** is when a man will **condescendingly** explain something to a woman that she already knows.  
-She has never shown a **proclivity** for getting around infrastructure.  
-he'll come here fix it **posthaste**  
-I'll **concede** that spending all my time inside of a house with you **scrawny** code jockeys, the incredible shrinking Hendricks...  
-I'll send him a harshly **worded** **cease and desist** letter. -  
+She has never shown a **proclivity** for getting around infrastructure. -  
+he'll come here fix it **posthaste** -  
+I'll **concede** that spending all my time inside of a house with you **scrawny** code jockeys, the incredible shrinking Hendricks... -  
+I'll send him a harshly **worded** **cease and desist** letter.  
 this is a **shakedown**, he's a **crook**.  
-It seems that I've committed the **cardinal sin** of being early. -  
+It seems that I've committed the **cardinal sin** of being early.  
 it's like that old **fraternity** game, uh, the **limp biscuit**.    
 May I borrow this hammer to **pound in** these **flamboyant** little **nails**?  
 They have reached out to me **preemptively** to settle  
@@ -48,12 +57,12 @@ looks like I can **slay** that troll
 
 Someone pissed in someone's car? -- It's an **adage**  
 Clearly, she has a lot of **pent-up** sexual energy, likely from working in this **worm farm**  
-I really wish I could, but my dick is the **abacus** upon which this **equation** will be ... -  
+I really wish I could, but my dick is the **abacus** upon which this **equation** will be ...  
 You didn't **come off** in that story as well as you think you do.  
 I'll be the first one here at 10:30 am, and the last one to leave a **smidge** after 4:00.  
 there they are, **atop** your little **paunch**  
 I don't want to **pry**, but did I do something wrong?  
-we just need to **extricate** you from this situation -  
+we just need to **extricate** you from this situation  
 Listen baby, you're getting **hitched**, and I was born to roam.  
 
 ## E 5 

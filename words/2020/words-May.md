@@ -23,7 +23,7 @@ the country seemed to be on the **threshold** of war
 you do not wanna to **tick her off**  
 the clock is **ticking** on Jenna's life  
 
-In order to **defray** the cost of launch overall -  
+In order to **defray** the cost of launch overall  
 
 **wager**  
 Zuckerberg **Cravenly** **Goes All-In on** Trump  
@@ -91,7 +91,7 @@ The alleged **perpetrator**, who has not yet been apprehended, reportedly wielde
   
   
 ## Week 3  
-however the rendering of these **glyphs** depends on the browser and the platform -  
+however the rendering of these **glyphs** depends on the browser and the platform  
 Let's stop **pussyfooting** around and address the **elephant in the room**  
 **reams** of paper  
 **lumbar** pillow  
@@ -221,7 +221,7 @@ have a significant **lowering** impact on proteins in your **testes**, according
 While physical exercise is proven to promote **motor skill** learning in normal individuals as well as those with **neurological** disorders, the mechanism of action is unclear  
 Cold showers aren’t necessarily going to change your life with the **turn of a faucet**  
   
-**clavicular** joint -  
+**clavicular** joint  
 Fix that table that always **wobbles**  
   
 That city has decided to **do away with** **overhead** wires.  
