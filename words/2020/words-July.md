@@ -1,12 +1,91 @@
 
+How do you like my post-divorce **digs**?  
+**Armageddon** is what's going to happen to you if you wake me up 
+Two hours long without an **intermission**?  
+**tyrannosaurus rex**  
+**laundromat**  
+I'm on **sabbatical**. -  
+**Tainted** food  
+His political reputation is **tainted** by the matter  
+**encyclopedia** **britannica**  
+**knapsack** problem  
+You have a real **aura** of success about you  
+**madame** curie  
+**geology**  
+national **geography**  
+**sorority** girl -  
+**rhythmically**  
+**cerebral** palsy  
+**cerebral** **concussion**  
+rocket **projectile**  
+the cheers **drown out** his shouts  
+**territory**  
+**coronation**, **crowning** -  
+**medallion**  
+**cassette** tape  
+I'm sorry, he just makes me so **cranky**  
+that **puddle** is blocking our way  
+**pedicure** salon  
+let's have a quick **recap**  
+Mix the **batter** and let it stand for twenty minutes  
+**lollipop**  
+
+
+**Mercantilism**  
+Stare **blankly**  
+she **shook** hands with her **victorious** opponent  
+there is some underwear in the **hamper**  
+the snow **hampered** my movements  
+this was the **garter** that I was saving for my wedding -  
+**Whew**, **phew**  
+**dustpan**  
+**cole slaw**, cold **slaw**  
+**purr**  
+**wholesome** personality  
+she's been **flailing** for weeks -  
+**crowbar**  
+**madame**  
+**dressmaker**  
+**slumber** party  
+Sleeping Beauty **slumbered** in her forest castle  
+
+**gracious goodness**  
+His **gracious** manners put me **at ease**  
+
+It's important to note that not all male leaders value a **macho** image over saving lives. For 
+
+don't **bank on** a mass exodus  
+hiring and onboarding are more **choppy**  
+**root out** bad behavior 
+
+I had to make a **wee** sacrifice to the great nothing.  
+horse-drawn wagon filled with **bratwurst**.  
+Killed by **suffocation** when **encased** in a block of **gelatin** -  
+Russian **aristocracy**  
+killed by marathon **fornication** with four **Viennese** **prostitutes**.  
+I should not **dwell** too much on that  
+**rattled**, but **alright**. -  
+it's a fine ship, **top of line**  
+**prep** for **evac**  
+
 ## Week 4 
+
+His words **stamped** him to be a **bigot**.  
+He is **up for grabs**  
+**lukewarm** water   
+**presumptive** Democratic nominee Joe Biden.  
+
+a cute **barista**  
+I can't forget my own **blunders**  
+**go-to person**  
+I don't understand, I know he is joking about a **noose** but how does it relate to the chair  
 Mavis is a **petty** **featherhead**.  
 
 It's like a digital **purgatory** -  
 call his **bluff**  
 he will **turn up**  
 **superstitious** people  
-I dont' want to **disabuse** their believes  
+I dont' want to **disabuse** their believes -  
 recalled by the **lead paint**  
 **dodge ball**  
 **exclusionary**  
@@ -14,39 +93,38 @@ recalled by the **lead paint**
 you try to **coax** the person toward the end  
 American **okeydoke**  
 
-He is **austere** and **grave** in **deportment** -  
-The coffin was placed in the **grace**  
+He is **austere** and **grave** in **deportment**  
+The coffin was placed in the **grave**  
 the **shrew**, in particular, was **exquisite**  
 **highland barley**  
 
 **critical mass**  
 while a potential S&P inclusion might send its stock even further into **ludicrous** mode...  
 Apple's set **stringent** rules around its App Store  
-Civil-rights activists across the south faced arrest, usually on **flimsy** charges such as disorderly conduct and disturbing the peace -  
+Civil-rights activists across the south faced arrest, usually on **flimsy** charges such as disorderly conduct and disturbing the peace  
 He was not a gifted orator like King, nor was he **urbane** like Julian Bond  
 In person, he was serious and warm, committed to his views but a **first-rate** listener  
-But his non-violence was not soft or **conciliatory**; it was adamantine, confrontational  
-He sought votes from every **constituency**, blue- and white-collar, Jewish and gay  
+But his non-violence was not soft or **conciliatory**; it was **adamantine**, **confrontational**  
+He **sought** votes from every **constituency**, blue- and white-collar, Jewish and gay  
 he gave a **stirring** speech on the House floor calling marriage “a basic human right” that should not be denied people just because they happen to be gay  
-
 
 Even as India **urbanises**, **caste** discrimination remains **rife** -  
 Cities are segregated, and **inter-caste** marriages are **vanishingly rare**  
-They both happen to be **Dalits**, from the **bottom ranks** of India’s **voluminous** caste register  
+They both happen to be **Dalits**, from the **bottom ranks** of India’s **voluminous** **caste** register -  
 
 That such **virological** diversity has so far been found only in China is because few people have looked at bats in countries on the other side of the border  
 host **species**  
 As he puts it, bats “**congregate** in huge **colonies**, and **poo** everywhere  
 And then other mammals **live off** that poo and then act as a **mixing vessel** for these sorts of viruses  
 Vietnam’s population is not as **immunologically** “naive” as has been assumed  
-there are suggestions that protection might be **conferred** mainly via part of the immune system called t-cells(which work by killing virus-infected cells) -   
+there are suggestions that protection might be **conferred** mainly via part of the immune system called t-cells(which work by killing virus-infected cells)  
 Those familiar with the scandal know at the center of it all was Malaysian financier Jho Low, who far from being **behind bars**, maintains his innocence and is still **at large**.  
 
 
 racial unrest **tore through** the country  
 the stock market and economy should move in **tandem** suggests that we're all in this together   
 the New York stock exchange made a **concerted effort** to **tempt** small investors who had **scared off** by the wall street crash of 1929  
-**poles apart** -  
+**poles apart**  
 
 In the 1970s and early 1980s the **holy grail** was to end **stagflation**  
 we dig into the **causes** of America’s **runaway** **caseload** of covid-19—and how it depends on **geometric** growth -  
@@ -56,18 +134,18 @@ Binyamin Netanyahu **boasted** too soon of defeating the coronavirus
 
 
 **firefly**  
-**dandelion** -   
+**Dandelion** Agreement -   
 **relegate** a question to a committee   
 
-**cremate** 
+**Cremation** is more common than **burial** in some countries.  
 it's pretty **dull**  
 if those people don't get the opportunity to vote, then your entire campaign may be **moot**. -  
 **rank and file** military personnel  
 you've been **tight-lipped**  
 
-She was tricked out in **gaudy** dress. -  
+She was tricked out in **gaudy** dress.  
 The body **undergoes** many changes during **puberty**.  
-The average male has some 180 tunes in his **repertoire** -  
+The average male has some 180 tunes in his **repertoire**  
 
 I don't **rule it out**, I'm keeping my options open  
 **figure of speech**  
@@ -84,20 +162,20 @@ his colleagues **regard** him as a joke
 she sounded absolutely **distraught**  
 **anchovy** 🐟  
 **steno**-grapher  
-**toiletry** kits -  
+**toiletry** kits  
 **mayo**: mayonnaise  
 **litigious**  
 **spanking** **buttocks**.  
-Ben Franklin invented glass **harmonica**.   
+Ben Franklin invented glass **harmonica**. -   
 **Wondrous** things can happen.  
 he suffered a **setback** in his business  
-I was **giddy** with the heat -  
-Lena **fiddled** with her cup -  
+I was **giddy** with the heat  
+Lena **fiddled** with her cup  
 
 If **cornered**, it will stand on its **hind legs** and extend its **claws** to appear larger and threatening.  
 
-They are not **Philistines** as a rule — it’s just that they take their responsibilities seriously, as they should. They’re doing their job -  
-With his **gumption** he will make a success of himself -  
+They are not **Philistines** as a rule — it’s just that they take their responsibilities seriously, as they should. They’re doing their job  
+With his **gumption** he will make a success of himself  
 
 **slow-poke**
 He is the most **opinionated** man I know.  
@@ -118,7 +196,7 @@ The ship was **bilged** by a **submerged** **reef**
 Don't give me that **bilge**!  
 
 **werewolf**  
-dont' star at her, she will **entrance** you.  
+don't star at her, she will **entrance** you.  
 The men who **perpetrate** evil, but call it progress  
 Some new **high-falutin** **sanitation** law don't mean shit to me, Mr. City Inspector. -  
 It's an absolutely **riveting** tale, Mr. Dvorchack  
@@ -162,7 +240,7 @@ We procrastinate on the most important things in life. Instead we choose to spen
 And the coolest **preteen** customers who say they’re in no hurry to see “Frozen 2” may end up there, too.
 The sisters Elsa and Anna, not a male **sidekick**, secured the happily ever after
 They are **preaching** diversity while doing a great **disservice** to it, let us preach **meritocracy** and be true to it. -
-The greatest sin I committed was having the **gall** to tell a woman to "shut her mouth. -  
+The greatest sin I committed was having the **gall** to tell a woman to "shut her mouth.  
 It’s the difference between **stagnating** and forever growing.
 Authorities found the girl was severely **malnourished**, living in **filth** and had been isolated for years.
 
@@ -181,7 +259,7 @@ people are financially **well off**
 He expects his wife to be **meek** and submissive.  
 She won’t object—she’s so **meek** and mild. -  
 the mask might **obscure** his vision  
-**muzzle** the dog to prevent it from **biting** strangers -  
+**muzzle** the dog to prevent it from **biting** strangers  
   
 The US government is aware of this strategy and has decided that self-employment as a **sole** **proprietor** will not meet this requirement  
 rise from **humble beginning**  
@@ -208,7 +286,7 @@ in some cases more detailed data, in greater quantity, has **supplanted** earlie
   
 Maybe you should look into some **insoles** made for skateboarding  
 This is a basic **tenet** of capitalism.  
-**Palatial** Sunnyvale Home -  
+**Palatial** Sunnyvale Home  
 **kitchen sink**  
   
 My **uterus** is an **inhospitable** environment?  
@@ -219,14 +297,14 @@ Power **Vacuum**
 The boss sacked a **dilatory** worker yesterday -  
    
 I'm so happy we're **sidestepping** Valentine's.  
-It follows a 60-day **ultimatum** to Moscow to comply with the **treaty**. -  
+It follows a 60-day **ultimatum** to Moscow to comply with the **treaty**.  
 **redecorate** my bedroom  
 Tears are **secreted** by the tear **glands**  
 **rodeo** rider  
 there is no health risk **whatsoever**  
 **Barber** shop  
 the **florist** **bunched** the flowers up  
-**mink** coat -  
+**mink** coat  
 He was **ordained** priest  
 the otters and **weasels** and stuff  
 the **weasel** is a very pretty little creature  
@@ -326,13 +404,13 @@ I'm **all up on you**
 Girl was **all up on** him in the club, **backin** her **booty up**.  
 The **anatomy** of a JSON Web Token.  
    
-Political content was long **anathema** at TikTok, a Chinese-controlled company known for avoiding any video that might make someone uncomfortable -  
+Political content was long **anathema** at TikTok, a Chinese-controlled company known for avoiding any video that might make someone uncomfortable  
    
 I think we're just about **quits** now, don't you?  
 **call it quits**  
 **quits**: on equal terms by payment or **requital**  
    
-Cutting American police budgets might have **perverse** effects -  
+Cutting American police budgets might have **perverse** effects  
 **mother hen**  
    
 **Portuguese**  
@@ -378,7 +456,7 @@ please **extend** my good wishes to baby
 the earth **orbits** the sun once every 365.25 days  
 Two snipers **took out** an enemy **platoon**  
 **doggie bag**  
-**doggy** Princess with an invisible **tiara** -  
+**doggy** Princess with an invisible **tiara**  
 Veggie **Nachos**  
    
 The businessman was **billed** for **delinquent** taxes  
@@ -388,7 +466,7 @@ American **exceptionalism**
 highly **celebrated**  
    
 lent hundreds of billions to **ailing** firms and increased unemployment benefits for laid-off workers  
-If the outbreak does not slow soon, even Wall Street’s bulls may start having **qualms** -  
+If the outbreak does not slow soon, even Wall Street’s bulls may start having **qualms**  
    
 **amply** experienced  
 Many believe Mr Barr has failed to **live up to** those words, and that he has turned his Justice Department (DoJ) into a political instrument to protect Mr Trump and his allies  

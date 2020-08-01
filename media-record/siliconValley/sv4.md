@@ -1,14 +1,22 @@
+what about your **squatter**?  
+I stayed here **out of solidarity**
+**arson**  
+they're not gonna notice a few more **measly** petabytes, all right? -  
+you were just going to show up and fucking **steamroll** him?  
+**stand down**  
+
+
 ## E 9
 A **veritable** who's of nobodies  
 they'll download a **doctored** version of Hooli app.  
 Last night I was sitting there by the **smoldering** husk of my palapa ... which led me to my **epiphany**.  
 **gents**  
 those whole space-tab thing was ... kind of **petty**  
-we just **snubbed** the fuck out of Keenan Feldspar. -  
+we just **snubbed** the fuck out of Keenan Feldspar.  
 
 
 ## E 8 
-What was the one little **pesky** deal point? -  
+What was the one little **pesky** deal point?  
 It's the highest honor you can **bestow on** a VC.  
 **flat rate**  
 **keyman**  
@@ -19,11 +27,11 @@ I'm not one to **gush**, but the possibilities of your consequence-free reality 
 wait to see our new hardware, which is **en route** from China, it's gorgeous  
 You want a beer? I just put in a fresh **keg**.  
 **subfloor** heating  
-Why does everyone in this state have to such a **wimp** about it? -  
+Why does everyone in this state have to such a **wimp** about it?  
 I was going to **descend** onto the stage, in a giant box.  
 **world-class** **puns**, now I got nothing  
 The VR is **rad** now.  
-You have been sucked entirely into his little Keenan **vortex**. -  
+You have been sucked entirely into his little Keenan **vortex**.  
 Considering our **looming** debt, and the **embryonic** state of our network, this is a very generous offer.  
 I have to be the **ogre** that say no to him. -  
 I will sleep in the **bilge** with the **vermin**, and I will eat **hardtack** and I will say, "Thank you." -  
@@ -76,7 +84,7 @@ that's actually for my **astigmatism**
 oh, dear. That does not **bode** well for you.  
 Just some **creatine**, protein powder, soy extract  
 You **muscle-bound** handsome **Adonis**  
-Tech is reserved for people like me! The freaks, the weirdos, the **misfits**, the geeks, the **dweebs**, the **dorks**! Not you. -   
+Tech is reserved for people like me! The freaks, the weirdos, the **misfits**, the geeks, the **dweebs**, the **dorks**! Not you.  
 You days of **leeching off** Gavin Belson are over.  
 You're referring to the **baby shower** **ruse**.  
 I'm no stranger to these types of **machinations**  

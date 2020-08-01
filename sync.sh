@@ -2,7 +2,7 @@
 
 # 2+ * & 1+ letter & .* & ends either 0 to 5 white space or line change  
 PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
-WORDS_REVIEW="words-new.md"
+WORDS_REVIEW="words-review.md"
 
 files=(
   "./media-record/houseOfCards/HOC1.md"

@@ -86,7 +86,7 @@ I don't think the argument **holds water**
 Your Explanation **Holds Water**  
 RSI: **Repetitive Strain Injury**  
 That statement is one of those **catty** **oft** repeated things we are supposed to take as **gospel** for some reason  
-The alleged **perpetrator**, who has not yet been apprehended, reportedly wielded a knife. -  
+The alleged **perpetrator**, who has not yet been apprehended, reportedly wielded a knife.  
 **unfrequented** area  
   
   

@@ -181,7 +181,7 @@ If you're going to **pose** as a **commoner**, you should do it **properly**.
    
 I need **fennel root** for those with fever, **willow bark**. Mostly I need **milk of poppy**.  
 The **hounds** will find the **scent** again, I'll beat them until they do. I'll **whip** all the men until I've both those boys in hand.  
-And once I've got them, the **pampered** little shits... -  
+And once I've got them, the **pampered** little shits...  
 Now I can never marry a **perfumed** lord.  
 I'm not **well-suited** for **imprisonment**.  
 Good prisoners **breed** good **jailers**, apparently.  

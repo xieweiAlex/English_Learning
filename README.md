@@ -1,12 +1,16 @@
 # English_Learning
   
-Expanding English vocabulary for a non native-speaker grown-up is a tedious and time-consuming journey, are you with me 🤔? I try to record the **words/phrases** I encounter daily with some necessary context, hope it can make my English learning journey easier and more delight, and hopefully it can inspire someone else, that's even better ✊.  
+Expanding English vocabulary for a non native-speaker is a tedious and time-consuming journey, are you with me 🤔? I try to record the **words or phrases** I encounter very day with some necessary context, hope it can make my English learning journey easier and more delight, and hopefully it can inspire someone else, that's even better ✊.  
 
 ## Word Review 👹   
 [words-review](./words-review.md)  
 [movie-record](./media-record/movie.md)
 
 ## TV Show, Movie
+
+### House of Card 
+[S1](./media-record/houseOfCards/HOC1.md)
+
 ### Westworld 🤖
 [S1](./media-record/westWorld/ww1.md) | [S2](./media-record/westWorld/ww2.md) | [S3](./media-record/westWorld/ww3.md)  
 

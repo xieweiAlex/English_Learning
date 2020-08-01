@@ -1,4 +1,6 @@
 
+* Asphyxia vs suffocate 
+* proclivity vs inclination 
 * it was great meeting you -- You too 
 * geld
 * particularly vs specially 

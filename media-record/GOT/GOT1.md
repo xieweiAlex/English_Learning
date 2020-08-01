@@ -102,10 +102,10 @@ That's why you so **valiantly** took up arms to defend my honor.
 I'm not your **toady** and I'm not your friend.  
 You think you can win us over with your **trinkets**?  
 The Lords of the Vale have always **spat upon** the hill tribes.  
-Lamb or lion, his wound must be washed and **sewn**, or it will **fester**. -  
+Lamb or lion, his wound must be washed and **sewn**, or it will **fester**.  
 I'm the man you want leading the **vanguard**.  
 Shagga Son of Dolf will cut off his **manhood**.  
-The rumors of your **demise** were **unfounded**. -   
+The rumors of your **demise** were **unfounded**.  
 Your brother would never have submitted to capture so **meekly**.  
 Jaime **smashed** the river lords at the Golden **Tooth**.  
 Though the boy does have a certain **belligerence**.  

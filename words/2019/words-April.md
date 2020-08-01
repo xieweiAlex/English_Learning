@@ -191,7 +191,7 @@ I like fishing for **perch** on vacation.
 The cells **proliferate** **readily** in **culture**.  
 Spectacle **bunker**.  
 The bad news **disquieted** him.  
-He's getting you all **riled up** -  
+He's getting you all **riled up**  
 muscle **cramp** -  
 Olympic **motto**  
 **spontaneous** ignition  

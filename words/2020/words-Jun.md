@@ -183,7 +183,7 @@ Ben has a **wicked** sense of humour
 You should **sheer off** the **wicked** **urchin** -  
 **Styrofoam**: foamed plastic  
 strawberry **torte**  
-fruit **tartlet** -  
+fruit **tartlet**  
 **clarinet**: a single-reed instrument with a straight **tube**  
 she was attacked by a **maniac**  
 **pillar** industry  
@@ -225,7 +225,7 @@ for example, expanding cross-border digital-payments systems that bypass much of
 
 The Nazis carried out the **Holocaust**  
 **unparalleled**  
-It's based on **heinous** sounding theories -  
+It's based on **heinous** sounding theories  
 Mao remains **revered** in China  
 
 **cynophobia**  

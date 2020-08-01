@@ -1,5 +1,25 @@
 
-**poles apart** -  
+I'm not a **wheeler dealer**  
+
+I don’t want to go into politics— there’s too much wheeling and dealing. 
+you knew it from the **get-go**  
+
+## July 
+**Colonel** Moore was **benevolent** but no **pushover**  
+It's golden, it's in **bull's eye**  
+I'm **up to here** with them, Donald, for lying, for turning their back on you.  
+
+Tom is **out of step** with the times.  
+it's a fine ship, **top of line**  
+
+**root out** bad behavior 
+don't **bank on** a mass exodus  
+You got **ripped off**  
+
+**when push comes to shove**  
+her coldness really **puts me off**  
+
+we are **poles apart** in personality  
 Three fugitives from the prison are still **at large**  
 Their pranks are amusing **at times**.   
 **up until now**  
@@ -42,26 +62,18 @@ Probably what's **holding me back** from making rank.
 Go for a walk, Hector, **Cool off**.  
 Leonard's coming down the **home stretch**  
 she is **up and running**  
-  
 Sir, shall we prepare to **fall back**?  
-   
 Creating a makefile for every small Latex project is **over the top**  
 you can't just **willy-nilly** like eat every creature  
-  
 It's a **nerve-wracking** thing  
 **nerve-racking**
 The idea of other universes out there is **mind-bending**, but scientists say in some ways it actually makes sense  
-  
 **over the years**  
 **in return**  
-  
 Why not use something to abstract away the **nitty-gritty** of URLs, parameters, etc?  
-  
 they're suppose to shoot **off-handed**  
 She had made these remarks **offhandedly**  
-  
 **Come after** you  
-  
 **start out**  
 **pull off**  
 he's just dying to find someone to **take it out on**  

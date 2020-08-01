@@ -13,14 +13,14 @@ from the **get-go**
 A little bit exciting, a little bit **nutty**  
 Customer obsession was our **North Star**  
 you know what they're **falling for**  
-that felt a little more **unsavory**, but that was the business of Amazon. -  
+that felt a little more **unsavory**, but that was the business of Amazon.  
 **fourfold**  
 We're going to **forego** profits, in order to take market share. -  
 it was very **irksome**, early, big issue for the book vendors  
 he owns the **main street**, not the build on the corner, the entire main street   
 
 ### V for Vendetta
-The world's biggest **leper colony**. -  
+The world's biggest **leper colony**.  
 The only **verdict** is **vengeance**, a **vendetta**, held as a **votive** not **in vain**, for the value and **veracity** of such shall one day **vindicate** the **vigilant** and the **virtuous**.  
 **Verily**, the **vichyssoise** of **verbiage** **veers** most **verbose**.  
 first, the **overture**  
@@ -28,7 +28,7 @@ Here comes **crescendo**!
 A cow getting **crucified**. It's **hysterical**   
 The security of the **familiar**, the **tranquility** of repetition.  
 I enjoy them as much as any **bloke**.  
-for those who will listen, the **enunciation** of truth. -  
+for those who will listen, the **enunciation** of truth.  
 I **maced** that **detective**. Why did I do that?  
 **interrogation** cell  
 They were **interned** at Belmarsh  

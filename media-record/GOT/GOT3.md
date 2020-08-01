@@ -165,7 +165,7 @@ The **citadel** **stripped** me **of** it.
 Myself, I often find them a **hindrance**.  
 I always take **figs** **midafternoon**, they help move the **bowels**.  
 I'd **nearly** forgotten.  
-Half a  million **bushels** each of **barley**, oats, and **rye**. -  
+Half a  million **bushels** each of **barley**, oats, and **rye**.  
 (**rye** is reasonably tolerant of **drought**.)  
 I was told you were drunk, **impertinent**, and thoroughly **debauched**.  
 (an **impertinent** question)  
