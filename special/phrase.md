@@ -1,4 +1,5 @@
 
+He's getting you all **riled up** -  
 I'm not a **wheeler dealer**  
 
 I don’t want to go into politics— there’s too much wheeling and dealing. 
@@ -49,6 +50,8 @@ Ed Chen run this event just to **suck up to** Laurie
 Social distancing via automation will have **wide-ranging** **implications**  
 
 ## June  
+
+You should **sheer off** the **wicked** **urchin** -  
 Our TargetType is **shaping up**, but we're not done yet  
   
 Many traders **went under** during the war.  

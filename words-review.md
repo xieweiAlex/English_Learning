@@ -23,7 +23,6 @@ It's a moment of reckoning and **emancipation**. -
 media-record/westWorld/ww2.md  
 So I **imbued** the hosts I made with a worldview that reflected my own. -  
   
-  
 ## ----------- words-July.md -----------  
 words/2020/words-July.md  
 It's like a digital **purgatory** -  

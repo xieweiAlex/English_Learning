@@ -1,4 +1,36 @@
 
+## Week 5
+
+TikTok's Chinese owner offers to forego stake to clinch U.S deal  
+China's ByteDance has agreed to divest the US operations of TikTok  
+
+
+**Breadth of mind**, **breadth of  view**  
+**trade school** / **vocational** school  
+he has been in congress **ever since**
+
+**crony** capitalism   
+**sinister** intentions  
+
+He is wrong to pursue a policy of **arm-twisting** the state's largest companies to contribute to it and for the state to play any role in the building of the housing
+It described US criticism of the new **draft law** as "**utterly** **imperious**, unreasonable and **shameless**  
+Critics fear it could lead to Hong Kongers being prosecuted - even **retroactively** - for criticising their or the mainland's leadership, joining protests or exercising their current rights under local laws.  
+But its **unpopularity** meant it has never been done - the government tried in 2003 but had to **back down** after protests.  
+Twitter Inc. placed a notice on the tweet and **shielded** it from view for breaking what the company said are its rules about **glorifying** violence.  
+China tried, **prematurely**, to promote the yuan after the global financial crisis with a mix of propaganda and diplomatic strong-arming. It flopped  
+There is also a regression in policy that has **stemmed from** the country’s leadership  
+You can iterate quickly, build up a **scrappy** prototype in like five days.  
+Lockdowns have surely made the global mood more **combustible**  
+
+Make the Trump victory **a blip**   
+Tom is **out of step** with the times.  
+
+“In uncertain times, this performance is a testament to the important role our products play in our customers’ lives and to Apple’s relentless innovation  
+Third, algorithmic interviews are direct translations from **formalistic** college backgrounds  
+
+Weeks after the accident she remained **distraught**.  
+The **flippancy** of your answer **peeved** me. -  
+
 How do you like my post-divorce **digs**?  
 **Armageddon** is what's going to happen to you if you wake me up 
 Two hours long without an **intermission**?  

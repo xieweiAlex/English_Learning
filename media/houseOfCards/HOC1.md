@@ -6,7 +6,9 @@ You're well aware that I do not **drop the ball** on things like this
 check out the **masterhead**  
 I think you're **dismantling** what we've built over the ten years.  
 I'm **up to here** with them, Donald, for lying, for turning their back on you.  
+I'm not a **wheeler dealer**  
 You're **formidable**, Frank, people respect you.  
+Let me be **sidelines** for this.  
 How very **deep throat** of you.  
 **editorial**  
 **out of shape** 
@@ -15,7 +17,6 @@ It's golden, it's in **bull's eye**
 have it **steam cleaned** **over the weekend**.  
 
 ## E 1 
-
 I'm **awfully** sorry  
 It's a **chicken-shit** move  
 **hubris**, ambition --- I'm **livid**  
