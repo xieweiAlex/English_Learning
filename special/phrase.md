@@ -1,8 +1,9 @@
 
+keep the mobs **in check** 
+put it **on hold**  
 He's getting you all **riled up** -  
 I'm not a **wheeler dealer**  
-
-I don’t want to go into politics— there’s too much wheeling and dealing. 
+I don’t want to go into politics— there’s too much **wheeling and dealing**. 
 you knew it from the **get-go**  
 
 ## July 

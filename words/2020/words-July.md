@@ -1,18 +1,71 @@
+   
+The pandemic puts a strain on elite private schools
+   
 
-## Week 5
+it's pernicious  
+let's go on an odyssey  
+you kind of have to sneak up on it.  
+rings in me  
+narrative resonance  
+cross off  
+limbic system  
+peripheral vision  
 
-TikTok's Chinese owner offers to forego stake to clinch U.S deal  
-China's ByteDance has agreed to divest the US operations of TikTok  
 
-
-**Breadth of mind**, **breadth of  view**  
+## Week 5  
+   
+to the **cosmos**  
+To **commune** with the cosmos  
+   
+according to an **affidavit** released late Friday, authorities have probable cause to believe Clark, the Tampa teen, was the one who got access to Twitter’s internal tools and directly **carried out** the **scam**  
+**[sic]**  
+Clark received approximately $117,000 during the commission of his **scheme to defraud**  
+beyond the $100,000-plus in bitcoin that the **teen** is alleged to have scammed out of **unsuspecting** Twitter users  
+some of the highest-profile accounts on the service, their accounts **hijacked** to **peddle** bitcoin scams -  
+November 2nd, 2017 incident where a **rogue** employee deactivated Trump’s account on his last day at the company  
+   
+a **trade body**  
+Airbus and Boeing, the **duopoly** **atop** the aircraft supply chain, had sales of $100bn between them -  
+**aerospace** industry  
+the coronavirus has **lopped** $460bn from this market value -  
+**gloomily** predicts that revenues there will fall by 57% in 2020  
+**aeroplanes**  
+Boeing’s situation is made worse by the **protracted** grounding in 2019  
+With so many aircraft sitting idle and balance-sheets in **tatters**, airlines are getting rid of planes -  
+Airlines, as well as leasing firms, which now own close to half the global fleet, are **contractually** **obliged** to take aircraft **on order**  
+More **assertively**, Airbus’s boss, Guillaume Faury, does not **rule out** suing customers who **renege** on their orders  
+**Rolls-Royce**  
+**Zurich**  
+which may **crimp** efforts to install **contactless** technology that could help **reassure** travellers that terminals are safe to re-enter  
+**once-scarce** pilots are **plentiful**, and airports will have spare **slots**, if they are allowed to redistribute them  
+a big **lessor**  
+They have **bargaining** power: everything is negotiable, including **deferrals**, **prepayments** and price  
+**short-haul** passenger jet  
+The Brazilians could supply the industrial **knowhow** and the Chinese the industrial **might**  
+   
+Alexa is an **ever-present** personal shopping assistant designed to integrate **seamlessly** into our customers' daily lives.  
+**omnipresence**  
+   
+It is **not uncommon** to come across engineers **embroiled** in a spirited debate over what technology is best suited for a particular problem or even a make-believe scenario that is better left to the imagination  
+Young people are **flouting** the rules  
+There are also disagreements about an eviction **moratorium** extension -  
+   
+**cervical vertebra**  
+**cervical discs**  
+put it **on hold**  
+**inextricable** tied to this **institution** of slavery.  
+   
+TikTok's Chinese owner offers to **forego** stake to **clinch** U.S deal  
+China's ByteDance has agreed to **divest** the US operations of TikTok  
+   
+**Breadth of mind**, **breadth of view**  
 **trade school** / **vocational** school  
-he has been in congress **ever since**
-
-**crony** capitalism   
+he has been in congress **ever since**  
+   
+**crony** capitalism -  
 **sinister** intentions  
-
-He is wrong to pursue a policy of **arm-twisting** the state's largest companies to contribute to it and for the state to play any role in the building of the housing
+   
+He is wrong to pursue a policy of **arm-twisting** the state's largest companies to contribute to it and for the state to play any role in the building of the housing  
 It described US criticism of the new **draft law** as "**utterly** **imperious**, unreasonable and **shameless**  
 Critics fear it could lead to Hong Kongers being prosecuted - even **retroactively** - for criticising their or the mainland's leadership, joining protests or exercising their current rights under local laws.  
 But its **unpopularity** meant it has never been done - the government tried in 2003 but had to **back down** after protests.  
@@ -21,18 +74,18 @@ China tried, **prematurely**, to promote the yuan after the global financial cri
 There is also a regression in policy that has **stemmed from** the country’s leadership  
 You can iterate quickly, build up a **scrappy** prototype in like five days.  
 Lockdowns have surely made the global mood more **combustible**  
-
-Make the Trump victory **a blip**   
+   
+Make the Trump victory **a blip**  
 Tom is **out of step** with the times.  
-
-“In uncertain times, this performance is a testament to the important role our products play in our customers’ lives and to Apple’s relentless innovation  
+   
+In uncertain times, this performance is a **testament** to the important role our products play in our customers' lives and to Apple’s **relentless** innovation  
 Third, algorithmic interviews are direct translations from **formalistic** college backgrounds  
-
+   
 Weeks after the accident she remained **distraught**.  
 The **flippancy** of your answer **peeved** me. -  
-
+   
 How do you like my post-divorce **digs**?  
-**Armageddon** is what's going to happen to you if you wake me up 
+**Armageddon** is what's going to happen to you if you wake me up  
 Two hours long without an **intermission**?  
 **tyrannosaurus rex**  
 **laundromat**  
@@ -48,21 +101,21 @@ national **geography**
 **sorority** girl -  
 **rhythmically**  
 **cerebral** palsy  
-**cerebral** **concussion**  
+**cerebral** **concussion** -  
 rocket **projectile**  
 the cheers **drown out** his shouts  
 **territory**  
 **coronation**, **crowning** -  
 **medallion**  
 **cassette** tape  
-I'm sorry, he just makes me so **cranky**  
+I'm sorry, he just makes me so **cranky** -  
 that **puddle** is blocking our way  
 **pedicure** salon  
 let's have a quick **recap**  
 Mix the **batter** and let it stand for twenty minutes  
 **lollipop**  
-
-
+Sorry for my initial **apprehension**.  
+   
 **Mercantilism**  
 Stare **blankly**  
 she **shook** hands with her **victorious** opponent  
@@ -80,16 +133,15 @@ she's been **flailing** for weeks -
 **dressmaker**  
 **slumber** party  
 Sleeping Beauty **slumbered** in her forest castle  
-
+  
 **gracious goodness**  
 His **gracious** manners put me **at ease**  
-
-It's important to note that not all male leaders value a **macho** image over saving lives. For 
-
-don't **bank on** a mass exodus  
-hiring and onboarding are more **choppy**  
-**root out** bad behavior 
-
+  
+It's important to note that not all male leaders value a **macho** image over saving lives.  
+don't **bank on** a mass **exodus**  
+hiring and onboarding are more **choppy** -  
+**root out** bad behavior  
+  
 I had to make a **wee** sacrifice to the great nothing.  
 horse-drawn wagon filled with **bratwurst**.  
 Killed by **suffocation** when **encased** in a block of **gelatin** -  
@@ -99,20 +151,20 @@ I should not **dwell** too much on that
 **rattled**, but **alright**. -  
 it's a fine ship, **top of line**  
 **prep** for **evac**  
-
-## Week 4 
-
+  
+## Week 4  
+  
 His words **stamped** him to be a **bigot**.  
 He is **up for grabs**  
-**lukewarm** water   
+**lukewarm** water  
 **presumptive** Democratic nominee Joe Biden.  
-
-a cute **barista**  
-I can't forget my own **blunders**  
+  
+a cute **barista** -  
+People tend to not forget their own **blunders**  
 **go-to person**  
 I don't understand, I know he is joking about a **noose** but how does it relate to the chair  
 Mavis is a **petty** **featherhead**.  
-
+  
 It's like a digital **purgatory** -  
 call his **bluff**  
 he will **turn up**  
@@ -124,12 +176,12 @@ recalled by the **lead paint**
 **soft landing**  
 you try to **coax** the person toward the end  
 American **okeydoke**  
-
+  
 He is **austere** and **grave** in **deportment**  
 The coffin was placed in the **grave**  
 the **shrew**, in particular, was **exquisite**  
 **highland barley**  
-
+  
 **critical mass**  
 while a potential S&P inclusion might send its stock even further into **ludicrous** mode...  
 Apple's set **stringent** rules around its App Store  
@@ -139,11 +191,11 @@ In person, he was serious and warm, committed to his views but a **first-rate** 
 But his non-violence was not soft or **conciliatory**; it was **adamantine**, **confrontational**  
 He **sought** votes from every **constituency**, blue- and white-collar, Jewish and gay  
 he gave a **stirring** speech on the House floor calling marriage “a basic human right” that should not be denied people just because they happen to be gay  
-
+  
 Even as India **urbanises**, **caste** discrimination remains **rife** -  
 Cities are segregated, and **inter-caste** marriages are **vanishingly rare**  
 They both happen to be **Dalits**, from the **bottom ranks** of India’s **voluminous** **caste** register -  
-
+  
 That such **virological** diversity has so far been found only in China is because few people have looked at bats in countries on the other side of the border  
 host **species**  
 As he puts it, bats “**congregate** in huge **colonies**, and **poo** everywhere  
@@ -151,41 +203,39 @@ And then other mammals **live off** that poo and then act as a **mixing vessel**
 Vietnam’s population is not as **immunologically** “naive” as has been assumed  
 there are suggestions that protection might be **conferred** mainly via part of the immune system called t-cells(which work by killing virus-infected cells)  
 Those familiar with the scandal know at the center of it all was Malaysian financier Jho Low, who far from being **behind bars**, maintains his innocence and is still **at large**.  
-
-
+  
 racial unrest **tore through** the country  
-the stock market and economy should move in **tandem** suggests that we're all in this together   
+the stock market and economy should move in **tandem** suggests that we're all in this together  
 the New York stock exchange made a **concerted effort** to **tempt** small investors who had **scared off** by the wall street crash of 1929  
 **poles apart**  
-
+  
 In the 1970s and early 1980s the **holy grail** was to end **stagflation**  
 we dig into the **causes** of America’s **runaway** **caseload** of covid-19—and how it depends on **geometric** growth -  
 Bacon has **streaks** of fat and **streaks** of lean  
 This week we have a film on its impact on American stockmarkets, and why they have enjoyed a record-breaking **streak** even though the country faces the deepest recession in living memory.  
 Binyamin Netanyahu **boasted** too soon of defeating the coronavirus  
-
-
+  
 **firefly**  
-**Dandelion** Agreement -   
-**relegate** a question to a committee   
-
+**Dandelion** Agreement -  
+**relegate** a question to a committee  
+  
 **Cremation** is more common than **burial** in some countries.  
 it's pretty **dull**  
 if those people don't get the opportunity to vote, then your entire campaign may be **moot**. -  
 **rank and file** military personnel  
 you've been **tight-lipped**  
-
+  
 She was tricked out in **gaudy** dress.  
 The body **undergoes** many changes during **puberty**.  
 The average male has some 180 tunes in his **repertoire**  
-
+  
 I don't **rule it out**, I'm keeping my options open  
 **figure of speech**  
-
+  
 The media had a **field day** with the sensational story.  
 sexual **inhibition** -  
 That's probably why I **gravitated** towards Vim initially.  
-
+  
 There are ten **urinals** in this public toilet, all in a row.  
 The dancer wore a **headdress** of pink **ostrich** **plumes**. -  
 **gremlin**: (**folklore**) **fairies** that are somewhat **mischievous**  
@@ -198,104 +248,103 @@ she sounded absolutely **distraught**
 **mayo**: mayonnaise  
 **litigious**  
 **spanking** **buttocks**.  
-Ben Franklin invented glass **harmonica**. -   
+Ben Franklin invented glass **harmonica**. -  
 **Wondrous** things can happen.  
 he suffered a **setback** in his business  
 I was **giddy** with the heat  
 Lena **fiddled** with her cup  
-
+  
 If **cornered**, it will stand on its **hind legs** and extend its **claws** to appear larger and threatening.  
-
+  
 They are not **Philistines** as a rule — it’s just that they take their responsibilities seriously, as they should. They’re doing their job  
 With his **gumption** he will make a success of himself  
-
-**slow-poke**
+  
+**slow-poke**  
 He is the most **opinionated** man I know.  
-their nightmares of a **politicized** Fed.   
-
-> And even if you love your job and find your work to be fulfilling, you can still benefit from a side hustle, which will allow you to embrace your inner entrepreneur.   
+their nightmares of a **politicized** Fed.  
+  
+> And even if you love your job and find your work to be fulfilling, you can still benefit from a side hustle, which will allow you to embrace your inner entrepreneur.  
 
 Let me **freshen up** my **whiskers**.  
-**Shutter** speed 
+**Shutter** speed  
 **fire shutter**, **roller shutter**  
 apple **orchard**  
 **Pot Calling the Kettle Black**  
 **finalist** works  
 **nostril**: **nasal** **cavity**  
-
+  
 The ship was **bilged** by a **submerged** **reef**  
 **bilge** water  
 Don't give me that **bilge**!  
-
+  
 **werewolf**  
 don't star at her, she will **entrance** you.  
 The men who **perpetrate** evil, but call it progress  
 Some new **high-falutin** **sanitation** law don't mean shit to me, Mr. City Inspector. -  
 It's an absolutely **riveting** tale, Mr. Dvorchack  
-
+  
 Don't make us sound like **hicks**  
 **clarity** grade  
 owl **hooting**  
 **duke**, **duchess**  
 **Pastrami**: a way to **conserve** food, to keep something for a long duration  
-
-A **subdued** plaid shirt
+  
+A **subdued** plaid shirt  
 There is a **subdued** atmosphere in the school at exam time  
 The country was **subdued** by the enemy  
 **alumni**, **alumnus**, **alumna**  
 infant **formula**  
 His mother's **caress** calmed the frightened child  
-A **spatula** is a broad, flat, flexible blade used to mix, spread and lift material[1] including foods, drugs, plaster and paints.
-
+A **spatula** is a broad, flat, flexible blade used to mix, spread and lift material[1] including foods, drugs, plaster and paints.  
+  
 U.S. antitrust investigators are looking into whether Google has **unlawfully** **stifled** competition in advertising and other businesses  
-
-**persuasive** speaking 
+  
+**persuasive** speaking  
 John Lewis was a **crusader** for social justice  
-
+  
 but given the **ever-changing** status of COVID-19 in our communities, it’s not that simple  
 hardware **ironware** **metals**  
 Some doctors wondered: where are the **preemies**?  
-
-### Week 3 
-
+  
+### Week 3  
+  
 In 2018 alone, it **racked up** 188 tickets totaling $19,080 in fines—and the owner didn’t pay a penny, the city says.  
-Republicans say impeachment is driven by Democrats’ **animosity** toward Mr. Trump, not by the facts of the case
-The Framers were not fools. They authorized impeachment for a reason, and that reason would have been **gutted** if impeachment were limited to crimes, the report states.
-The report, a 169-page assessment of the case for Trump’s removal from office, **contends** that Trump committed “multiple federal crimes”
-The language is an **all-but-explicit** reference to allegations that Trump abused his power when he asked Ukraine’s president
-The report is a crucial document in the annals of presidential impeachment, a subject with little accumulated precedent and **innumerable** **gray areas**.
-They also sharply **rebutted** the notion that impeaching a president who has committed impeachable **conduct** amounts to reversing an election.
-Democrats view the new, Trump-era document as a **touchstone** in the nation’s centuries-long struggle to define and apply the most charged tool the Constitution provides to Congress
-Staying true to its **no-frills** form, the Craigslist app is super minimalist but as useful as Craigslist itself
-This man, screamed at me calling me all sorts of names, **stomped down** my front steps, **screeched** out of my drive and drove away
-We procrastinate on the most important things in life. Instead we choose to spend our time on the **mundane**
-And the coolest **preteen** customers who say they’re in no hurry to see “Frozen 2” may end up there, too.
-The sisters Elsa and Anna, not a male **sidekick**, secured the happily ever after
-They are **preaching** diversity while doing a great **disservice** to it, let us preach **meritocracy** and be true to it. -
+Republicans say impeachment is driven by Democrats’ **animosity** toward Mr. Trump, not by the facts of the case  
+The Framers were not fools. They authorized impeachment for a reason, and that reason would have been **gutted** if impeachment were limited to crimes, the report states.  
+The report, a 169-page assessment of the case for Trump’s removal from office, **contends** that Trump committed “multiple federal crimes”  
+The language is an **all-but-explicit** reference to allegations that Trump abused his power when he asked Ukraine’s president  
+The report is a crucial document in the annals of presidential impeachment, a subject with little accumulated precedent and **innumerable** **gray areas**.  
+They also sharply **rebutted** the notion that impeaching a president who has committed impeachable **conduct** amounts to reversing an election.  
+Democrats view the new, Trump-era document as a **touchstone** in the nation’s centuries-long struggle to define and apply the most charged tool the Constitution provides to Congress  
+Staying true to its **no-frills** form, the Craigslist app is super minimalist but as useful as Craigslist itself  
+This man, screamed at me calling me all sorts of names, **stomped down** my front steps, **screeched** out of my drive and drove away  
+We procrastinate on the most important things in life. Instead we choose to spend our time on the **mundane**  
+And the coolest **preteen** customers who say they’re in no hurry to see “Frozen 2” may end up there, too.  
+The sisters Elsa and Anna, not a male **sidekick**, secured the happily ever after  
+They are **preaching** diversity while doing a great **disservice** to it, let us preach **meritocracy** and be true to it. -  
 The greatest sin I committed was having the **gall** to tell a woman to "shut her mouth.  
-It’s the difference between **stagnating** and forever growing.
-Authorities found the girl was severely **malnourished**, living in **filth** and had been isolated for years.
-
-
+It’s the difference between **stagnating** and forever growing.  
+Authorities found the girl was severely **malnourished**, living in **filth** and had been isolated for years.  
+  
 she was hungry and only allowed to eat a small plate of rice each day alerted investigators in Ohio that something was **amiss** -  
-“No way, look at this!” she called out at the sight of a news article about the **whale** near the surfers, recognizing her son as the surfer who **spotted** it and **paddled** away.
+“No way, look at this!” she called out at the sight of a news article about the **whale** near the surfers, recognizing her son as the surfer who **spotted** it and **paddled** away.  
 Many of the online video viewers gave Liam Lawless, who turns 12 next week, **props for** his quick reflexes  
-
+  
 **Assassin** **tenet**  
-toxic **masculinity**
+toxic **masculinity**  
 Appollo stood for youth and **manly** beauty.  
 people are financially **well off**  
 **benign** jokes just about the world  
 **hard-on**, **erection**, **boner**  
-
+  
 He expects his wife to be **meek** and submissive.  
-She won’t object—she’s so **meek** and mild. -  
+She won’t object—she’s so **meek** and mild.  
 the mask might **obscure** his vision  
 **muzzle** the dog to prevent it from **biting** strangers  
-  
+   
 The US government is aware of this strategy and has decided that self-employment as a **sole** **proprietor** will not meet this requirement  
 rise from **humble beginning**  
-  
+   
 The political status of **Puerto Rico** is that of an **unincorporated** territory of the United States  
 The island's cultural and **demographic** landscapes were shaped by the displacement and **assimilation** of the native population  
 American citizens in Puerto Rico are **disenfranchised** at the national level, do not vote for the president or vice president of the U.S, and in most cases do not pay federal income tax  
@@ -307,24 +356,24 @@ Her affection for him is deeply **rooted**.
 I want to **root for** anybody who's our president  
 I will pardon anybody who protects me by not **snitching**  
 I think  you just **summed up** why Roger Stone was pardoned  
-  
+   
 **optics**: plural in form but singular in construction : the **aspects** of an action, policy, or decision (as in politics or business) that relate to public perceptions  
-  
+   
 self-**reliance**  
 When it comes to algorithm implementation, developers are now **spoilt for choice**  
-Truly what a **parochial**, ill-understood, poorly expressed understanding of algorithms, and an even poorer understanding of **commodities** -  
+Truly what a **parochial**, ill-understood, poorly expressed understanding of algorithms, and an even poorer understanding of **commodities**  
 I was agreeing with your well-reasoned **rebuttal** until I came to this odd conspiracy theory  
 in some cases more detailed data, in greater quantity, has **supplanted** earlier less detailed/smaller datasets  
-  
+   
 Maybe you should look into some **insoles** made for skateboarding  
 This is a basic **tenet** of capitalism.  
 **Palatial** Sunnyvale Home  
 **kitchen sink**  
-  
+   
 My **uterus** is an **inhospitable** environment?  
 A **montage** of **excerpt** from the film  
 I've been moody, tired and **crabby**  
-  
+   
 Power **Vacuum**  
 The boss sacked a **dilatory** worker yesterday -  
    
@@ -458,8 +507,9 @@ people aren't expect to **lug** a piano around
 **kindergarten**  
 **Pub crawl**  
    
-> Software development best practices prescribe strict separation of configuration from code
-  
+> Software development best practices prescribe strict separation of configuration from code  
+   
+
 Yet developers on Apple platforms often struggle to **square** these guidelines with Xcode’s project-heavy workflow  
    
 **sheepish**: like or **suggestive** of a sheep in **docility** or stupidity or **meekness** or **timidity**.  
@@ -493,7 +543,7 @@ Veggie **Nachos**
    
 The businessman was **billed** for **delinquent** taxes  
 American **exceptionalism**  
-
+  
 ## Week 1  
 highly **celebrated**  
    
@@ -546,7 +596,7 @@ The program will focus on funneling workers into **in-demand** roles poised for 
 Microsoft is backing the program with $20 million in **grants** for nonprofits, $5 million of which is **earmarked** for organizations serving communities of color in the U.S.  
    
 > mercenaries are like **hookers**  
-
+  
 After **grinding** investigation, Luckin Coffee confirms $300 million revenue fraud  
    
 10 little **elves** are making toys  

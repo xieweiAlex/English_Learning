@@ -5,21 +5,21 @@ PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 WORDS_REVIEW="words-review.md"
 
 files=(
-  "./media-record/houseOfCards/HOC1.md"
-  "./media-record/movie.md"
-  "./media-record/siliconValley/sv4.md"
-  "./media-record/siliconValley/sv3.md"
-  "./media-record/westWorld/ww3.md"
-  "./media-record/westWorld/ww2.md"
-  "./media-record/westWorld/ww1.md"
-  "./media-record/GOT/GOT8.md"
-  "./media-record/GOT/GOT7.md"
-  "./media-record/GOT/GOT6.md"
-  "./media-record/GOT/GOT5.md"
-  "./media-record/GOT/GOT4.md"
-  "./media-record/GOT/GOT3.md"
-  "./media-record/GOT/GOT2.md"
-  "./media-record/GOT/GOT1.md"
+  "./media/houseOfCards/HOC1.md"
+  "./media/movie.md"
+  "./media/siliconValley/sv4.md"
+  "./media/siliconValley/sv3.md"
+  "./media/westWorld/ww3.md"
+  "./media/westWorld/ww2.md"
+  "./media/westWorld/ww1.md"
+  "./media/GOT/GOT8.md"
+  "./media/GOT/GOT7.md"
+  "./media/GOT/GOT6.md"
+  "./media/GOT/GOT5.md"
+  "./media/GOT/GOT4.md"
+  "./media/GOT/GOT3.md"
+  "./media/GOT/GOT2.md"
+  "./media/GOT/GOT1.md"
   "words/2020/words-July.md"
   "words/2020/words-Jun.md"
   "words/2020/words-May.md"
@@ -50,15 +50,15 @@ function getNewWords {
       # firstLine=$(echo "$file_content" | head -1 ) 
       # sed -i '' "1s/.*/##Test" "$file_content"
       echo "" >> "$WORDS_REVIEW"
-      echo "## ----------- ${file_name} -----------  " >> "$WORDS_REVIEW"
+      echo "## ${file_name} ## " >> "$WORDS_REVIEW"
       echo "$file_content" >> "$WORDS_REVIEW"
     fi
   done 
 
   length=$(cat $WORDS_REVIEW | wc -l)
-  echo -e "File length: ${YELLOW} $length ${NC}, cut off lines beyond 150!"
+  echo -e "File length: ${YELLOW} $length ${NC}, cut off lines beyond 110!"
   # Delete lines (111,$) let's keep the review file short & lean  
-  sed -i '' '151, 500d' "$WORDS_REVIEW"
+  sed -i '' '111, 500d' "$WORDS_REVIEW"
 }
 
 function pushBack {
@@ -114,7 +114,7 @@ function cleanWordReview {
   # for line in $(echo "$lines" | tr " " "\n")
   # do
   #   echo "Line: $line"
-  #   sed -i '' "$line"'d' $WORDS_REVIEW
+  #   sed -i '' "$line"'d' $WORDS_REVIEW 
   # done
 }
 

@@ -281,7 +281,7 @@ a wild **sequestered** spot.
 Being **grouchy**. -  
 **sequester** from the thief.  
 I **covet** one of their **bubblejet** printers. -  
-The boys **coveted** John's new hat.  
+The boys **coveted** John's new hat. -  
 The **growl** of a dog.  
 He **growled** out an answer.  
 Orders to **rev up** factory output. -  
