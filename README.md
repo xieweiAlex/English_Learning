@@ -3,11 +3,14 @@
 Expanding English vocabulary for a non native-speaker is a tedious and time-consuming journey, are you with me 🤔? I try to record the **words or phrases** I encounter very day with some necessary context, hope it can make my English learning journey easier and more delight, and hopefully it can inspire someone else, that's even better ✊.  
 
 ## Special Review 🐗   
-[words-review](./words-review.md)  
-[recent moth](./words/2020/words-July.md)  
-[movie-record](./media/movie.md)  
-[phrase review](./special/phrase.md)  
-[special words](./special/words1.md)  
+
+|  Special Review      |    File Marks       |  file   	|
+| ------------- |-------------  | ------- |
+|    Words Review    |  I  |  [words-review](./words-review.md)       |
+|    Current Month   |  A  | [current month](./words/2020/words-Aug.md)       |
+|    Movie Record   |   L | [movie-record](./media/movie.md)       |
+|    Special Phrase   |  J  | [Special phrase](./special/phrase.md)       |
+|    Special Words   |  K  | [Special words](./special/words1.md)       |
 
 ## TV Show, Movie
 ### House of Card 🐺 
@@ -25,7 +28,7 @@ Expanding English vocabulary for a non native-speaker is a tedious and time-cons
 ### Words 
 
 #### 2020 👊 
-[Jan](./words/2020/words-Jan.md) | [Feb](./words/2020/words-Feb.md) | [March](./words/2020/words-Mar.md) |  [April](./words/2020/words-April.md) | [May](./words/2020/words-May.md) | [June](./words/2020/words-Jun.md) | [July](./words/2020/words-July.md)
+[Jan](./words/2020/words-Jan.md) | [Feb](./words/2020/words-Feb.md) | [March](./words/2020/words-Mar.md) |  [April](./words/2020/words-April.md) | [May](./words/2020/words-May.md) | [June](./words/2020/words-Jun.md) | [July](./words/2020/words-July.md) | [Aug](./words/2020/words-Aug.md)  
 
 #### 2019 🏃  
 [Jan](./words/2019/words-Jan.md) | [Feb](./words/2019/words-Feb.md) | [March](./words/2019/words-March.md) |  [April](./words/2019/words-April.md) | 
