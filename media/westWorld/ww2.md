@@ -19,7 +19,7 @@ you're **gaslighting** her, too, now?
 > I don't want to do this either, dad, but there is something wrong inside her.  
 
 You think you're on your own little **tailor-made** narrative.  
-So I **imbued** the hosts I made with a worldview that reflected my own. -  
+So I **imbued** the hosts I made with a worldview that reflected my own.  
 I tried to **chart** a path for you, to force you to escape, but I was wrong.  
 
 

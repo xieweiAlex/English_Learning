@@ -9,7 +9,7 @@ A **stain** to **exorcise**, to **scrub out**, one month out of the year at West
 we wanted to turn the **gaze** this season from how an A.I. can be similar to human  
 that's the **inquiry** of the season  
 Being able to touch her opened up so many **synapses** and emotions inside of me.  
-It's a moment of reckoning and **emancipation**. -  
+It's a moment of reckoning and **emancipation**.  
 Rehoboam was one of the **Israelite** kings.  
 The man has **toiled** under the weight of his dark impulses, is free from them.  
 > We all rationalize our actions in different ways 

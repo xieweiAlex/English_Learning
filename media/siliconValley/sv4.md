@@ -3,7 +3,7 @@
 what about your **squatter**?  
 I stayed here **out of solidarity**
 **arson**  
-they're not gonna notice a few more **measly** petabytes, all right? -  
+they're not gonna notice a few more **measly** petabytes, all right?  
 you were just going to show up and fucking **steamroll** him?  
 **stand down**  
 
@@ -35,14 +35,14 @@ I was going to **descend** onto the stage, in a giant box.
 The VR is **rad** now.  
 You have been sucked entirely into his little Keenan **vortex**.  
 Considering our **looming** debt, and the **embryonic** state of our network, this is a very generous offer.  
-I have to be the **ogre** that say no to him. -  
-I will sleep in the **bilge** with the **vermin**, and I will eat **hardtack** and I will say, "Thank you." -  
+I have to be the **ogre** that say no to him.  
+I will sleep in the **bilge** with the **vermin**, and I will eat **hardtack** and I will say, "Thank you."  
 I risk having a **mutiny** on my hands.  
 Richie had the **quail eggs** to counter 25 million.  
 This adorable little **wombat** made clear his intentions that he wants me to be the new COO.  
 We're gonna be fucking **cutting class** and crushing ass.  
 You're not exactly **chomping** **at the chance** to fund us, are you?  
-I saw him grab his lighter and his **bong** and head out to the Palapa to **sulk** a few minutes ago -  
+I saw him grab his lighter and his **bong** and head out to the Palapa to **sulk** a few minutes ago  
 
 ## E 7 
 
@@ -50,7 +50,7 @@ I saw him grab his lighter and his **bong** and head out to the Palapa to **sulk
 Did you **graze** your **penis** against a toilet seat?  
 There is a **grotesque** gender **imbalance** in the VC field right now. I can help you navigate the **toxicity** of this male culture which is **encroaching** on our **feminist** island.   
 **Mansplaining** is when a man will **condescendingly** explain something to a woman that she already knows.  
-She has never shown a **proclivity** for getting around infrastructure. -  
+She has never shown a **proclivity** for getting around infrastructure.  
 he'll come here fix it **posthaste** -  
 I'll **concede** that spending all my time inside of a house with you **scrawny** code jockeys, the incredible shrinking Hendricks... -  
 I'll send him a harshly **worded** **cease and desist** letter.  

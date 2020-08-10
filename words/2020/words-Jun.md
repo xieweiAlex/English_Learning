@@ -3,7 +3,7 @@
 **oldie** but still a **goodie** 
 her **migraine** led to a constant headache -  
 
-Force or tension is used to stretch or pull the head away from the neck. Creating space between the **vertebrae** relieves compression and allows the muscles to relax -  
+Force or tension is used to stretch or pull the head away from the neck. Creating space between the **vertebrae** relieves compression and allows the muscles to relax  
 This may even lead to **fainting**  
 Don’t **overexert** yourself by doing cervical traction for too long  
 
@@ -56,7 +56,7 @@ gulf of **Suez**
 she appears **promptly** at eight each day.  
 
 May I have a **peek**?  
-**gore** **galore** -  
+**gore** **galore**  
 Brutal **beasties** **in a bout** to the death!  
 she is **up and running**  
 

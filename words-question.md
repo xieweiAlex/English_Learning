@@ -1,4 +1,6 @@
 
+* contemplate 
+* superfluous vs redundant 
 * Asphyxia vs suffocate 
 * proclivity vs inclination 
 * it was great meeting you -- You too 

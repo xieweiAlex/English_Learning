@@ -136,7 +136,7 @@ writing **throwaway** code to test out new technology
   
 The National People’s Congress — a **rubber stamp** for the Chinese government  
 I think that this — not only in a short-term way — will **antagonize** the pro-democracy movement even more, and would generate a kind of response that China is not prepared  
-because it tears down all the remaining **pretension** of 'one country, two systems.' -  
+because it tears down all the remaining **pretension** of 'one country, two systems.'  
 It makes even the **nominal idea** of “one country, two systems” somewhat **farcical**, he added.  
   
 How do I **outlast** the massive **influx** of software engineers  

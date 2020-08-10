@@ -1,5 +1,5 @@
 
-### Amazon 
+### Amazon documentary
 
 That's a **tall order**  
 I hope your words are **prophetic** once again.  
@@ -8,14 +8,14 @@ it didn't take long for Bezos' vision to prove **prescient** -
 He was a small, **nondescript**, **sandy-haired** man setting on the desk  
 **eruptive** laugh  
 **napoleonic** ambition  
-one percent of inspiration, 99 percent of **perspiration** -  
+one percent of inspiration, 99 percent of **perspiration**  
 from the **get-go**  
 A little bit exciting, a little bit **nutty**  
 Customer obsession was our **North Star**  
 you know what they're **falling for**  
 that felt a little more **unsavory**, but that was the business of Amazon.  
 **fourfold**  
-We're going to **forego** profits, in order to take market share. -  
+We're going to **forego** profits, in order to take market share.  
 it was very **irksome**, early, big issue for the book vendors  
 he owns the **main street**, not the build on the corner, the entire main street   
 

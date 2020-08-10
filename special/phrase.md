@@ -1,4 +1,15 @@
 
+prima facie  
+
+crank out  
+from scratch  
+pass down 
+
+he has been in congress **ever since**  
+
+New cases **taper off** in some states  
+**cut the clutter**  
+you kind of have to **sneak up on** it.  
 keep the mobs **in check** 
 put it **on hold**  
 He's getting you all **riled up** -  

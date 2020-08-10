@@ -1,19 +1,4 @@
-   
-The pandemic puts a strain on elite private schools
-   
-
-it's pernicious  
-let's go on an odyssey  
-you kind of have to sneak up on it.  
-rings in me  
-narrative resonance  
-cross off  
-limbic system  
-peripheral vision  
-
-
 ## Week 5  
-   
 to the **cosmos**  
 To **commune** with the cosmos  
    
@@ -21,13 +6,13 @@ according to an **affidavit** released late Friday, authorities have probable ca
 **[sic]**  
 Clark received approximately $117,000 during the commission of his **scheme to defraud**  
 beyond the $100,000-plus in bitcoin that the **teen** is alleged to have scammed out of **unsuspecting** Twitter users  
-some of the highest-profile accounts on the service, their accounts **hijacked** to **peddle** bitcoin scams -  
+some of the highest-profile accounts on the service, their accounts **hijacked** to **peddle** bitcoin scams  
 November 2nd, 2017 incident where a **rogue** employee deactivated Trump’s account on his last day at the company  
    
 a **trade body**  
-Airbus and Boeing, the **duopoly** **atop** the aircraft supply chain, had sales of $100bn between them -  
+Airbus and Boeing, the **duopoly** **atop** the aircraft supply chain, had sales of $100bn between them  
 **aerospace** industry  
-the coronavirus has **lopped** $460bn from this market value -  
+the coronavirus has **lopped** $460bn from this market value  
 **gloomily** predicts that revenues there will fall by 57% in 2020  
 **aeroplanes**  
 Boeing’s situation is made worse by the **protracted** grounding in 2019  
@@ -62,7 +47,7 @@ China's ByteDance has agreed to **divest** the US operations of TikTok
 **trade school** / **vocational** school  
 he has been in congress **ever since**  
    
-**crony** capitalism -  
+**crony** capitalism  
 **sinister** intentions  
    
 He is wrong to pursue a policy of **arm-twisting** the state's largest companies to contribute to it and for the state to play any role in the building of the housing  
@@ -82,14 +67,14 @@ In uncertain times, this performance is a **testament** to the important role ou
 Third, algorithmic interviews are direct translations from **formalistic** college backgrounds  
    
 Weeks after the accident she remained **distraught**.  
-The **flippancy** of your answer **peeved** me. -  
+The **flippancy** of your answer **peeved** me.  
    
 How do you like my post-divorce **digs**?  
 **Armageddon** is what's going to happen to you if you wake me up  
 Two hours long without an **intermission**?  
 **tyrannosaurus rex**  
 **laundromat**  
-I'm on **sabbatical**. -  
+I'm on **sabbatical**.  
 **Tainted** food  
 His political reputation is **tainted** by the matter  
 **encyclopedia** **britannica**  
@@ -105,7 +90,7 @@ national **geography**
 rocket **projectile**  
 the cheers **drown out** his shouts  
 **territory**  
-**coronation**, **crowning** -  
+**coronation**, **crowning**  
 **medallion**  
 **cassette** tape  
 I'm sorry, he just makes me so **cranky** -  
@@ -121,7 +106,7 @@ Stare **blankly**
 she **shook** hands with her **victorious** opponent  
 there is some underwear in the **hamper**  
 the snow **hampered** my movements  
-this was the **garter** that I was saving for my wedding -  
+this was the **garter** that I was saving for my wedding  
 **Whew**, **phew**  
 **dustpan**  
 **cole slaw**, cold **slaw**  
@@ -148,7 +133,7 @@ Killed by **suffocation** when **encased** in a block of **gelatin** -
 Russian **aristocracy**  
 killed by marathon **fornication** with four **Viennese** **prostitutes**.  
 I should not **dwell** too much on that  
-**rattled**, but **alright**. -  
+**rattled**, but **alright**.  
 it's a fine ship, **top of line**  
 **prep** for **evac**  
   
@@ -194,7 +179,7 @@ he gave a **stirring** speech on the House floor calling marriage “a basic hum
   
 Even as India **urbanises**, **caste** discrimination remains **rife** -  
 Cities are segregated, and **inter-caste** marriages are **vanishingly rare**  
-They both happen to be **Dalits**, from the **bottom ranks** of India’s **voluminous** **caste** register -  
+They both happen to be **Dalits**, from the **bottom ranks** of India’s **voluminous** **caste** register  
   
 That such **virological** diversity has so far been found only in China is because few people have looked at bats in countries on the other side of the border  
 host **species**  
@@ -221,7 +206,7 @@ Binyamin Netanyahu **boasted** too soon of defeating the coronavirus
   
 **Cremation** is more common than **burial** in some countries.  
 it's pretty **dull**  
-if those people don't get the opportunity to vote, then your entire campaign may be **moot**. -  
+if those people don't get the opportunity to vote, then your entire campaign may be **moot**.  
 **rank and file** military personnel  
 you've been **tight-lipped**  
   
@@ -233,11 +218,11 @@ I don't **rule it out**, I'm keeping my options open
 **figure of speech**  
   
 The media had a **field day** with the sensational story.  
-sexual **inhibition** -  
+sexual **inhibition**  
 That's probably why I **gravitated** towards Vim initially.  
   
 There are ten **urinals** in this public toilet, all in a row.  
-The dancer wore a **headdress** of pink **ostrich** **plumes**. -  
+The dancer wore a **headdress** of pink **ostrich** **plumes**.  
 **gremlin**: (**folklore**) **fairies** that are somewhat **mischievous**  
 a train **whooshed** by  
 his colleagues **regard** him as a joke  
@@ -248,7 +233,7 @@ she sounded absolutely **distraught**
 **mayo**: mayonnaise  
 **litigious**  
 **spanking** **buttocks**.  
-Ben Franklin invented glass **harmonica**. -  
+Ben Franklin invented glass **harmonica**.  
 **Wondrous** things can happen.  
 he suffered a **setback** in his business  
 I was **giddy** with the heat  
@@ -282,6 +267,9 @@ don't star at her, she will **entrance** you.
 The men who **perpetrate** evil, but call it progress  
 Some new **high-falutin** **sanitation** law don't mean shit to me, Mr. City Inspector. -  
 It's an absolutely **riveting** tale, Mr. Dvorchack  
+
+highfalutin: expressed in or marked by the use of language that is elaborated or heightened by artificial or empty means : POMPOUS
+giving a highfalutin speech  
   
 Don't make us sound like **hicks**  
 **clarity** grade  
@@ -433,7 +421,7 @@ COVID-19 cases have surged in Florida, where the park is located, and ICU beds a
 The theme park's contribution to the company's top line is **staggering**  
 stating that they "actually feel like part of the story rather than an **afterthought**  
    
-**gaunt**: extremely thin and **bony**; **haggard** and **drawn**, **as from** great hunger, weariness, or torture; **emaciated**. -  
+**gaunt**: extremely thin and **bony**; **haggard** and **drawn**, **as from** great hunger, weariness, or torture; **emaciated**.  
 She **blotted** water off the table with a towel.  
 That new factory is a **blot** on the **landscape**.  
 She **blotted** her **copybook** when she arrived late for work  
