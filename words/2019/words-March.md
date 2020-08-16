@@ -54,7 +54,7 @@ His sneaker exploded into a **sandal**
 the Communications Decency Act of 1996, was struck down as an unconstitutional **affront** to free speech.   
 Limited protection: COPA only covered U.S.-based websites, effectively leaving a whole world of porn sites to harm **impressionable** kids
 Since then, the task of protecting U.S. children from the **pernicious** postings of porn sites has returned to its historic home: responsible parents
-a **pernicious** virus - 
+a **pernicious** virus  
 Credit cards as **no-brainer** verification tools
 
 > Notice that the droplet still preferred to move left, even though it could move right (and moving right makes it fall quicker.)  
@@ -74,7 +74,7 @@ He **endowed** the Church with lands.
 He is as **cunning** as fox.  
 **Obligate parasite** 
 **deride** a person's ignorance -  
-A **pejorative** (also called a **derogatory** term, a term of abuse, or a term of **disparagement**) -  
+A **pejorative** (also called a **derogatory** term, a term of abuse, or a term of **disparagement**)  
 **means of subsistence**, **subsistence level**.  
 Our troops **withstood** the **onset** of the enemy. -  
 **Malaise** is a feeling of general discomfort, uneasiness or pain, of being "out of sorts", often the first indication of an infection or other disease.-   

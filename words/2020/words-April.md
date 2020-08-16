@@ -206,7 +206,7 @@ Marijuana companies are used to being denied by large institutions: Big banks wo
 I can't stand by with partisan **gridlock**  
 
 **efficacy** test   
-No, I don’t presume any kind of **inoculation** or anything from the trial -   
+No, I don’t presume any kind of **inoculation** or anything from the trial  
 **mandatory**, **mandate**  
 We **leveled off** new cases 
 **out of woods**  

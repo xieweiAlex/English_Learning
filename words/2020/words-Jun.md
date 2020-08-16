@@ -1,7 +1,7 @@
 # Week 4 
 
 **oldie** but still a **goodie** 
-her **migraine** led to a constant headache -  
+her **migraine** led to a constant headache  
 
 Force or tension is used to stretch or pull the head away from the neck. Creating space between the **vertebrae** relieves compression and allows the muscles to relax  
 This may even lead to **fainting**  
@@ -31,7 +31,7 @@ those are stable, **meat-and-potatoes**, not-**leverage** kind of companies
 
 The policy implies **insidious** dangers to the national economy.  
 **repercussion**  
-what are these fucking **cretins** talking about? -  
+what are these fucking **cretins** talking about?  
 **own** vs **owe**  
 I don't just **roll over** what I'm told to  
 languages always **give you away**  
@@ -107,7 +107,7 @@ I'll **preface** this post by saying most of the issues **encountered** are down
 
 > There are always compromises to be had, whether it be Firefox performance, lack of HW video decoding in the browser and having to tweak a few things, but overall it’s been a mostly positive experience to switch  
 
-Hark! The **infernal** **orgies**! That **revelry** is forward! Mark the **unfaltering** silence **aft**! -  
+Hark! The **infernal** **orgies**! That **revelry** is forward! Mark the **unfaltering** silence **aft**!  
 
 **aromatic** **flavouring** can be extracted  
 
@@ -180,7 +180,7 @@ The dinning-room opens onto a paved **terrace**
 He had a good **rummage** inside the sofa  
 **wicker chair**  
 Ben has a **wicked** sense of humour  
-You should **sheer off** the **wicked** **urchin** -  
+You should **sheer off** the **wicked** **urchin**  
 **Styrofoam**: foamed plastic  
 strawberry **torte**  
 fruit **tartlet**  

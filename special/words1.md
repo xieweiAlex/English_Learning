@@ -1,5 +1,13 @@
 ## August 
 
+**mediterranean**  
+
+**copulation**  
+
+**inoculation**  
+
+**sexually precocious**  
+
 **paltry**
 
 **stamina**
@@ -21,8 +29,6 @@
 **remark**
 
 **tranquility**  
-
-**inoculate**  
 
 **digress**
 

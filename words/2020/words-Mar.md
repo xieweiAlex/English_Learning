@@ -168,7 +168,7 @@ Our routines may be a little **out of whack**, but at least the Earth still revo
 For humans to understand bird sex, they must first throw out all thoughts of **mammalian** sex organs
 This same opening also serves a less-sexy purpose: the **expulsion** of **urinary** and digestive waste  
 When birds are feeling **frisky**, they rub their swollen **cloacas** together  
-This delicate **balancing act** can often take several attempts before resulting in successful **copulation** -  
+This delicate **balancing act** can often take several attempts before resulting in successful **copulation**  
 Perhaps for fun — or to increase the chance of **insemination** — birds often have sex many times throughout the course of their mating period  
 
 She always gets **frisky** after she **hurls**.  

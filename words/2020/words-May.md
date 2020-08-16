@@ -183,7 +183,7 @@ He gave **reverent** attention to the teacher.
 ## Week 2  
 **monocular**, **binoculars**  
   
-"Lolita" and "loli" has come to be used as a general reference to girls considered **sexually precocious**. -  
+"Lolita" and "loli" has come to be used as a general reference to girls considered **sexually precocious**.  
 Here’s a **rundown** of what we’ve done so far:  
 If you did all of that, you will be **well grounded**  
   

@@ -7,7 +7,7 @@ Regional **delicacies**
 more louder, more **jovial**
 They often get **lumped** in together with Tibetan people as being **savages** and sword carrier terroirst.  
 full of **chili**. 
-Dongbei are very very much **machismo**, male driven culture -  
+Dongbei are very very much **machismo**, male driven culture  
 Blue-collar worker, **potbelly**, cigarette and beer 
 I hope you enjoyed me getting **jostled** 
 
@@ -185,14 +185,14 @@ Barr is more **nefarious** than we anticipated.
 The physical **ailments** that **condemned** him to a lonely childhood  
 coral **reef**  
 he was **kin** to the brothers.
-The poor painter sold his paintings for a **paltry** sum of money. -  
+The poor painter sold his paintings for a **paltry** sum of money.  
 Bird **perched** on the branch -   
 I like fishing for **perch** on vacation.  
 The cells **proliferate** **readily** in **culture**.  
 Spectacle **bunker**.  
 The bad news **disquieted** him.  
 He's getting you all **riled up**  
-muscle **cramp** -  
+muscle **cramp**  
 Olympic **motto**  
 **spontaneous** ignition  
 **feed trough**, **water trough**.  
@@ -278,12 +278,12 @@ Configuration files for terminal programs — generally called dotfiles — are 
 
 **Notre Dame Cathedral**  
 
-our chief **diversion** was reading. -  
+our chief **diversion** was reading.  
 they can still be **salvaged** for parts, but they can't be resold as complete working **handsets**, because they're still **tied** to their original owner  
 
 
 ## Week 2 
-He was an **inept** politician -  
+He was an **inept** politician  
 Be the **scoff** of the town  
 **scoff** at difficulties  
 **hump day** (Wednesday)
@@ -328,7 +328,7 @@ The worker is **levering** at the rock.
 Water **appease** thirst  
 
 Because its **brand name** is more famous.
-What's a **pet peeve** that you have -  
+What's a **pet peeve** that you have  
 from **immemorial** like they would rather defeat the left then defeat the right 
 
 The **retractile** **claws** of a cat  
@@ -347,7 +347,7 @@ a physical hole in every office where paper containing illegal ideas or "wrong" 
 
 **latch bolt**, **latch plate**  -  
 Both teams were **severely** **depleted** by injuries.  
-He was **scourge** of by the memory of his misdeeds. -  
+He was **scourge** of by the memory of his misdeeds.  
 The **scourge** of mass unemployment.  
 The war was **protracted** for 4 years  
 a **protracted** and bitter dispute  
@@ -365,10 +365,10 @@ Running our own campaign, doing the whole **shebang**
 **third rail**    
 Republicans thought social security was a **third rail**, **contraception** is the fourth  
 **voltage**
-**oligarch monopoly** -   
+**oligarch monopoly**  
 Why did you have to **antagonize** him?  
 
-In most thefts, residents report the devices have been **pried** off the side of their home -   
+In most thefts, residents report the devices have been **pried** off the side of their home  
 You are going to be a useful person so long as you **use your loaf**
 
 We often summarize results by country or gender, highlight results for **underrepresented** racial/ethnic groups, or use survey weighting to correct for **demographic skew**  
@@ -397,7 +397,7 @@ Why Your Brain Hates **Slowpokes**
 
 The car had a **wobbly** wheel  
 There was a **tussle** for the ball.  
-**relics** are **enshrined** under **altars**  -   
+**relics** are **enshrined** under **altars**  
 a **rebellious** behavior  
 **Canon** law  
 **ardent** spirits  
@@ -406,7 +406,7 @@ I **ain't** **vex** with you.
 His longevity **vexed** his **heirs** 
 He is an **adept** mechanic.  
 **mould**(mold) wedge  
-A **cheery** smile -  
+A **cheery** smile  
 The teams played on, **notwithstanding** the rain  
 The **remnant** of a feast  
 **liquidize** **remnant** assets  

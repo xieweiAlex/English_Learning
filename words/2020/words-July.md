@@ -50,8 +50,8 @@ he has been in congress **ever since**
 **crony** capitalism  
 **sinister** intentions  
    
-He is wrong to pursue a policy of **arm-twisting** the state's largest companies to contribute to it and for the state to play any role in the building of the housing  
-It described US criticism of the new **draft law** as "**utterly** **imperious**, unreasonable and **shameless**  
+He is wrong to pursue a policy of **arm-twisting** the state's largest companies to contribute to it and for the state to play any role in the building of the housing -  
+It described US criticism of the new **draft law** as "**utterly** **imperious**, unreasonable and **shameless** -  
 Critics fear it could lead to Hong Kongers being prosecuted - even **retroactively** - for criticising their or the mainland's leadership, joining protests or exercising their current rights under local laws.  
 But its **unpopularity** meant it has never been done - the government tried in 2003 but had to **back down** after protests.  
 Twitter Inc. placed a notice on the tweet and **shielded** it from view for breaking what the company said are its rules about **glorifying** violence.  
@@ -83,7 +83,7 @@ You have a real **aura** of success about you
 **madame** curie  
 **geology**  
 national **geography**  
-**sorority** girl -  
+**sorority** girl  
 **rhythmically**  
 **cerebral** palsy  
 **cerebral** **concussion** -  
@@ -362,7 +362,7 @@ A **montage** of **excerpt** from the film
 I've been moody, tired and **crabby**  
    
 Power **Vacuum**  
-The boss sacked a **dilatory** worker yesterday -  
+The boss sacked a **dilatory** worker yesterday  
    
 I'm so happy we're **sidestepping** Valentine's.  
 It follows a 60-day **ultimatum** to Moscow to comply with the **treaty**.  
@@ -445,7 +445,7 @@ but you're a little **bratty** (**brat**)
 give me a **ballpark** number  
 **right smack** in the middle  
 we really are being laughed at and **scoffed** at throughout the world.  
-they see this **bedlam** in Washington and that's not a good thing. -  
+they see this **bedlam** in Washington and that's not a good thing.  
 You got the Miss Universe **pageant**  
    
 Despite giving Vance the **go-ahead**, the court **smacked down** an effort by House Democrats to access those documents.  
