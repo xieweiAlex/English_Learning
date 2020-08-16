@@ -2,17 +2,17 @@
 media/movie.md  
 Is that an **apt** description of Jeff? -  
 it didn't take long for Bezos' vision to prove **prescient** -  
-  
+   
 ## sv5.md ##  
 media/siliconValley/sv5.md  
 it's hard to believe your **pathological** inability to make a decision finally **paid off**. -  
 We can not sacrifice our long-term **well-being** in the interest of **paltry**, **short-term** profits. -  
-  
+   
 ## sv4.md ##  
 media/siliconValley/sv4.md  
 he'll come here fix it **posthaste** -  
 I'll **concede** that spending all my time inside of a house with you **scrawny** code jockeys, the incredible shrinking Hendricks... -  
-  
+   
 ## words-July.md ##  
 words/2020/words-July.md  
 With so many aircraft sitting idle and balance-sheets in **tatters**, airlines are getting rid of planes -  
@@ -29,17 +29,17 @@ Even as India **urbanises**, **caste** discrimination remains **rife** -
 Some new **high-falutin** **sanitation** law don't mean shit to me, Mr. City Inspector. -  
 They are **preaching** diversity while doing a great **disservice** to it, let us preach **meritocracy** and be true to it. -  
 she was hungry and only allowed to eat a small plate of rice each day alerted investigators in Ohio that something was **amiss** -  
-  
+   
 ## words-April.md ##  
 words/2020/words-April.md  
 Her eyes/pupils **dilated** with terror -  
-  
+   
 ## words-May.md ##  
 words/2019/words-May.md  
 sounds **eminently** sensible. -  
 Say no not base on one or two **salient** features -  
 **bestow** high praise on the winners. -  
-  
+   
 ## words-April.md ##  
 words/2019/words-April.md  
 Modern **frigates** -  
@@ -71,7 +71,7 @@ This is the one issue that you can't put as **culpability** on republicans -
 Our army **routed** the enemy into running for their lives. -  
 She is **disposed** to sudden **bouts** of depression. -  
 Most **algae** live in water.  -  
-  
+   
 ## words-March.md ##  
 words/2019/words-March.md  
 Her **petty** complaints really **gripe** me. -  

@@ -1,21 +1,19 @@
   
 nozzle orifice  
 He builds furniture using wooden pegs instead of nails  
-
-
 The monks lived a very ascetic life.  
-
-his house is an eclectic mix of modern furnishings and antiques
-emcee 
+  
+his house is an eclectic mix of modern furnishings and antiques  
+emcee  
 Love is a potion of philter God-made  
-
+  
 While natural light is great, too much of it can turn your home into a sauna during the summer months  
-
-
+  
+  
 oscillate  
 Freon-free evaporative cooler  
-vaseline, Petroleum jelly, petrolatum
-
+vaseline, Petroleum jelly, petrolatum  
+  
 I knew then that my days as an **omnivore** were **numbered**.  
 The **blocky** machine stood about **chest-high**  
 That week, China's borders were closed to foreigners, and the evacuations **reversed** direction  
@@ -31,8 +29,8 @@ She was small, shy, and **unassuming**, but she seemed to understand that these 
 But Chinese Christians and **queers** both represent fringe communities  
 **field work**  
 > As a result, Gaokao **prep** has become a **brutal grind**, and high-school students have few opportunities to develop creativity or **independence**  
-
-
+  
+  
 Near the end of the fall term, when Serena was **neck-deep** in Catholics and gay bars  
 in China, a student always respects her teacher, even if the teacher is a **moron**  
 a state-owned tobacco company that had suffered a **steep drop** in sales  
@@ -48,36 +46,36 @@ if a **late-night** call went silent, it often meant that the person on the othe
 oversea **returnee**  
 Such data could be used to figure out who had been in close **proximity** to an infected person  
 (The area has a number of schools in **close proximity** to each other)  
-  
+   
 On any given day a founder might **wear a dozen hats**  
 green and yellow **splotch**  
 Her appearance caused an **sensation**  
 an **aerobics** instructor  
-  
+   
 **relish** **tray**, **relish dish**  
 Hunger gives **relish** to any food  
-  
+   
 We have to **sunset** the plan -  
-  
+   
 The definition of **snarky** is someone who is **cranky**, **snide** or sarcastic -  
 He made a **snide** comment about her weight  
-  
+   
 **boomerang** effect  
 they give you a **rosier** view of future  
 **bleaker view**  
-  
+   
 Donald Trump’s executive orders do little for **hard-hit** Americans  
 Congressional **gridlock** prolongs the pain -  
-  
+   
 reveals just how enthusiastically Beijing’s new security law will be deployed to **quash** any **dissent**.  
 Our Temporary **Moratorium** against Handshakes Should Become Permanent  
 **germaphobic**  
 the art of **comeback**  
 I've often thought of taking out a series of newspaper ads encouraging the **abolishment** of the handshake.  
-  
+   
 **Perseus** **meteor** shower  
 Languages were never my **forte**  
-  
+   
 **laminated** glass, **laminated** plate -  
 **filet mignon**  
 she wore a string of **beads** round her neck -  
@@ -93,7 +91,7 @@ social **phobia**
 **nip and tuck** -  
 he had an **acrimonious** quarrel with his girlfriend yesterday -  
 **Karate** Fighter  
-  
+   
    
 This year the airline will be **hard-pressed** to make a profit.  
 **ice shelf**  

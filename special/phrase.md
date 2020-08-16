@@ -3,22 +3,19 @@ you threw a **full-on** **tantrum**
 
 Would you really **stoop** this low, Ford?  
 
-If you twist my arm I'll stay for another drink  
-
+If you **twist my arm** I'll stay for another drink  
 I liked these **glimpses** of life **from all over**  
    
 She was small, shy, and **unassuming**, but she seemed to understand that these qualities could put people **at ease**  
    
-take up  
+**take up**  
 
-
-
-Zumper does not foresee a bounce back in the rental rate any time soon  
-Big Tech pledged a billion to racial justice, but it was pocket change  
+Zumper does not foresee a **bounce back** in the rental rate **any time soon**  
+Big Tech pledged a billion to racial justice, but it was **pocket change**  
 **long-winded**  
 But many believe that U.S. policies still **fall short** of a solution  
 **here-and-now**  
-What is Monica's biggest pet peeve  
+What is Monica's biggest **pet peeve**  
 Donald Trump’s executive orders do little for **hard-hit** Americans  
 **long-running** variable/branch  
 **crash**/cram course**  
