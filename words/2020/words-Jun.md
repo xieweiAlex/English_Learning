@@ -95,7 +95,7 @@ Many sectors will be reimagined in the form of human-digital **symbiosis**
 China’s early adoption of automation technologies—and its successful transition from an **impoverished** **agrarian** economy to an industrial powerhouse—means its experience offers valuable lessons.  
 After the second world war, American business practices became the global standard to which all companies around the world **aspired**  
 
-Their intake **orifices** had rocky **pegs**, that would crush them into **paste** -  
+Their intake **orifices** had rocky **pegs**, that would crush them into **paste**  
 They had an entire network that was **devoted** to **dissemination** of pictures of these things  
 we don't have **genitalia**  
 
@@ -260,7 +260,7 @@ She **stayed off** the **claret** for the **main course**.
 The cat **hissed** as the dog came near it.  
 We're **frosting** cupcakes.  
 
-I will not participate in any **malarkey** or **monkeyshines** -  
+I will not participate in any **malarkey** or **monkeyshines**  
 That includes your Irish **chippy**  
 **loaf** of bread  
 **squirt** gun  
@@ -277,7 +277,7 @@ But he sees closer collaboration with **like-minded** countries in the region, i
 A document has a **preamble** and document part  
 
 I'd probably **jab** a **tampon** in it.  
-The **indignant** customer complained to the manager. -  
+The **indignant** customer complained to the manager.  
 Stop **fiddling** with that pen!  
 the legal **tangle** was never really **unravelled**.  
 a dull **thud**  

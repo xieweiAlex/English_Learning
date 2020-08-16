@@ -1,8 +1,56 @@
 ## August 
 
-chiseled  
+**paltry**
 
-charismatic  
+**stamina**
+
+**pathogen**
+
+**articulate** 
+
+**demeanor**, **misdemeanor**
+
+**rhyme**, **rhythm**  
+
+**tenderloin**, **filet**  
+
+**carnivore**, **herbivore**, **omnivore**  
+
+**indignant**, **indigenous** 
+
+**remark**
+
+**tranquility**  
+
+**inoculate**  
+
+**digress**
+
+**deteriorate**  
+
+**metropolis**  
+
+**strengthen**
+
+**apparatus**,  **asparagus**  
+
+**finite**  
+
+**punctual**, **punctuality**
+
+**synchronous**, **synchronize**
+
+**complemental**, **supplemental** 
+
+**propagate**
+
+**divisive**, **decisive**  
+
+**collateral** damage 
+
+**chiseled**  
+
+**charismatic**  
 
 **paralyzed**
 

@@ -1,6 +1,6 @@
 
-### Amazon documentary
-
+### Amazon documentary  
+  
 That's a **tall order**  
 I hope your words are **prophetic** once again.  
 Is that an **apt** description of Jeff? -  
@@ -17,15 +17,15 @@ that felt a little more **unsavory**, but that was the business of Amazon.
 **fourfold**  
 We're going to **forego** profits, in order to take market share.  
 it was very **irksome**, early, big issue for the book vendors  
-he owns the **main street**, not the build on the corner, the entire main street   
-
-### V for Vendetta
+he owns the **main street**, not the building on the corner, the entire main street  
+  
+### V for Vendetta  
 The world's biggest **leper colony**.  
 The only **verdict** is **vengeance**, a **vendetta**, held as a **votive** not **in vain**, for the value and **veracity** of such shall one day **vindicate** the **vigilant** and the **virtuous**.  
 **Verily**, the **vichyssoise** of **verbiage** **veers** most **verbose**.  
 first, the **overture**  
 Here comes **crescendo**!  
-A cow getting **crucified**. It's **hysterical**   
+A cow getting **crucified**. It's **hysterical**  
 The security of the **familiar**, the **tranquility** of repetition.  
 I enjoy them as much as any **bloke**.  
 for those who will listen, the **enunciation** of truth.  
@@ -36,11 +36,11 @@ for obvious reasons, we have to keep this **discreet**
 As only **celluloid** can deliver  
 **reclamation**  
 I'm in need of someone with some **theatrical** skill  
-the security of these information is **paramount**   
+the security of these information is **paramount**  
 You started as a **botanist**, didn't you?  
 **Bonjour**, **mademoiselle**  
 **chemical shed**  
-
+  
 If we're to be prepared for any **eventuality**, then it can't be ignored any longer  
 **airborne** attack  
 a young, **up-and-coming** politician  
@@ -48,9 +48,9 @@ he is completed **single-minded** and has no regard for the political process.
 a memorial is built to **canonize** their victims  
 tonight, we must retain **steadfast**, we must remain determined  
 **bollocks**, what are you gonna do, huh?  
-
-### The Matrix 
-
+  
+### The Matrix  
+  
 the **informant** is real  
 All the time, it's called **mescaline**. It's the only way to fly.  
 You can't scare me with this **gestapo** crap  
@@ -58,8 +58,8 @@ You can't scare me with this **gestapo** crap
 this is a **sparring program**  
 Someone can be **bent**, others and be broken.  
 **Sentient** programs  
-**sentinel** program
-
+**sentinel** program  
+  
 All I see is **Blonde**, **Brunette**, **redhead**.  
 I can arrange a much more personalized **milieu**.  
 you're **right on time**  

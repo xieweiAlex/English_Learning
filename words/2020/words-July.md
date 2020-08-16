@@ -93,7 +93,7 @@ the cheers **drown out** his shouts
 **coronation**, **crowning**  
 **medallion**  
 **cassette** tape  
-I'm sorry, he just makes me so **cranky** -  
+I'm sorry, he just makes me so **cranky**  
 that **puddle** is blocking our way  
 **pedicure** salon  
 let's have a quick **recap**  
@@ -112,10 +112,9 @@ this was the **garter** that I was saving for my wedding
 **cole slaw**, cold **slaw**  
 **purr**  
 **wholesome** personality  
-she's been **flailing** for weeks -  
+she's been **flailing** for weeks  
 **crowbar**  
-**madame**  
-**dressmaker**  
+**dressmaker** -  
 **slumber** party  
 Sleeping Beauty **slumbered** in her forest castle  
   
@@ -124,11 +123,12 @@ His **gracious** manners put me **at ease**
   
 It's important to note that not all male leaders value a **macho** image over saving lives.  
 don't **bank on** a mass **exodus**  
-hiring and onboarding are more **choppy** -  
+hiring and onboarding are more **choppy**  
 **root out** bad behavior  
   
 I had to make a **wee** sacrifice to the great nothing.  
 horse-drawn wagon filled with **bratwurst**.  
+**wurst**  
 Killed by **suffocation** when **encased** in a block of **gelatin** -  
 Russian **aristocracy**  
 killed by marathon **fornication** with four **Viennese** **prostitutes**.  
@@ -138,7 +138,6 @@ it's a fine ship, **top of line**
 **prep** for **evac**  
   
 ## Week 4  
-  
 His words **stamped** him to be a **bigot**.  
 He is **up for grabs**  
 **lukewarm** water  
@@ -154,7 +153,7 @@ It's like a digital **purgatory** -
 call his **bluff**  
 he will **turn up**  
 **superstitious** people  
-I dont' want to **disabuse** their believes -  
+I dont' want to **disabuse** their believes  
 recalled by the **lead paint**  
 **dodge ball**  
 **exclusionary**  
@@ -195,7 +194,7 @@ the New York stock exchange made a **concerted effort** to **tempt** small inves
 **poles apart**  
   
 In the 1970s and early 1980s the **holy grail** was to end **stagflation**  
-we dig into the **causes** of America’s **runaway** **caseload** of covid-19—and how it depends on **geometric** growth -  
+we dig into the **causes** of America’s **runaway** **caseload** of covid-19—and how it depends on **geometric** growth  
 Bacon has **streaks** of fat and **streaks** of lean  
 This week we have a film on its impact on American stockmarkets, and why they have enjoyed a record-breaking **streak** even though the country faces the deepest recession in living memory.  
 Binyamin Netanyahu **boasted** too soon of defeating the coronavirus  
@@ -542,7 +541,7 @@ If the outbreak does not slow soon, even Wall Street’s bulls may start having 
 Many believe Mr Barr has failed to **live up to** those words, and that he has turned his Justice Department (DoJ) into a political instrument to protect Mr Trump and his allies  
 to seek a sentence below the Guidelines in a case where the **defendant** went to trial and remained **unrepentant**”, as Mr Stone did  
 He also argued that the DoJ’s **ostensible** reasons for dismissal were “**pretextual**...riddled with **inexplicable** and **elementary errors** of law and fact  
-If a party can establish a **prima facie** case for the **proffered** evidence, the opposing party must prove that these reasons were "**pretextual**" or false -  
+If a party can establish a **prima facie** case for the **proffered** evidence, the opposing party must prove that these reasons were "**pretextual**" or false  
 **appellate** judges  
 Mr Berman released a combative statement announcing that in fact he had “no intention of resigning” before a Senate-confirmed **appointee** took his place. Mr Trump then **sacked** him  
 The reason for Mr Berman’s **ouster** remains unclear  
