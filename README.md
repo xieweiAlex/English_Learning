@@ -1,6 +1,6 @@
 # English_Learning
   
-Expanding English vocabulary for a non native-speaker is a tedious and time-consuming journey, are you with me 🤔? I try to record the **words or phrases** I encounter very day with some necessary context, hope it can make my English learning journey easier and more delight, and hopefully it can inspire someone else, that's even better ✊.  
+Expanding English vocabulary for a non native-speaker is tedious and time-consuming, are you with me 🤔? I try to record the **words or phrases** I encounter every day with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and hopefully if it can inspire someone else, that's even better ✊.  
 
 ## Special Review 🐗   
 
