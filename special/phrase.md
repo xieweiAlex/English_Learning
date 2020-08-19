@@ -1,4 +1,14 @@
 
+the art of **comeback**  
+
+This is a **one-two punch**  
+Our routines may be a little **out of whack**, but at least the Earth still revolves around the Sun
+
+pipe dream  
+I know that's a long shot
+
+The runner up was miss USA, Nia Sanchez.  
+
 you threw a **full-on** **tantrum**  
 
 Would you really **stoop** this low, Ford?  

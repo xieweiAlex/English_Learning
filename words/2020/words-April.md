@@ -251,7 +251,7 @@ Your faith in my brother is **touching**
 
 **slush fund**  
 The snow had turned to **slush**  
-Her eyes/pupils **dilated** with terror -  
+Her eyes/pupils **dilated** with terror  
 There are some drifting **petals** in that river.  
 **cleric**: a clergyman or other person in religious orders  
 You honor me, sir, she **murmured** sweetly.  

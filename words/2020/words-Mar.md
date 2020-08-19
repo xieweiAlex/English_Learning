@@ -250,25 +250,6 @@ Beans, **maize**, pasture for animals, nothing stands a chance
 
 **acid test**  
 
-I doubt they'll **kick up** any **fuss**.  
-I'm gonna go **pinch of a loaf**. When I come back this is all gone, all right?  
-This pool of slave labor you got, you can **underbid** any contractor in town.  
-If I don't get it, I **go under**, that's a fact  
-I **conjured** him **out of thin air**  
-They're gonna **wind up** chasing a **figment** of my imagination  
-On a **two-year stretch** for **B&E**  
-Big, **twitchy**, fucker  
-Kind of **roomie** you pray you don't get.  
-some **hotshot** banker  
-He hears your **tale of woe** and quite naturally wants to **cheer you up**.  
-How can you be so **obtuse**?  
-I'd be just as **indictable** as you for laundering that money  
-But I **wound up** here, bad luck I guess  
-This is just shitty **pipe dreams**  
-Every man has his **breaking point**.  
-**much obliged**  
-
-
 **home stretch**   
 Rule number 1, no **blasphemy**  
 Don't you listen to these **nitwits**, you here me?  

@@ -18,6 +18,26 @@ We're going to **forego** profits, in order to take market share.
 it was very **irksome**, early, big issue for the book vendors  
 he owns the **main street**, not the building on the corner, the entire main street  
    
+### The Shawshank redemption 
+I doubt they'll **kick up** any **fuss**.  
+I'm gonna go **pinch of a loaf**. When I come back this is all gone, all right?  
+This pool of slave labor you got, you can **underbid** any contractor in town.  
+If I don't get it, I **go under**, that's a fact  
+I **conjured** him **out of thin air** -  
+They're gonna **wind up** chasing a **figment** of my imagination -  
+On a **two-year stretch** for **B&E** -  
+Big, **twitchy**, fucker  
+Kind of **roomie** you pray you don't get.  
+some **hotshot** banker  
+He hears your **tale of woe** and quite naturally wants to **cheer you up**. -  
+How can you be so **obtuse**?  
+I'd be just as **indictable** as you for laundering that money  
+But I **wound up** here, bad luck I guess -  
+This is just shitty **pipe dreams**  
+Every man has his **breaking point**.  
+**much obliged**  
+
+
 ### V for Vendetta  
 The world's biggest **leper colony**.  
 The only **verdict** is **vengeance**, a **vendetta**, held as a **votive** not **in vain**, for the value and **veracity** of such shall one day **vindicate** the **vigilant** and the **virtuous**.  

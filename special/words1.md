@@ -1,5 +1,17 @@
 ## August 
 
+**pediatric** 
+
+**dilatory** 
+
+**deterministic**, **indeterministic**  
+
+**consonant**, **vowel**  
+
+**canny**, **uncanny**
+
+**calamity**, **fortitude**
+
 **Cynicism** 
 
 **mediterranean**  
@@ -40,7 +52,7 @@
 
 **strengthen**
 
-**apparatus**,  **asparagus**  
+**apparatus**, **asparagus**  
 
 **finite**  
 
@@ -84,9 +96,9 @@
 
 **flummox**
 
-**plume**
-
 **ostrich**
+
+**plume**
 
 **Proceed** 
 
