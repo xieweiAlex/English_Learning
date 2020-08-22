@@ -1,4 +1,49 @@
 
+
+### American's great divide 
+I mean, just the way he spoke was so compelling and so dynamic and so **magnetizing**.  
+Most people aren’t **hyperpartisan**.  
+You know, that version of Sarah Palin was **electrifying**.  
+She wasn’t too **highbrow**.  
+And that was a direct appeal to that voting **bloc** that did **wind up** putting him in office.  
+I was **anchoring** in the beginning of the day and the **midday** for most of that.  
+Fox News has **cornered the market** on half of the country's television viewers.  
+He got a regular **gig** with Fox and Friends.  
+So even back then, he was **media-savvy**.  
+No. He used to **sabre-rattle** a little about it. -  
+because Obama, I think, by most people’s measure, is a good man with policies that led to **mediocre success**. And that have largely been **reversed**.  
+And then Obamacare got **shoved down our throats**, without majority support in the country, which was a huge thing.  
+And Obama was too **cavalier** about it….  
+to **shove it down the throat** of the American people, something that affects one-sixth of the U.S. economy.   
+So I’m **loath** to use the word “lie,” but that was one, and he did it for political purposes.  
+you know, **puffery** about himself or how well he’s doing or someone he loves is doing. -  
+Obama lied to them about something that **struck** at the very heart of their lives, their health care, their relationship with their doctor.  
+But he was being **dismissive** of half the country, whose concerns McCain was trying to raise, right? -  
+There was a **slow boil** going with that group of would-be voters. -  
+But that day, it was just the—it was just a **spectator sport**, you know, of “Look at him.  
+I mean, for me, I was looking at it more from a **journalistic** **standpoint**.
+I mean, Trump has been a huge **boon** to cable news, huge boon. All news. -  
+Trump was very good at **cultivating** relationships.
+and I understood I needed to keep him **at arm’s length**, like you do all the candidates.
+You can be **cordial**; you can be nice; you can be friendly. -  
+But it is, at its heart, an **adversarial** relationship, you know, that of a politician and a reporter.
+It’s **mercenary**.
+He’s—he’s the Republican **front-runner**.”
+And they launched a sort of **three-pronged** war.
+I wasn’t **privy** to that. -  
+I think Ailes would get a little bit more **deferential** to him. -  
+Just give us the **blow-by-blow**, if you don’t mind.
+And everybody had a **binder** like this.
+And Trump had a **binder** like this, right?
+But if you looked through his binder, and I read every page, there was one theme that started to **come through**.
+And my job as the **anchor** was not to go out there and be **Helen of Troy**.
+And if you manage to get past, can you win the general if you’re too **hard-line**?
+Fine. We **forged forward**.
+I don’t judge the viewers. They’re allowed to laugh and have a moment of **levity** if they want. -  
+> what we almost heard him do on that call with the Ukrainian leader, which was: “I’ve been very nice to you, right?  I’ve been very nice to you. Maybe I won’t be.”
+And that’s Trump **in a nutshell**.
+Breitbart decided to **go after** you. What’s the point?  
+
 ### Amazon documentary  
 That's a **tall order**  
 I hope your words are **prophetic** once again.  
@@ -23,7 +68,7 @@ I doubt they'll **kick up** any **fuss**.
 I'm gonna go **pinch of a loaf**. When I come back this is all gone, all right?  
 This pool of slave labor you got, you can **underbid** any contractor in town.  
 If I don't get it, I **go under**, that's a fact  
-I **conjured** him **out of thin air** -  
+I **conjured** him **out of thin air**  
 They're gonna **wind up** chasing a **figment** of my imagination -  
 On a **two-year stretch** for **B&E** -  
 Big, **twitchy**, fucker  
@@ -32,7 +77,7 @@ some **hotshot** banker
 He hears your **tale of woe** and quite naturally wants to **cheer you up**. -  
 How can you be so **obtuse**?  
 I'd be just as **indictable** as you for laundering that money  
-But I **wound up** here, bad luck I guess -  
+But I **wound up** here, bad luck I guess  
 This is just shitty **pipe dreams**  
 Every man has his **breaking point**.  
 **much obliged**  

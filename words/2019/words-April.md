@@ -304,7 +304,7 @@ Geoff is being very **flamboyant** tonight.
 **vice verse**
 It was in **blank verse** that she sang 
 It's possible she considers herself as a **vigilante**  
-A **flimsy** table, a **flimsy** excuse -  
+A **flimsy** table, a **flimsy** excuse  
 **disposable** chopsticks.  
 
 

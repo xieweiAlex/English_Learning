@@ -16,7 +16,7 @@ the coronavirus has **lopped** $460bn from this market value
 **gloomily** predicts that revenues there will fall by 57% in 2020  
 **aeroplanes**  
 Boeing’s situation is made worse by the **protracted** grounding in 2019  
-With so many aircraft sitting idle and balance-sheets in **tatters**, airlines are getting rid of planes -  
+With so many aircraft sitting idle and balance-sheets in **tatters**, airlines are getting rid of planes  
 Airlines, as well as leasing firms, which now own close to half the global fleet, are **contractually** **obliged** to take aircraft **on order**  
 More **assertively**, Airbus’s boss, Guillaume Faury, does not **rule out** suing customers who **renege** on their orders  
 **Rolls-Royce**  
@@ -33,7 +33,7 @@ Alexa is an **ever-present** personal shopping assistant designed to integrate *
    
 It is **not uncommon** to come across engineers **embroiled** in a spirited debate over what technology is best suited for a particular problem or even a make-believe scenario that is better left to the imagination  
 Young people are **flouting** the rules  
-There are also disagreements about an eviction **moratorium** extension -  
+There are also disagreements about an eviction **moratorium** extension  
    
 **cervical vertebra**  
 **cervical discs**  
@@ -50,7 +50,7 @@ he has been in congress **ever since**
 **crony** capitalism  
 **sinister** intentions  
    
-He is wrong to pursue a policy of **arm-twisting** the state's largest companies to contribute to it and for the state to play any role in the building of the housing -  
+He is wrong to pursue a policy of **arm-twisting** the state's largest companies to contribute to it and for the state to play any role in the building of the housing  
 It described US criticism of the new **draft law** as "**utterly** **imperious**, unreasonable and **shameless** -  
 Critics fear it could lead to Hong Kongers being prosecuted - even **retroactively** - for criticising their or the mainland's leadership, joining protests or exercising their current rights under local laws.  
 But its **unpopularity** meant it has never been done - the government tried in 2003 but had to **back down** after protests.  
@@ -114,7 +114,7 @@ this was the **garter** that I was saving for my wedding
 **wholesome** personality  
 she's been **flailing** for weeks  
 **crowbar**  
-**dressmaker** -  
+**dressmaker**  
 **slumber** party  
 Sleeping Beauty **slumbered** in her forest castle  
   
@@ -129,7 +129,7 @@ hiring and onboarding are more **choppy**
 I had to make a **wee** sacrifice to the great nothing.  
 horse-drawn wagon filled with **bratwurst**.  
 **wurst**  
-Killed by **suffocation** when **encased** in a block of **gelatin** -  
+Killed by **suffocation** when **encased** in a block of **gelatin**  
 Russian **aristocracy**  
 killed by marathon **fornication** with four **Viennese** **prostitutes**.  
 I should not **dwell** too much on that  
@@ -143,7 +143,7 @@ He is **up for grabs**
 **lukewarm** water  
 **presumptive** Democratic nominee Joe Biden.  
   
-a cute **barista** -  
+a cute **barista**  
 People tend to not forget their own **blunders**  
 **go-to person**  
 I don't understand, I know he is joking about a **noose** but how does it relate to the chair  
@@ -176,7 +176,7 @@ But his non-violence was not soft or **conciliatory**; it was **adamantine**, **
 He **sought** votes from every **constituency**, blue- and white-collar, Jewish and gay  
 he gave a **stirring** speech on the House floor calling marriage “a basic human right” that should not be denied people just because they happen to be gay  
   
-Even as India **urbanises**, **caste** discrimination remains **rife** -  
+Even as India **urbanises**, **caste** discrimination remains **rife**  
 Cities are segregated, and **inter-caste** marriages are **vanishingly rare**  
 They both happen to be **Dalits**, from the **bottom ranks** of India’s **voluminous** **caste** register  
   
@@ -308,12 +308,12 @@ This man, screamed at me calling me all sorts of names, **stomped down** my fron
 We procrastinate on the most important things in life. Instead we choose to spend our time on the **mundane**  
 And the coolest **preteen** customers who say they’re in no hurry to see “Frozen 2” may end up there, too.  
 The sisters Elsa and Anna, not a male **sidekick**, secured the happily ever after  
-They are **preaching** diversity while doing a great **disservice** to it, let us preach **meritocracy** and be true to it. -  
+They are **preaching** diversity while doing a great **disservice** to it, let us preach **meritocracy** and be true to it.  
 The greatest sin I committed was having the **gall** to tell a woman to "shut her mouth.  
 It’s the difference between **stagnating** and forever growing.  
 Authorities found the girl was severely **malnourished**, living in **filth** and had been isolated for years.  
   
-she was hungry and only allowed to eat a small plate of rice each day alerted investigators in Ohio that something was **amiss** -  
+she was hungry and only allowed to eat a small plate of rice each day alerted investigators in Ohio that something was **amiss**  
 “No way, look at this!” she called out at the sight of a news article about the **whale** near the surfers, recognizing her son as the surfer who **spotted** it and **paddled** away.  
 Many of the online video viewers gave Liam Lawless, who turns 12 next week, **props for** his quick reflexes  
   

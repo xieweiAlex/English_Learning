@@ -51,8 +51,8 @@ Did you **graze** your **penis** against a toilet seat?
 There is a **grotesque** gender **imbalance** in the VC field right now. I can help you navigate the **toxicity** of this male culture which is **encroaching** on our **feminist** island.   
 **Mansplaining** is when a man will **condescendingly** explain something to a woman that she already knows.  
 She has never shown a **proclivity** for getting around infrastructure.  
-he'll come here fix it **posthaste** -  
-I'll **concede** that spending all my time inside of a house with you **scrawny** code jockeys, the incredible shrinking Hendricks... -  
+he'll come here fix it **posthaste**  
+I'll **concede** that spending all my time inside of a house with you **scrawny** code jockeys, the incredible shrinking Hendricks...  
 I'll send him a harshly **worded** **cease and desist** letter.  
 this is a **shakedown**, he's a **crook**.  
 It seems that I've committed the **cardinal sin** of being early.  

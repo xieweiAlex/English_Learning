@@ -1,6 +1,4 @@
 #!/bin/bash 
-
-
 export WORDS_REVIEW="words-review.md"
 
 export files=(
@@ -20,6 +18,7 @@ export files=(
   "./media/GOT/GOT3.md"
   "./media/GOT/GOT2.md"
   "./media/GOT/GOT1.md"
+  "words/2020/words-Aug.md"
   "words/2020/words-July.md"
   "words/2020/words-Jun.md"
   "words/2020/words-May.md"

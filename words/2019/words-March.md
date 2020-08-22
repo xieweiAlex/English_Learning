@@ -205,7 +205,7 @@ He was **reticent** about his opinion
    
 Paul Manafort issued a **full-throated** and blunt apology on Wednesday  
    
-She has proven to have a **vendetta** against @realDonaldTrump & is using her position of power to **baselessly** **smear** the President & the work he’s done for the American people -  
+She has proven to have a **vendetta** against @realDonaldTrump She has proven to have a **vendetta** against @realDonaldTrump & is using her position of power to **baselessly** **smear** the President & the work he’s done for the American people -   is using her position of power to **baselessly** **smear** the President She has proven to have a **vendetta** against @realDonaldTrump & is using her position of power to **baselessly** **smear** the President & the work he’s done for the American people -   the work he’s done for the American people  
    
 Mary, will you just get off your **high horse**?  
 We're creating the largest campaign operation in America history, an unstoppable **apparatus** that will follow and impeachment President Trump's strategy to get effect  
@@ -255,8 +255,8 @@ When someone in president Trump's circle comes under investigation, Trump **down
    
 Overall, this drop shouldn't come as a huge shock, but it likely is sending **shivers** down the spines of many Facebook executives.  
 How often has any huge, profitable enterprise declared it was going to change **course** so decisively.  
-In Facebook’s earliest years, he had an **uncanny** **knack** for understanding what people wanted out of a social network. -  
-That combination of prescience and self-confidence helped Facebook become a **phenomenon** as rivals such as MySpace and Friendster **dwindled** away. -  
+In Facebook’s earliest years, he had an **uncanny** **knack** for understanding what people wanted out of a social network.  
+That combination of prescience and self-confidence helped Facebook become a **phenomenon** as rivals such as MySpace and Friendster **dwindled** away.  
    
 > “While we teach, we learn,” said the Roman philosopher Seneca.  
  

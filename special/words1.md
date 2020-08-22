@@ -1,5 +1,22 @@
 ## August 
 
+accrue  
+curated  
+
+**pathological**  
+
+**gravitate**
+
+**commanding height**, **commanding role**  
+
+**cramming**
+
+**post mortem**  
+
+**altruistic**, **altruism**  
+
+**laborious**  
+
 **pediatric** 
 
 **dilatory** 
@@ -66,7 +83,7 @@
 
 **divisive**, **decisive**  
 
-**collateral** damage 
+**collateral damage** 
 
 **chiseled**  
 

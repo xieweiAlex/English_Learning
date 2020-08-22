@@ -1,4 +1,6 @@
 
+* Helen of Troy
+* Motto vs maxim  
 * contemplate 
 * superfluous vs redundant 
 * Asphyxia vs suffocate 
