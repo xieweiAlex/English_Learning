@@ -1,62 +1,58 @@
 
 pile up  
-
 to **stave off** hunger/illness -  
-
-you're **kindred spirit**, you have lots **in common**   
+you're **kindred spirit**, you have lots **in common**  
 I knew you two would **hit it off**.  
 You tell Seppen that and Pied-Piper's off **scot-free**  
-
+  
 the Optimoji guys have really **stepped up** their game, you guys have kind of been **flagging**.  
 I don't need those **bells and whistles**  
 the feature bloated IDE Emacs is rather of **off-putting**  
-
-and I understood I needed to keep him **at arm’s length**, like you do all the candidates.
+and I understood I needed to keep him **at arm’s length**, like you do all the candidates.  
 And then Obamacare got **shoved down our throats**, without majority support in the country, which was a huge thing.  
-Just give us the **blow-by-blow**, if you don’t mind.
-But if you looked through his binder, and I read every page, there was one theme that started to **come through**.
-And my job as the **anchor** was not to go out there and be **Helen of Troy**.
-And if you manage to get past, can you win the general if you’re too **hard-line**?
-And that’s Trump **in a nutshell**.
+Just give us the **blow-by-blow**, if you don’t mind.  
+But if you looked through his binder, and I read every page, there was one theme that started to **come through**.  
+And my job as the **anchor** was not to go out there and be **Helen of Troy**.  
+And if you manage to get past, can you win the general if you’re too **hard-line**?  
+And that’s Trump **in a nutshell**.  
 Breitbart decided to **go after** you. What’s the point?  
-
-**nip it in the bud** 
+  
+**nip it in the bud**  
 **nip and tuck** -  
-
+  
 **double down**  
 He hears your **tale of woe** and quite naturally wants to **cheer you up**. -  
-I can't **pin you down** 
+I can't **pin you down**  
 I **conjured** him **out of thin air** -  
 They're gonna **wind up** chasing a **figment** of my imagination -  
-
+  
 **over-the-ear**  
-
 we recommend the tactile Cherry MX Browns a great **all-around** switch.  
 Come on, let's **call a spade a spade**  
 Animals don't have three legs because they would **fall over**  
-
+  
 You'll never even double the "throughput" of that "channel", **let alone** improve it by an **order of magnitude**  
-
+  
 the art of **comeback**  
-
+  
 This is a **one-two punch**  
-Our routines may be a little **out of whack**, but at least the Earth still revolves around the Sun
-
+Our routines may be a little **out of whack**, but at least the Earth still revolves around the Sun  
+  
 **pipe dream**  
-I know that's **a long shot**
+I know that's **a long shot**  
 The **runner up** was miss USA, Nia Sanchez.  
-
+  
 you threw a **full-on** **tantrum**  
-
+  
 Would you really **stoop** this low, Ford?  
-
+  
 If you **twist my arm** I'll stay for another drink  
 I liked these **glimpses** of life **from all over**  
    
 She was small, shy, and **unassuming**, but she seemed to understand that these qualities could put people **at ease**  
    
 **take up**  
-
+  
 Zumper does not foresee a **bounce back** in the rental rate **any time soon**  
 Big Tech pledged a billion to racial justice, but it was **pocket change**  
 **long-winded**  

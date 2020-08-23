@@ -1,23 +1,23 @@
 
 Filesystems in the Kubernetes container provide **ephemeral** storage, by default  
 **hypervisor**  
-
+  
 get too comfortable, you **doze off**  
-
+  
 We’re not going back to the lockdown days of balcony **singalongs**  
-It's always great to get **testimonials** from readers, and I would love one from you.
+It's always great to get **testimonials** from readers, and I would love one from you.  
 **bezel** -  
-
-virus **buster**   
-**busty**
+  
+virus **buster**  
+**busty**  
 Maybe you should put on that **bustier**.  
-
-**twitchy**: nervously on edge or fretful
+  
+**twitchy**: nervously on edge or fretful  
 cultural **devolution**  
 I'm **gravitating** back to Vim after 6 months  
 the feature **bloated** IDE Emacs is rather **off-putting**  
 I don't need those **bells and whistles**  
-
+  
 The burgers smell **iffy**  
 **skylight**: a window in a root to **admit** daylight  
 they regard us all as **pagans** -  
@@ -26,19 +26,19 @@ she has built up an **enviable** reputation as a **harpist**
 **nip in the bud**  
 I will **nip out** and buy a newspaper  
 the old **maxim**: "the customer is always right".  
-
+  
 they saw a generation of Republican politicians who **knowtowed** to Fox News, who **genuflected**.  
 Then they saw somebody **take on** Fox News, and Trump won.  
 he's the gift that keeps on giving women the **creeps**.  
 it was **jarring**  
-
-
+  
+  
 **courier** service  
 **Mutinous** soldiers have **toppled** the president. They may have more trouble dealing with protesters and **jihadists**  
-
+  
 **freudian**  
 we recommend the **tactile** Cherry MX Browns a great **all-around** switch.  
-
+  
 Potato **chipper**  
 **Muggers** jumped him in the park  
 Birds **flit** about in the sky -  
@@ -51,7 +51,7 @@ artificial **insemination**
 **villager**  
 **obituary** notice -  
 the troops were disposed in battle **formation**  
-**tranquilizer**
+**tranquilizer**  
 **pinecone**  
 she **garbled** all the historical facts -  
 **turtleneck**  
@@ -61,25 +61,25 @@ you really believe I would **stoop** so low?
 These **foothills** have been farmed out with tobacco.  
 **gynecologist**  
 **cabanas** pool party  
-
+  
 The laws are **shackles** to be broken.  
 **strip mall**  
-
+  
 Evelyn **ducked** in under the door and noticed a guy in workout clothes conducting a training and a small group of other guys in the back  
 What Evelyn uncovered can only be described as a **speakeasy** gym  
 she found it was either too expensive or impossible to obtain because everything was **backordered**  
-
-
+  
+  
 I'm not very **photogenic**.  
 Animals don't have three legs because they would **fall over**  
 If you swim in a **chlorinated** pool, goggles are a must to prevent eye irritation and to help you see better in the water -  
 Beginners waste a lot of energy **flailing** and **splashing** around rather than moving forward  
-
+  
 it is the biggest **quantum leap** in the **ergonomic** experience of interacting with a computer I have seen since learning Vim  
 You'll never even double the "throughput" of that "channel", **let alone** improve it by an **order of magnitude**  
 Our teacher was a **wizened** old secretary that for a considerable portion of her career used a non-electric typewriter  
 it took me about two weeks to where I wasn't completely **fumbling** around -  
-
+  
 **Chatter box**  
 We got great **lineup** in front of us  
 He suffered a long series of illnesses with tremendous dignity and **fortitude**  
@@ -87,26 +87,26 @@ He suffered a long series of illnesses with tremendous dignity and **fortitude**
 
 The candidate made surprising **inroads** in the South  
 He has a security clearance that allows him access to **classified** information  
-
+  
 alliances must often be sealed in **matrimony**.  
-
-## Week 2 ## 
+  
+## Week 2 ##  
 The Herman Miller Embody Chair ..., it will give you the longest **mileage** for sustained comfort and back support, **albeit** at a steep price.  
 protect wrist **commendably** -  
-
+  
 Nozzle **orifice**  
 He builds furniture using wooden **pegs** instead of nails  
 The monks lived a very **ascetic** life. -  
-  
+   
 his house is an **eclectic** mix of modern furnishings and **antiques** -  
 I enjoy acting as an **emcee** of many lectures and evenings  
 Love is a **potion** of **philter** God-made -  
-  
+   
 While natural light is great, too much of it can turn your home into a **sauna** during the summer months  
 **oscillate**  
 **Freon**-free **evaporative** cooler  
 **vaseline**, **Petroleum** jelly, **petrolatum**  
-  
+   
 I knew then that my days as an **omnivore** were **numbered**.  
 The **blocky** machine stood about **chest-high**  
 That week, China's borders were closed to foreigners, and the evacuations **reversed** direction  
