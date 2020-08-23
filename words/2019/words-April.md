@@ -159,7 +159,7 @@ Intelligence warning allegedly went **unheeded** before the bombings in Sri Lank
 
 
 **Stomp** to death  
-**Crusaders** were offered a **plenary** indulgence by the **Pope**.  -  
+**Crusaders** were offered a **plenary** indulgence by the **Pope**.  
 a diplomat with **plenary** powers -
 **gene mutation**  
 **officialdom**  
@@ -170,7 +170,7 @@ except for the beta testers who **miraculously** had a different experience then
 
 He went to a **psychiatrist** about this compulsive gambling.  
 She **sneered** at their bad taste  
-knowledge will **accrue** to you from reading. -  
+knowledge will **accrue** to you from reading.  
 The interest **accrued** over the months.   
 **insolvency**  
 You need to **unwind** and let yourself go.  
@@ -274,7 +274,7 @@ There will be an **uprising**
 > "Fire in the hole" is a warning that an explosive **detonation** in a **confined** space is **imminent**. It originated with miners, who needed to warn their fellows that a charge had been set.
 
 
-Configuration files for terminal programs — generally called dotfiles — are much more **amicable** than configuration files for IDEs -  
+Configuration files for terminal programs — generally called dotfiles — are much more **amicable** than configuration files for IDEs  
 
 **Notre Dame Cathedral**  
 

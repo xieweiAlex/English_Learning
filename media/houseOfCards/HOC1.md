@@ -32,8 +32,5 @@ Is **foreplay** over?
 Washington **herald**  
 I made that **neat**, did you want ...  
 I'm the **whip**, it's my job to know.  
-
 On the other hand, girls learn to be **deferential**, and anger is incompatible with **deference**.  
-
-
 

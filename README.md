@@ -20,7 +20,7 @@ Expanding English vocabulary for a non native-speaker is tedious and time-consum
 [S1](./media/westWorld/ww1.md) | [S2](./media/westWorld/ww2.md) | [S3](./media/westWorld/ww3.md)  
 
 ### Silicon Valley 🐨
-[S3](./media/siliconValley/sv3.md) | [S4](./media/siliconValley/sv4.md) 
+[S3](./media/siliconValley/sv3.md) | [S4](./media/siliconValley/sv4.md)| [S5](./media/siliconValley/sv5.md) 
 
 ### Game of Thrones 👑
 [S2](./media/GOT/GOT2.md) | [S3](./media/GOT/GOT3.md) | [S4](./media/GOT/GOT4.md) | [S5](./media/GOT/GOT5.md)  | [S6](./media/GOT/GOT6.md)  | [S7](./media/GOT/GOT7.md)  | [S8](./media/GOT/GOT8.md)  

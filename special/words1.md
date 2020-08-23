@@ -1,7 +1,8 @@
 ## August 
 
-accrue  
-curated  
+**volatile**  
+
+**accrue**, **curated**  
 
 **pathological**  
 

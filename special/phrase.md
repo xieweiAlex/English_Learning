@@ -1,4 +1,8 @@
 
+pile up  
+
+to **stave off** hunger/illness -  
+
 you're **kindred spirit**, you have lots **in common**   
 I knew you two would **hit it off**.  
 You tell Seppen that and Pied-Piper's off **scot-free**  

@@ -1,4 +1,17 @@
 
+Filesystems in the Kubernetes container provide **ephemeral** storage, by default  
+**hypervisor**  
+
+get too comfortable, you **doze off**  
+
+We’re not going back to the lockdown days of balcony **singalongs**  
+It's always great to get **testimonials** from readers, and I would love one from you.
+**bezel** -  
+
+virus **buster**   
+**busty**
+Maybe you should put on that **bustier**.  
+
 **twitchy**: nervously on edge or fretful
 cultural **devolution**  
 I'm **gravitating** back to Vim after 6 months  
@@ -140,7 +153,7 @@ The definition of **snarky** is someone who is **cranky**, **snide** or sarcasti
 He made a **snide** comment about her weight  
    
 **boomerang** effect  
-they give you a **rosier** view of future -  
+they give you a **rosier** view of future  
 **bleaker view**  
    
 Donald Trump’s executive orders do little for **hard-hit** Americans  
@@ -155,7 +168,7 @@ I've often thought of taking out a series of newspaper ads encouraging the **abo
 **Perseus** **meteor** shower  
 Languages were never my **forte**  
    
-**laminated** glass, **laminated** plate -  
+**laminated** glass, **laminated** plate  
 **filet mignon**  
 she wore a string of **beads** round her neck  
 a band of grey hair **encircled** his bald **dome**  
@@ -173,7 +186,7 @@ he had an **acrimonious** quarrel with his girlfriend yesterday
    
 This year the airline will be **hard-pressed** to make a profit.  
 **ice shelf**  
-Economy **reprise** -  
+Economy **reprise**  
 **pinguin** advocate  
    
 ## Week 1 ##  
@@ -218,7 +231,7 @@ led to the university's **distinguished** record of Nobel-level scholarship, con
 **Rectal** bleeding  
 Iron deficiency **anemia**  
    
-We're going to the **trampoline** park -  
+We're going to the **trampoline** park  
 that girl **eloped** with her lover.  
 **flip-flop**  
 the show was a **flop**  

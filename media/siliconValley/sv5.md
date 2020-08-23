@@ -37,7 +37,7 @@ Hoove, you're **implicating** me
 I might be **twitchy**, I might **defecate** in my pants, and I might throw myself through a window  
 
 ## E 1 
-it's hard to believe your **pathological** inability to make a decision finally **paid off**. -  
+it's hard to believe your **pathological** inability to make a decision finally **paid off**.  
 this is a fucking **black site**  
 **geneva convention**  
 there is no point **whispering**, we can hear every fucking word you say in this **sweatbox**  

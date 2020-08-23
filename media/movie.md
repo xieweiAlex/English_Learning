@@ -47,8 +47,8 @@ Breitbart decided to **go after** you. What’s the point?
 ### Amazon documentary  
 That's a **tall order**  
 I hope your words are **prophetic** once again.  
-Is that an **apt** description of Jeff? -  
-it didn't take long for Bezos' vision to prove **prescient** -  
+Is that an **apt** description of Jeff?  
+it didn't take long for Bezos' vision to prove **prescient**  
 He was a small, **nondescript**, **sandy-haired** man setting on the desk  
 **eruptive** laugh  
 **napoleonic** ambition  
@@ -69,12 +69,12 @@ I'm gonna go **pinch of a loaf**. When I come back this is all gone, all right?
 This pool of slave labor you got, you can **underbid** any contractor in town.  
 If I don't get it, I **go under**, that's a fact  
 I **conjured** him **out of thin air**  
-They're gonna **wind up** chasing a **figment** of my imagination -  
-On a **two-year stretch** for **B&E** -  
+They're gonna **wind up** chasing a **figment** of my imagination  
+On a **two-year stretch** for **BOn a **two-year stretch** for **B&E** -  E**  
 Big, **twitchy**, fucker  
 Kind of **roomie** you pray you don't get.  
 some **hotshot** banker  
-He hears your **tale of woe** and quite naturally wants to **cheer you up**. -  
+He hears your **tale of woe** and quite naturally wants to **cheer you up**.  
 How can you be so **obtuse**?  
 I'd be just as **indictable** as you for laundering that money  
 But I **wound up** here, bad luck I guess  
