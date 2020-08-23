@@ -5,6 +5,23 @@ source "./variable.sh"
 # 2+ * & 1+ letter & .* & ends either 0 to 5 white space or line change  
 PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 
+# test_file="./media/houseOfCards/HOC1.md"
+function countWords {
+
+  total_count=0
+  for file_path in "${files[@]}"; do 
+    echo "path: $file_path"
+    while read -r line; do
+      count=$(./count.py "$line")
+      # echo "count: $count"
+      total_count=$(( total_count + count ))
+    done <"$file_path"
+
+    echo "total count: $total_count"
+  done 
+
+}
+
 function getNewWords {
   for file_path in "${files[@]}"
   do 
@@ -104,6 +121,8 @@ then
 
   echo -e "${GREEN}Get new words for various resources to WORDS_REVIEW file.${NC}"
   getNewWords
+elif [[ "$action" == 'countWords' ]]; then
+  countWords
 elif [[ "$action" == 'pushBack' || "$action" == 'push' ]]; then
   pushBack
 elif [[ $action == 'update' ]]; then
