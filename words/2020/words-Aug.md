@@ -1,4 +1,12 @@
 
+## Week 3 ##
+
+There's tons of flavor the mired reactions really work to caramelize the beef here.  
+
+
+Don't use alcohol or sedatives to initiate a nap  
+sleep-deprived  
+
 Filesystems in the Kubernetes container provide **ephemeral** storage, by default  
 **hypervisor**  
   
@@ -31,7 +39,6 @@ they saw a generation of Republican politicians who **knowtowed** to Fox News, w
 Then they saw somebody **take on** Fox News, and Trump won.  
 he's the gift that keeps on giving women the **creeps**.  
 it was **jarring**  
-  
   
 **courier** service  
 **Mutinous** soldiers have **toppled** the president. They may have more trouble dealing with protesters and **jihadists**  

@@ -4,18 +4,15 @@ import sys
 import re
 import os
 
-line = sys.argv[1]
-# line = "the feature **bloated** IDE Emacs is rather **off-putting**"
-# line = "**bloated** IDE Emacs is"
-# line = "asdfasdf asdf sad fasdf as dfasd f"
-# print ('The line is: ', line)
+file_path = sys.argv[1]
+
+file = open(file_path,mode='r')
+content = file.read()
+file.close()
 
 pattern = "\*\*[^*]*\*\*"
-matches = re.findall(pattern, line)
-# print("the matches is: ", matches)
+matches = re.findall(pattern, content)
 count = len(matches)
 print(count)
 # os._exit(count)
-
-
 

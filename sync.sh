@@ -10,16 +10,13 @@ function countWords {
 
   total_count=0
   for file_path in "${files[@]}"; do 
-    echo "path: $file_path"
-    while read -r line; do
-      count=$(./count.py "$line")
-      # echo "count: $count"
-      total_count=$(( total_count + count ))
-    done <"$file_path"
+    echo "File path: $file_path"
 
-    echo "total count: $total_count"
+    count=$(./count.py $file_path)
+    echo -e "Current count: ${GREEN} $count ${NC}"
+    total_count=$(( total_count + count ))
+    echo -e "total count: ${YELLOW} $total_count ${NC}"
   done 
-
 }
 
 function getNewWords {
