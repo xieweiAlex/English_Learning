@@ -17,10 +17,10 @@ So I’m **loath** to use the word “lie,” but that was one, and he did it fo
 you know, **puffery** about himself or how well he’s doing or someone he loves is doing. -  
 Obama lied to them about something that **struck** at the very heart of their lives, their health care, their relationship with their doctor.  
 But he was being **dismissive** of half the country, whose concerns McCain was trying to raise, right? -  
-There was a **slow boil** going with that group of would-be voters. -  
+There was a **slow boil** going with that group of would-be voters.  
 But that day, it was just the—it was just a **spectator sport**, you know, of “Look at him.  
 I mean, for me, I was looking at it more from a **journalistic** **standpoint**.  
-I mean, Trump has been a huge **boon** to cable news, huge boon. All news. -  
+I mean, Trump has been a huge **boon** to cable news, huge boon. All news.  
 Trump was very good at **cultivating** relationships.  
 and I understood I needed to keep him **at arm’s length**, like you do all the candidates.  
 You can be **cordial**; you can be nice; you can be friendly. -  
@@ -28,8 +28,8 @@ But it is, at its heart, an **adversarial** relationship, you know, that of a po
 It’s **mercenary**.  
 He’s—he’s the Republican **front-runner**.”  
 And they launched a sort of **three-pronged** war.  
-I wasn’t **privy** to that. -  
-I think Ailes would get a little bit more **deferential** to him. -  
+I wasn’t **privy** to that.  
+I think Ailes would get a little bit more **deferential** to him.  
 Just give us the **blow-by-blow**, if you don’t mind.  
 And everybody had a **binder** like this.  
 And Trump had a **binder** like this, right?  

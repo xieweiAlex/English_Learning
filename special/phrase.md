@@ -1,4 +1,11 @@
 
+cost **an arm and a leg**
+
+thankfully, she never **followed through**  
+The malaria results have certainly been **well-received**.  
+**rabbit hole**  
+**a towering figure**  
+
 pile up  
 to **stave off** hunger/illness -  
 you're **kindred spirit**, you have lots **in common**  

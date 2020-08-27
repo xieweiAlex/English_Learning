@@ -84,7 +84,7 @@ I don't **condone**, support or promote the regime of North Korea in any matter.
 **Budget tour**  
 He was healthy but **distraught**, pleading for **leniency** in a North Korea court 
 
-**Calamari** is a **culinary** name for **squid**, especially for dishes from the **Mediterranean**, notably fried squid (fried calamari) -  
+**Calamari** is a **culinary** name for **squid**, especially for dishes from the **Mediterranean**, notably fried squid (fried calamari)  
 
 A **conciliatory** approach.  
 Did you take part in the **brawl** yesterday?  
@@ -128,7 +128,7 @@ are some of the most **susceptible** to burnout and what psychologists call comp
 These interviews felt like tests, and more than that, they felt **orthogonal** to the work that I would actually end up doing  
 
 **Ornate** Victorian houses  
-We can't ignore the **plight** of **crippling** homelessness crisis -  
+We can't ignore the **plight** of **crippling** homelessness crisis  
 **inconsequential** to the city.  
 Minority and poor neighborhoods are already being swallowed up by **gentrification** in other parts of city.  
 
@@ -221,7 +221,7 @@ an innumerable **throng** of people
 His **robs** were **splendid**  
 The only way to curb this **unruly** mob is to use tear gas.  
 **demolition** blasting  
-They took bloody **reprisals** against the leaders. -  
+They took bloody **reprisals** against the leaders.  
 
 **propelled**  
 The **arson** is professional.  

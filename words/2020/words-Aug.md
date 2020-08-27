@@ -1,20 +1,39 @@
 
+He had never known him to be so chatty and cordial.  
+
+**bespoke hardware** -  
+I'll show you how easy it is to regrow an (almost) endless supply of fresh green onions from kitchen **scraps**  
+**scallion**  
+Set on a **windowsill** and keep the roots moist  
+**potting soil**  
+you can use the **flavorful** blossoms in salads  
+
+the boy **scapped** the mud from his shoes  
+**erogenous** beauty -  
+throughout the crisis he retained his **composure**  
+**bar mitzvah**  
+**tombstone**, **headstone**, **graveyard**   
+I **ransacked** the house looking for my purse  
+riots **ransacked** the shops  
+She left the room, put on her garden **bonnet** and **cloak**, and went out.  
+**peephole**, **spyhole**  
+Email is the **mother of all** **habit-forming** products  
+
 ## Week 3 ##
 
-There's tons of flavor the mired reactions really work to caramelize the beef here.  
+There's tons of flavor the **mired** reactions really work to **caramelize** the beef here. -  
 
-
-Don't use alcohol or sedatives to initiate a nap  
-sleep-deprived  
+Don't use alcohol or **sedatives** to initiate a nap  
+**sleep-deprived**  
 
 Filesystems in the Kubernetes container provide **ephemeral** storage, by default  
 **hypervisor**  
   
 get too comfortable, you **doze off**  
   
-We’re not going back to the lockdown days of balcony **singalongs**  
+We’re not going back to the lockdown days of **balcony** **singalongs**  
 It's always great to get **testimonials** from readers, and I would love one from you.  
-**bezel** -  
+**bezel**  
   
 virus **buster**  
 **busty**  
@@ -48,7 +67,7 @@ we recommend the **tactile** Cherry MX Browns a great **all-around** switch.
   
 Potato **chipper**  
 **Muggers** jumped him in the park  
-Birds **flit** about in the sky -  
+Birds **flit** about in the sky  
 He's prone to **flit** between subjects with amazing ease.  
 the company is in **dire** need  
 we were **massacred** in the final  
@@ -59,14 +78,14 @@ artificial **insemination**
 **obituary** notice -  
 the troops were disposed in battle **formation**  
 **tranquilizer**  
-**pinecone**  
-she **garbled** all the historical facts -  
+**pinecone** -  
+she **garbled** all the historical facts  
 **turtleneck**  
 **kinky** underwear  
 urban **landscaping**  
 you really believe I would **stoop** so low?  
 These **foothills** have been farmed out with tobacco.  
-**gynecologist**  
+**gynecologist** -  
 **cabanas** pool party  
   
 The laws are **shackles** to be broken.  
@@ -79,13 +98,13 @@ she found it was either too expensive or impossible to obtain because everything
   
 I'm not very **photogenic**.  
 Animals don't have three legs because they would **fall over**  
-If you swim in a **chlorinated** pool, goggles are a must to prevent eye irritation and to help you see better in the water -  
+If you swim in a **chlorinated** pool, goggles are a must to prevent eye irritation and to help you see better in the water  
 Beginners waste a lot of energy **flailing** and **splashing** around rather than moving forward  
   
 it is the biggest **quantum leap** in the **ergonomic** experience of interacting with a computer I have seen since learning Vim  
 You'll never even double the "throughput" of that "channel", **let alone** improve it by an **order of magnitude**  
 Our teacher was a **wizened** old secretary that for a considerable portion of her career used a non-electric typewriter  
-it took me about two weeks to where I wasn't completely **fumbling** around -  
+it took me about two weeks to where I wasn't completely **fumbling** around  
   
 **Chatter box**  
 We got great **lineup** in front of us  
@@ -105,7 +124,7 @@ Nozzle **orifice**
 He builds furniture using wooden **pegs** instead of nails  
 The monks lived a very **ascetic** life. -  
    
-his house is an **eclectic** mix of modern furnishings and **antiques** -  
+his house is an **eclectic** mix of modern furnishings and **antiques**  
 I enjoy acting as an **emcee** of many lectures and evenings  
 Love is a **potion** of **philter** God-made -  
    
@@ -182,7 +201,7 @@ a band of grey hair **encircled** his bald **dome**
 she appeared in a **slinky** **satin** dress  
 **slinky** is toy, a **precompressed** **helical** spring -  
 To me, Lady Mary is an **uppity** **minx**. -  
-my **feral** little **minx** -  
+my **feral** little **minx**  
 **aerobic** exercise  
 social **phobia**  
 **itinerary**  
@@ -214,7 +233,7 @@ She had **niggling doubts** about their relationship
 **beret**  
 years has **lapsed** since we last met  
 **medallion**  
-the students were in a **lather** over the proposed restrictions -  
+the students were in a **lather** over the proposed restrictions  
 this soap **lathers** so nicely  
 I used stable **muck** as **mulch** for my roses -  
 family **heirloom**  
@@ -250,7 +269,7 @@ Her heart **fluttering** in her chest
 **grazing** land  
 **rummage sale**, **rummage around**  
    
-They **browbeat** him into signing the document -  
+They **browbeat** him into signing the document  
 The cost of repairs would be **prohibitive**.  
 **Scrawny**: (of a person or animal) unattractively thin and **bony**.  
    

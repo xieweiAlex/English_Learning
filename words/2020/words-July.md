@@ -51,7 +51,7 @@ he has been in congress **ever since**
 **sinister** intentions  
    
 He is wrong to pursue a policy of **arm-twisting** the state's largest companies to contribute to it and for the state to play any role in the building of the housing  
-It described US criticism of the new **draft law** as "**utterly** **imperious**, unreasonable and **shameless** -  
+It described US criticism of the new **draft law** as "**utterly** **imperious**, unreasonable and **shameless**  
 Critics fear it could lead to Hong Kongers being prosecuted - even **retroactively** - for criticising their or the mainland's leadership, joining protests or exercising their current rights under local laws.  
 But its **unpopularity** meant it has never been done - the government tried in 2003 but had to **back down** after protests.  
 Twitter Inc. placed a notice on the tweet and **shielded** it from view for breaking what the company said are its rules about **glorifying** violence.  
@@ -264,7 +264,7 @@ Don't give me that **bilge**!
 **werewolf**  
 don't star at her, she will **entrance** you.  
 The men who **perpetrate** evil, but call it progress  
-Some new **high-falutin** **sanitation** law don't mean shit to me, Mr. City Inspector. -  
+Some new **high-falutin** **sanitation** law don't mean shit to me, Mr. City Inspector.  
 It's an absolutely **riveting** tale, Mr. Dvorchack  
 
 highfalutin: expressed in or marked by the use of language that is elaborated or heightened by artificial or empty means : POMPOUS

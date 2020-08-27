@@ -1,154 +1,164 @@
-## August  
-  
+## August 
+
+**plight**
+
+**imperious**
+
+**bespoken**
+
+**upfront** 
+
+**Philistine** 
+
 **volatile**  
-  
-**accrue**, **curated**  
-  
+
+**accrue**  **curated**  
+
 **pathological**  
-  
-**gravitate**  
-  
+
+**gravitate**
+
 **commanding height**, **commanding role**  
-  
-**cramming**  
-  
+
+**cramming**
+
 **post mortem**  
-  
+
 **altruistic**, **altruism**  
-  
+
 **laborious**  
-  
-**pediatric**  
-  
-**dilatory**  
-  
+
+**pediatric** 
+
+**dilatory** 
+
 **deterministic**, **indeterministic**  
-  
+
 **consonant**, **vowel**  
-  
-**canny**, **uncanny**  
-  
-**calamity**, **fortitude**  
-  
-**Cynicism**  
-  
+
+**canny**, **uncanny**
+
+**calamity**, **fortitude**
+
+**Cynicism** 
+
 **mediterranean**  
-  
+
 **copulation**  
-  
+
 **inoculation**  
-  
+
 **sexually precocious**  
-  
-**paltry**  
-  
-**stamina**  
-  
-**pathogen**  
-  
-**articulate**  
-  
-**demeanor**, **misdemeanor**  
-  
+
+**paltry**
+
+**stamina**
+
+**pathogen**
+
+**articulate** 
+
+**demeanor**, **misdemeanor**
+
 **rhyme**, **rhythm**  
-  
+
 **tenderloin**, **filet**  
-  
+
 **carnivore**, **herbivore**, **omnivore**  
-  
-**indignant**, **indigenous**  
-  
-**remark**  
-  
+
+**indignant**, **indigenous** 
+
+**remark**
+
 **tranquility**  
-  
-**digress**  
-  
+
+**digress**
+
 **deteriorate**  
-  
+
 **metropolis**  
-  
-**strengthen**  
-  
+
+**strengthen**
+
 **apparatus**, **asparagus**  
-  
+
 **finite**  
-  
-**punctual**, **punctuality**  
-  
-**synchronous**, **synchronize**  
-  
-**complemental**, **supplemental**  
-  
-**propagate**  
-  
+
+**punctual**, **punctuality**
+
+**synchronous**, **synchronize**
+
+**complemental**, **supplemental** 
+
+**propagate**
+
 **divisive**, **decisive**  
-  
-**collateral damage**  
-  
+
+**collateral damage** 
+
 **chiseled**  
-  
+
 **charismatic**  
-  
-**paralyzed**  
-  
-**molotov cocktail**  
-  
+
+**paralyzed**
+
+**molotov cocktail**
+
 **masculine**, **feminine**, **feline**  
-  
-**canine**  
-  
+
+**canine**
+
 **animosity**  
-  
-**emit**, **omit**  
-  
+
+**emit**, **omit** 
+
 **extrapolate**  
-  
-**conciliatory**  
-  
-**dopamine**  
-  
+
+**conciliatory** 
+
+**dopamine**
+
 **concatenate**  
-  
-**crocodile**  
-  
-**flummox**  
-  
-**ostrich**  
-  
-**plume**  
-  
-**Proceed**  
-  
-**Itinerary**  
-  
-**pivot**  
-  
+
+**crocodile**
+
+**flummox**
+
+**ostrich**
+
+**plume**
+
+**Proceed** 
+
+**Itinerary** 
+
+**pivot**
+
 **adolescence**  
-  
-**adamant**  
-  
+
+**adamant** 
+
 **enzyme**  
-  
+
 **parochial**  
-  
+
 **coveted**  
-  
-**plentiful**  
-  
+
+**plentiful**
+
 **vital**  
-  
-**Systematical**, **systemic**  
-  
-**vertebrae**  
-  
-**cervical vertebra**  
-  
+
+**Systematical**, **systemic** 
+
+**vertebrae**
+
+**cervical vertebra**
+
 **incumbent**  
-  
+
 **grenade**  
-  
+
 **curriculum**  
-  
-**renege**  
-  
+
+**renege** 
+

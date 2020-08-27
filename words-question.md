@@ -1,4 +1,6 @@
 
+* dyke  
+* tacky 
 * revenge vs reprisal
 * Helen of Troy
 * Motto vs maxim  
