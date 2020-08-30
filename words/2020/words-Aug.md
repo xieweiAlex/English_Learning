@@ -1,36 +1,36 @@
-
+  
 the Great Firewall is only getting harder to **circumvent** in the last few years, and there is no evidence suggesting that edX might be given some kind of **clemency**. -  
-
+  
 roller **conveyor**  
 you don't really have much control over your **rotor**.  
-Once you become a consultant, you have a lot more **clout**, you know what you're doing, you're actually being useful.   
+Once you become a consultant, you have a lot more **clout**, you know what you're doing, you're actually being useful.  
 **deathbed**  
 there is not so much that it feels **frazzling** to try -  
 It's not like that I've **resuscitated** them by myself -  
-
+  
 **declutter** your mind  
 they keys you don't use very often you probably need to **relegate** those to somewhere in the thumb. -  
-
-Ranked in the 99th **percentile** of all U.S. eye doctors
-I appreciate you're **fair-minded** to recognize that this was an unprecedented time for all of us.  
   
-
+Ranked in the 99th **percentile** of all U.S. eye doctors  
+I appreciate you're **fair-minded** to recognize that this was an unprecedented time for all of us.  
+   
+  
 The virus **latches onto** the red blood cells  
 The government have **latched onto** environmental issues to win votes  
-
+  
 **longhair**  
 **tap dancing**  
-A **elusive** bug 
+A **elusive** bug  
 an **extemporaneous** speech -  
-
+  
 a four-month-old California **condor**, high in the trees of the Ventana wilderness area, looking out as flames advance towards her -  
 The two biggest **conflagrations**, one east of San Jose, the other north of San Francisco, are the state’s second- and third-largest on record -  
 including Santa Clara County, which is being **scorched** by the largest of the fires  
 Climate change has not worked its destruction **unaided**. Mistaken policies have made the forests more vulnerable, especially the decades-long policy of suppressing wildfires  
 Fires **thin out** the dense, **flammable** **undergrowth** -  
 increases what is called fuel loading and turns forests into **tinder boxes**  
-replacing wooden **shingles** with tiles, for example
-
+replacing wooden **shingles** with tiles, for example  
+  
 He had never known him to be so chatty and **cordial**.  
 **bespoke hardware** -  
 I'll show you how easy it is to regrow an (almost) endless supply of fresh green onions from kitchen **scraps**  
@@ -38,32 +38,32 @@ I'll show you how easy it is to regrow an (almost) endless supply of fresh green
 Set on a **windowsill** and keep the roots moist  
 **potting soil**  
 you can use the **flavorful** blossoms in salads  
-
+  
 the boy **scapped** the mud from his shoes  
 **erogenous** beauty -  
 throughout the crisis he retained his **composure**  
 **bar mitzvah**  
-**tombstone**, **headstone**, **graveyard**   
+**tombstone**, **headstone**, **graveyard**  
 I **ransacked** the house looking for my purse  
 riots **ransacked** the shops  
 She left the room, put on her garden **bonnet** and **cloak**, and went out.  
 **peephole**, **spyhole**  
 Email is the **mother of all** **habit-forming** products  
-
-## Week 3 ##
-
+  
+## Week 3 ##  
+  
 There's tons of flavor the **mired** reactions really work to **caramelize** the beef here. -  
 Don't use alcohol or **sedatives** to initiate a nap  
 **sleep-deprived**  
-
+  
 Filesystems in the Kubernetes container provide **ephemeral** storage, by default  
 **hypervisor**  
 get too comfortable, you **doze off**  
-  
+   
 We’re not going back to the lockdown days of **balcony** **singalongs**  
 It's always great to get **testimonials** from readers, and I would love one from you.  
 **bezel**  
-  
+   
 virus **buster**  
 **busty**  
 Maybe you should put on that **bustier**.  
@@ -72,7 +72,7 @@ cultural **devolution**
 I'm **gravitating** back to Vim after 6 months  
 the feature **bloated** IDE Emacs is rather **off-putting**  
 I don't need those **bells and whistles**  
-  
+   
 The burgers smell **iffy**  
 **skylight**: a window in a root to **admit** daylight  
 they regard us all as **pagans** -  
@@ -81,18 +81,18 @@ she has built up an **enviable** reputation as a **harpist**
 **nip in the bud**  
 I will **nip out** and buy a newspaper  
 the old **maxim**: "the customer is always right".  
-  
+   
 they saw a generation of Republican politicians who **knowtowed** to Fox News, who **genuflected**.  
 Then they saw somebody **take on** Fox News, and Trump won.  
 he's the gift that keeps on giving women the **creeps**.  
 it was **jarring**  
-  
+   
 **courier** service -  
 **Mutinous** soldiers have **toppled** the president. They may have more trouble dealing with protesters and **jihadists**  
-  
+   
 **freudian**  
 we recommend the **tactile** Cherry MX Browns a great **all-around** switch.  
-  
+   
 Potato **chipper**  
 **Muggers** jumped him in the park  
 Birds **flit** about in the sky  
@@ -115,24 +115,24 @@ you really believe I would **stoop** so low?
 These **foothills** have been farmed out with tobacco.  
 **gynecologist** -  
 **cabanas** pool party  
-  
+   
 The laws are **shackles** to be broken.  
 **strip mall**  
-  
+   
 Evelyn **ducked** in under the door and noticed a guy in workout clothes conducting a training and a small group of other guys in the back  
 What Evelyn uncovered can only be described as a **speakeasy** gym  
 she found it was either too expensive or impossible to obtain because everything was **backordered**  
-  
+   
 I'm not very **photogenic**.  
 Animals don't have three legs because they would **fall over**  
 If you swim in a **chlorinated** pool, goggles are a must to prevent eye irritation and to help you see better in the water  
 Beginners waste a lot of energy **flailing** and **splashing** around rather than moving forward  
-  
+   
 it is the biggest **quantum leap** in the **ergonomic** experience of interacting with a computer I have seen since learning Vim  
 You'll never even double the "throughput" of that "channel", **let alone** improve it by an **order of magnitude**  
 Our teacher was a **wizened** old secretary that for a considerable portion of her career used a non-electric typewriter -  
 it took me about two weeks to where I wasn't completely **fumbling** around  
-  
+   
 **Chatter box**  
 We got great **lineup** in front of us  
 He suffered a long series of illnesses with tremendous dignity and **fortitude**  
@@ -140,13 +140,13 @@ He suffered a long series of illnesses with tremendous dignity and **fortitude**
 
 The candidate made surprising **inroads** in the South  
 He has a security clearance that allows him access to **classified** information  
-  
+   
 Alliances must often be sealed in **matrimony**.  
-  
+   
 ## Week 2 ##  
 The Herman Miller Embody Chair ..., it will give you the longest **mileage** for sustained comfort and back support, **albeit** at a steep price.  
 protect wrist **commendably** -  
-  
+   
 Nozzle **orifice**  
 He builds furniture using wooden **pegs** instead of nails  
 The monks lived a very **ascetic** life. -  
