@@ -1,6 +1,37 @@
 
-He had never known him to be so chatty and cordial.  
+the Great Firewall is only getting harder to **circumvent** in the last few years, and there is no evidence suggesting that edX might be given some kind of **clemency**. -  
 
+roller **conveyor**  
+you don't really have much control over your **rotor**.  
+Once you become a consultant, you have a lot more **clout**, you know what you're doing, you're actually being useful.   
+**deathbed**  
+there is not so much that it feels **frazzling** to try -  
+It's not like that I've **resuscitated** them by myself -  
+
+**declutter** your mind  
+they keys you don't use very often you probably need to **relegate** those to somewhere in the thumb. -  
+
+Ranked in the 99th **percentile** of all U.S. eye doctors
+I appreciate you're **fair-minded** to recognize that this was an unprecedented time for all of us.  
+  
+
+The virus **latches onto** the red blood cells  
+The government have **latched onto** environmental issues to win votes  
+
+**longhair**  
+**tap dancing**  
+A **elusive** bug 
+an **extemporaneous** speech -  
+
+a four-month-old California **condor**, high in the trees of the Ventana wilderness area, looking out as flames advance towards her -  
+The two biggest **conflagrations**, one east of San Jose, the other north of San Francisco, are the state’s second- and third-largest on record -  
+including Santa Clara County, which is being **scorched** by the largest of the fires  
+Climate change has not worked its destruction **unaided**. Mistaken policies have made the forests more vulnerable, especially the decades-long policy of suppressing wildfires  
+Fires **thin out** the dense, **flammable** **undergrowth** -  
+increases what is called fuel loading and turns forests into **tinder boxes**  
+replacing wooden **shingles** with tiles, for example
+
+He had never known him to be so chatty and **cordial**.  
 **bespoke hardware** -  
 I'll show you how easy it is to regrow an (almost) endless supply of fresh green onions from kitchen **scraps**  
 **scallion**  
@@ -22,13 +53,11 @@ Email is the **mother of all** **habit-forming** products
 ## Week 3 ##
 
 There's tons of flavor the **mired** reactions really work to **caramelize** the beef here. -  
-
 Don't use alcohol or **sedatives** to initiate a nap  
 **sleep-deprived**  
 
 Filesystems in the Kubernetes container provide **ephemeral** storage, by default  
 **hypervisor**  
-  
 get too comfortable, you **doze off**  
   
 We’re not going back to the lockdown days of **balcony** **singalongs**  
@@ -38,8 +67,7 @@ It's always great to get **testimonials** from readers, and I would love one fro
 virus **buster**  
 **busty**  
 Maybe you should put on that **bustier**.  
-  
-**twitchy**: nervously on edge or fretful  
+**twitchy**: nervously on edge or **fretful**  
 cultural **devolution**  
 I'm **gravitating** back to Vim after 6 months  
 the feature **bloated** IDE Emacs is rather **off-putting**  
@@ -59,7 +87,7 @@ Then they saw somebody **take on** Fox News, and Trump won.
 he's the gift that keeps on giving women the **creeps**.  
 it was **jarring**  
   
-**courier** service  
+**courier** service -  
 **Mutinous** soldiers have **toppled** the president. They may have more trouble dealing with protesters and **jihadists**  
   
 **freudian**  
@@ -95,7 +123,6 @@ Evelyn **ducked** in under the door and noticed a guy in workout clothes conduct
 What Evelyn uncovered can only be described as a **speakeasy** gym  
 she found it was either too expensive or impossible to obtain because everything was **backordered**  
   
-  
 I'm not very **photogenic**.  
 Animals don't have three legs because they would **fall over**  
 If you swim in a **chlorinated** pool, goggles are a must to prevent eye irritation and to help you see better in the water  
@@ -103,7 +130,7 @@ Beginners waste a lot of energy **flailing** and **splashing** around rather tha
   
 it is the biggest **quantum leap** in the **ergonomic** experience of interacting with a computer I have seen since learning Vim  
 You'll never even double the "throughput" of that "channel", **let alone** improve it by an **order of magnitude**  
-Our teacher was a **wizened** old secretary that for a considerable portion of her career used a non-electric typewriter  
+Our teacher was a **wizened** old secretary that for a considerable portion of her career used a non-electric typewriter -  
 it took me about two weeks to where I wasn't completely **fumbling** around  
   
 **Chatter box**  
@@ -114,7 +141,7 @@ He suffered a long series of illnesses with tremendous dignity and **fortitude**
 The candidate made surprising **inroads** in the South  
 He has a security clearance that allows him access to **classified** information  
   
-alliances must often be sealed in **matrimony**.  
+Alliances must often be sealed in **matrimony**.  
   
 ## Week 2 ##  
 The Herman Miller Embody Chair ..., it will give you the longest **mileage** for sustained comfort and back support, **albeit** at a steep price.  
@@ -166,9 +193,9 @@ Such data could be used to figure out who had been in close **proximity** to an 
 (The area has a number of schools in **close proximity** to each other)  
    
 On any given day a founder might **wear a dozen hats**  
-green and yellow **splotch**  
+green and yellow **splotch** -  
 Her appearance caused an **sensation**  
-an **aerobics** instructor  
+an **aerobics** instructor -  
    
 **relish** **tray**, **relish dish**  
 Hunger gives **relish** to any food  
@@ -177,7 +204,6 @@ We have to **sunset** the plan
    
 The definition of **snarky** is someone who is **cranky**, **snide** or sarcastic  
 He made a **snide** comment about her weight  
-   
 **boomerang** effect  
 they give you a **rosier** view of future  
 **bleaker view**  
@@ -206,7 +232,7 @@ my **feral** little **minx**
 social **phobia**  
 **itinerary**  
 **nip in**  
-**nip and tuck** -  
+**nip and tuck**  
 he had an **acrimonious** quarrel with his girlfriend yesterday  
 **Karate** Fighter  
    
@@ -303,6 +329,6 @@ you kind of have to **sneak up on** it.
 **rings** in me  
 narrative **resonance**  
 **cross off**  
-**limbic** system -  
+**limbic** system  
 **peripheral** vision  
    

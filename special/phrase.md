@@ -1,4 +1,10 @@
 
+Across the country, Amazon warehouses began to **spring up**, filled with millions of products.  
+
+Fires **thin out** the dense, **flammable** **undergrowth**  
+this is not some of those **off the cuff** situation  
+**Snip off** what you need, cutting the leaves **all the way** to the ground  
+
 cost **an arm and a leg**
 
 thankfully, she never **followed through**  
@@ -6,7 +12,7 @@ The malaria results have certainly been **well-received**.
 **rabbit hole**  
 **a towering figure**  
 
-pile up  
+**pile up**  
 to **stave off** hunger/illness -  
 you're **kindred spirit**, you have lots **in common**  
 I knew you two would **hit it off**.  

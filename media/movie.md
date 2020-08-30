@@ -16,7 +16,7 @@ to **shove it down the throat** of the American people, something that affects o
 So I’m **loath** to use the word “lie,” but that was one, and he did it for political purposes.  
 you know, **puffery** about himself or how well he’s doing or someone he loves is doing. -  
 Obama lied to them about something that **struck** at the very heart of their lives, their health care, their relationship with their doctor.  
-But he was being **dismissive** of half the country, whose concerns McCain was trying to raise, right? -  
+But he was being **dismissive** of half the country, whose concerns McCain was trying to raise, right?  
 There was a **slow boil** going with that group of would-be voters.  
 But that day, it was just the—it was just a **spectator sport**, you know, of “Look at him.  
 I mean, for me, I was looking at it more from a **journalistic** **standpoint**.  
@@ -37,7 +37,7 @@ But if you looked through his binder, and I read every page, there was one theme
 And my job as the **anchor** was not to go out there and be **Helen of Troy**.  
 And if you manage to get past, can you win the general if you’re too **hard-line**?  
 Fine. We **forged forward**.  
-I don’t judge the viewers. They’re allowed to laugh and have a moment of **levity** if they want. -  
+I don’t judge the viewers. They’re allowed to laugh and have a moment of **levity** if they want.  
 > what we almost heard him do on that call with the Ukrainian leader, which was: “I've been very nice to you, right?  I've been very nice to you. Maybe I won’t be.”  
 
 And that’s Trump **in a nutshell**.  
@@ -61,6 +61,16 @@ that felt a little more **unsavory**, but that was the business of Amazon.
 We're going to **forego** profits, in order to take market share.  
 it was very **irksome**, early, big issue for the book vendors  
 he owns the **main street**, not the building on the corner, the entire main street  
+he said they wanted a **kickback**   
+they will take **retribution** against me  
+Jennifer Cast ran Amazon books **division** in its **formative** years.  
+Across the country, Amazon warehouses began to **spring up**, filled with millions of products.  
+people just kind of **crisscrossing** this big warehouse **all day long**  
+you got a **write-up**  
+'Cause it's something that we've actually heard, and I don't sense it's **hyperbole**. -  
+It's a **testament** to just how good Amazon is. -  
+Amazon has the **upper hand** and the ability to basically take your business away  
+
    
 ### The Shawshank redemption  
 I doubt they'll **kick up** any **fuss**.  

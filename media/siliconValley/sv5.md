@@ -1,3 +1,25 @@
+## E 4 
+
+I just want to make sure we're **jibing** with your vision.  
+You cow-handed **poltroon**! -  
+**Nail gun** discharges   
+I'm off to Jackson Hole for a couple of days to clear my mind, and center myself, I'll be **off the grid**. Not to be disturbed for any reason. Understood?   
+he was quite **euphoric** about speaking to you regarding a deal. -  
+You mean your incubator's **spurious** **knock-offs** of legitimate American businesses   
+I told you **in confidence**  
+You can be openly **polyamorous**, And people here will call you brave.  
+responsible non-**monogamy** -   
+like killing somebody to prove you're not a **narc**  
+Well, Gavin speaks in **parables**. -  
+the launch is a bear, and the honey is the **pizazz**. The bear needs more pizazz. The bear is ravenous for pizazz.  
+**AF**  
+Big Head is still legally Erlich's **next of kin**.  
+So Jian-Yang's whole **gambit** was for naught.  
+No matter how **repugnant** their views are. -  
+**do-over** that whole speech, fuck that guy.  
+**BRB**  
+
+
 ## E 3 
 you're **kindred spirit**, you have lots **in common**   
 that's so **gracious** of you, that would be **delight**  
@@ -16,7 +38,7 @@ it's **immaterial**
 however came to that, it's just **words in the winds**  
 he is so **assertive**, uh, **articulate**.   
 he's had a **head cold** that last couple of weeks.  
-I kept **mulling** that Seppen shit. No **remnant**, nothing, so how do they know? -   
+I kept **mulling** that Seppen shit. No **remnant**, nothing, so how do they know?  
 I just didn’t feel like getting **reprimanded**.  
 then you just have to **catch up** **on the fly** then.  
 which is **tantamount** to illegal **wiretapping**. -  
@@ -24,7 +46,7 @@ I'm so sorry if I **overstepped** my **bounds**.
 
 ## E 2 
 Richard just **obliterated** Pied Piper's **runway** hiring all those coders?  
-I was rewarded **primo** spot -  
+I was rewarded **primo** spot  
 If you gonna shit yourself, you'd rather be **crouching** than standing? 
 a very **oily** man in **mid-sentence** **dip down**, vomit, and then **thrust** himself violently.  
 but he talked like a **narcoleptic** **plantation** owner -  

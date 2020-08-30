@@ -1,6 +1,34 @@
 ## August 
 
-**plight**
+**scarcity**
+
+**indispensable**
+
+**defective**, **flawed** 
+
+**conqueror**
+
+**euthanize**
+
+**condiment**
+
+**cordial**
+
+**molestation**
+
+**illuminating**  
+
+**holistic view**
+
+**exclamation** mark, **bang**
+
+**whiny**
+
+**Inflection point** 
+
+**elusive**
+
+**plight**, **dilemma**
 
 **imperious**
 
@@ -14,7 +42,7 @@
 
 **accrue**  **curated**  
 
-**pathological**  
+**pathological**, **pathogen**
 
 **gravitate**
 
@@ -53,8 +81,6 @@
 **paltry**
 
 **stamina**
-
-**pathogen**
 
 **articulate** 
 
@@ -140,7 +166,7 @@
 
 **enzyme**  
 
-**parochial**  
+**parochial**, **provincialism**  
 
 **coveted**  
 

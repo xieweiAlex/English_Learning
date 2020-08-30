@@ -36,5 +36,7 @@ export files=(
   "words/2019/words-May.md"
   "words/2019/words-April.md"
   "words/2019/words-March.md"
+  "./words/2019/words-Feb.md"
+  "./words/2019/words-Jan.md"
 )
 
