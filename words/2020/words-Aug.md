@@ -1,5 +1,102 @@
-  
-the Great Firewall is only getting harder to **circumvent** in the last few years, and there is no evidence suggesting that edX might be given some kind of **clemency**. -  
+
+Your body contains many erogenous zones, areas that lead to a feeling of sexual excitement when they are caressed.  
+
+**extraneous** variables  
+
+He has a **sleigh** and **reindeers**  
+**heterosexual**  
+**Anthropic** intervention -  
+**anthropologist**  
+the **foghorn** **brayed** all night. -  
+Cultural **artifact**  
+he answered his accusers **spitefully**  
+a note of **discord** **crept** into their relationship  
+His dogs were **inoculated** against **rabies**  
+**Alzheimer'**s disease is a form of **presenile** **dementia** -  
+I'm a crazy **rabid** squirrel!  
+**Saran wrap**   
+
+**Swig and toss**  
+**swig up**, **swig in**  
+TV **antenna**  
+air **embolism** in his **brain stem** -  
+**boneheaded** decision  
+baby **caterpillar** 
+the **caterpillar** was transformed into a butterfly  
+he shouldn't **burlesque** the elder -  
+The hill was **blotted** out by **mist**  
+they lost their way **in the mist**  
+somebody **puked** on the deck  
+Temples have an **air of sanctity**  
+the **haps and mishaps** of life -  
+he is **head over heels** in debt -  
+I was very **attracted to** men and fell **head over heels** many times  
+the ship **heeled over** in the storm  
+milk **pudding**  
+the happy boy walked with **jaunty** steps -  
+**Musket**
+the three **Musketeers**  
+
+The Nikkei 225 Stock Average is Japan’s primary stock index and a **barometer** of the Japanese economy -  
+
+I don't want you sharing a **cubby** with Emma  
+Handing me a **pamphlet** on the resurgence **gonorrhea**? -  
+There was a **tremble** in her voice 
+large **artery** -  
+**aortic** **valve** -  
+**hazelnut** chocolate **chip** **scone** -  
+he managed to **endear** himself to my entire family  
+**corpses** as far as they eye can see  
+the **marine corps** will carry out **live-fire** drills -  
+**eel**  
+the smelling of **ammonia** brought him around -  
+the tooth **relic** is in a special **casket**  
+**Salmonella** bacteria  
+**Pesos** are used in Mexico  
+An owl is an **nocturnal** bird, while a sparrow is **diurnal**. -    
+**feign** death -  
+get frustrated with **inanimate** object 🐦   
+
+Another four units **on standby**, just in case we need it.  
+The **Poodle** is a dog **breed**  
+**flora** and **fauna** -  
+China's rich diverse mammalian **fauna**  
+A **subdued** plaid shirt  
+how can we **go on** with this **rift** in our marriage.  
+**Polo** shirt  
+we often **denote** danger by red letters  
+she put on a red **petticoat** first, then a black dress, and a white **veil** over the dress.  
+I needed to **butch up** my life  
+Big **Dipper**  
+**capricious** appetite  
+A **hailstorm** in July is a **caprice** of nature  
+I **recollected** that she had red hair  
+the **chameleon** changes color to match its **surroundings**.  
+**fire grate**  
+The nails in his boots **grated** on the stones  
+there was **a hail of** angry words  
+there was a **sachet** of shampoo in the bathroom -  
+**christening**  
+combustion **alcove** -  
+This is Kate's **understudy**, Lauren.  
+**forefinger**  
+**mahogany** box -  
+**convex** vs **concave** -  
+**aforementioned**  
+**statue** vs **statute**  
+**statute of limitation**  
+of course the changes in sexual behavior and **sexual mores**.  
+**hula** hoop  
+topless girl **wading** in the water  
+use this **wad** of cloth to **plug** the barrel -  
+having a **spat** with somebody  
+**lewd** behavior -  
+Getting an MBA used to be a **surefire** way to land a job. Not this year. 
+Trump and Oregon officials **traded barbs** about the violence. NBC NEWS  
+He was completely **impervious** to criticism. -  
+
+## Week 4  
+the Great Firewall is only getting harder to **circumvent** in the last few years, and there is no evidence suggesting that edX might be given some kind of **clemency**.  
   
 roller **conveyor**  
 you don't really have much control over your **rotor**.  
@@ -9,7 +106,7 @@ there is not so much that it feels **frazzling** to try -
 It's not like that I've **resuscitated** them by myself -  
   
 **declutter** your mind  
-they keys you don't use very often you probably need to **relegate** those to somewhere in the thumb. -  
+they keys you don't use very often you probably need to **relegate** those to somewhere in the thumb.  
   
 Ranked in the 99th **percentile** of all U.S. eye doctors  
 I appreciate you're **fair-minded** to recognize that this was an unprecedented time for all of us.  
@@ -20,19 +117,19 @@ The government have **latched onto** environmental issues to win votes
   
 **longhair**  
 **tap dancing**  
-A **elusive** bug  
+An **elusive** bug  
 an **extemporaneous** speech -  
   
 a four-month-old California **condor**, high in the trees of the Ventana wilderness area, looking out as flames advance towards her -  
 The two biggest **conflagrations**, one east of San Jose, the other north of San Francisco, are the state’s second- and third-largest on record -  
 including Santa Clara County, which is being **scorched** by the largest of the fires  
 Climate change has not worked its destruction **unaided**. Mistaken policies have made the forests more vulnerable, especially the decades-long policy of suppressing wildfires  
-Fires **thin out** the dense, **flammable** **undergrowth** -  
+Fires **thin out** the dense, **flammable** **undergrowth**  
 increases what is called fuel loading and turns forests into **tinder boxes**  
 replacing wooden **shingles** with tiles, for example  
   
 He had never known him to be so chatty and **cordial**.  
-**bespoke hardware** -  
+**bespoke hardware**  
 I'll show you how easy it is to regrow an (almost) endless supply of fresh green onions from kitchen **scraps**  
 **scallion**  
 Set on a **windowsill** and keep the roots moist  
@@ -40,7 +137,7 @@ Set on a **windowsill** and keep the roots moist
 you can use the **flavorful** blossoms in salads  
   
 the boy **scapped** the mud from his shoes  
-**erogenous** beauty -  
+**erogenous** beauty  
 throughout the crisis he retained his **composure**  
 **bar mitzvah**  
 **tombstone**, **headstone**, **graveyard**  
@@ -75,19 +172,19 @@ I don't need those **bells and whistles**
    
 The burgers smell **iffy**  
 **skylight**: a window in a root to **admit** daylight  
-they regard us all as **pagans** -  
+they regard us all as **pagans**  
 he has not a **peg** to **hang on**  
 she has built up an **enviable** reputation as a **harpist**  
 **nip in the bud**  
 I will **nip out** and buy a newspaper  
 the old **maxim**: "the customer is always right".  
    
-they saw a generation of Republican politicians who **knowtowed** to Fox News, who **genuflected**.  
+they saw a generation of Republican politicians who **kowtowed** to Fox News, who **genuflected**. -  
 Then they saw somebody **take on** Fox News, and Trump won.  
 he's the gift that keeps on giving women the **creeps**.  
 it was **jarring**  
    
-**courier** service -  
+**courier** service  
 **Mutinous** soldiers have **toppled** the president. They may have more trouble dealing with protesters and **jihadists**  
    
 **freudian**  
@@ -101,12 +198,12 @@ the company is in **dire** need
 we were **massacred** in the final  
 artificial **insemination**  
 **holocaust** museum  
-**fangle**: a fashion especially when **foppish** or silly —used with new and usually **derogatorily** -  
+**fangle**: a fashion especially when **foppish** or silly —used with new and usually **derogatorily**  
 **villager**  
 **obituary** notice -  
 the troops were disposed in battle **formation**  
 **tranquilizer**  
-**pinecone** -  
+**pinecone**  
 she **garbled** all the historical facts  
 **turtleneck**  
 **kinky** underwear  
@@ -145,7 +242,7 @@ Alliances must often be sealed in **matrimony**.
    
 ## Week 2 ##  
 The Herman Miller Embody Chair ..., it will give you the longest **mileage** for sustained comfort and back support, **albeit** at a steep price.  
-protect wrist **commendably** -  
+protect wrist **commendably**  
    
 Nozzle **orifice**  
 He builds furniture using wooden **pegs** instead of nails  
@@ -184,7 +281,7 @@ I liked these **glimpses** of life **from all over**
 Chen **embarked on** two months of ten-hour days riding along with his delivery crews, talking to the owner of every store on his route  
 While officials seemed to have faith in the economic **resourcefulness** of citizens, the approach to public health was completely different  
 They were like ancient **organisms** gone **dormant**  
-Others were fired or **chastised** for even the smallest mistakes -  
+Others were fired or **chastised** for even the smallest mistakes  
 Liu **hops over** to a few more pharmacies, and then he keeps going  
 Such **meticulous** case histories were prepared by contact tracers who worked under the direction of the Chinese Center for Disease Control  
 if a **late-night** call went silent, it often meant that the person on the other end had **fallen** asleep from **exhaustion**  
@@ -193,7 +290,7 @@ Such data could be used to figure out who had been in close **proximity** to an 
 (The area has a number of schools in **close proximity** to each other)  
    
 On any given day a founder might **wear a dozen hats**  
-green and yellow **splotch** -  
+green and yellow **splotch**  
 Her appearance caused an **sensation**  
 an **aerobics** instructor -  
    
@@ -212,7 +309,7 @@ Donald Trump’s executive orders do little for **hard-hit** Americans
 Congressional **gridlock** prolongs the pain  
    
 reveals just how enthusiastically Beijing’s new security law will be deployed to **quash** any **dissent**.  
-Our Temporary **Moratorium** against Handshakes Should Become Permanent -  
+Our Temporary **Moratorium** against Handshakes Should Become Permanent  
 **germaphobic**  
 the art of **comeback**  
 I've often thought of taking out a series of newspaper ads encouraging the **abolishment** of the handshake.  
@@ -225,7 +322,7 @@ Languages were never my **forte**
 she wore a string of **beads** round her neck  
 a band of grey hair **encircled** his bald **dome**  
 she appeared in a **slinky** **satin** dress  
-**slinky** is toy, a **precompressed** **helical** spring -  
+**slinky** is toy, a **precompressed** **helical** spring  
 To me, Lady Mary is an **uppity** **minx**. -  
 my **feral** little **minx**  
 **aerobic** exercise  
@@ -261,7 +358,7 @@ years has **lapsed** since we last met
 **medallion**  
 the students were in a **lather** over the proposed restrictions  
 this soap **lathers** so nicely  
-I used stable **muck** as **mulch** for my roses -  
+I used stable **muck** as **mulch** for my roses  
 family **heirloom**  
 the frog **plopped** into the pond  
    

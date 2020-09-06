@@ -7,7 +7,7 @@ Expanding English vocabulary for a non native-speaker is tedious and time-consum
 |  Special Review      |    File Marks       |  file   	|
 | ------------- |-------------  | ------- |
 |    Recent words record   |  A  | [current-month](./words/2020/words-Aug.md),  [last-month](./words/2020/words-July.md)       |
-|    Intense Word Review Plan    |  I  |  [words-review](./words-review.md)       |
+|    Word Review   |  I  |  [words-review](./words-review.md)       |
 |    Common Phrase tamping   |  J  | [special-phrase](./special/phrase.md)       |
 |    Special Words tamping   |  K  | [special-words](./special/words1.md)       |
 |    Movie Record record |  L | [movie-record](./media/movie.md)       |

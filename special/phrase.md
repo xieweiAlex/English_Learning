@@ -1,10 +1,19 @@
   
+non-comprehensive list 
+
+he is **head over heels** in debt  
+
+Just to **gets by**  
+**off the hook**  
+
+That’s really how they left it, the Founders, because they wanted there to be some **wiggle room**.
+
+he has not a **peg** to **hang on**  
 Across the country, Amazon warehouses began to **spring up**, filled with millions of products.  
   
 Fires **thin out** the dense, **flammable** **undergrowth**  
 this is not some of those **off the cuff** situation  
 **Snip off** what you need, cutting the leaves **all the way** to the ground  
-  
 cost **an arm and a leg**  
   
 thankfully, she never **followed through**  
@@ -13,7 +22,7 @@ The malaria results have certainly been **well-received**.
 **a towering figure**  
   
 **pile up**  
-to **stave off** hunger/illness -  
+to **stave off** hunger/illness  
 you're **kindred spirit**, you have lots **in common**  
 I knew you two would **hit it off**.  
 You tell Seppen that and Pied-Piper's off **scot-free**  
@@ -31,13 +40,13 @@ And that’s Trump **in a nutshell**.
 Breitbart decided to **go after** you. What’s the point?  
    
 **nip it in the bud**  
-**nip and tuck** -  
+**nip and tuck**   
    
 **double down**  
-He hears your **tale of woe** and quite naturally wants to **cheer you up**. -  
+He hears your **tale of woe** and quite naturally wants to **cheer you up**.   
 I can't **pin you down**  
-I **conjured** him **out of thin air** -  
-They're gonna **wind up** chasing a **figment** of my imagination -  
+I **conjured** him **out of thin air**   
+They're gonna **wind up** chasing a **figment** of my imagination  
    
 **over-the-ear**  
 we recommend the tactile Cherry MX Browns a great **all-around** switch.  
@@ -50,20 +59,14 @@ the art of **comeback**
    
 This is a **one-two punch**  
 Our routines may be a little **out of whack**, but at least the Earth still revolves around the Sun  
-   
 **pipe dream**  
 I know that's **a long shot**  
 The **runner up** was miss USA, Nia Sanchez.  
-   
 you threw a **full-on** **tantrum**  
-   
 Would you really **stoop** this low, Ford?  
-   
 If you **twist my arm** I'll stay for another drink  
 I liked these **glimpses** of life **from all over**  
-   
 She was small, shy, and **unassuming**, but she seemed to understand that these qualities could put people **at ease**  
-   
 **take up**  
    
 Zumper does not foresee a **bounce back** in the rental rate **any time soon**  
@@ -79,7 +82,7 @@ This year the airline will be **hard-pressed** to make a profit.
 **put on hold**  
 **hard truth**  
 **hard sell**  
-Slack messages are not set **in stone**  
+Slack messages are not **set in stone**  
 To **Head Off** Regulators, Google Makes Certain Words Taboo  
 **a long way off**  
 **prima facie**  
@@ -105,11 +108,9 @@ I'm **up to here** with them, Donald, for lying, for turning their back on you.
    
 Tom is **out of step** with the times.  
 it's a fine ship, **top of line**  
-   
 **root out** bad behavior  
 don't **bank on** a mass exodus  
 You got **ripped off**  
-   
 **when push comes to shove**  
 her coldness really **puts me off**  
    
@@ -118,7 +119,6 @@ Three fugitives from the prison are still **at large**
 Their pranks are amusing **at times**.  
 **up until now**  
 I don't **rule it out**, I'm keeping my options open  
-   
 **up to speed**  
 it’s a **monkey on the back**  
 Just want to **touch base** with you  
@@ -174,7 +174,7 @@ She had made these remarks **offhandedly**
 **pull off**  
 he's just dying to find someone to **take it out on**  
 This is the world **going sideways**.  
-she had a quick **swig** of water and then **set off** again  
+She had a quick **swig** of water and then **set off** again  
 we're gonna **make off** with that **geisha**? We're gonna die  
    
 Disney, Papa John’s, Poshmark and T-Mobile **backed away** from “Tucker Carlson Tonight” after the host’s comments about Black Lives Matter protests.  

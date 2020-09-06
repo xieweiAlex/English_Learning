@@ -175,7 +175,7 @@ The interest **accrued** over the months.
 **insolvency**  
 You need to **unwind** and let yourself go.  
 The **misgiving** were **dispelled**.   
-She really did **detest** his mockery. -  
+She really did **detest** his mockery.  
 a **glorious** sunset  
 
 Official **solicitor**  
@@ -211,7 +211,7 @@ Interviewers love to ask people this question **point‐blank**,�
 **synonymous** words  
 last will and **testament**  
 **coping** stone  
-bear a **calamity** with **fortitude**. -  
+bear a **calamity** with **fortitude**.  
 to **stave off** hunger/illness -  
 a remote **Inuit** **hamlet**  
 an innumerable **throng** of people  
@@ -235,7 +235,7 @@ an **impediment** to reform -
 ## Week 3 
 Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
 your judgement has been **warped** by your obvious dislike of him  
-When that timer went **buzz**, it was time to stop **foraging** at an unproductive patch or abandon a failing hunt -  
+When that timer went **buzz**, it was time to stop **foraging** at an unproductive patch or abandon a failing hunt  
 
 Today’s update just expands the scope of the security **lapse**  
 law enforcement agencies have tried to eliminate the **once-rampant** street prostitution
@@ -337,7 +337,7 @@ The **retractile** **claws** of a cat
 Women have fought for **parity** with men in the workplace  
 Three sailors were fomenting a **mutiny** on the ship.  
 The company is attempting to gain a **foothold** in the Russian market.  
-The **fanfare** sounded. -  
+The **fanfare** sounded.  
 Wooden **wedge**.  
 teenage **angst**  
 Reporter is looking for **decibels**  
@@ -345,7 +345,7 @@ Reporter is looking for **decibels**
 a physical hole in every office where paper containing illegal ideas or "wrong" information was dumped to be immediately **incinerated**  
 
 
-**latch bolt**, **latch plate**  -  
+**latch bolt**, **latch plate**  
 Both teams were **severely** **depleted** by injuries.  
 He was **scourge** of by the memory of his misdeeds.  
 The **scourge** of mass unemployment.  
@@ -381,7 +381,7 @@ That fragmented **jumbled up** nonsense that you just read ends up with will shu
 Such a super **defiant** and do exactly what everybody has told him not to do.  
 What kind of an **incompetent** **buffoon** has the their representative do the deal and reverse that deal next day publicly  
 some are just **flat-out** illegal  
-gives illegal orders and puts people in a completely **untenable** situation. -  
+gives illegal orders and puts people in a completely **untenable** situation.  
 going to go to jail for following his order or they're going to be fired by the **impetuous** child  
 because you're **maniacally** stupid  -  
 He is **instrumental** in and supported separating families at the border  
@@ -422,7 +422,7 @@ Adopt **draconian** measures
 The **grande** **dame** of British sculpture  
 The **miser** was an **incarnation** of greed  
 The leading dancer is the **incarnation** of grace  
-Our army **routed** the enemy into running for their lives. - 
+Our army **routed** the enemy into running for their lives.  
 They accused him of **fomenting** political unrest  
 The beggar **shambled** past us. 
 acts of **piety** and charity  
@@ -439,7 +439,7 @@ An education system that pretends to be a **meritocracy**
 
 
 Microsoft has been aggressively **touting** its Xbox Game Pass, a monthly subscription service that provides access to more than 100 Xbox games
-She is **disposed** to sudden **bouts** of depression. -   
+She is **disposed** to sudden **bouts** of depression.  
 
 **broiler chicken**  
 **redaction** of Muller report 

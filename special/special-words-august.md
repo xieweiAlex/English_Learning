@@ -1,3 +1,4 @@
+
 ## August 
 
 **scarcity**
@@ -130,9 +131,7 @@
 
 **molotov cocktail**
 
-**masculine**, **feminine**, **feline**  
-
-**canine**
+**masculine**, **feminine**
 
 **animosity**  
 

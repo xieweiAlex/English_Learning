@@ -1,3 +1,16 @@
+## E 5 
+If you lose to that, Richard, **look inward**.  
+The **manure** analogy  
+The sheer **banality** of it all is very upsetting.  
+I'm not a **vain** person  
+**bonus room**  
+You **marched me out** of the Hooli offices yourself and now you come **groveling** to me for assistance? -  
+Purchase for Gavin a **quart** of **mint chocolate chip** ice cream
+They said it would make Jared seem a little more **officious**.  
+I'll be out here in the **bullpen**, in the old **gravel pit**. -  
+It's just a light **saline** injection, 
+
+
 ## E 4  
   
 I just want to make sure we're **jibing** with your vision.  
@@ -55,7 +68,7 @@ the Optimoji guys have really **stepped up** their game, you guys have kind of b
 it's another reason for our **ironclad** no dog policy.  
 The fucking balls on this **egomaniac**.  
 I'm hearing Pied-Piper is in a **free-fall**  
-Hoove, you're **implicating** me  
+Hoover, you're **implicating** me  
 I might be **twitchy**, I might **defecate** in my pants, and I might throw myself through a window  
   
 ## E 1  

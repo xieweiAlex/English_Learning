@@ -86,7 +86,7 @@ national **geography**
 **sorority** girl  
 **rhythmically**  
 **cerebral** palsy  
-**cerebral** **concussion** -  
+**cerebral** **concussion**  
 rocket **projectile**  
 the cheers **drown out** his shouts  
 **territory**  
@@ -149,7 +149,7 @@ People tend to not forget their own **blunders**
 I don't understand, I know he is joking about a **noose** but how does it relate to the chair  
 Mavis is a **petty** **featherhead**.  
   
-It's like a digital **purgatory** -  
+It's like a digital **purgatory**  
 call his **bluff**  
 he will **turn up**  
 **superstitious** people  
@@ -200,7 +200,7 @@ This week we have a film on its impact on American stockmarkets, and why they ha
 Binyamin Netanyahu **boasted** too soon of defeating the coronavirus  
   
 **firefly**  
-**Dandelion** Agreement -  
+**Dandelion** Agreement  
 **relegate** a question to a committee  
   
 **Cremation** is more common than **burial** in some countries.  
@@ -359,7 +359,7 @@ This is a basic **tenet** of capitalism.
    
 My **uterus** is an **inhospitable** environment?  
 A **montage** of **excerpt** from the film  
-I've been moody, tired and **crabby**  
+I've been moody, tired and **crabby** -  
    
 Power **Vacuum**  
 The boss sacked a **dilatory** worker yesterday  
