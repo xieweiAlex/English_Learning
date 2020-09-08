@@ -1,5 +1,19 @@
 ## Sep 
 
+**procurement**  
+
+**ominous**
+
+**proprietory**
+
+**self-disclosure**
+
+**ordinarily**
+
+**quarrel**
+
+**reminiscing**
+
 **caramelize**
 
 **optimistic**, **pessimistic**
@@ -38,5 +52,5 @@
 
 **capricious**  
 
-**impervious**
+**impervious**, **imperious**
 

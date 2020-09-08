@@ -1,5 +1,26 @@
 
-Your body contains many erogenous zones, areas that lead to a feeling of sexual excitement when they are caressed.  
+**head on**  
+I can't believe you **pawned** my award.  
+You're way **out of line**  
+
+I know how to respond because I am **perceptive** and **attentive** to others' behaviors.  
+This path helps you build your skills as an **accomplished** public speaker  
+This path **culminates** in an extended speech where you can apply what you've learned.
+paths, levels and **electives**  
+
+What Bracey is saying is **tantamount** to **heresy**  
+The **quarrel** left her in a **tumult**.  
+
+the U.S. Food and Drug Administration (FDA) do not monitor herbs and supplements, so people who use them may be at risk of using low-quality products and **impurities**  
+**asthmatic** cough  
+One small study revealed that an herbal cough syrup containing **marshmallow root**, along with **thyme** and **ivy**, effectively relieved coughs resulting from common colds and respiratory tract infections  
+**wet cough**  
+
+President Donald Trumpp called on his fans to **innundate** the Atlantic's co-owner, laurene Powell jobs, with message after the magazine reported that he once called American soldiers killed in cobat "losers" and "suckers". -  
+
+Nation **grappled** with Gorge Floyd's killing, they lived it. -  
+There was a good **turnout** for the concert  
+Your body contains many **erogenous** zones, areas that lead to a feeling of sexual excitement when they are **caressed**.  
 
 **extraneous** variables  
 
@@ -33,7 +54,7 @@ he is **head over heels** in debt -
 I was very **attracted to** men and fell **head over heels** many times  
 the ship **heeled over** in the storm  
 milk **pudding**  
-the happy boy walked with **jaunty** steps -  
+the happy boy walked with **jaunty** steps  
 **Musket**
 the three **Musketeers**  
 
@@ -210,7 +231,7 @@ she **garbled** all the historical facts
 urban **landscaping**  
 you really believe I would **stoop** so low?  
 These **foothills** have been farmed out with tobacco.  
-**gynecologist** -  
+**gynecologist**  
 **cabanas** pool party  
    
 The laws are **shackles** to be broken.  

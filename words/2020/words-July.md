@@ -161,7 +161,7 @@ recalled by the **lead paint**
 you try to **coax** the person toward the end  
 American **okeydoke**  
   
-He is **austere** and **grave** in **deportment**  
+He is **austere** and **grave** in **deportment** -  
 The coffin was placed in the **grave**  
 the **shrew**, in particular, was **exquisite**  
 **highland barley**  
@@ -190,7 +190,7 @@ Those familiar with the scandal know at the center of it all was Malaysian finan
   
 racial unrest **tore through** the country  
 the stock market and economy should move in **tandem** suggests that we're all in this together  
-the New York stock exchange made a **concerted effort** to **tempt** small investors who had **scared off** by the wall street crash of 1929  
+the New York stock exchange made a **concerted effort** to **tempt** small investors who had **scared off** by the wall street crash of 1929 -  
 **poles apart**  
   
 In the 1970s and early 1980s the **holy grail** was to end **stagflation**  
@@ -205,7 +205,7 @@ Binyamin Netanyahu **boasted** too soon of defeating the coronavirus
   
 **Cremation** is more common than **burial** in some countries.  
 it's pretty **dull**  
-if those people don't get the opportunity to vote, then your entire campaign may be **moot**.  
+if those people don't get the opportunity to vote, then your entire campaign may be **moot**. -  
 **rank and file** military personnel  
 you've been **tight-lipped**  
   
@@ -217,7 +217,7 @@ I don't **rule it out**, I'm keeping my options open
 **figure of speech**  
   
 The media had a **field day** with the sensational story.  
-sexual **inhibition**  
+sexual **inhibition** -  
 That's probably why I **gravitated** towards Vim initially.  
   
 There are ten **urinals** in this public toilet, all in a row.  
@@ -247,7 +247,7 @@ With his **gumption** he will make a success of himself
 He is the most **opinionated** man I know.  
 their nightmares of a **politicized** Fed.  
   
-> And even if you love your job and find your work to be fulfilling, you can still benefit from a side hustle, which will allow you to embrace your inner entrepreneur.  
+> And even if you love your job and find your work to be fulfilling, you can still benefit from a **side hustle**, which will allow you to embrace your inner **entrepreneur**.  
 
 Let me **freshen up** my **whiskers**.  
 **Shutter** speed  
@@ -261,7 +261,7 @@ The ship was **bilged** by a **submerged** **reef**
 **bilge** water  
 Don't give me that **bilge**!  
   
-**werewolf**  
+**werewolf** -  
 don't star at her, she will **entrance** you.  
 The men who **perpetrate** evil, but call it progress  
 Some new **high-falutin** **sanitation** law don't mean shit to me, Mr. City Inspector.  
@@ -291,7 +291,7 @@ John Lewis was a **crusader** for social justice
   
 but given the **ever-changing** status of COVID-19 in our communities, it’s not that simple  
 hardware **ironware** **metals**  
-Some doctors wondered: where are the **preemies**?  
+Some doctors wondered: where are the **preemies**? -  
   
 ### Week 3  
   
@@ -302,7 +302,7 @@ The report, a 169-page assessment of the case for Trump’s removal from office,
 The language is an **all-but-explicit** reference to allegations that Trump abused his power when he asked Ukraine’s president  
 The report is a crucial document in the annals of presidential impeachment, a subject with little accumulated precedent and **innumerable** **gray areas**.  
 They also sharply **rebutted** the notion that impeaching a president who has committed impeachable **conduct** amounts to reversing an election.  
-Democrats view the new, Trump-era document as a **touchstone** in the nation’s centuries-long struggle to define and apply the most charged tool the Constitution provides to Congress  
+Democrats view the new, Trump-era document as a **touchstone** in the nation’s centuries-long struggle to define and apply the most charged tool the Constitution provides to Congress -  
 Staying true to its **no-frills** form, the Craigslist app is super minimalist but as useful as Craigslist itself  
 This man, screamed at me calling me all sorts of names, **stomped down** my front steps, **screeched** out of my drive and drove away  
 We procrastinate on the most important things in life. Instead we choose to spend our time on the **mundane**  
@@ -364,8 +364,8 @@ I've been moody, tired and **crabby** -
 Power **Vacuum**  
 The boss sacked a **dilatory** worker yesterday  
    
-I'm so happy we're **sidestepping** Valentine's.  
-It follows a 60-day **ultimatum** to Moscow to comply with the **treaty**.  
+I'm so happy we're **sidestepping** Valentine's Day.  
+It follows a 60-day **ultimatum** to Moscow to comply with the **treaty**. -  
 **redecorate** my bedroom  
 Tears are **secreted** by the tear **glands**  
 **rodeo** rider  
@@ -421,9 +421,9 @@ The theme park's contribution to the company's top line is **staggering**
 stating that they "actually feel like part of the story rather than an **afterthought**  
    
 **gaunt**: extremely thin and **bony**; **haggard** and **drawn**, **as from** great hunger, weariness, or torture; **emaciated**.  
-She **blotted** water off the table with a towel.  
+She **blotted** water off the table with a towel. -  
 That new factory is a **blot** on the **landscape**.  
-She **blotted** her **copybook** when she arrived late for work  
+She **blotted** her **copybook** when she arrived late for work. -  
 **transitive** verb  
    
 We need leaders to make these hard decisions about distributing based on **equity**, not just on **market-driven** factors.  
@@ -435,10 +435,8 @@ It’s often used **sarcastically** in reference to efforts that **comically** f
 you might **exclaim** Nailed it! as a celebration of your success  
    
 You don't find kids from the **ghettos** and the **slums** bragging about what they came from  
-   
 **soggy** bread, **soggy** biscuit  
 An accident was **averted** by his quick behavior.  
-   
 **it goes without saying**  
 but you're a little **bratty** (**brat**)  
 **cubic yard**  
@@ -447,10 +445,10 @@ give me a **ballpark** number
 we really are being laughed at and **scoffed** at throughout the world.  
 they see this **bedlam** in Washington and that's not a good thing.  
 You got the Miss Universe **pageant**  
-   
+  
 Despite giving Vance the **go-ahead**, the court **smacked down** an effort by House Democrats to access those documents.  
 It’s sort of the **inverse** of playing **possum**, but done for the same purpose, **namely**, to **deflect** attention from **predators**, who would consider a sick rabbit easy pickings  
-Polite but **inflexible**, she would not be **deflected** from her intention  
+Polite but **inflexible**, she would not be **deflected** from her intention -  
 As a result of this **playacting**, rabbits often die suddenly—or what appears to be suddenly  
 Two deaths might have been a **fluke**; three seemed **ominous**.  
 But its **prominence** was no seasonal **fluke**  
@@ -473,8 +471,7 @@ Girl was **all up on** him in the club, **backin** her **booty up**.
 The **anatomy** of a JSON Web Token.  
    
 Political content was long **anathema** at TikTok, a Chinese-controlled company known for avoiding any video that might make someone uncomfortable  
-   
-I think we're just about **quits** now, don't you?  
+I think we're just about **quits** now, don't you? -  
 **call it quits**  
 **quits**: on equal terms by payment or **requital**  
    
@@ -489,12 +486,12 @@ Cutting American police budgets might have **perverse** effects
 You want to put them in **concentric** circles  
 **albino** mutant  
 she **wiggled** her hips **seductively** as she walked  
-people aren't expect to **lug** a piano around  
+people aren't expect to **lug** a piano around -  
 **lifting lug**  
 **kindergarten**  
 **Pub crawl**  
    
-> Software development best practices prescribe strict separation of configuration from code  
+> Software development best practices **prescribe** strict separation of configuration from code  
    
 
 Yet developers on Apple platforms often struggle to **square** these guidelines with Xcode’s project-heavy workflow  
@@ -506,7 +503,7 @@ my little cat's death **saddened** me.
 **rhyme**  
 **Colonel** Moore was **benevolent** but no **pushover**  
 the crowd **pelted** the mayor with angry questions  
-we **pelted** our friends with snowballs  
+we **pelted** our friends with snowballs -  
 the rain **pelted** down  
 **draw** a line  
 The chess players **drew** in 32 moves.  
@@ -515,7 +512,7 @@ Flower **vase**, **porcelain** vase
 A **regatta** is a series of boat races.  
 dragon-boat **regatta**  
 **Venice**, **Venetian**  
-we **lamented** over our bad luck.  
+we **lamented** over our bad luck. -  
 **camcorder**  
 the **windshield** has **iced up**.  
 **boundary**  
@@ -532,7 +529,7 @@ The businessman was **billed** for **delinquent** taxes
 American **exceptionalism**  
   
 ## Week 1  
-highly **celebrated**  
+**highly celebrated**  
    
 lent hundreds of billions to **ailing** firms and increased unemployment benefits for laid-off workers  
 If the outbreak does not slow soon, even Wall Street’s bulls may start having **qualms**  
@@ -584,6 +581,7 @@ Microsoft is backing the program with $20 million in **grants** for nonprofits, 
    
 > mercenaries are like **hookers**  
   
+
 After **grinding** investigation, Luckin Coffee confirms $300 million revenue fraud  
    
 10 little **elves** are making toys  
@@ -609,4 +607,4 @@ The lecturer **spouted** for hours
 We understand that this action will cause delays in **remediation** of patch related vulnerabilities  
 26-country **Schengen** common travel area  
 **schengen** treaty  
-**Tipping point**  
+* -*Tipping point**  

@@ -76,7 +76,7 @@ I know that others felt devastated or **elated**. -
 Like, **whoa**, everyone got this wrong.
 I mean, 1% of the pollsters and the **prognosticators** called this, and everyone else was wrong, and this is a huge story.
 I just don’t buy into this **catastrophic**, like, “the nation will never be the same,” you know?
-We can survive any—any president, any **tumult**. -  
+We can survive any—any president, any **tumult**.  
 I just—I’m a little tired of the **vapors** everyone tries to give us over everything Trump does.
 The media, it’s **sickening** what they've done.
 You know, the **populace** will decide.
@@ -95,7 +95,7 @@ and we need the 25—we need the 25th Amendment because he’s a **lunatic**.
 And I don’t see enough Republicans in that body **turning on** a man who’s about to face reelection anyway  
 
 
-### Amazon Empire   
+### Amazon Empire - The Rise and Reign of Jeff Bezos    
 That's a **tall order**  
 I hope your words are **prophetic** once again.  
 Is that an **apt** description of Jeff?  

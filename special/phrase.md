@@ -1,4 +1,6 @@
   
+He is **up for grabs**  
+you've been **tight-lipped**  
 non-comprehensive list 
 
 he is **head over heels** in debt  

@@ -21,7 +21,7 @@ he was quite **euphoric** about speaking to you regarding a deal. -
 You mean your incubator's **spurious** **knock-offs** of legitimate American businesses  
 I told you **in confidence**  
 You can be openly **polyamorous**, And people here will call you brave.  
-responsible non-**monogamy** -  
+responsible non-**monogamy**  
 like killing somebody to prove you're not a **narc**  
 Well, Gavin speaks in **parables**. -  
 the launch is a bear, and the honey is the **pizazz**. The bear needs more pizazz. The bear is ravenous for pizazz.  
@@ -43,7 +43,7 @@ Things with Dana got **stagnant**
 How was lunch, you little **minx**?  
 I knew you two would **hit it off**.  
 he thought you might be **bulimic**. -  
-**sullying** their smart **fridges** with **mime-simulated** **fellatio**. -  
+**sullying** their smart **fridges** with **mime-simulated** **fellatio**.  
 You tell Seppen that and Pied-Piper's off **scot-free**  
 you kept texting him **non-stop**  
 Maybe I just becoming a little less **ruinously** empathetic  
@@ -54,7 +54,7 @@ he's had a **head cold** that last couple of weeks.
 I kept **mulling** that Seppen shit. No **remnant**, nothing, so how do they know?  
 I just didn’t feel like getting **reprimanded**.  
 then you just have to **catch up** **on the fly** then.  
-which is **tantamount** to illegal **wiretapping**. -  
+which is **tantamount** to illegal **wiretapping**.  
 I'm so sorry if I **overstepped** my **bounds**.  
   
 ## E 2  
