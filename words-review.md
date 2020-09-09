@@ -1,5 +1,3 @@
-
-
 ## movie.md ## 
 media/movie.md
 No. He used to **sabre-rattle** a little about it. -  
@@ -28,44 +26,18 @@ but he talked like a **narcoleptic** **plantation** owner -
 
 ## words-Aug.md ## 
 words/2020/words-Aug.md
-President Donald Trumpp called on his fans to **innundate** the Atlantic's co-owner, laurene Powell jobs, with message after the magazine reported that he once called American soldiers killed in cobat "losers" and "suckers". -  
-Nation **grappled** with Gorge Floyd's killing, they lived it. -  
-**Anthropic** intervention -  
-the **foghorn** **brayed** all night. -  
-**Alzheimer'**s disease is a form of **presenile** **dementia** -  
-air **embolism** in his **brain stem** -  
-he shouldn't **burlesque** the elder -  
-the **haps and mishaps** of life -  
-he is **head over heels** in debt -  
-The Nikkei 225 Stock Average is Japan’s primary stock index and a **barometer** of the Japanese economy -  
-Handing me a **pamphlet** on the resurgence **gonorrhea**? -  
-large **artery** -  
-**aortic** **valve** -  
-**hazelnut** chocolate **chip** **scone** -  
-the **marine corps** will carry out **live-fire** drills -  
-the smelling of **ammonia** brought him around -  
-An owl is an **nocturnal** bird, while a sparrow is **diurnal**. -    
-**feign** death -  
-**flora** and **fauna** -  
-there was a **sachet** of shampoo in the bathroom -  
-combustion **alcove** -  
-**mahogany** box -  
-**convex** vs **concave** -  
-use this **wad** of cloth to **plug** the barrel -  
-**lewd** behavior -  
-He was completely **impervious** to criticism. -  
 there is not so much that it feels **frazzling** to try -  
 It's not like that I've **resuscitated** them by myself -  
 an **extemporaneous** speech -  
 a four-month-old California **condor**, high in the trees of the Ventana wilderness area, looking out as flames advance towards her -  
-The two biggest **conflagrations**, one east of San Jose, the other north of San Francisco, are the state’s second- and third-largest on record -  
+The two biggest **conflagrations**, one east of San Jose, the other north of San Francisco, are the state’s second- and third-largest on record   
 There's tons of flavor the **mired** reactions really work to **caramelize** the beef here. -  
 they saw a generation of Republican politicians who **kowtowed** to Fox News, who **genuflected**. -  
 **obituary** notice -  
-Our teacher was a **wizened** old secretary that for a considerable portion of her career used a non-electric typewriter -  
+Our teacher was a **wizened** old secretary that for a considerable portion of her career used a non-electric typewriter  
 The monks lived a very **ascetic** life. -  
 Love is a **potion** of **philter** God-made -  
-an **aerobics** instructor -  
+an **aerobics** instructor   
 To me, Lady Mary is an **uppity** **minx**. -  
 **collarbone** and **sternum** -  
 The U.S. Internet model is a **laissez-faire** one, and it is hard to argue against its effectiveness -  
@@ -88,6 +60,11 @@ I think we're just about **quits** now, don't you? -
 people aren't expect to **lug** a piano around -  
 we **pelted** our friends with snowballs -  
 we **lamented** over our bad luck. -  
+He **scowled** at me when I ask for more money -  
+she **lapped** my finger with **gauze** -  
+**down spout** -  
+The lecturer **spouted** for hours -  
+We understand that this action will cause delays in **remediation** of patch related vulnerabilities -  
 
 ## words-May.md ## 
 words/2020/words-May.md
@@ -108,3 +85,24 @@ to **stave off** hunger/illness -
 **statutory** agent -  
 an **impediment** to reform -  
 Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
+the **contenders** had been **winnowed** to five -  
+The swifts are a family, **Apodidae**, of highly aerial birds. They are superficially similar to **swallows**, but are not closely related to any of the passerine species. -  
+**deride**: to laugh at or insult **contemptuously** -  
+The **despot** who **disposed** of all his enemies, real or imaged. -  
+because you're **maniacally** stupid  -  
+This is the one issue that you can't put as **culpability** on republicans -  
+Most **algae** live in water.  -  
+
+## words-March.md ## 
+words/2019/words-March.md
+Her **petty** complaints really **gripe** me. -  
+The **slums** are a **reproach** to London -   
+he **huffed out** his **sudden irritation** -  
+The **butler** was an **accomplice** in the robbery. -  
+**deride** a person's ignorance -  
+Our troops **withstood** the **onset** of the enemy. -  
+**Malaise** is a feeling of general discomfort, uneasiness or pain, of being "out of sorts", often the first indication of an infection or other disease.-   
+You’ll **avail** of all relevant international tax treaties, personal allowances, credits & tax deductions -  
+a **morbid** fascination with death -  
+There’s a lot of debate **swirling** around Modern Monetary Theory—some **strident**. Its critics call it a **hot mess** - 
+MMT has constructed such a **bizarre**, illogical, **convoluted** way of thinking about macro that it’s almost **impervious** to attack - 

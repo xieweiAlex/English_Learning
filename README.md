@@ -6,15 +6,15 @@ Expanding English vocabulary for a non native-speaker is tedious and time-consum
 
 |  Special Review      |    File Marks       |  file   	|
 | ------------- |-------------  | ------- |
-|    Recent words record   |  A  | [current-month](./words/2020/words-Aug.md),  [last-month](./words/2020/words-July.md)       |
+|    Recent words record   |  A  | [current-month](./words/2020/words-Sep.md),  [last-month](./words/2020/words-Aug.md)       |
 |    Word Review   |  I  |  [words-review](./words-review.md)       |
 |    Common Phrase tamping   |  J  | [special-phrase](./special/phrase.md)       |
-|    Special Words tamping   |  K  | [special-words](./special/special-words-september.md)       |
+|    Special Words tamping   |  K  | [special-words](./special/special-words-Sep.md)       |
 |    Movie Record record |  L | [movie-record](./media/movie.md)       |
 
 ### Special words 
 
-[words-Sep](./special/special-words-september.md) | [words-Aug](./special/special-words-august.md)
+[words-Sep](./special/special-words-Sep.md) | [words-Aug](./special/special-words-Aug.md)
 
 ## TV Show, Movie
 ### House of Card 🐺 

@@ -560,7 +560,7 @@ Drones will **roam** the skies making deliveries
 **seclude** form the world  
 **secluded place**  
 The Canadian shouted and **pleaded**, but to **no avail**  
-He **scowled** at me when I ask for more money  
+He **scowled** at me when I ask for more money -  
    
 **Bologna** sausage  
 **Aluminum** alloy  
@@ -598,13 +598,13 @@ The **fertilized** egg develops into a **fetus**
 a **mascara** wand  
 Australia is the hometown of **kangaroos**  
 cotton **gauze**  
-she **lapped** my finger with **gauze**  
+she **lapped** my finger with **gauze** -  
 little **robin** **chirped** aloud  
 recruiting **pamphlets**  
-**down spout**  
-The lecturer **spouted** for hours  
+**down spout** -  
+The lecturer **spouted** for hours -  
    
-We understand that this action will cause delays in **remediation** of patch related vulnerabilities  
+We understand that this action will cause delays in **remediation** of patch related vulnerabilities -  
 26-country **Schengen** common travel area  
 **schengen** treaty  
-* -*Tipping point**  
+**Tipping point**  
