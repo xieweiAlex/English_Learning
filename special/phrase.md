@@ -1,7 +1,13 @@
-  
+
+Teachers inform me that Todd's behaviour has improved **no end**.
+**Come off it**, Ma. She don't mean no harm.  
+you might want to **loosen up** a little bit.  
+
+**put out**
+**horsing around**  
 He is **up for grabs**  
 you've been **tight-lipped**  
-non-comprehensive list 
+**non-comprehensive list** 
 
 he is **head over heels** in debt  
 
@@ -13,6 +19,7 @@ That’s really how they left it, the Founders, because they wanted there to be 
 he has not a **peg** to **hang on**  
 Across the country, Amazon warehouses began to **spring up**, filled with millions of products.  
   
+## August 
 Fires **thin out** the dense, **flammable** **undergrowth**  
 this is not some of those **off the cuff** situation  
 **Snip off** what you need, cutting the leaves **all the way** to the ground  

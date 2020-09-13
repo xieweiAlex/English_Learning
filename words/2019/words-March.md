@@ -96,7 +96,7 @@ Mugabe ruled **Zimbabwe** as an **autocrat** for nearly 40 years
 They were **moaning** and **groaning** about management 
 
 There’s a lot of debate **swirling** around Modern Monetary Theory—some **strident**. Its critics call it a **hot mess** - 
-MMT has constructed such a **bizarre**, illogical, **convoluted** way of thinking about macro that it’s almost **impervious** to attack - 
+MMT has constructed such a **bizarre**, illogical, **convoluted** way of thinking about macro that it’s almost **impervious** to attack  
 **impervious bed**
 
 Who is Primarily Responsible for Considering the **Ramifications** of AI?

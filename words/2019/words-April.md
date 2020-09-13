@@ -226,14 +226,14 @@ They took bloody **reprisals** against the leaders.
 **propelled**  
 The **arson** is professional.  
 **spooky**  
-**feckless** **stooge** -  
-**statutory** agent -  
+**feckless** **stooge**  
+**statutory** agent  
 an **impediment** to reform -  
 **dossier**  
 **deductive inference**  
 
 ## Week 3 
-Slow things drive us crazy because the fast pace of society has **warped** our sense of timing -  
+Slow things drive us crazy because the fast pace of society has **warped** our sense of timing  
 your judgement has been **warped** by your obvious dislike of him  
 When that timer went **buzz**, it was time to stop **foraging** at an unproductive patch or abandon a failing hunt  
 
@@ -449,7 +449,7 @@ He is a **hardy** person
 She was **bent on** making **mischief**  
 A **plumber**'s mate.  
 **public purse**  
-Most **algae** live in water.  -  
+Most **algae** live in water.  
 **smallpox** **vaccination**  
 Have I fallen victim to marketing **hype**?  
 The **hype** surrounding the murder trial.  

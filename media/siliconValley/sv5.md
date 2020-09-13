@@ -17,13 +17,13 @@ I just want to make sure we're **jibing** with your vision.
 You cow-handed **poltroon**! -  
 **Nail gun** discharges  
 I'm off to Jackson Hole for a couple of days to clear my mind, and center myself, I'll be **off the grid**. Not to be disturbed for any reason. Understood?  
-he was quite **euphoric** about speaking to you regarding a deal. -  
+he was quite **euphoric** about speaking to you regarding a deal.  
 You mean your incubator's **spurious** **knock-offs** of legitimate American businesses  
 I told you **in confidence**  
 You can be openly **polyamorous**, And people here will call you brave.  
 responsible non-**monogamy**  
 like killing somebody to prove you're not a **narc**  
-Well, Gavin speaks in **parables**. -  
+Well, Gavin speaks in **parables**.  
 the launch is a bear, and the honey is the **pizazz**. The bear needs more pizazz. The bear is ravenous for pizazz.  
 **AF**  
 Big Head is still legally Erlich's **next of kin**.  
@@ -42,7 +42,7 @@ he **royally** fucked up
 Things with Dana got **stagnant**  
 How was lunch, you little **minx**?  
 I knew you two would **hit it off**.  
-he thought you might be **bulimic**. -  
+he thought you might be **bulimic**.  
 **sullying** their smart **fridges** with **mime-simulated** **fellatio**.  
 You tell Seppen that and Pied-Piper's off **scot-free**  
 you kept texting him **non-stop**  

@@ -6,15 +6,13 @@ you don't really have much control over your **rotor**.
 Once you become a consultant, you have a lot more **clout**, you know what you're doing, you're actually being useful.  
 **deathbed**  
 there is not so much that it feels **frazzling** to try -  
-It's not like that I've **resuscitated** them by myself -  
+It's not like that I've **resuscitated** them by myself  
   
 **declutter** your mind  
 they keys you don't use very often you probably need to **relegate** those to somewhere in the thumb.  
   
 Ranked in the 99th **percentile** of all U.S. eye doctors  
 I appreciate you're **fair-minded** to recognize that this was an unprecedented time for all of us.  
-   
-  
 The virus **latches onto** the red blood cells  
 The government have **latched onto** environmental issues to win votes  
   
@@ -24,7 +22,7 @@ An **elusive** bug
 an **extemporaneous** speech -  
   
 a four-month-old California **condor**, high in the trees of the Ventana wilderness area, looking out as flames advance towards her -  
-The two biggest **conflagrations**, one east of San Jose, the other north of San Francisco, are the state’s second- and third-largest on record -  
+The two biggest **conflagrations**, one east of San Jose, the other north of San Francisco, are the state’s second- and third-largest on record  
 including Santa Clara County, which is being **scorched** by the largest of the fires  
 Climate change has not worked its destruction **unaided**. Mistaken policies have made the forests more vulnerable, especially the decades-long policy of suppressing wildfires  
 Fires **thin out** the dense, **flammable** **undergrowth**  
@@ -103,7 +101,7 @@ artificial **insemination**
 **holocaust** museum  
 **fangle**: a fashion especially when **foppish** or silly —used with new and usually **derogatorily**  
 **villager**  
-**obituary** notice -  
+**obituary** notice  
 the troops were disposed in battle **formation**  
 **tranquilizer**  
 **pinecone**  
@@ -130,7 +128,7 @@ Beginners waste a lot of energy **flailing** and **splashing** around rather tha
    
 it is the biggest **quantum leap** in the **ergonomic** experience of interacting with a computer I have seen since learning Vim  
 You'll never even double the "throughput" of that "channel", **let alone** improve it by an **order of magnitude**  
-Our teacher was a **wizened** old secretary that for a considerable portion of her career used a non-electric typewriter -  
+Our teacher was a **wizened** old secretary that for a considerable portion of her career used a non-electric typewriter  
 it took me about two weeks to where I wasn't completely **fumbling** around  
    
 **Chatter box**  
@@ -149,7 +147,7 @@ protect wrist **commendably**
    
 Nozzle **orifice**  
 He builds furniture using wooden **pegs** instead of nails  
-The monks lived a very **ascetic** life. -  
+The monks lived a very **ascetic** life.  
    
 his house is an **eclectic** mix of modern furnishings and **antiques**  
 I enjoy acting as an **emcee** of many lectures and evenings  
@@ -195,7 +193,7 @@ Such data could be used to figure out who had been in close **proximity** to an 
 On any given day a founder might **wear a dozen hats**  
 green and yellow **splotch**  
 Her appearance caused an **sensation**  
-an **aerobics** instructor -  
+an **aerobics** instructor  
    
 **relish** **tray**, **relish dish**  
 Hunger gives **relish** to any food  
@@ -226,7 +224,7 @@ she wore a string of **beads** round her neck
 a band of grey hair **encircled** his bald **dome**  
 she appeared in a **slinky** **satin** dress  
 **slinky** is toy, a **precompressed** **helical** spring  
-To me, Lady Mary is an **uppity** **minx**. -  
+To me, Lady Mary is an **uppity** **minx**.  
 my **feral** little **minx**  
 **aerobic** exercise  
 social **phobia**  
@@ -245,7 +243,7 @@ Economy **reprise**
    
 how to get **Chiseled** Jawline  
 **droopy** weak jawlines  
-**collarbone** and **sternum** -  
+**collarbone** and **sternum**  
 proper exercise can reduce any pain in the neck and jaw while mitigating those **pesky** headaches  
 **sculpting** the strong jawline  
 stop if you notice stress or **soreness** of any kind  
@@ -265,7 +263,7 @@ I used stable **muck** as **mulch** for my roses
 family **heirloom**  
 the frog **plopped** into the pond  
    
-The U.S. Internet model is a **laissez-faire** one, and it is hard to argue against its effectiveness -  
+The U.S. Internet model is a **laissez-faire** one, and it is hard to argue against its effectiveness  
 He had an **acrimonious** quarrel with  his girlfriend yesterday.  
 Not a **sliver** of glass remains where the windows were  
 To **Head Off** Regulators, Google Makes Certain Words Taboo  

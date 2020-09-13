@@ -72,7 +72,7 @@ And I think there’s a **swath** of the American population that, look, it’s 
 And Hannity was my best **gauge**, right?
 You know, I believed the **pollsters**.
 I think we’re all coming to the **realization** that Donald Trump might be the next president of the United States.
-I know that others felt devastated or **elated**. -  
+I know that others felt devastated or **elated**.  
 Like, **whoa**, everyone got this wrong.
 I mean, 1% of the pollsters and the **prognosticators** called this, and everyone else was wrong, and this is a huge story.
 I just don’t buy into this **catastrophic**, like, “the nation will never be the same,” you know?
@@ -80,8 +80,8 @@ We can survive any—any president, any **tumult**.
 I just—I’m a little tired of the **vapors** everyone tries to give us over everything Trump does.
 The media, it’s **sickening** what they've done.
 You know, the **populace** will decide.
-But anybody who tells you that, you know, it’s an **existential** moment for America is full of it. -  
-I mean, look, impeachment, legally, it’s sort of an **amorphous** standard. -  
+But anybody who tells you that, you know, it’s an **existential** moment for America is full of it.  
+I mean, look, impeachment, legally, it’s sort of an **amorphous** standard.  
 That’s really how they left it, the Founders, because they wanted there to be some **wiggle room**.
 But “and misdemeanors” opens it up, because they’re not talking about misdemeanors like he **jaywalked**, right?
 That opens it up to, it could be **improper conduct**; it could be abuse of power.
@@ -120,15 +120,15 @@ Across the country, Amazon warehouses began to **spring up**, filled with millio
 people just kind of **crisscrossing** this big warehouse **all day long**  
 you got a **write-up**  
 'Cause it's something that we've actually heard, and I don't sense it's **hyperbole**. -  
-It's a **testament** to just how good Amazon is. -  
+It's a **testament** to just how good Amazon is.  
 Amazon has the **upper hand** and the ability to basically take your business away  
 as he's **cemented** himself in the city, he's started to **acquire** this physical **presence**.  
-I would first disagree with the **premise**, it's not a listening device. -  
+I would first disagree with the **premise**, it's not a listening device.  
 Jeff Bezos's reputation has grown to **mythic**. -  
 I think it's a **mixed bag**, there is evidence that they have inspired innovation in certain sectors ...  
 it's kind of a **grotesque** display of corporate power, to dangle 50,000 jobs and potential billions of dollars of revenue.  
 But not everyone was **enthused** about giving billions in tax breaks to a trillion-dollar corporation.  
-That's an **idiotic** statement on its face. -  
+That's an **idiotic** statement on its face.  
 There was noise, there was **posturing** by people in the political world, but the deal was done, so all we're talking about here is the **background noise**.  
 
 > In what world are there no critics? Well, yeah, in an autocratic totalitarian world, maybe they're not allowed, and that's the world that Jeff Bezos somewhere in his mind thinks he is **entitled** to.  

@@ -1,5 +1,23 @@
 ## Sep 
 
+**reciprocal**, **reciprocity**
+
+**peripheral**
+
+**obfuscate**
+
+**melatonin**
+
+**mandate**
+
+**colloquially**
+
+**archaic**, **ancient**
+
+**rationale**
+
+**excursions**
+
 **arbitrage**
 
 **inflammation**
@@ -28,7 +46,7 @@
 
 **satisfaction**  
 
-**hypothesis**
+**hypothesis**, **hypothetical**
 
 **hilarious**
 
@@ -56,5 +74,7 @@
 
 **capricious**  
 
-**impervious**, **imperious**
+**impervious**
+
+**imperious**
 

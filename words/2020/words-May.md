@@ -160,7 +160,7 @@ sing, **sung**
 the **genie** is out of the bottle  
 You have a **porch** swing in there  
 **Porches**  
-She looks really **tacky** in that dress -  
+She looks really **tacky** in that dress  
 I had a **tarantula** when I was a kid. But it died because my cat ate it.  
 I guess he was just **flattering** me  
 **kiwi** fruit  

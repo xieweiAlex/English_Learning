@@ -190,7 +190,7 @@ Those familiar with the scandal know at the center of it all was Malaysian finan
   
 racial unrest **tore through** the country  
 the stock market and economy should move in **tandem** suggests that we're all in this together  
-the New York stock exchange made a **concerted effort** to **tempt** small investors who had **scared off** by the wall street crash of 1929 -  
+the New York stock exchange made a **concerted effort** to **tempt** small investors who had **scared off** by the wall street crash of 1929  
 **poles apart**  
   
 In the 1970s and early 1980s the **holy grail** was to end **stagflation**  
@@ -205,7 +205,7 @@ Binyamin Netanyahu **boasted** too soon of defeating the coronavirus
   
 **Cremation** is more common than **burial** in some countries.  
 it's pretty **dull**  
-if those people don't get the opportunity to vote, then your entire campaign may be **moot**. -  
+if those people don't get the opportunity to vote, then your entire campaign may be **moot**.  
 **rank and file** military personnel  
 you've been **tight-lipped**  
   
@@ -217,7 +217,7 @@ I don't **rule it out**, I'm keeping my options open
 **figure of speech**  
   
 The media had a **field day** with the sensational story.  
-sexual **inhibition** -  
+sexual **inhibition**  
 That's probably why I **gravitated** towards Vim initially.  
   
 There are ten **urinals** in this public toilet, all in a row.  
@@ -261,7 +261,7 @@ The ship was **bilged** by a **submerged** **reef**
 **bilge** water  
 Don't give me that **bilge**!  
   
-**werewolf** -  
+**werewolf**  
 don't star at her, she will **entrance** you.  
 The men who **perpetrate** evil, but call it progress  
 Some new **high-falutin** **sanitation** law don't mean shit to me, Mr. City Inspector.  
@@ -359,13 +359,13 @@ This is a basic **tenet** of capitalism.
    
 My **uterus** is an **inhospitable** environment?  
 A **montage** of **excerpt** from the film  
-I've been moody, tired and **crabby** -  
+I've been moody, tired and **crabby**  
    
 Power **Vacuum**  
 The boss sacked a **dilatory** worker yesterday  
    
 I'm so happy we're **sidestepping** Valentine's Day.  
-It follows a 60-day **ultimatum** to Moscow to comply with the **treaty**. -  
+It follows a 60-day **ultimatum** to Moscow to comply with the **treaty**.  
 **redecorate** my bedroom  
 Tears are **secreted** by the tear **glands**  
 **rodeo** rider  
@@ -421,9 +421,9 @@ The theme park's contribution to the company's top line is **staggering**
 stating that they "actually feel like part of the story rather than an **afterthought**  
    
 **gaunt**: extremely thin and **bony**; **haggard** and **drawn**, **as from** great hunger, weariness, or torture; **emaciated**.  
-She **blotted** water off the table with a towel. -  
+She **blotted** water off the table with a towel.  
 That new factory is a **blot** on the **landscape**.  
-She **blotted** her **copybook** when she arrived late for work. -  
+She **blotted** her **copybook** when she arrived late for work.  
 **transitive** verb  
    
 We need leaders to make these hard decisions about distributing based on **equity**, not just on **market-driven** factors.  
@@ -448,7 +448,7 @@ You got the Miss Universe **pageant**
   
 Despite giving Vance the **go-ahead**, the court **smacked down** an effort by House Democrats to access those documents.  
 It’s sort of the **inverse** of playing **possum**, but done for the same purpose, **namely**, to **deflect** attention from **predators**, who would consider a sick rabbit easy pickings  
-Polite but **inflexible**, she would not be **deflected** from her intention -  
+Polite but **inflexible**, she would not be **deflected** from her intention  
 As a result of this **playacting**, rabbits often die suddenly—or what appears to be suddenly  
 Two deaths might have been a **fluke**; three seemed **ominous**.  
 But its **prominence** was no seasonal **fluke**  
@@ -471,7 +471,7 @@ Girl was **all up on** him in the club, **backin** her **booty up**.
 The **anatomy** of a JSON Web Token.  
    
 Political content was long **anathema** at TikTok, a Chinese-controlled company known for avoiding any video that might make someone uncomfortable  
-I think we're just about **quits** now, don't you? -  
+I think we're just about **quits** now, don't you?  
 **call it quits**  
 **quits**: on equal terms by payment or **requital**  
    
@@ -486,7 +486,7 @@ Cutting American police budgets might have **perverse** effects
 You want to put them in **concentric** circles  
 **albino** mutant  
 she **wiggled** her hips **seductively** as she walked  
-people aren't expect to **lug** a piano around -  
+people aren't expect to **lug** a piano around  
 **lifting lug**  
 **kindergarten**  
 **Pub crawl**  
