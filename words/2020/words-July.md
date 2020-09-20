@@ -161,7 +161,7 @@ recalled by the **lead paint**
 you try to **coax** the person toward the end  
 American **okeydoke**  
   
-He is **austere** and **grave** in **deportment** -  
+He is **austere** and **grave** in **deportment**  
 The coffin was placed in the **grave**  
 the **shrew**, in particular, was **exquisite**  
 **highland barley**  
@@ -302,7 +302,7 @@ The report, a 169-page assessment of the case for Trump’s removal from office,
 The language is an **all-but-explicit** reference to allegations that Trump abused his power when he asked Ukraine’s president  
 The report is a crucial document in the annals of presidential impeachment, a subject with little accumulated precedent and **innumerable** **gray areas**.  
 They also sharply **rebutted** the notion that impeaching a president who has committed impeachable **conduct** amounts to reversing an election.  
-Democrats view the new, Trump-era document as a **touchstone** in the nation’s centuries-long struggle to define and apply the most charged tool the Constitution provides to Congress -  
+Democrats view the new, Trump-era document as a **touchstone** in the nation’s centuries-long struggle to define and apply the most charged tool the Constitution provides to Congress  
 Staying true to its **no-frills** form, the Craigslist app is super minimalist but as useful as Craigslist itself  
 This man, screamed at me calling me all sorts of names, **stomped down** my front steps, **screeched** out of my drive and drove away  
 We procrastinate on the most important things in life. Instead we choose to spend our time on the **mundane**  
@@ -503,7 +503,7 @@ my little cat's death **saddened** me.
 **rhyme**  
 **Colonel** Moore was **benevolent** but no **pushover**  
 the crowd **pelted** the mayor with angry questions  
-we **pelted** our friends with snowballs -  
+we **pelted** our friends with snowballs  
 the rain **pelted** down  
 **draw** a line  
 The chess players **drew** in 32 moves.  
@@ -560,7 +560,7 @@ Drones will **roam** the skies making deliveries
 **seclude** form the world  
 **secluded place**  
 The Canadian shouted and **pleaded**, but to **no avail**  
-He **scowled** at me when I ask for more money -  
+He **scowled** at me when I ask for more money  
    
 **Bologna** sausage  
 **Aluminum** alloy  
@@ -598,13 +598,13 @@ The **fertilized** egg develops into a **fetus**
 a **mascara** wand  
 Australia is the hometown of **kangaroos**  
 cotton **gauze**  
-she **lapped** my finger with **gauze** -  
+she **lapped** my finger with **gauze**  
 little **robin** **chirped** aloud  
 recruiting **pamphlets**  
-**down spout** -  
-The lecturer **spouted** for hours -  
+**down spout**  
+The lecturer **spouted** for hours  
    
-We understand that this action will cause delays in **remediation** of patch related vulnerabilities -  
+We understand that this action will cause delays in **remediation** of patch related vulnerabilities  
 26-country **Schengen** common travel area  
 **schengen** treaty  
 **Tipping point**  

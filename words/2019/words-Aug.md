@@ -182,7 +182,7 @@ This is **hypocrisy**.
 
 this basically a big **cauldron** of boiling oil  
 They're conquering and **pillaging**  
-I think **offal** is awful. -  
+I think **offal** is awful.  
 
 Taylor Swift **VMA** award moment ruined by kanye west
 **VMA**: MTV Video Music Award

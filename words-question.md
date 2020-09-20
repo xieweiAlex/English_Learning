@@ -1,4 +1,6 @@
 
+* genuflected
+* extraneous vs superfluous
 * dyke  
 * tacky 
 * revenge vs reprisal

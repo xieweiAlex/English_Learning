@@ -1,4 +1,22 @@
 
+Their opposition **stems from** fear and ignorance  
+They're **narrow-minded**, **mean-spirited** **dirtbags**.  
+
+That means that the **go-it-alone** **unilateralism** that has characterized the Trump administration’s approach to trade could soon **spread far and wide**  
+
+This is **cut and dry**, Frank.  
+Frank, I know you want to **swoop down** and **save the day**, but there's principle **at stake** here.  
+Let's not get **bogged down** in abstractions, let's deal with **specifics**.  
+
+Everyone thinks that I'm just this **washed-up** hack, but actually, what if they're right.  
+
+if you don't swallow your pride, this is never gonna **let up**.  
+how did I **come off**?  
+
+You're way **out of line**  
+he was arrested **on the spot**  
+the dating issue for Asians is kinda like a **double whammy**  
+
 Teachers inform me that Todd's behaviour has improved **no end**.
 **Come off it**, Ma. She don't mean no harm.  
 you might want to **loosen up** a little bit.  

@@ -79,7 +79,7 @@ The assumption is that AI is so **omnipotent**
 Five years ago you don't know what AI is, and now you're **extrapolating** too much.  
 **anthropological**  
 **benevolent**  
-sounds **eminently** sensible. -  
+sounds **eminently** sensible.  
 **fertile** ground  
 Say no not base on one or two **salient** features -  
 I as a human being just can not **grasp**.  

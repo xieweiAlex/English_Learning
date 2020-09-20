@@ -68,7 +68,7 @@ about potentially doing a town hall with Obama for that group that was meant to 
 They didn’t necessarily feel that way when they saw their jobs **slipping away** in manufacturing and these factories and so on,
 Obama ate **arugula**; Trump **champions** **Big Macs**, you know.
 What did he just say that **rhymes** with '**wussy**'?”
-And I think there’s a **swath** of the American population that, look, it’s not like they love **vulgarity** -  
+And I think there’s a **swath** of the American population that, look, it’s not like they love **vulgarity**  
 And Hannity was my best **gauge**, right?
 You know, I believed the **pollsters**.
 I think we’re all coming to the **realization** that Donald Trump might be the next president of the United States.
@@ -124,7 +124,7 @@ It's a **testament** to just how good Amazon is.
 Amazon has the **upper hand** and the ability to basically take your business away  
 as he's **cemented** himself in the city, he's started to **acquire** this physical **presence**.  
 I would first disagree with the **premise**, it's not a listening device.  
-Jeff Bezos's reputation has grown to **mythic**. -  
+Jeff Bezos's reputation has grown to **mythic**.  
 I think it's a **mixed bag**, there is evidence that they have inspired innovation in certain sectors ...  
 it's kind of a **grotesque** display of corporate power, to dangle 50,000 jobs and potential billions of dollars of revenue.  
 But not everyone was **enthused** about giving billions in tax breaks to a trillion-dollar corporation.  

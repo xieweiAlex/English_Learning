@@ -1,15 +1,106 @@
+
+eminently  
+
+A federal court granted a preliminary injunction halting the Trump administration’s planned ban of Chinese app WeChat, in response to a plaintiff lawsuit saying the ban would harm their First Amendment rights  
+
+
+Normal **cornea**  
+he was **munching** an apple -  
+**Temporarily**   
+**tarp** on the shed  
+**crumby** soil  
+permanent **magnetism**  
+**goo**, **goop**  
+a **humdinger** of a **blizzard**  
+**presumably**  
+they want to **forfeit** our assets  
+**chamomile** tea -  
+**phonetically**  
+The problem arises when you **go overboard**  
+**Thruster**  
+**anyhow**, I'll be home as soon as I can.  
+**walnut kernel**, black **walnut**, **walnut** shell  
+**antacid**  
+**Amnesia** mercifully **obliterated** his memory of the accident -  
+**rubella** virus/vaccine  
+there is nothing wrong with a woman enjoying a little **erotica**  
+The shores are **strewn** with **wrecks**. -  
+blue **negligee**  
+**everlasting** life  
+George paused, **momentarily** confused. -  
+she **rued** the trip with him  
+**ribbed** **plate**   
+academic **dissertation** -  
+**herbalist** doctor  
+Let's keep the criticism general and **impersonal**  
+Her **overt** sexuality shocked cinema audiences -  
+The **last thing** the people here need is a **two-bit** **charlatan**... -  
+**orchid** plaza  
+
+**immobile posture**  
+
+Each collects vast **swaths** of data from users, including network activity, location data, and browsing and search histories  
+
+He **scented** that trouble was coming  
+They were dressed alike in blue **jersey** and **knickers**  
+Your English grammar needs to be **rubbed up**.  
+**unvoiced** thought, **unvoiced** fears  
+**gazebo** tent  
+There is a **pervading** sense of **menace**  
+**menacing letter**  
+I **shuddered** when I heard the **gory** details  
+muscle **spasm** -  
+they threw a **frisbee** to each other  
+
+Initially, the Microsoft To-Do was **barebones**. It lacked some essential functionality that Wunderlist users previously **relied on**, including collaboration and attachments  
+
+**on-the-job** training  
+
+The company, founded in 1990 as a **joint venture** between Acorn Computers, Apple, and VLSI Technology  
+**MediaTek**  
+**TSMC**  
+What makes Arm’s privileged position viable is the same one that **undergirds** TSMC’s: neutrality  
+This was a completely **novel** idea: at that time all chip manufacturing was integrated a la Intel  
+Her cup **clattered** in the **saucer**  
+Another symptom that’s more **prevalent** with a cold: a wet cough where **phlegm** is involved.   
+What can you **glean** from local health data to better evaluate your symptoms?  
+The enterprise cloud **biz** is **torrential**—lots of businesses need lots of data stored and analyzed -  
+The flooding, caused by three days of **torrential rain**, is the worst in sixty-five years.  
+But the company, which **embarked on** a pricey expansion last year following a CEO **shakeup**, is not profitable.   
+Rivals are **fuming**: Wrapping music, gaming, and video into one service could make it harder for users to leave the Apple **orchard**.  
+The U.S. also failed to explain why its tariffs, **levied** over accusations of IP theft and other unfair trade practices, deserve a **hall pass**.  
+**appellate court**   
+That means that the **go-it-alone** **unilateralism** that has characterized the Trump administration’s approach to trade could soon **spread far and wide**, essentially **turning back the clock** to a time when trade rivalries between nations were settled not with legal arguments but with tariff walls, trade barriers, and **beggar-thy-neighbor** protectionism  
+When you listen to the **rhetoric** from the Trump administration, they argue that the United States is **better off** in a power-based, law of the **jungle system**  
+Soon after, the wheels of trade justice will **grind to a halt**, with essentially no way to ultimately resolve big trade disputes like the yearslong battle between Airbus and Boeing  
+We’re getting to a point where we could soon prove a **counterfactual**  
+
+he was arrested **on the spot**  
+
+Welsh **Kilt**  
+**aerosol** spray/can   
+**undercover** FBI agents, **undercover** operation  
+**sputnik** 
+I'm such a **dingus**! -  
+**Appalling** weather  
+the enemy was **appalled** at our attack  
+**ladybug**  
+**stegosaurus** -  
+His body was solid and **taut**. -  
+**Sagittarius**  
+
 ## Week 2 
 
+The sound of the bell was **muffled** by the curtains -  
 Product placement in Hollywood has existed almost since the **advent** of movies themselves, so by now we're all fairly immune to seeing **glaringly** obvious logos and brands on the big screen  
-
 
 **grasshopper**
 Teachers inform me that Todd's behaviour has improved **no end**.
 She felt **heady** with success  
-It’s really hot and **stuffy** in here. -  
+It’s really hot and **stuffy** in here.  
 You should follow the doctor's **mandate**.  
 
-In recent months, the Trump administration has taken steps to **curtail** what it describes as national-security threats from Chinese tech firms -  
+In recent months, the Trump administration has taken steps to **curtail** what it describes as national-security threats from Chinese tech firms  
 
 he applied **varnish** to the table  
 nail **varnish**  
@@ -26,7 +117,7 @@ That my dad left for a year with the town **floozy**
 This **specimen** is richly **variegated** in color.  
 **stunted** brush  
 Scans of his chest, **abdomen**, and **pelvis** likewise showed nothing -  
-**ureter**, **urethra** -  
+**ureter**, **urethra**  
 proud as a **peacock**  
 
 Apple Has '**Lost Sight of** the Tech Industry's Founding Principles,' Says Epic Games CEO  
@@ -41,7 +132,7 @@ seat the **telescope** on the **tripod**
 The air was **fragrant** with **lavender**  
 **lavender** oil  
 **Alimony** trust - 
-the **cactus** love hot, dry air -  
+the **cactus** love hot, dry air  
 **crumpled** paper  
 the bus was **crumpled up** in the crash  
 **basinet**  
@@ -56,10 +147,9 @@ this is a **landmark** day in my life
 crematorium, **crematory** 
 **horsing around**  
 
-**head on**  
-I can't believe you **pawned** my award. -  
+**head on collision**  
+I can't believe you **pawned** my award.  
 You're way **out of line**  
-
 
 ## Week 1
 
@@ -68,7 +158,7 @@ This path helps you build your skills as an **accomplished** public speaker
 This path **culminates** in an extended speech where you can apply what you've learned.
 paths, levels and **electives**  
 
-What Bracey is saying is **tantamount** to **heresy** -  
+What Bracey is saying is **tantamount** to **heresy**  
 The **quarrel** left her in a **tumult**.  
 
 the U.S. Food and Drug Administration (FDA) do not monitor herbs and supplements, so people who use them may be at risk of using low-quality products and **impurities**  
@@ -76,18 +166,18 @@ the U.S. Food and Drug Administration (FDA) do not monitor herbs and supplements
 One small study revealed that an herbal cough syrup containing **marshmallow root**, along with **thyme** and **ivy**, effectively relieved coughs resulting from common colds and respiratory tract infections  
 **wet cough**  
 
-President Donald Trumpp called on his fans to **innundate** the Atlantic's co-owner, laurene Powell jobs, with message after the magazine reported that he once called American soldiers killed in cobat "losers" and "suckers". -  
+President Donald Trumpp called on his fans to **inundate** the Atlantic's co-owner, laurene Powell jobs, with message after the magazine reported that he once called American soldiers killed in cobat "losers" and "suckers".   
 
-Nation **grappled** with Gorge Floyd's killing, they lived it. -  
+Nation **grappled** with Gorge Floyd's killing, they lived it.  
 There was a good **turnout** for the concert  
 Your body contains many **erogenous** zones, areas that lead to a feeling of sexual excitement when they are **caressed**.  
-**extraneous** variables -  
+**extraneous** variables  
 
 He has a **sleigh** and **reindeers**  
 **heterosexual**  
-**Anthropic** intervention -  
+**Anthropic** intervention  
 **anthropologist**  
-the **foghorn** **brayed** all night. -  
+the **foghorn** **brayed** all night.  
 Cultural **artifact**  
 he answered his accusers **spitefully**  
 a note of **discord** **crept** into their relationship  
@@ -99,17 +189,17 @@ I'm a crazy **rabid** squirrel! I want my cookies!
 **Swig and toss**  
 **swig up**, **swig in**  
 TV **antenna**  
-air **embolism** in his **brain stem** -  
+air **embolism** in his **brain stem**  
 **boneheaded** decision  
 baby **caterpillar** 
 the **caterpillar** was transformed into a butterfly  
-he shouldn't **burlesque** the elder -  
+he shouldn't **burlesque** the elder  
 The hill was **blotted** out by **mist**  
 they lost their way **in the mist**  
 somebody **puked** on the deck  
 Temples have an **air of sanctity**  
-the **haps and mishaps** of life -  
-he is **head over heels** in debt -  
+the **haps and mishaps** of life  
+he is **head over heels** in debt  
 I was very **attracted to** men and fell **head over heels** many times  
 the ship **heeled over** in the storm  
 milk **pudding**  
@@ -122,8 +212,8 @@ The Nikkei 225 Stock Average is Japan’s primary stock index and a **barometer*
 I don't want you sharing a **cubby** with Emma  
 Handing me a **pamphlet** on the resurgence **gonorrhea**? -  
 There was a **tremble** in her voice 
-large **artery** -  
-**aortic** **valve** -  
+large **artery**  
+**aortic** **valve**  
 **hazelnut** chocolate **chip** **scone** -  
 he managed to **endear** himself to my entire family  
 **corpses** as far as they eye can see  
@@ -134,7 +224,7 @@ the tooth **relic** is in a special **casket**
 **Salmonella** bacteria  
 **Pesos** are used in Mexico  
 An owl is an **nocturnal** bird, while a sparrow is **diurnal**. -    
-**feign** death -  
+**feign** death  
 get frustrated with **inanimate** object 🐦   
 
 Another four units **on standby**, just in case we need it.  
@@ -157,10 +247,10 @@ The nails in his boots **grated** on the stones
 there was **a hail of** angry words  
 there was a **sachet** of shampoo in the bathroom  
 **christening**  
-combustion **alcove** -  
+combustion **alcove**  
 This is Kate's **understudy**, Lauren.  
 **forefinger**  
-**mahogany** box -  
+**mahogany** box  
 **convex** vs **concave** -  
 **aforementioned**  
 **statue** vs **statute**  
@@ -170,7 +260,7 @@ of course the changes in sexual behavior and **sexual mores**.
 topless girl **wading** in the water  
 use this **wad** of cloth to **plug** the barrel  
 having a **spat** with somebody  
-**lewd** behavior -  
+**lewd** behavior  
 Getting an MBA used to be a **surefire** way to land a job. Not this year. 
 Trump and Oregon officials **traded barbs** about the violence. NBC NEWS  
 He was completely **impervious** to criticism.  

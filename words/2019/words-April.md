@@ -186,7 +186,7 @@ The physical **ailments** that **condemned** him to a lonely childhood
 coral **reef**  
 he was **kin** to the brothers.
 The poor painter sold his paintings for a **paltry** sum of money.  
-Bird **perched** on the branch -   
+Bird **perched** on the branch  
 I like fishing for **perch** on vacation.  
 The cells **proliferate** **readily** in **culture**.  
 Spectacle **bunker**.  
@@ -291,7 +291,7 @@ Be the **scoff** of the town
 the beast in you is **rearing** its ugly head  
 **medicare** insurance  
 When something is **grotesque**, it's hard to look away.  
-the **contenders** had been **winnowed** to five -  
+the **contenders** had been **winnowed** to five  
 He is rising too quickly into becoming a top-tier **contender** for the American president  
 
 
@@ -383,7 +383,7 @@ What kind of an **incompetent** **buffoon** has the their representative do the 
 some are just **flat-out** illegal  
 gives illegal orders and puts people in a completely **untenable** situation.  
 going to go to jail for following his order or they're going to be fired by the **impetuous** child  
-because you're **maniacally** stupid  -  
+because you're **maniacally** stupid  
 He is **instrumental** in and supported separating families at the border  
 He is also a **careerist** and cares a lot about his reputation  
 This is the one issue that you can't put as **culpability** on republicans -  

@@ -1,5 +1,33 @@
 ## Sep 
 
+**mythic** 
+
+**irredeemable**
+
+**enunciation**  
+
+**concatenate**, **truncate** 
+
+**overt**, **covert**  
+
+**maneuver**
+
+**tamper**
+
+**expedite**
+
+**abdomen**
+
+**phlegm**
+
+**botched**
+
+**meticulously**
+
+**oxygen**
+
+**merit** 
+
 **reciprocal**, **reciprocity**
 
 **peripheral**
@@ -22,7 +50,7 @@
 
 **inflammation**
 
-**procurement**  
+**procure**, **procurement**  
 
 **ominous**
 

@@ -80,7 +80,7 @@ she has built up an **enviable** reputation as a **harpist**
 I will **nip out** and buy a newspaper  
 the old **maxim**: "the customer is always right".  
    
-they saw a generation of Republican politicians who **kowtowed** to Fox News, who **genuflected**. -  
+they saw a generation of Republican politicians who **kowtowed** to Fox News, who **genuflected**.  
 Then they saw somebody **take on** Fox News, and Trump won.  
 he's the gift that keeps on giving women the **creeps**.  
 it was **jarring**  

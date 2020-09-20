@@ -1,3 +1,19 @@
+## E 3 
+I have to get up to the negotiation table because some **two-bit** county administrator wants to ...  
+This is **cut and dry**, Frank. -  
+Frank, I know you want to **swoop down** and **save the day**, but there's principle **at stake** here.  
+**Meantime**, you tell the association, if they want it **lit up**, they can pay for it.  
+let's make sure we're **rock solid** on that.  
+**fellatio** good?  
+some of them we can **stomach**, some of them we can't.  
+Let's not get **bogged down** in abstractions, let's deal with **specifics**. -  
+I've had lots of **trailblazers** come before me.  
+**stamper**  
+do not let Spinella **out of your sight** and lock the goddamn doors if you have to.  
+An Asian girl **peddling** a Standford degree?  
+Not just an Asian girl, a **valedictorian** -  
+
+
 ## E 2  
 Clares makes a **cold-blooded** move at work.  
 It's **degrading**, I know 

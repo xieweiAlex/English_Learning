@@ -4,7 +4,7 @@ The **manure** analogy
 The sheer **banality** of it all is very upsetting.  
 I'm not a **vain** person  
 **bonus room**  
-You **marched me out** of the Hooli offices yourself and now you come **groveling** to me for assistance? -  
+You **marched me out** of the Hooli offices yourself and now you come **groveling** to me for assistance?  
 Purchase for Gavin a **quart** of **mint chocolate chip** ice cream
 They said it would make Jared seem a little more **officious**.  
 I'll be out here in the **bullpen**, in the old **gravel pit**. -  
@@ -28,7 +28,7 @@ the launch is a bear, and the honey is the **pizazz**. The bear needs more pizaz
 **AF**  
 Big Head is still legally Erlich's **next of kin**.  
 So Jian-Yang's whole **gambit** was for naught.  
-No matter how **repugnant** their views are. -  
+No matter how **repugnant** their views are.  
 **do-over** that whole speech, fuck that guy.  
 **BRB**  
   
