@@ -1,4 +1,5 @@
 
+The **last thing** the people here need is a **two-bit** **charlatan**... -  
 Their opposition **stems from** fear and ignorance  
 They're **narrow-minded**, **mean-spirited** **dirtbags**.  
 
@@ -11,7 +12,7 @@ Let's not get **bogged down** in abstractions, let's deal with **specifics**.
 Everyone thinks that I'm just this **washed-up** hack, but actually, what if they're right.  
 
 if you don't swallow your pride, this is never gonna **let up**.  
-how did I **come off**?  
+How did I **come off**?  
 
 You're way **out of line**  
 he was arrested **on the spot**  

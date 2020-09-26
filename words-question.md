@@ -1,4 +1,5 @@
 
+* sleazy vs tacky 
 * genuflected
 * extraneous vs superfluous
 * dyke  

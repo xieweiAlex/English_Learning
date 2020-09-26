@@ -84,9 +84,9 @@ Our troops **withstood** the **onset** of the enemy. -
 Next hour: **overcast**  
 Do you have a **VITA** volunteer helping you to prepare your tax return?.  
 
-You’ll **avail** of all relevant international tax treaties, personal allowances, credits & tax deductions -  
+You’ll **avail** of all relevant international tax treaties, personal allowances, credits You’ll **avail** of all relevant international tax treaties, personal allowances, credits & tax deductions -   tax deductions  
 
-a **morbid** fascination with death -  
+a **morbid** fascination with death  
 He had a **bloated**, unshaven face 
 **bill of clearance**  
 Mike delfino and I **made out** today, and it was great.   
@@ -95,7 +95,7 @@ Mugabe ruled **Zimbabwe** as an **autocrat** for nearly 40 years
 **ecology** environment 
 They were **moaning** and **groaning** about management 
 
-There’s a lot of debate **swirling** around Modern Monetary Theory—some **strident**. Its critics call it a **hot mess** - 
+There’s a lot of debate **swirling** around Modern Monetary Theory—some **strident**. Its critics call it a **hot mess**  
 MMT has constructed such a **bizarre**, illogical, **convoluted** way of thinking about macro that it’s almost **impervious** to attack  
 **impervious bed**
 
@@ -104,7 +104,7 @@ I feel a sense of **kinship** or connection to other developers
 **Guerrilla warfare**  
 **QA triage**   
 
-a **grudging** apology. -  
+a **grudging** apology.  
 It is **begrudgingly** included in this list of the best Twitter apps because it is now the only official client for macOS  
 
 A **ploy** for **deflecting** criticism  
@@ -131,7 +131,7 @@ to **side-step** retain cycle
 
 There's no **turning back** 
 Play **second fiddle**
-But look up in hash table should be **amortized** O(1) time as long as the hash function was chosen carefully -  
+But look up in hash table should be **amortized** O(1) time as long as the hash function was chosen carefully  
 BMR: **Basal Metabolic Rate**
 
 ## Week 2 

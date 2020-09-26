@@ -106,7 +106,7 @@ The **nun** took strait vows.
 it would be a hard **slog** back to the camp  
 **contraceptive** pill  
 We are gonna **pore over** everything.  
-**bestow** high praise on the winners. -  
+**bestow** high praise on the winners.  
 **conquest** of the **Aegean**  
 
 

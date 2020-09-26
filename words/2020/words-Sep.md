@@ -1,14 +1,91 @@
 
-eminently  
+Yet, the design of desktop Wikipedia and other Wikimedia Foundation projects have not seen any substantive changes for the past 10 years, leaving certain elements of the site’s navigation feeling clunky and overwhelming to readers and editors whose main purpose is to create, learn, and curate content  
+she **bid** me take love easy  
 
-A federal court granted a preliminary injunction halting the Trump administration’s planned ban of Chinese app WeChat, in response to a plaintiff lawsuit saying the ban would harm their First Amendment rights  
+First of all, lose the **snippy** attitude.  
+**Intravenous** drug user 
+The tulip **craze** suddenly cam crashing down  
+**oozy** ground base  
+**bubbly** water with lemon  
+**saline** soil  
+He is on a **saline drip**  
+Her life was a **whirl** of parties  
+**obnoxious**  
+she told me she has been **framed**.  
+then disagreements **sprang up** between them.  
+**downtrodden** workers  
+
+Engaging: be friendly, upbeat, and **solicitous** to both regulars and guests  
+Walmart can help you **skip ahead** in your career. Here’s how  
+Keeping four **squirmy** pups in one place isn't always easy.  
+
+Yet, the design of desktop Wikipedia and other Wikimedia Foundation projects have not seen any **substantive** changes for the past 10 years, leaving certain elements of the site’s navigation feeling **clunky** and overwhelming to readers and editors whose main purpose is to create, learn, and curate content -  
+
+**focal point**  
+**liaison** office  
+he became a citizen, **theryby** gaining the right to vote.  
+She shrugged **nonchalantly** and turned away -  
+John was trying to **slink** into the house by the back door  
+they were all **shrieking** with laughter.  
+a **soupy** stew  
+**igneous** rock  
+she inspires them to find their **muse**  
+Foxes are supposed to be **wily** creatures  
+
+The U.S. is 42 days out from the election, but investors are prepping for a **drawn-out** result that could take months. -  
+As I noted above, Apple has a **perpetual** license to ARM  
+**ego cogito ergo sum** -  
+**cotter** pin, **split pin**.  
+
+The second term **commences** in March 
+**smack** on the face  
+a **smacking** kiss  
+he is too **feverish** to rest  
+**viscous** fluid  
+**blinding** layer  
+I woke up with the **blinding** realization that it was time to go  
+I'm a **cyborg** photographer  
+he **blubbered** like a child who had been **spanked**. -  
+A **spanking** breeze is a **boon** to sailors  
+nausea **retch**  
+The smell made her **retch**  
+**thrice**  
+fat **paunches** have lean **pates** -  
+
+## Week 3 
+
+**sagging** chains of the garage door mechanism   
+He **snapped** a **twig** off a bush  
+
+**garlic chive**  
+She has to have nice round **heinie** which his ex wives lack. -  
+
+carbon **footprint**  
+It also adds to the oil's climate **footprint**.  
+
+The **blinds** were **drawn**.  
+From a gentle sunrise **coaxing** us into the daytime to the **boisterous** bells of an iPhone shocking us into sunshine -  
+After much **trial and error**, I arrived at four sections that I needed to make changes in. Daylight activities, evening activities, bedroom conditions and waking  
+**circadian** clock   
+when it comes to a discussion on the way our bodies were designed, exercise should be **front and center**  
+**Millennia** ago, when the sun went down, both human and other **diurnal** animals would intuitively know that it’s time to **wind down**  
+the light colour was a warm **yellowish** light, not a corporate **fluorescent** -  
+Waking up has never been my **strong suit**  
+Some people, including an ex-girlfriend are able to rise effortlessly in the morning with a **chirpy disposition** that only serves to irritate those that can’t  
+there’s a biological diversity that comes in the split of night owls and **morning larks**  
+**restorative** slumber  
+
+you, along with 60% of 16–34 year-old’s will probably have to **dust off** one of those technological dinosaurs known as an alarm clock  
+
+She seems **eminently** suitable for the job -  
+A federal court granted a **preliminary injunction** halting the Trump administration’s planned ban of Chinese app WeChat, in response to a **plaintiff** lawsuit saying the ban would harm their First Amendment rights -  
 
 
 Normal **cornea**  
 he was **munching** an apple -  
 **Temporarily**   
 **tarp** on the shed  
-**crumby** soil  
+**crumby** soil, **crumby break**  
 permanent **magnetism**  
 **goo**, **goop**  
 a **humdinger** of a **blizzard**  
@@ -22,19 +99,19 @@ The problem arises when you **go overboard**
 **walnut kernel**, black **walnut**, **walnut** shell  
 **antacid**  
 **Amnesia** mercifully **obliterated** his memory of the accident -  
-**rubella** virus/vaccine  
+**rubella**: A contagious viral infection preventable by vaccine and best known by its distinctive red rash.   
 there is nothing wrong with a woman enjoying a little **erotica**  
 The shores are **strewn** with **wrecks**. -  
-blue **negligee**  
+The floor was **strewn** with clothes  
+blue **negligee** -  
 **everlasting** life  
 George paused, **momentarily** confused. -  
 she **rued** the trip with him  
 **ribbed** **plate**   
-academic **dissertation** -  
+academic **dissertation**  
 **herbalist** doctor  
 Let's keep the criticism general and **impersonal**  
-Her **overt** sexuality shocked cinema audiences -  
-The **last thing** the people here need is a **two-bit** **charlatan**... -  
+Her **overt** sexuality shocked cinema audiences  
 **orchid** plaza  
 
 **immobile posture**  
@@ -49,7 +126,7 @@ Your English grammar needs to be **rubbed up**.
 There is a **pervading** sense of **menace**  
 **menacing letter**  
 I **shuddered** when I heard the **gory** details  
-muscle **spasm** -  
+muscle **spasm**  
 they threw a **frisbee** to each other  
 
 Initially, the Microsoft To-Do was **barebones**. It lacked some essential functionality that Wunderlist users previously **relied on**, including collaboration and attachments  
@@ -86,12 +163,12 @@ I'm such a **dingus**! -
 the enemy was **appalled** at our attack  
 **ladybug**  
 **stegosaurus** -  
-His body was solid and **taut**. -  
+His body was solid and **taut**.  
 **Sagittarius**  
 
 ## Week 2 
 
-The sound of the bell was **muffled** by the curtains -  
+The sound of the bell was **muffled** by the curtains  
 Product placement in Hollywood has existed almost since the **advent** of movies themselves, so by now we're all fairly immune to seeing **glaringly** obvious logos and brands on the big screen  
 
 **grasshopper**
@@ -131,7 +208,7 @@ seat the **telescope** on the **tripod**
 **Sequoia** Capital 
 The air was **fragrant** with **lavender**  
 **lavender** oil  
-**Alimony** trust - 
+**Alimony** trust  
 the **cactus** love hot, dry air  
 **crumpled** paper  
 the bus was **crumpled up** in the crash  
@@ -214,7 +291,7 @@ Handing me a **pamphlet** on the resurgence **gonorrhea**? -
 There was a **tremble** in her voice 
 large **artery**  
 **aortic** **valve**  
-**hazelnut** chocolate **chip** **scone** -  
+**hazelnut** chocolate **chip** **scone**  
 he managed to **endear** himself to my entire family  
 **corpses** as far as they eye can see  
 the **marine corps** will carry out **live-fire** drills  

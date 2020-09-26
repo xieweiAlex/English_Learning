@@ -21,7 +21,7 @@ The government have **latched onto** environmental issues to win votes
 An **elusive** bug  
 an **extemporaneous** speech -  
   
-a four-month-old California **condor**, high in the trees of the Ventana wilderness area, looking out as flames advance towards her -  
+a four-month-old California **condor**, high in the trees of the Ventana wilderness area, looking out as flames advance towards her  
 The two biggest **conflagrations**, one east of San Jose, the other north of San Francisco, are the state’s second- and third-largest on record  
 including Santa Clara County, which is being **scorched** by the largest of the fires  
 Climate change has not worked its destruction **unaided**. Mistaken policies have made the forests more vulnerable, especially the decades-long policy of suppressing wildfires  
@@ -50,7 +50,7 @@ Email is the **mother of all** **habit-forming** products
   
 ## Week 3 ##  
   
-There's tons of flavor the **mired** reactions really work to **caramelize** the beef here. -  
+There's tons of flavor the **mired** reactions really work to **caramelize** the beef here.  
 Don't use alcohol or **sedatives** to initiate a nap  
 **sleep-deprived**  
   

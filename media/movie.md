@@ -8,7 +8,7 @@ I was **anchoring** in the beginning of the day and the **midday** for most of t
 Fox News has **cornered the market** on half of the country's television viewers.  
 He got a regular **gig** with Fox and Friends.  
 So even back then, he was **media-savvy**.  
-No. He used to **sabre-rattle** a little about it. -  
+No. He used to **sabre-rattle** a little about it.  
 because Obama, I think, by most people’s measure, is a good man with policies that led to **mediocre success**. And that have largely been **reversed**.  
 And then Obamacare got **shoved down our throats**, without majority support in the country, which was a huge thing.  
 And Obama was too **cavalier** about it….  

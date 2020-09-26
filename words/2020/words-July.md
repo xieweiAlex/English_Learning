@@ -512,7 +512,7 @@ Flower **vase**, **porcelain** vase
 A **regatta** is a series of boat races.  
 dragon-boat **regatta**  
 **Venice**, **Venetian**  
-we **lamented** over our bad luck. -  
+we **lamented** over our bad luck.  
 **camcorder**  
 the **windshield** has **iced up**.  
 **boundary**  

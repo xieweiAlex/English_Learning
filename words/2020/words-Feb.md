@@ -254,7 +254,7 @@ This abuse was just **laughed off** and accepted as normal.
 You're such a **lurker**  
 
 Avoid touching that **vermin** that sits on all our desks, the mouse  
-Without further **ado** please welcome XXX  
+**without further ado** please welcome XXX  
 The President’s **vindictiveness** is **precisely** what led Republican Senators to be accomplices to his **cover-up**  
 
 **newlywed**  

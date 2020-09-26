@@ -1,5 +1,13 @@
 ## Sep 
 
+**administrative**
+
+**commodity**
+
+**millennials**
+
+**substantiated**, **substantive**, **substantial**
+
 **mythic** 
 
 **irredeemable**

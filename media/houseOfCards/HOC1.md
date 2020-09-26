@@ -6,7 +6,7 @@ Frank, I know you want to **swoop down** and **save the day**, but there's princ
 let's make sure we're **rock solid** on that.  
 **fellatio** good?  
 some of them we can **stomach**, some of them we can't.  
-Let's not get **bogged down** in abstractions, let's deal with **specifics**. -  
+Let's not get **bogged down** in abstractions, let's deal with **specifics**.  
 I've had lots of **trailblazers** come before me.  
 **stamper**  
 do not let Spinella **out of your sight** and lock the goddamn doors if you have to.  

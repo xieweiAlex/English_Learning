@@ -386,7 +386,7 @@ going to go to jail for following his order or they're going to be fired by the 
 because you're **maniacally** stupid  
 He is **instrumental** in and supported separating families at the border  
 He is also a **careerist** and cares a lot about his reputation  
-This is the one issue that you can't put as **culpability** on republicans -  
+This is the one issue that you can't put as **culpability** on republicans  
 
 
 Kirstjen Nielsen, Homeland Security chief, is out **amid** surge at US-Mexico border  

@@ -1,4 +1,11 @@
 
+## E 6 
+probably just forgot, the **lazy bum**.  
+**drunken**  
+I will keep your little crush busy long enough for you to get rid of the **contraband**. -  
+Am I **attracted to** her? Sure. 
+**two-crossed** man  
+
 ## E 5
 We need a fully body **cavity search**  
 They're **narrow-minded**, **mean-spirited** **dirtbags**.  

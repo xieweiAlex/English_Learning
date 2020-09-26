@@ -7,7 +7,7 @@ I'm not a **vain** person
 You **marched me out** of the Hooli offices yourself and now you come **groveling** to me for assistance?  
 Purchase for Gavin a **quart** of **mint chocolate chip** ice cream
 They said it would make Jared seem a little more **officious**.  
-I'll be out here in the **bullpen**, in the old **gravel pit**. -  
+I'll be out here in the **bullpen**, in the old **gravel pit**.  
 It's just a light **saline** injection, 
 
 
