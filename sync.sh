@@ -17,6 +17,10 @@ function countWords {
     total_count=$(( total_count + count ))
     echo -e "total count: ${YELLOW} $total_count ${NC}"
   done 
+
+  # Persist the total_count 
+  date=$(date +%Y/%m/%d)
+  echo "$date: $total_count" >> "./record.md"
 }
 
 function getNewWords {

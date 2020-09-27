@@ -1,6 +1,43 @@
 
-Yet, the design of desktop Wikipedia and other Wikimedia Foundation projects have not seen any substantive changes for the past 10 years, leaving certain elements of the site’s navigation feeling clunky and overwhelming to readers and editors whose main purpose is to create, learn, and curate content  
+stalwart  
+
+He summarized the salient points -  
+
+**tabloid** newspaper  
+I wouldn't feel any **guilt**, per se for leaving it.  
+
+Nvidia is not **setting out to be** a partner, someone that gets along with everyone **in exchange for** a couple of pennies in licensing fees  
+
+The **tally** was two **ayes** and three **nays**  
+His **impotence** to help made him **despair**  
+
+Let the dog for a **scamper**. -  
+The kid who **ends up with** the backpack while the other kids **scamper** has been left **holding the bag**.  
+
+He tried to **even out** the distribution of work among his employees.  
+
+Two Los Angeles-based commodities dealers have been charged with **swindling** senior citizens on **precious-metals** purchases -  
+silver **bullion**  
+America may be caught in a **paradox of thrift**, in which saving during a crisis, while individual **prudent**, is **collectively** detrimental to the economic recovery.  
+**contrary**  
+To boost current spending, Keynes **argued for** lower interest rates to lower current savings rates  
+If higher current spending causes future prices to rise **concordantly**, future production and employment will remain unchanged  
+
+I'm not gonna leave you **holding the bag**.  
+Start with Nvidia: the company is perhaps the **shining example** of the industry transformation **wrought** by TSMC;   
+**vertically integration**  
+**Color me** skeptical  
+What was so striking about Huang’s answer was not simply its **expansiveness** — I’ve **transcribed** the entire answer below ...  
+The ecosystem is **hard-earned**  
+In this vision Nvidia’s IP is the CUDA to its graphics chips — the **complement** to its **grander** ambitions  
+**licensees**, **licensor**  
+
 she **bid** me take love easy  
+Bannon's stake in the company was estimated at 1 to 5 million dollars, but he **divested** his holdings in April 2017 as required by his role as White House Chief Strategist. In March 2018  
+
+**Psychographics** is a **qualitative** methodology used to describe traits of humans on psychological attributes.[1] Psychographics have been applied to the study of personality, values, opinions, attitudes, interests, and lifestyles.  
+**blue chip** company 
+Their YouTube channel features an array of young people **doling out** tips on topics like grocery shopping on a budget, asking for a raise at work, and how to organize your closet for maximum efficiency -  
 
 First of all, lose the **snippy** attitude.  
 **Intravenous** drug user 
@@ -15,7 +52,7 @@ she told me she has been **framed**.
 then disagreements **sprang up** between them.  
 **downtrodden** workers  
 
-Engaging: be friendly, upbeat, and **solicitous** to both regulars and guests  
+Engaging: be friendly, upbeat, and **solicitous** to both regulars and guests -  
 Walmart can help you **skip ahead** in your career. Here’s how  
 Keeping four **squirmy** pups in one place isn't always easy.  
 
@@ -74,6 +111,7 @@ Waking up has never been my **strong suit**
 Some people, including an ex-girlfriend are able to rise effortlessly in the morning with a **chirpy disposition** that only serves to irritate those that can’t  
 there’s a biological diversity that comes in the split of night owls and **morning larks**  
 **restorative** slumber  
+> a gradual and natural wake up is always better than the traditional and jarring **auricular** **buzzer** known as an alarm clock  
 
 you, along with 60% of 16–34 year-old’s will probably have to **dust off** one of those technological dinosaurs known as an alarm clock  
 
@@ -101,7 +139,7 @@ The problem arises when you **go overboard**
 **Amnesia** mercifully **obliterated** his memory of the accident -  
 **rubella**: A contagious viral infection preventable by vaccine and best known by its distinctive red rash.   
 there is nothing wrong with a woman enjoying a little **erotica**  
-The shores are **strewn** with **wrecks**. -  
+The shores are **strewn** with **wrecks**.  
 The floor was **strewn** with clothes  
 blue **negligee** -  
 **everlasting** life  
@@ -141,7 +179,7 @@ This was a completely **novel** idea: at that time all chip manufacturing was in
 Her cup **clattered** in the **saucer**  
 Another symptom that’s more **prevalent** with a cold: a wet cough where **phlegm** is involved.   
 What can you **glean** from local health data to better evaluate your symptoms?  
-The enterprise cloud **biz** is **torrential**—lots of businesses need lots of data stored and analyzed -  
+The enterprise cloud **biz** is **torrential**—lots of businesses need lots of data stored and analyzed  
 The flooding, caused by three days of **torrential rain**, is the worst in sixty-five years.  
 But the company, which **embarked on** a pricey expansion last year following a CEO **shakeup**, is not profitable.   
 Rivals are **fuming**: Wrapping music, gaming, and video into one service could make it harder for users to leave the Apple **orchard**.  
@@ -162,7 +200,7 @@ I'm such a **dingus**! -
 **Appalling** weather  
 the enemy was **appalled** at our attack  
 **ladybug**  
-**stegosaurus** -  
+**stegosaurus**  
 His body was solid and **taut**.  
 **Sagittarius**  
 
@@ -300,7 +338,7 @@ the smelling of **ammonia** brought him around -
 the tooth **relic** is in a special **casket**  
 **Salmonella** bacteria  
 **Pesos** are used in Mexico  
-An owl is an **nocturnal** bird, while a sparrow is **diurnal**. -    
+An owl is an **nocturnal** bird, while a sparrow is **diurnal**.  
 **feign** death  
 get frustrated with **inanimate** object 🐦   
 

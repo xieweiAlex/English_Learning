@@ -120,7 +120,7 @@ Image God let us decide whether or not to **smite** ourselves. -
 Well, I did **covet** Gary's wife, but **in my defense**, Gary's wife got that ass.  
 **Flight attendant**  
 We have a **cold sore**.  
-Don't kiss or **snuggle** **hedgehogs**, because this can spread **Salmonella** germs to your face and mouth and make you sick. -  
+Don't kiss or **snuggle** **hedgehogs**, because this can spread **Salmonella** germs to your face and mouth and make you sick.  
 
 If I die young bury me in **satin** 
 This is **infuriating** and hard to watch
@@ -181,7 +181,7 @@ I took six weeks off just to kind of **decompress** between jobs.
 **persecuted** sb with questions  
 a **frisky** kitten  
 I **hurled** a lance at him  
-he **hurled** himself into the job with enthusiasm. -  
+he **hurled** himself into the job with enthusiasm.  
 **Stingy** with details about the past  
 The weekly **outlay** on groceries.  
   

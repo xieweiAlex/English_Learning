@@ -1,6 +1,6 @@
 ## E 3 
 I have to get up to the negotiation table because some **two-bit** county administrator wants to ...  
-This is **cut and dry**, Frank. -  
+This is **cut and dry**, Frank.  
 Frank, I know you want to **swoop down** and **save the day**, but there's principle **at stake** here.  
 **Meantime**, you tell the association, if they want it **lit up**, they can pay for it.  
 let's make sure we're **rock solid** on that.  

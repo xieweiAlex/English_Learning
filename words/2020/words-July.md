@@ -291,7 +291,7 @@ John Lewis was a **crusader** for social justice
   
 but given the **ever-changing** status of COVID-19 in our communities, it’s not that simple  
 hardware **ironware** **metals**  
-Some doctors wondered: where are the **preemies**? -  
+Some doctors wondered: where are the **preemies**?  
   
 ### Week 3  
   

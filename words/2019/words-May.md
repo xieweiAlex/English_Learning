@@ -81,7 +81,7 @@ Five years ago you don't know what AI is, and now you're **extrapolating** too m
 **benevolent**  
 sounds **eminently** sensible.  
 **fertile** ground  
-Say no not base on one or two **salient** features -  
+Say no not base on one or two **salient** features  
 I as a human being just can not **grasp**.  
 
 **penalize**  

@@ -1,4 +1,10 @@
 
+Nvidia is not **setting out to be** a partner, someone that gets along with everyone **in exchange for** a couple of pennies in licensing fees  
+full truth, **warts and all**  
+
+He tried to **even out** the distribution of work among his employees.  
+I'm not gonna leave you **holding the bag**.  
+
 The **last thing** the people here need is a **two-bit** **charlatan**... -  
 Their opposition **stems from** fear and ignorance  
 They're **narrow-minded**, **mean-spirited** **dirtbags**.  

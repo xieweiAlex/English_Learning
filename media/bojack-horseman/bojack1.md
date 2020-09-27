@@ -1,3 +1,31 @@
+## E 8 
+
+Bojack tries to **mend fences**.  
+It makes me feel like **a third wheel**  
+An **off-the-clock** non-work-related social event?  
+I think you're **coward**.  
+Now go **stuff** some **prosciutto** in your pants.  
+I got **caught up** in the moment.  
+One that takes an **unflinching** look at the gritty reality of the Aemrican family.  
+I don't want to see you in any more **tabloids**.  
+**no dob**  
+every day we don't fire him, we're flushing money down the **crapper**. -  
+you can **storm out**, make a big show out of what a "good" friend you are, or you could be the guy who does his job.  
+**secretariat**  
+went into a **turnaround**.  
+full truth, **warts and all**  
+**for what it's  worth**, I think it took a lot of **guts** to do what you did back there.  
+
+
+## E 7 
+Bojack **sabotages** himself with an epic **bender** -  
+they didn't give you fake **bourbon** **on set**?  
+somebody's got to **take the fall**  
+just me, you, and a bottle of **pinot**.  
+That guy's **dead weight**, Princess Carolyn  
+if you don't **cut him loose**, you're never gonna be happy.  
+you really **shat** the bed on this one.  
+
 
 ## E 6 
 probably just forgot, the **lazy bum**.  
