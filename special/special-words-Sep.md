@@ -1,9 +1,3 @@
-## Oct 
-
-**cushion**  
-
-**materialize**
-
 ## Sep 
 
 **clunky**

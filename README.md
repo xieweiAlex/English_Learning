@@ -1,6 +1,6 @@
 # English_Learning
   
-Expanding English vocabulary for a non native-speaker is tedious and time-consuming, are you with me 🤔? I try to record the **words or phrases** I encounter every day with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and hopefully if it can inspire someone else, that's even better ✊.  
+Expanding vocabulary for a non native-speaker is tedious and time-consuming, are you with me 🤔? I try to record the **words or phrases** I encounter daily with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and hopefully if it can inspire someone else, that's even better ✊.  
 
 ## Special Review 🐗   
 
@@ -14,11 +14,14 @@ Expanding English vocabulary for a non native-speaker is tedious and time-consum
 
 ### Special words 
 
-[words-Sep](./special/special-words-Sep.md) | [words-Aug](./special/special-words-Aug.md)
+[words-Aug](./special/special-words-Aug.md) | [words-Sep](./special/special-words-Sep.md) | [words-Oct](./special/special-words-Oct.md) 
 
 ## TV Show, Movie
 ### House of Card 🐺 
 [S1](./media/houseOfCards/HOC1.md)
+
+### Bojack Horseman 🐴
+[s1](./media/bojack-horseman/bojack1.md)
 
 ### Westworld 🤖
 [S1](./media/westWorld/ww1.md) | [S2](./media/westWorld/ww2.md) | [S3](./media/westWorld/ww3.md)  
