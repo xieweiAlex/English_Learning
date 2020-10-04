@@ -6,7 +6,7 @@ Expanding English vocabulary for a non native-speaker is tedious and time-consum
 
 |  Special Review      |    File Marks       |  file   	|
 | ------------- |-------------  | ------- |
-|    Recent words record   |  A  | [current-month](./words/2020/words-Sep.md),  [last-month](./words/2020/words-Aug.md)       |
+|    Recent words record   |  A  | [current-month](./words/2020/words-Oct.md)   |
 |    Word Review   |  I  |  [words-review](./words-review.md)       |
 |    Common Phrase tamping   |  J  | [special-phrase](./special/phrase.md)       |
 |    Special Words tamping   |  K  | [special-words](./special/special-words-Sep.md)       |
@@ -32,7 +32,7 @@ Expanding English vocabulary for a non native-speaker is tedious and time-consum
 ### Words 
 
 #### 2020 👊 
-[Jan](./words/2020/words-Jan.md) | [Feb](./words/2020/words-Feb.md) | [March](./words/2020/words-Mar.md) |  [April](./words/2020/words-April.md) | [May](./words/2020/words-May.md) | [June](./words/2020/words-Jun.md) | [July](./words/2020/words-July.md) | [Aug](./words/2020/words-Aug.md) | [Sep](./words/2020/words-Sep.md)  
+[Jan](./words/2020/words-Jan.md) | [Feb](./words/2020/words-Feb.md) | [March](./words/2020/words-Mar.md) |  [April](./words/2020/words-April.md) | [May](./words/2020/words-May.md) | [June](./words/2020/words-Jun.md) | [July](./words/2020/words-July.md) | [Aug](./words/2020/words-Aug.md) | [Sep](./words/2020/words-Sep.md) | [Oct](./words/2020/words-Oct.md)
 
 #### 2019 🏃  
 [Jan](./words/2019/words-Jan.md) | [Feb](./words/2019/words-Feb.md) | [March](./words/2019/words-March.md) |  [April](./words/2019/words-April.md) | 

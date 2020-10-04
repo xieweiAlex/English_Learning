@@ -1,4 +1,5 @@
 
+* except vs besides 
 * sleazy vs tacky 
 * genuflected
 * extraneous vs superfluous
@@ -14,7 +15,6 @@
 * it was great meeting you -- You too 
 * geld
 * particularly vs specially 
-* except vs besides 
 * shim
 * indisposed  
 * banalities vs cliche

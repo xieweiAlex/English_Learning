@@ -295,7 +295,7 @@ the **contenders** had been **winnowed** to five
 He is rising too quickly into becoming a top-tier **contender** for the American president  
 
 
-The swifts are a family, **Apodidae**, of highly aerial birds. They are superficially similar to **swallows**, but are not closely related to any of the passerine species. -  
+The swifts are a family, **Apodidae**, of highly aerial birds. They are superficially similar to **swallows**, but are not closely related to any of the passerine species.  
 Creation of an additional abstraction is just an **collateral damage**  
 
 Will you quit **griping** about your test grade? You should have studied! 

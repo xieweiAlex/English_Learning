@@ -1,4 +1,12 @@
+## Oct 
+
+**cushion**  
+
+**materialize**
+
 ## Sep 
+
+**clunky**
 
 **complement**
 

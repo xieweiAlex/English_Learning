@@ -27,7 +27,7 @@ We were able to keep teams small, invest more in each person, and **nimbly** cha
 **plague** 
 **kiwi youth** 
 **statism**  
-**Asthma** -  
+**Asthma**  
 
 Japanese attached zero **stigma** to nudity and **eroticism** 
 government then came and **confiscated** everyone's **shunga**   
@@ -48,7 +48,7 @@ Can climb the ladder of social mobility and reach the highest **echelon**.
 More people **executed** in China than rest of the world combined.  
 **scorecard system**  
 **mandate of heaven**  
-having lived in China for 3 years and seeing what rights the Chinese people are **forfeiting** and what they are gaining in return -  
+having lived in China for 3 years and seeing what rights the Chinese people are **forfeiting** and what they are gaining in return  
 
 Spotify's acquisition **spree** won't change the podcast industry on its own. But it's another signal that we're on the **cusp** of a similar change for podcasting --   
 

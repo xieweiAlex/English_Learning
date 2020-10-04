@@ -21,7 +21,7 @@ The techniques of deep learning that Bengio, Hinton, and LeCun developed **under
 These stamps have great **rarity** value.  
 a realistic novel about **ghetto** life.  
 The **slums** are a **reproach** to London -   
-he **huffed out** his **sudden irritation** -  
+he **huffed out** his **sudden irritation**  
 
 
 **fermented** meat   
@@ -76,7 +76,7 @@ He is as **cunning** as fox.
 **deride** a person's ignorance -  
 A **pejorative** (also called a **derogatory** term, a term of abuse, or a term of **disparagement**)  
 **means of subsistence**, **subsistence level**.  
-Our troops **withstood** the **onset** of the enemy. -  
+Our troops **withstood** the **onset** of the enemy.  
 **Malaise** is a feeling of general discomfort, uneasiness or pain, of being "out of sorts", often the first indication of an infection or other disease.-   
 
 **Russia lunacy**   
@@ -280,10 +280,10 @@ A **dude** definitely wrote that **chart**
 It’s actually been an issue in the last few years because it’s a **fire hazard**  
 I know that porn for women is kind of a **burgeoning** industry, but I’m guessing that’s kind of progressive so you wouldn't see it at a love hotel  
    
-August, best known for its smart door lock, was purchased by the lock **conglomerate** Assa Abloy in 2017, making it part of the same family of brands as Yale. -  
+August, best known for its smart door lock, was purchased by the lock **conglomerate** Assa Abloy in 2017, making it part of the same family of brands as Yale.  
    
 **shoyu source**  
-**court injunction** -  
+**court injunction**  
 **gag rule**  
    
 The Trump administration has **barred** MUthana, 24, and her son from returning to U.S., **contesting** her claim to U.S. citizenship.  
@@ -301,7 +301,7 @@ But then your family in Ghana has to somehow convert them to cedis at an **excha
    
    
 here's a **roundup** of what we do know about the upcoming 2019 iPhones.  
-Why Trump's effort to **narrow** the **Trade Cap** has **flopped** so far? -  
+Why Trump's effort to **narrow** the **Trade Cap** has **flopped** so far?  
 The trade **deficit** would continue to **widen** with Trump's policies  
 Those negotiations were all accelerated, at least in part, by the **imposition** or threat of tariffs. -  
 But tariff policies so far have **fallen well short** of the president's **oft-stated** goal  
@@ -311,7 +311,7 @@ An **eminent** musical mastermind
 a **dud** ignition switch  
 A Russian **cosmonaut** spent 438 days aboard the **Mir space station** in the 1990s.  
    
-After **tumultuous** week, a **profane** Trump returns to his base at CPAC. -  
+After **tumultuous** week, a **profane** Trump returns to his base at CPAC.  
 **Monospaced** font with programming **ligatures**.  
 **xenon** bulb.  
    

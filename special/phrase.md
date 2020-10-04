@@ -1,3 +1,30 @@
+I don't know. A sense of **deja vu**. -  
+The book turned out to be a total **hatchet job**.   
+**Giddy-Up** Little Doggies
+I'm **well-adjusted**, you all want my life.  
+
+#### Take up 
+I want men to **take up** this mantle.  
+Daenerys has **taken up** residence in Meereen  
+What's been **taking up** your days as of late?  
+The bill — which was approved without a single GOP vote — isn’t expected to be **taken up** by the Senate.
+
+he **huffed out** his **sudden irritation** -  
+And once you **zero in** on his **Achilles's hill**, we will take... him... down.  
+They **called off** their wedding.  
+Take the mic, **spin us a yarn**.  
+**rise and shine**, Todd.  
+
+I'm not **cut out for** the **slammer**.  
+I got **caught up** in the moment.  
+
+## Oct
+
+After much **trial and error**, I arrived at four sections that I needed to make changes in. Daylight activities, evening activities, bedroom conditions and waking  
+
+Dreams of becoming a movie star suddenly don't seem so **far fetched**. 🎬  
+
+**Step away** from the stolen vehicle, sir!  
 
 Nvidia is not **setting out to be** a partner, someone that gets along with everyone **in exchange for** a couple of pennies in licensing fees  
 full truth, **warts and all**  

@@ -1,10 +1,16 @@
 
-stalwart  
+## Week 4 
+Dreams of becoming a movie star suddenly don't seem so **far fetched**. 🎬  
+Still, the pandemic is **stunting** overall travel; those 600 million trips are down from 782 million last year.   
 
-He summarized the salient points -  
+**writhe** with pain  
+**Writhe** in **agony**  
+**Step away** from the stolen vehicle, sir!  
+**stalwart** supporter  
+He summarized the **salient** points   
 
 **tabloid** newspaper  
-I wouldn't feel any **guilt**, per se for leaving it.  
+I wouldn't feel any **guilt**, **per se** for leaving it. -  
 
 Nvidia is not **setting out to be** a partner, someone that gets along with everyone **in exchange for** a couple of pennies in licensing fees  
 
@@ -13,10 +19,9 @@ His **impotence** to help made him **despair**
 
 Let the dog for a **scamper**. -  
 The kid who **ends up with** the backpack while the other kids **scamper** has been left **holding the bag**.  
-
 He tried to **even out** the distribution of work among his employees.  
 
-Two Los Angeles-based commodities dealers have been charged with **swindling** senior citizens on **precious-metals** purchases -  
+Two Los Angeles-based commodities dealers have been charged with **swindling** senior citizens on **precious-metals** purchases  
 silver **bullion**  
 America may be caught in a **paradox of thrift**, in which saving during a crisis, while individual **prudent**, is **collectively** detrimental to the economic recovery.  
 **contrary**  
@@ -37,12 +42,12 @@ Bannon's stake in the company was estimated at 1 to 5 million dollars, but he **
 
 **Psychographics** is a **qualitative** methodology used to describe traits of humans on psychological attributes.[1] Psychographics have been applied to the study of personality, values, opinions, attitudes, interests, and lifestyles.  
 **blue chip** company 
-Their YouTube channel features an array of young people **doling out** tips on topics like grocery shopping on a budget, asking for a raise at work, and how to organize your closet for maximum efficiency -  
+Their YouTube channel features an array of young people **doling out** tips on topics like grocery shopping on a budget, asking for a raise at work, and how to organize your closet for maximum efficiency  
 
 First of all, lose the **snippy** attitude.  
 **Intravenous** drug user 
 The tulip **craze** suddenly cam crashing down  
-**oozy** ground base  
+**oozy** ground base -  
 **bubbly** water with lemon  
 **saline** soil  
 He is on a **saline drip**  
@@ -56,12 +61,12 @@ Engaging: be friendly, upbeat, and **solicitous** to both regulars and guests -
 Walmart can help you **skip ahead** in your career. Here’s how  
 Keeping four **squirmy** pups in one place isn't always easy.  
 
-Yet, the design of desktop Wikipedia and other Wikimedia Foundation projects have not seen any **substantive** changes for the past 10 years, leaving certain elements of the site’s navigation feeling **clunky** and overwhelming to readers and editors whose main purpose is to create, learn, and curate content -  
+Yet, the design of desktop Wikipedia and other Wikimedia Foundation projects have not seen any **substantive** changes for the past 10 years, leaving certain elements of the site’s navigation feeling **clunky** and overwhelming to readers and editors whose main purpose is to create, learn, and curate content  
 
 **focal point**  
 **liaison** office  
 he became a citizen, **theryby** gaining the right to vote.  
-She shrugged **nonchalantly** and turned away -  
+She shrugged **nonchalantly** and **turned away** -  
 John was trying to **slink** into the house by the back door  
 they were all **shrieking** with laughter.  
 a **soupy** stew  
@@ -69,15 +74,15 @@ a **soupy** stew
 she inspires them to find their **muse**  
 Foxes are supposed to be **wily** creatures  
 
-The U.S. is 42 days out from the election, but investors are prepping for a **drawn-out** result that could take months. -  
+The U.S. is 42 days out from the election, but investors are prepping for a **drawn-out** result that could take months.  
 As I noted above, Apple has a **perpetual** license to ARM  
-**ego cogito ergo sum** -  
+**ego cogito ergo sum**  
 **cotter** pin, **split pin**.  
 
 The second term **commences** in March 
 **smack** on the face  
 a **smacking** kiss  
-he is too **feverish** to rest  
+he is too **feverish** to rest -  
 **viscous** fluid  
 **blinding** layer  
 I woke up with the **blinding** realization that it was time to go  
@@ -87,7 +92,7 @@ A **spanking** breeze is a **boon** to sailors
 nausea **retch**  
 The smell made her **retch**  
 **thrice**  
-fat **paunches** have lean **pates** -  
+fat **paunches** have lean **pates**  
 
 ## Week 3 
 
@@ -95,18 +100,18 @@ fat **paunches** have lean **pates** -
 He **snapped** a **twig** off a bush  
 
 **garlic chive**  
-She has to have nice round **heinie** which his ex wives lack. -  
+She has to have nice round **heinie** which his ex wives lack.  
 
 carbon **footprint**  
 It also adds to the oil's climate **footprint**.  
 
 The **blinds** were **drawn**.  
-From a gentle sunrise **coaxing** us into the daytime to the **boisterous** bells of an iPhone shocking us into sunshine -  
+From a gentle sunrise **coaxing** us into the daytime to the **boisterous** bells of an iPhone shocking us into sunshine  
 After much **trial and error**, I arrived at four sections that I needed to make changes in. Daylight activities, evening activities, bedroom conditions and waking  
 **circadian** clock   
 when it comes to a discussion on the way our bodies were designed, exercise should be **front and center**  
 **Millennia** ago, when the sun went down, both human and other **diurnal** animals would intuitively know that it’s time to **wind down**  
-the light colour was a warm **yellowish** light, not a corporate **fluorescent** -  
+the light colour was a warm **yellowish** light, not a corporate **fluorescent**  
 Waking up has never been my **strong suit**  
 Some people, including an ex-girlfriend are able to rise effortlessly in the morning with a **chirpy disposition** that only serves to irritate those that can’t  
 there’s a biological diversity that comes in the split of night owls and **morning larks**  
@@ -116,20 +121,19 @@ there’s a biological diversity that comes in the split of night owls and **mor
 you, along with 60% of 16–34 year-old’s will probably have to **dust off** one of those technological dinosaurs known as an alarm clock  
 
 She seems **eminently** suitable for the job -  
-A federal court granted a **preliminary injunction** halting the Trump administration’s planned ban of Chinese app WeChat, in response to a **plaintiff** lawsuit saying the ban would harm their First Amendment rights -  
-
+A federal court granted a **preliminary injunction** halting the Trump administration’s planned ban of Chinese app WeChat, in response to a **plaintiff** lawsuit saying the ban would harm their First Amendment rights  
 
 Normal **cornea**  
-he was **munching** an apple -  
+he was **munching** an apple  
 **Temporarily**   
 **tarp** on the shed  
 **crumby** soil, **crumby break**  
 permanent **magnetism**  
 **goo**, **goop**  
-a **humdinger** of a **blizzard**  
+a **humdinger** of a **blizzard** -  
 **presumably**  
 they want to **forfeit** our assets  
-**chamomile** tea -  
+**chamomile** tea  
 **phonetically**  
 The problem arises when you **go overboard**  
 **Thruster**  
@@ -141,9 +145,9 @@ The problem arises when you **go overboard**
 there is nothing wrong with a woman enjoying a little **erotica**  
 The shores are **strewn** with **wrecks**.  
 The floor was **strewn** with clothes  
-blue **negligee** -  
+blue **negligee**  
 **everlasting** life  
-George paused, **momentarily** confused. -  
+George paused, **momentarily** confused.  
 she **rued** the trip with him  
 **ribbed** **plate**   
 academic **dissertation**  
@@ -153,7 +157,6 @@ Her **overt** sexuality shocked cinema audiences
 **orchid** plaza  
 
 **immobile posture**  
-
 Each collects vast **swaths** of data from users, including network activity, location data, and browsing and search histories  
 
 He **scented** that trouble was coming  
@@ -170,7 +173,6 @@ they threw a **frisbee** to each other
 Initially, the Microsoft To-Do was **barebones**. It lacked some essential functionality that Wunderlist users previously **relied on**, including collaboration and attachments  
 
 **on-the-job** training  
-
 The company, founded in 1990 as a **joint venture** between Acorn Computers, Apple, and VLSI Technology  
 **MediaTek**  
 **TSMC**  
@@ -189,8 +191,7 @@ That means that the **go-it-alone** **unilateralism** that has characterized the
 When you listen to the **rhetoric** from the Trump administration, they argue that the United States is **better off** in a power-based, law of the **jungle system**  
 Soon after, the wheels of trade justice will **grind to a halt**, with essentially no way to ultimately resolve big trade disputes like the yearslong battle between Airbus and Boeing  
 We’re getting to a point where we could soon prove a **counterfactual**  
-
-he was arrested **on the spot**  
+He was arrested **on the spot**  
 
 Welsh **Kilt**  
 **aerosol** spray/can   
@@ -219,7 +220,7 @@ In recent months, the Trump administration has taken steps to **curtail** what i
 
 he applied **varnish** to the table  
 nail **varnish**  
-**asphalt** varnish -  
+**asphalt** varnish  
 post-**coital** **contraception**  
 black **ebony**  
 Do you want a **bruiser**?   
@@ -231,14 +232,14 @@ He **clucked** disapproval
 That my dad left for a year with the town **floozy**  
 This **specimen** is richly **variegated** in color.  
 **stunted** brush  
-Scans of his chest, **abdomen**, and **pelvis** likewise showed nothing -  
+Scans of his chest, **abdomen**, and **pelvis** likewise showed nothing  
 **ureter**, **urethra**  
 proud as a **peacock**  
 
 Apple Has '**Lost Sight of** the Tech Industry's Founding Principles,' Says Epic Games CEO  
-They **anted up** 100,000 yuan to build a museum  
+They **anted up** 100,000 yuan to build a museum -  
 **act/play the giddy goat**  
-**giddy up**
+**Giddy-Up** Little Doggies
 steep stairs may leave you **giddy** and **faint**  
 others would go **nutmeg** for it  
 **nutmeg**  
@@ -253,7 +254,7 @@ the bus was **crumpled up** in the crash
 **basinet**  
 The great **Sphinx**  
 the factory is an **obtrusive** **eyesore**  
-he stood **aghast** at the terrible sight -  
+he stood **aghast** at the terrible sight  
 **pecan** nut  
 she has a four-**carat** stone in her ring  
 **quartz** watch  
@@ -296,7 +297,7 @@ the **foghorn** **brayed** all night.
 Cultural **artifact**  
 he answered his accusers **spitefully**  
 a note of **discord** **crept** into their relationship  
-His dogs were **inoculated** against **rabies**  
+His dogs were **inoculated** against **rabies** -  
 **Alzheimer's** disease is a form of **presenile** **dementia** -  
 I'm a crazy **rabid** squirrel! I want my cookies!  
 **Saran wrap**   
@@ -305,7 +306,7 @@ I'm a crazy **rabid** squirrel! I want my cookies!
 **swig up**, **swig in**  
 TV **antenna**  
 air **embolism** in his **brain stem**  
-**boneheaded** decision  
+**boneheaded** decision -  
 baby **caterpillar** 
 the **caterpillar** was transformed into a butterfly  
 he shouldn't **burlesque** the elder  
@@ -321,7 +322,6 @@ milk **pudding**
 the happy boy walked with **jaunty** steps  
 **Musket**
 the three **Musketeers**  
-
 The Nikkei 225 Stock Average is Japan’s primary stock index and a **barometer** of the Japanese economy  
 
 I don't want you sharing a **cubby** with Emma  
@@ -343,7 +343,7 @@ An owl is an **nocturnal** bird, while a sparrow is **diurnal**.
 get frustrated with **inanimate** object 🐦   
 
 Another four units **on standby**, just in case we need it.  
-The **Poodle** is a dog **breed**  
+The **Poodle** is a dog **breed** -  
 **flora** and **fauna** -  
 China's rich diverse **mammalian** **fauna**  
 A **subdued** plaid shirt  
@@ -354,19 +354,19 @@ she put on a red **petticoat** first, then a black dress, and a white **veil** o
 I needed to **butch up** my life  
 Big **Dipper**  
 **capricious** appetite  
-A **hailstorm** in July is a **caprice** of nature  
+A **hailstorm** in July is a **caprice** of nature -  
 I **recollected** that she had red hair  
 the **chameleon** changes color to match its **surroundings**.  
 **fire grate**  
 The nails in his boots **grated** on the stones  
 there was **a hail of** angry words  
-there was a **sachet** of shampoo in the bathroom  
+there was a **sachet** of shampoo in the bathroom -  
 **christening**  
 combustion **alcove**  
-This is Kate's **understudy**, Lauren.  
+This is Kate's **understudy**, Lauren. -  
 **forefinger**  
 **mahogany** box  
-**convex** vs **concave** -  
+**convex** vs **concave**  
 **aforementioned**  
 **statue** vs **statute**  
 **statute of limitation**  
@@ -376,6 +376,6 @@ topless girl **wading** in the water
 use this **wad** of cloth to **plug** the barrel  
 having a **spat** with somebody  
 **lewd** behavior  
-Getting an MBA used to be a **surefire** way to land a job. Not this year. 
-Trump and Oregon officials **traded barbs** about the violence. NBC NEWS  
+Getting an MBA used to be a **surefire** way to land a job. Not this year. - 
+Trump and Oregon officials **traded barbs** about the violence. NBC NEWS -  
 He was completely **impervious** to criticism.  

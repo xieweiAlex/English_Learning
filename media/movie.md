@@ -14,7 +14,7 @@ And then Obamacare got **shoved down our throats**, without majority support in 
 And Obama was too **cavalier** about it….  
 to **shove it down the throat** of the American people, something that affects one-sixth of the U.S. economy.  
 So I’m **loath** to use the word “lie,” but that was one, and he did it for political purposes.  
-you know, **puffery** about himself or how well he’s doing or someone he loves is doing. -  
+you know, **puffery** about himself or how well he’s doing or someone he loves is doing.  
 Obama lied to them about something that **struck** at the very heart of their lives, their health care, their relationship with their doctor.  
 But he was being **dismissive** of half the country, whose concerns McCain was trying to raise, right?  
 There was a **slow boil** going with that group of would-be voters.  
@@ -119,7 +119,7 @@ Jennifer Cast ran Amazon books **division** in its **formative** years.
 Across the country, Amazon warehouses began to **spring up**, filled with millions of products.  
 people just kind of **crisscrossing** this big warehouse **all day long**  
 you got a **write-up**  
-'Cause it's something that we've actually heard, and I don't sense it's **hyperbole**. -  
+'Cause it's something that we've actually heard, and I don't sense it's **hyperbole**.  
 It's a **testament** to just how good Amazon is.  
 Amazon has the **upper hand** and the ability to basically take your business away  
 as he's **cemented** himself in the city, he's started to **acquire** this physical **presence**.  
@@ -134,7 +134,7 @@ There was noise, there was **posturing** by people in the political world, but t
 > In what world are there no critics? Well, yeah, in an autocratic totalitarian world, maybe they're not allowed, and that's the world that Jeff Bezos somewhere in his mind thinks he is **entitled** to.  
 
 position the other individuals as the **bully**, and **kicked the bully in the nuts**, and somehow turned this into **net positive**.  
-You're basically a **pinata** dangling in front of any politician with a **populist** message. -  
+You're basically a **pinata** dangling in front of any politician with a **populist** message.  
 President Trump just sent a **chill down the spine** of Jeff Bezos. -- The present again **teed off** against Amazon on Twitter.  
 
 

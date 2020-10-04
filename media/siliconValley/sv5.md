@@ -62,7 +62,7 @@ Richard just **obliterated** Pied Piper's **runway** hiring all those coders?
 I was rewarded **primo** spot  
 If you gonna shit yourself, you'd rather be **crouching** than standing?  
 a very **oily** man in **mid-sentence** **dip down**, vomit, and then **thrust** himself violently.  
-but he talked like a **narcoleptic** **plantation** owner -  
+but he talked like a **narcoleptic** **plantation** owner  
 their separate **shorthand**  
 the Optimoji guys have really **stepped up** their game, you guys have kind of been **flagging**.  
 it's another reason for our **ironclad** no dog policy.  
