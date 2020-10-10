@@ -14,7 +14,7 @@ It's just a light **saline** injection,
 ## E 4  
   
 I just want to make sure we're **jibing** with your vision.  
-You cow-handed **poltroon**! -  
+You cow-handed **poltroon**!  
 **Nail gun** discharges  
 I'm off to Jackson Hole for a couple of days to clear my mind, and center myself, I'll be **off the grid**. Not to be disturbed for any reason. Understood?  
 he was quite **euphoric** about speaking to you regarding a deal.  

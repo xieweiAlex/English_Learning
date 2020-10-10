@@ -12,66 +12,45 @@ we're on my **turf** -
 I don't want to see you in any more **tabloids**. -  
 every day we don't fire him, we're flushing money down the **crapper**. -  
 Bojack **sabotages** himself with an epic **bender** -  
-I will keep your little crush busy long enough for you to get rid of the **contraband**. -  
 My **goons** went to pick your father up, but nobody was home. -  
 We got him **chummed**. He's in the truck -  
-It's **spellbinding**. -  
-There is **no time** for a **relapse** -  
 **mon dieu**, never have I ever! -  
 
 ## sv5.md ## 
 media/siliconValley/sv5.md
-You cow-handed **poltroon**! -  
 
 ## words-Oct.md ## 
 words/2020/words-Oct.md
 **Upholstery** Material: Genuine Leather -  
-I reject the **notion** that any user is a **freeloader** or a **leech** -  
 Besides **defraying** the cost of home ownership, it would bring new units on the market by buying portions of existing second home -  
 I don't know. A sense of **deja vu**. -  
-does artificial silk **crease** more easily than natural silk? -  
 **wecker** **beat-up** **jalopy** -  
 human **placenta** -  
 **brimstone**, sulfur -  
-The election will end months of political **bickering**. -  
-She behaves with **decorum** -  
-**plaids** and **tweeds** -  
 **ophthalmologist** -  
 his **brow** **corrugated** with the effort of thinking. - 
-she **hypnotised** him into do thing against his own will. -  
-I stood **abashed** at his **rebuke** 😳 -   
+she **hypnotised** him into do thing against his own will.   
 
 ## words-Sep.md ## 
 words/2020/words-Sep.md
 I wouldn't feel any **guilt**, **per se** for leaving it. -  
 Let the dog for a **scamper**. -  
-**oozy** ground base -  
-Engaging: be friendly, upbeat, and **solicitous** to both regulars and guests -  
-She shrugged **nonchalantly** and **turned away** -  
-he is too **feverish** to rest -  
+he is too **feverish** to rest   
 he **blubbered** like a child who had been **spanked**. -  
 She seems **eminently** suitable for the job -  
 a **humdinger** of a **blizzard** -  
-**Amnesia** mercifully **obliterated** his memory of the accident -  
+**Amnesia** mercifully **obliterated** his memory of the accident   
 I'm such a **dingus**! -  
-They **anted up** 100,000 yuan to build a museum -  
-His dogs were **inoculated** against **rabies** -  
-**Alzheimer's** disease is a form of **presenile** **dementia** -  
-**boneheaded** decision -  
-Handing me a **pamphlet** on the resurgence **gonorrhea**? -  
+**Alzheimer's** disease is a form of **presenile** **dementia**   
+Handing me a **pamphlet** on the resurgence **gonorrhea**?   
 the smelling of **ammonia** brought him around -  
-The **Poodle** is a dog **breed** -  
-**flora** and **fauna** -  
-A **hailstorm** in July is a **caprice** of nature -  
-there was a **sachet** of shampoo in the bathroom -  
-This is Kate's **understudy**, Lauren. -  
-Getting an MBA used to be a **surefire** way to land a job. Not this year. - 
-Trump and Oregon officials **traded barbs** about the violence. NBC NEWS -  
+**flora** and **fauna**   
+there was a **sachet** of shampoo in the bathroom   
+This is Kate's **understudy**, Lauren.   
 
 ## words-Aug.md ## 
 words/2020/words-Aug.md
 there is not so much that it feels **frazzling** to try -  
-an **extemporaneous** speech -  
 Love is a **potion** of **philter** God-made -  
 
 ## words-April.md ## 
@@ -87,7 +66,7 @@ words/2019/words-March.md
 Her **petty** complaints really **gripe** me. -  
 The **slums** are a **reproach** to London -   
 The **butler** was an **accomplice** in the robbery. -  
-**deride** a person's ignorance -  
+**deride** a person's ignorance   
 **Malaise** is a feeling of general discomfort, uneasiness or pain, of being "out of sorts", often the first indication of an infection or other disease.-   
 Image God let us decide whether or not to **smite** ourselves. -   
 Roasted salmon is served with a protein-packed **barley** **risotto**, **summer squash**, and **tangy** **artichoke** **pesto**. -  

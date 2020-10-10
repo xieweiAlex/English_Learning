@@ -47,7 +47,7 @@ Their YouTube channel features an array of young people **doling out** tips on t
 First of all, lose the **snippy** attitude.  
 **Intravenous** drug user 
 The tulip **craze** suddenly cam crashing down  
-**oozy** ground base -  
+**oozy** ground base  
 **bubbly** water with lemon  
 **saline** soil  
 He is on a **saline drip**  
@@ -57,7 +57,7 @@ she told me she has been **framed**.
 then disagreements **sprang up** between them.  
 **downtrodden** workers  
 
-Engaging: be friendly, upbeat, and **solicitous** to both regulars and guests -  
+Engaging: be friendly, upbeat, and **solicitous** to both regulars and guests  
 Walmart can help you **skip ahead** in your career. Here’s how  
 Keeping four **squirmy** pups in one place isn't always easy.  
 
@@ -66,7 +66,7 @@ Yet, the design of desktop Wikipedia and other Wikimedia Foundation projects hav
 **focal point**  
 **liaison** office  
 he became a citizen, **theryby** gaining the right to vote.  
-She shrugged **nonchalantly** and **turned away** -  
+She shrugged **nonchalantly** and **turned away**  
 John was trying to **slink** into the house by the back door  
 they were all **shrieking** with laughter.  
 a **soupy** stew  
@@ -237,7 +237,7 @@ Scans of his chest, **abdomen**, and **pelvis** likewise showed nothing
 proud as a **peacock**  
 
 Apple Has '**Lost Sight of** the Tech Industry's Founding Principles,' Says Epic Games CEO  
-They **anted up** 100,000 yuan to build a museum -  
+They **anted up** 100,000 yuan to build a museum  
 **act/play the giddy goat**  
 **Giddy-Up** Little Doggies
 steep stairs may leave you **giddy** and **faint**  
@@ -297,7 +297,7 @@ the **foghorn** **brayed** all night.
 Cultural **artifact**  
 he answered his accusers **spitefully**  
 a note of **discord** **crept** into their relationship  
-His dogs were **inoculated** against **rabies** -  
+His dogs were **inoculated** against **rabies**  
 **Alzheimer's** disease is a form of **presenile** **dementia** -  
 I'm a crazy **rabid** squirrel! I want my cookies!  
 **Saran wrap**   
@@ -306,7 +306,7 @@ I'm a crazy **rabid** squirrel! I want my cookies!
 **swig up**, **swig in**  
 TV **antenna**  
 air **embolism** in his **brain stem**  
-**boneheaded** decision -  
+**boneheaded** decision  
 baby **caterpillar** 
 the **caterpillar** was transformed into a butterfly  
 he shouldn't **burlesque** the elder  
@@ -343,7 +343,7 @@ An owl is an **nocturnal** bird, while a sparrow is **diurnal**.
 get frustrated with **inanimate** object 🐦   
 
 Another four units **on standby**, just in case we need it.  
-The **Poodle** is a dog **breed** -  
+The **Poodle** is a dog **breed**  
 **flora** and **fauna** -  
 China's rich diverse **mammalian** **fauna**  
 A **subdued** plaid shirt  
@@ -354,7 +354,7 @@ she put on a red **petticoat** first, then a black dress, and a white **veil** o
 I needed to **butch up** my life  
 Big **Dipper**  
 **capricious** appetite  
-A **hailstorm** in July is a **caprice** of nature -  
+A **hailstorm** in July is a **caprice** of nature  
 I **recollected** that she had red hair  
 the **chameleon** changes color to match its **surroundings**.  
 **fire grate**  
@@ -376,6 +376,6 @@ topless girl **wading** in the water
 use this **wad** of cloth to **plug** the barrel  
 having a **spat** with somebody  
 **lewd** behavior  
-Getting an MBA used to be a **surefire** way to land a job. Not this year. - 
-Trump and Oregon officials **traded barbs** about the violence. NBC NEWS -  
+Getting an MBA used to be a **surefire** way to land a job. Not this year.  
+Trump and Oregon officials **traded barbs** about the violence. NBC NEWS  
 He was completely **impervious** to criticism.  

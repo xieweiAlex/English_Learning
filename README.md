@@ -2,9 +2,7 @@
   
 Expanding vocabulary for a non native-speaker is tedious and time-consuming, are you with me 🤔? I try to record the **words or phrases** I encounter daily with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and hopefully if it can inspire someone else, that's even better ✊.  
 
-## Special Review 🐗   
-
-|  Special Review      |    File Marks       |  file   	|
+|  Special Review 🐗   |    File Marks       |  file   	|
 | ------------- |-------------  | ------- |
 |    Recent words record   |  A  | [current-month](./words/2020/words-Oct.md)   |
 |    Word Review   |  I  |  [words-review](./words-review.md)       |

@@ -1,5 +1,18 @@
 ## E 10 
 
+## E 12 
+If you can make people care about Bojack Horseman, surely you can make them care about **emaciated** orphans with missing **limbs**.   
+**R-rated** movie  
+I know I'm a little **long in the tooth**, but I think you more than anyone would know not to **count out** an old pro.  
+There has to be a difference between **monogamy** and **monotony**  
+It's the **cushiest** job in the world.  
+I **run into walls** for days, but I look hot.  
+that's the problem of all your ideas, they don't have **ground floor**  
+Hallow's Eve store in January, how **fiendish** **droll**.  
+
+
+## E 10, 11 
+
 I'm excited for you to read it, but I'm also **cripplingly** nervous.  
 I'll be back in a **jiff**, **skippy**.  
 Keep that air **spritzed** for me.  
@@ -68,7 +81,7 @@ you really **shat** the bed on this one.
 ## E 6 
 probably just forgot, the **lazy bum**.  
 **drunken**  
-I will keep your little crush busy long enough for you to get rid of the **contraband**. -  
+I will keep your little crush busy long enough for you to get rid of the **contraband**.  
 Am I **attracted to** her? Sure. 
 **two-crossed** man  
 
@@ -98,9 +111,9 @@ I don't have a job, I don't have any **prospects**.
 I let Todd live rent-free in my **stately** **manse**, I'm his own personal **Mother Teresa**.  
 I think you have great depth of **untapped** potential, and I wish to mentor you in your..  art.  
 the **premise** is bad, and the execution is also bad. It's an **irredeemable** **jumble** of shit.  
-It's **spellbinding**. -  
+It's **spellbinding**.  
 In this **heady** time, what Todd needs is an agent.  
-There is **no time** for a **relapse** -  
+There is **no time** for a **relapse**  
 you **pompous** **affected** asshole!  
 **mon dieu**, never have I ever! -  
 

@@ -19,7 +19,7 @@ The government have **latched onto** environmental issues to win votes
 **longhair**  
 **tap dancing**  
 An **elusive** bug  
-an **extemporaneous** speech -  
+an **extemporaneous** speech  
   
 a four-month-old California **condor**, high in the trees of the Ventana wilderness area, looking out as flames advance towards her  
 The two biggest **conflagrations**, one east of San Jose, the other north of San Francisco, are the state’s second- and third-largest on record  

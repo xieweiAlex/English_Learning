@@ -1,3 +1,11 @@
+I know I'm a little **long in the tooth**, but I think you more than anyone would know not to **count out** an old pro.  
+But the family comedy **struck a chord** with America and went on to air for nine seasons.  
+
+It runs **on par with** the swift version of the cache  
+What's going to prevent somebody from coming in here and competing me **out of blue**  
+It's something we all **fall prey to**.   
+Under pressure to digitize, producers are expected to **phase out** more low-skilled work in favor of data, IT, and remote operations positions.   
+**Battered** oil prices also **shot up**.  
 I don't know. A sense of **deja vu**. -  
 The book turned out to be a total **hatchet job**.   
 **Giddy-Up** Little Doggies
@@ -18,7 +26,7 @@ Take the mic, **spin us a yarn**.
 I'm not **cut out for** the **slammer**.  
 I got **caught up** in the moment.  
 
-## Oct
+## September
 
 After much **trial and error**, I arrived at four sections that I needed to make changes in. Daylight activities, evening activities, bedroom conditions and waking  
 
@@ -43,7 +51,6 @@ Frank, I know you want to **swoop down** and **save the day**, but there's princ
 Let's not get **bogged down** in abstractions, let's deal with **specifics**.  
 
 Everyone thinks that I'm just this **washed-up** hack, but actually, what if they're right.  
-
 if you don't swallow your pride, this is never gonna **let up**.  
 How did I **come off**?  
 
@@ -60,14 +67,11 @@ you might want to **loosen up** a little bit.
 He is **up for grabs**  
 you've been **tight-lipped**  
 **non-comprehensive list** 
-
 he is **head over heels** in debt  
-
 Just to **gets by**  
 **off the hook**  
 
 That’s really how they left it, the Founders, because they wanted there to be some **wiggle room**.
-
 he has not a **peg** to **hang on**  
 Across the country, Amazon warehouses began to **spring up**, filled with millions of products.  
   
