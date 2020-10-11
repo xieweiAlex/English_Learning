@@ -1,12 +1,58 @@
 
 
 
-magnifying glass  
+These allow investors to make wagers based on the volatility index itself, rather than on the changes to individual names it attempts to represent  
+VIX ETFs are a bit of a misnomer  
+As the examples above illustrate, VIX ETFs are incredibly finicky  
+Mean Reversion  
+delaying when they were going to get back in because they got spooked.  
+they were experiencing this emotional distress  
+what we were looking at, it's not necessary the nadirs or the bottom of those trends.  
+stop-loss point  
+whip out  
+trailing stop loss  
+parabolic stop and reverse 
 
+Digital **nomad**  
+**eggshell** 
+**yolk**  
+**beehive**  
+**starch**  
+**weakling**  
+**obscenity**  
+**gulf**  
+**locust**  
+**mincemeat**  
+**boa**  
+**courtship**  
+**ref**: referee  
+**checkers**  
+**meteorologist**  
 
-**Deride**: to laugh at **in scorn**, make fun of : ridicule
+She carried an **armload** of boxes   
+**magnifying glass**  
+I like pears better than **apricots**. -  
 
+**Deride**: to laugh at **in scorn**, make fun of: ridicule -  
 Must be deemed medically **advisable** by an IQLV surgeon  
+**ashtray** 
+Road to **stardom**  
+**sapphire** 
+**fried shallot**  
+**butternut**  
+**bloomers**  
+**late bloomer**  
+**Stovepipe** System  
+**periscope**  
+The islanders use a **system of barter** instead of money  
+**barter trade**  
+He enjoyed exchanging **banter** with the customers.  
+It hurt, so she put some **aloe vera** on it  
+**bloodhound**  
+**wolverine**  
+**Judas**  
+**standing ovation**   
+People **mingled** happily at the **carnival**.  
 **contango** 
 
 She knows exactly how to **tug** at readers' **heartstrings**  
@@ -36,17 +82,23 @@ Allen is a **wiseacre** who **hears the grass grow** -
 **vernacular** language -  
 she cried out of **anguish** at **parting**  
 I've worked in the surgical **ward**  
+juice drinks from **guava**  
+**papaya**  
+**masseur**  
+
 With the virus spreading renew, and the stimulus bill derailed, Powell's plea **fell on** **deaf ears**. 
 
 Insights that **pierce** the veil, crack the **cosmic egg**  
 Perhaps you used this now seemingly **defunct** one. -  
 something that is **legibly** impressive or valuable but has no **playbook** -  
 
+**Battered** oil prices also **shot up**.  
 **foreheads**  
 **legroom**  
 experts in the pharma industry still expect up to a 20% **spoilage rate**.  
 Many commercial airlines have **retrofitted** aircraft -   
 This isn’t the cargo industry's first **mile-high** **rodeo**  
+Under pressure to digitize, producers are expected to **phase out** more low-skilled work in favor of data, IT, and remote operations positions.   
 
 It's something we all **fall prey to**.   
 long **corridor**  
@@ -61,6 +113,7 @@ It runs **on par with** the swift version of the cache
 
 At one of America’s most toxic **Superfund** sites, climate change **imperils** more than cleanup. -  
 Trump briefly left the hospital Sunday to wave at supporters from his **motorcade**  
+with voters saying by **2-to-1** that Biden has the better **temperament** to be president, according to a new NBC News/Wall Street Journal poll.  
 The poll was conducted in the two days after the **unruly** and insult-filled debate Tuesday  
 A **trio** of White House journalists recently tested positive, and ABC News is quarantining staff who came in contact with Christie during a post-debate broadcast -  
 
@@ -142,7 +195,7 @@ I don't want anything in my **ample** **bosom** -
 **ophthalmologist** -  
 **cervical** **vertigo**  
 his **brow** **corrugated** with the effort of thinking. - 
-she **hypnotised** him into do thing against his own will. -  
+she **hypnotised** him into do thing against his own will.  
 **raggedy** cloth  
 **officiate** the wedding  
 is whoring it up in some **sleazy** motel.  

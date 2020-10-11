@@ -1,4 +1,3 @@
-## E 10 
 
 ## E 12 
 If you can make people care about Bojack Horseman, surely you can make them care about **emaciated** orphans with missing **limbs**.   
@@ -22,9 +21,9 @@ Todd is super weird, I think he is **onto** me.
 **true dat** -  
 There is an entire **chapter** about me eating apple **fritters**. -  
 I got something that's gonna get you a **shit-ton** of hearts or **digs** or smileys or whatever the hell you measure your journalism with.   
-The book turned out to be a total **hatchet job**. -  
+The book turned out to be a total **hatchet job**.  
 I'm glad we buried the **hatchet** and everything is cool.  
-**Thump** me once in the stones and then we'll be **even**? -  
+**Thump** me once in the stones and then we'll be **even**?  
 I've got some **artisanal** popcorns to gauge the **mouthfeel** of.  
 I'm **well-adjusted**, you all want my life.  
 why you rewrite the book, **bozo**?  
@@ -32,7 +31,7 @@ Look, all **publicity** is good **publicity**.
 It's a **beach read** you can **thumb through** in a **wing chair**.  
 
 ## E 9  
-it's **arid**. -  
+it's **arid**.  
 **trench coat**  
 **chauffer** him around on his little errands, to the **groomer** and **whatnot**, but **all the while** you'll be studying him, **scouring** his weakness, **biding your time** till we're ready to strike. -  
 And once you **zero in** on his **Achilles's hill**, we will take... him... down.  
@@ -98,7 +97,7 @@ if you can't find a way to **let off** some **steam**, you're going to explode.
 My **goons** went to pick your father up, but nobody was home. -  
 for a **nominal fee**, we can **scrounge up** another body for you. Would you care to **peruse** our **loaner closet**.  
 We realized dad wouldn't have wanted some **stuffy** funeral.  
-We got him **chummed**. He's in the truck -  
+We got him **chummed**. He's in the truck  
 you had dad's body **ground** into **chum**, so you could throw his **mushy** remains on Derek Jeter?  
 she is my **ghost-writer**  
 Diane is a **freeloader**?  

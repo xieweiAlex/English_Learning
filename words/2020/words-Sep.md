@@ -82,7 +82,7 @@ As I noted above, Apple has a **perpetual** license to ARM
 The second term **commences** in March 
 **smack** on the face  
 a **smacking** kiss  
-he is too **feverish** to rest -  
+he is too **feverish** to rest  
 **viscous** fluid  
 **blinding** layer  
 I woke up with the **blinding** realization that it was time to go  
@@ -140,7 +140,7 @@ The problem arises when you **go overboard**
 **anyhow**, I'll be home as soon as I can.  
 **walnut kernel**, black **walnut**, **walnut** shell  
 **antacid**  
-**Amnesia** mercifully **obliterated** his memory of the accident -  
+**Amnesia** mercifully **obliterated** his memory of the accident  
 **rubella**: A contagious viral infection preventable by vaccine and best known by its distinctive red rash.   
 there is nothing wrong with a woman enjoying a little **erotica**  
 The shores are **strewn** with **wrecks**.  
@@ -298,7 +298,7 @@ Cultural **artifact**
 he answered his accusers **spitefully**  
 a note of **discord** **crept** into their relationship  
 His dogs were **inoculated** against **rabies**  
-**Alzheimer's** disease is a form of **presenile** **dementia** -  
+**Alzheimer's** disease is a form of **presenile** **dementia**  
 I'm a crazy **rabid** squirrel! I want my cookies!  
 **Saran wrap**   
 
@@ -325,7 +325,7 @@ the three **Musketeers**
 The Nikkei 225 Stock Average is Japan’s primary stock index and a **barometer** of the Japanese economy  
 
 I don't want you sharing a **cubby** with Emma  
-Handing me a **pamphlet** on the resurgence **gonorrhea**? -  
+Handing me a **pamphlet** on the resurgence **gonorrhea**?  
 There was a **tremble** in her voice 
 large **artery**  
 **aortic** **valve**  
@@ -344,7 +344,7 @@ get frustrated with **inanimate** object 🐦
 
 Another four units **on standby**, just in case we need it.  
 The **Poodle** is a dog **breed**  
-**flora** and **fauna** -  
+**flora** and **fauna**  
 China's rich diverse **mammalian** **fauna**  
 A **subdued** plaid shirt  
 how can we **go on** with this **rift** in our marriage.  
@@ -360,10 +360,10 @@ the **chameleon** changes color to match its **surroundings**.
 **fire grate**  
 The nails in his boots **grated** on the stones  
 there was **a hail of** angry words  
-there was a **sachet** of shampoo in the bathroom -  
+there was a **sachet** of shampoo in the bathroom  
 **christening**  
 combustion **alcove**  
-This is Kate's **understudy**, Lauren. -  
+This is Kate's **understudy**, Lauren.  
 **forefinger**  
 **mahogany** box  
 **convex** vs **concave**  

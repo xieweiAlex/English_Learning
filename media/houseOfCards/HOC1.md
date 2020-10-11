@@ -11,7 +11,7 @@ I've had lots of **trailblazers** come before me.
 **stamper**  
 do not let Spinella **out of your sight** and lock the goddamn doors if you have to.  
 An Asian girl **peddling** a Standford degree?  
-Not just an Asian girl, a **valedictorian** -  
+Not just an Asian girl, a **valedictorian**  
 
 
 ## E 2  

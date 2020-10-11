@@ -73,7 +73,7 @@ I can **start over** in **the Maldives**?
 He **endowed** the Church with lands.   
 He is as **cunning** as fox.  
 **Obligate parasite** 
-**deride** a person's ignorance -  
+**deride** a person's ignorance  
 A **pejorative** (also called a **derogatory** term, a term of abuse, or a term of **disparagement**)  
 **means of subsistence**, **subsistence level**.  
 Our troops **withstood** the **onset** of the enemy.  
@@ -200,7 +200,7 @@ The officials were accused of corruption and **dereliction of duty** after they 
 Hu has been brought in to steady the boat and will **burnish** his credentials if he can pass this first major test of his political career  
 A source said preparations were already **under way** in Xian for the young politician to **take up** the new role  
 Beijing has promoted a dozen **cadres** born in the 1970s to vice-ministerial rank recently.  
-Like his father, Hu is described by insiders as a “**reticent** person” who prefers to have a **low profile**. -  
+Like his father, Hu is described by insiders as a “**reticent** person” who prefers to have a **low profile**.  
 He was **reticent** about his opinion  
    
 Paul Manafort issued a **full-throated** and blunt apology on Wednesday  
