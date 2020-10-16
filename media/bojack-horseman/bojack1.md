@@ -1,4 +1,3 @@
-
 ## E 12 
 If you can make people care about Bojack Horseman, surely you can make them care about **emaciated** orphans with missing **limbs**.   
 **R-rated** movie  
@@ -9,7 +8,6 @@ I **run into walls** for days, but I look hot.
 that's the problem of all your ideas, they don't have **ground floor**  
 Hallow's Eve store in January, how **fiendish** **droll**.  
 
-
 ## E 10, 11 
 
 I'm excited for you to read it, but I'm also **cripplingly** nervous.  
@@ -19,7 +17,7 @@ you're **in mood**
 Todd is super weird, I think he is **onto** me.  
 **crew neck** shirt  
 **true dat** -  
-There is an entire **chapter** about me eating apple **fritters**. -  
+There is an entire **chapter** about me eating apple **fritters**.  
 I got something that's gonna get you a **shit-ton** of hearts or **digs** or smileys or whatever the hell you measure your journalism with.   
 The book turned out to be a total **hatchet job**.  
 I'm glad we buried the **hatchet** and everything is cool.  
@@ -37,17 +35,16 @@ it's **arid**.
 And once you **zero in** on his **Achilles's hill**, we will take... him... down.  
 They **called off** their wedding.  
 this is a **guerilla theater**, no stage, no script, no net.  
-that terrifying robber is making some very **cogent points**. -  
+that terrifying robber is making some very **cogent points**.  
 Sorry, kind of **went off on a tangent** there.  
 The bank robber thing was a **dud**. -  
 Take the mic, **spin us a yarn**.  
-since I'm both of your friends and have no **ulterior** motives...  
-we're on my **turf** -  
+Since I'm both of your friends and have no **ulterior** **motives**...  
+We're on my **turf**  
 my **knack** for coming up with plans  
 **rise and shine**, Todd.  
 **a leap of faith**  
 you **lovesick** dummies  
-
 
 ## E 8 
 Bojack tries to **mend fences**.  
@@ -57,7 +54,7 @@ I think you're **coward**.
 Now go **stuff** some **prosciutto** in your pants.  
 I got **caught up** in the moment.  
 One that takes an **unflinching** look at the **gritty** reality of the American family.  
-I don't want to see you in any more **tabloids**. -  
+I don't want to see you in any more **tabloids**.  
 **no dob**  
 every day we don't fire him, we're flushing money down the **crapper**. -  
 you can **storm out**, make a big show out of what a "good" friend you are, or you could be the guy who does his job.  
@@ -70,11 +67,11 @@ went into a **turnaround**.
 ## E 7 
 Bojack **sabotages** himself with an epic **bender** -  
 they didn't give you fake **bourbon** **on set**?  
-somebody's got to **take the fall**  
+Somebody's got to **take the fall**  
 just me, you, and a bottle of **pinot**.  
 That guy's **dead weight**, Princess Carolyn  
 if you don't **cut him loose**, you're never gonna be happy.  
-you really **shat** the bed on this one.  
+You really **shat** the bed on this one.  
 
 
 ## E 6 
@@ -94,7 +91,7 @@ The **homecoming** dance.
 you might want to **loosen up** a little bit.  
 if you can't find a way to **let off** some **steam**, you're going to explode.  
 **small fry**  
-My **goons** went to pick your father up, but nobody was home. -  
+My **goons** went to pick your father up, but nobody was home.  
 for a **nominal fee**, we can **scrounge up** another body for you. Would you care to **peruse** our **loaner closet**.  
 We realized dad wouldn't have wanted some **stuffy** funeral.  
 We got him **chummed**. He's in the truck  

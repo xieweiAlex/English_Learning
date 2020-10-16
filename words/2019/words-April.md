@@ -30,7 +30,7 @@ we **deplore** all violence.
 Besides, this guy sounds like a **jackass**  
 Just so we’re clear: What Barr did is TEXTBOOK **perjury**. Jail him
 
-Modern **frigates** -   
+Modern **frigates**  
 Beijing regards Taiwan as a **renegade** province and is currently building an **amphibious** force that could give it the capacity to launch an invasion of the island  
 
 This **drastically** reduces the chances of running into an error due to **inadequate** instructions that make the user do a bunch of stuff manually and leaving it up to them to figure out all the necessary steps.  
@@ -317,7 +317,7 @@ all the challenges faced on these **daunting** programs, we **persevered**. Cong
 If anyone wants to follow the **wacky** **antics** of my band, you can find Tsunami Bomb on Facebook | Instagram | Twitter
 
 
-**deride**: to laugh at or insult **contemptuously** -  
+**deride**: to laugh at or insult **contemptuously**  
 were **derided** as the weaker sex
 The **despot** who **disposed** of all his enemies, real or imaged. -  
 The **coils** **intertwine** together like strands of spaghetti.  

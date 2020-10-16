@@ -1,3 +1,10 @@
+**legibly**  
+
+**attentive**  
+
+**cognizant**
+
+**distress**  
 
 **reticent**  
 

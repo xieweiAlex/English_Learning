@@ -1,3 +1,9 @@
+I wouldn't feel any **guilt**, **per se** for leaving it.  
+That guy's **dead weight**, Princess Carolyn  
+they didn't give you fake **bourbon** **on set**?  
+somebody's got to **take the fall**  
+I want to **swing for the fences**, you know?  
+**no-go topic**  
 I know I'm a little **long in the tooth**, but I think you more than anyone would know not to **count out** an old pro.  
 But the family comedy **struck a chord** with America and went on to air for nine seasons.  
 

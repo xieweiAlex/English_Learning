@@ -1,15 +1,10 @@
 ## bojack1.md ## 
 media/bojack-horseman/bojack1.md
 **true dat** -  
-There is an entire **chapter** about me eating apple **fritters**. -  
 **chauffer** him around on his little errands, to the **groomer** and **whatnot**, but **all the while** you'll be studying him, **scouring** his weakness, **biding your time** till we're ready to strike. -  
-that terrifying robber is making some very **cogent points**. -  
 The bank robber thing was a **dud**. -  
-we're on my **turf** -  
-I don't want to see you in any more **tabloids**. -  
 every day we don't fire him, we're flushing money down the **crapper**. -  
 Bojack **sabotages** himself with an epic **bender** -  
-My **goons** went to pick your father up, but nobody was home. -  
 **mon dieu**, never have I ever! -  
 
 ## words-Oct.md ## 
@@ -23,44 +18,22 @@ ETNs have default risk since the repayment of **principal** is **contingent** on
 you want to be **cognizant** of the fact of diversification your income and net worth -    
 Allen is a **wiseacre** who **hears the grass grow** -  
 **vernacular** language -  
-Perhaps you used this now seemingly **defunct** one. -  
-something that is **legibly** impressive or valuable but has no **playbook** -  
 Many commercial airlines have **retrofitted** aircraft -   
 At one of America’s most toxic **Superfund** sites, climate change **imperils** more than cleanup. -  
-A **trio** of White House journalists recently tested positive, and ABC News is quarantining staff who came in contact with Christie during a post-debate broadcast -  
-The campfire **smoldered** for hours after the blaze **died out**. -  
 The **valedictory address**, or **valediction**, is the closing or farewell statement delivered at a graduation ceremony. It is an **oration** at **commencement** -  
 **Upholstery** Material: Genuine Leather -  
-Besides **defraying** the cost of home ownership, it would bring new units on the market by buying portions of existing second home -  
-I don't know. A sense of **deja vu**. -  
 **wecker** **beat-up** **jalopy** -  
 human **placenta** -  
-**brimstone**, sulfur -  
-I don't want anything in my **ample** **bosom** -  
-**ophthalmologist** -  
-his **brow** **corrugated** with the effort of thinking. - 
 
 ## words-Sep.md ## 
 words/2020/words-Sep.md
-I wouldn't feel any **guilt**, **per se** for leaving it. -  
 Let the dog for a **scamper**. -  
 he **blubbered** like a child who had been **spanked**. -  
-She seems **eminently** suitable for the job -  
-a **humdinger** of a **blizzard** -  
-I'm such a **dingus**! -  
-the smelling of **ammonia** brought him around -  
-
-## words-Aug.md ## 
-words/2020/words-Aug.md
-there is not so much that it feels **frazzling** to try -  
-Love is a **potion** of **philter** God-made -  
 
 ## words-April.md ## 
 words/2019/words-April.md
-Modern **frigates** -   
 to **stave off** hunger/illness -  
 an **impediment** to reform -  
-**deride**: to laugh at or insult **contemptuously** -  
 The **despot** who **disposed** of all his enemies, real or imaged. -  
 
 ## words-March.md ## 

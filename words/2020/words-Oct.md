@@ -1,19 +1,39 @@
 
+Apple (AAPL) rolled out its new iPhone 12 today, along with a **bevy** of other products and services  
 
+The Elections: Investors are **handicapping** the potential regulatory and tax implications of a Biden win and a blue wave.  
 
-These allow investors to make wagers based on the volatility index itself, rather than on the changes to individual names it attempts to represent  
-VIX ETFs are a bit of a misnomer  
-As the examples above illustrate, VIX ETFs are incredibly finicky  
-Mean Reversion  
-delaying when they were going to get back in because they got spooked.  
-they were experiencing this emotional distress  
-what we were looking at, it's not necessary the nadirs or the bottom of those trends.  
-stop-loss point  
-whip out  
-trailing stop loss  
-parabolic stop and reverse 
+The hotel staff are friendly and **attentive**  
+The dog **nosed** out a rat  
+**stairway**  
+Let’s go for a **saunter** along the river  
+ice **rink**  
+**mortician**  
+I still got **blister** on my hand from yesterday -  
+**plumbing**  
+silk **cocoon**  
+**Nectarine** is a nutritious fruit and is welcomed by consumers  
+**lipper**  
+**emphysema**  
+**meteorologist**  
+**meteor**  
 
-Digital **nomad**  
+## Week 2 
+
+**no-go topic**  
+These allow investors to make **wagers** based on the volatility index itself, rather than on the changes to individual names it attempts to represent -  
+VIX ETFs are a bit of a **misnomer** -  
+As the examples above illustrate, VIX ETFs are incredibly **finicky**  
+**Mean Reversion**  
+delaying when they were going to get back in because they got **spooked**.  
+they were experiencing this emotional **distress**  
+what we were looking at, it's not necessary the **nadirs** or the bottom of those trends. -  
+**stop-loss point**  
+**whip out**  
+**trailing stop loss**  
+**parabolic** stop and reverse 
+
+digital **nomad**  
 **eggshell** 
 **yolk**  
 **beehive**  
@@ -22,7 +42,7 @@ Digital **nomad**
 **obscenity**  
 **gulf**  
 **locust**  
-**mincemeat**  
+The professor made **mincemeat** of the speaker at the conference  
 **boa**  
 **courtship**  
 **ref**: referee  
@@ -55,7 +75,7 @@ It hurt, so she put some **aloe vera** on it
 People **mingled** happily at the **carnival**.  
 **contango** 
 
-She knows exactly how to **tug** at readers' **heartstrings**  
+She knows exactly how to **tug** at readers' **heartstrings** -  
 all the **accolade** to xxx   
 she picked out her own **urn** -  
 
@@ -89,8 +109,8 @@ juice drinks from **guava**
 With the virus spreading renew, and the stimulus bill derailed, Powell's plea **fell on** **deaf ears**. 
 
 Insights that **pierce** the veil, crack the **cosmic egg**  
-Perhaps you used this now seemingly **defunct** one. -  
-something that is **legibly** impressive or valuable but has no **playbook** -  
+Perhaps you used this now seemingly **defunct** one.  
+something that is **legibly** impressive or valuable but has no **playbook**  
 
 **Battered** oil prices also **shot up**.  
 **foreheads**  
@@ -115,11 +135,11 @@ At one of America’s most toxic **Superfund** sites, climate change **imperils*
 Trump briefly left the hospital Sunday to wave at supporters from his **motorcade**  
 with voters saying by **2-to-1** that Biden has the better **temperament** to be president, according to a new NBC News/Wall Street Journal poll.  
 The poll was conducted in the two days after the **unruly** and insult-filled debate Tuesday  
-A **trio** of White House journalists recently tested positive, and ABC News is quarantining staff who came in contact with Christie during a post-debate broadcast -  
+A **trio** of White House journalists recently tested positive, and ABC News is quarantining staff who came in contact with Christie during a post-debate broadcast  
 
 ## Week 1 
 I **weep** for the future of science.  
-The campfire **smoldered** for hours after the blaze **died out**. -  
+The campfire **smoldered** for hours after the blaze **died out**.  
 hardly used in **mint condition**  
 The **valedictory address**, or **valediction**, is the closing or farewell statement delivered at a graduation ceremony. It is an **oration** at **commencement** -  
 **goatee**  
@@ -137,11 +157,11 @@ The promised subsidies never **materialized**.
 Farmers often enclose their land with **hedges**. 
 Stop **hedging** and answer my question directly!  
 
-Besides **defraying** the cost of home ownership, it would bring new units on the market by buying portions of existing second home -  
+Besides **defraying** the cost of home ownership, it would bring new units on the market by buying portions of existing second home  
 Nikola's shares have **rebounded** in the past few days after the **embattled** electric automaker made assurances it would hit targets.  
 I know some have fallen on **stony ground**.
 
-I don't know. A sense of **deja vu**. -  
+I don't know. A sense of **deja vu**.  
 **Fallout** from the presidential debate  
 **Secular Market** vs. **Cyclical Market**  
 We live in an increasingly **secular** society.  
@@ -174,7 +194,7 @@ it's an **elaborate** design
 My company's worried about our high **staff turnover**.  
 We have a fast **turnover** of stock  
 The textile **export turnover** has been increased 67% this year in China.  
-**brimstone**, sulfur -  
+**brimstone**, sulfur  
 
 Because they **cut out** investment banks’ **underwriting** fees, direct listings are an increasingly popular method  
 No bank would be willing to **underwrite** such a loss.  
@@ -189,12 +209,12 @@ they **canned** me.
 **cholesterol**  
 you're going to **forfeit** your license  
 **plaids** and **tweeds**  
-I don't want anything in my **ample** **bosom** -  
+I don't want anything in my **ample** **bosom**  
 **drowsy** driving  
 **cobra** venom  
-**ophthalmologist** -  
+**ophthalmologist**  
 **cervical** **vertigo**  
-his **brow** **corrugated** with the effort of thinking. - 
+his **brow** **corrugated** with the effort of thinking.  
 she **hypnotised** him into do thing against his own will.  
 **raggedy** cloth  
 **officiate** the wedding  

@@ -21,6 +21,8 @@ function countWords {
   # Persist the total_count 
   date=$(date +%Y/%m/%d)
   echo "$date: $total_count" >> "./record.md"
+  # show the latest 5 records 
+  tail -n 5 record.md
 }
 
 function getNewWords {

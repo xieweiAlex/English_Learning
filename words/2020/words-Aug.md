@@ -5,7 +5,7 @@ roller **conveyor**
 you don't really have much control over your **rotor**.  
 Once you become a consultant, you have a lot more **clout**, you know what you're doing, you're actually being useful.  
 **deathbed**  
-there is not so much that it feels **frazzling** to try -  
+there is not so much that it feels **frazzling** to try  
 It's not like that I've **resuscitated** them by myself  
   
 **declutter** your mind  
@@ -151,7 +151,7 @@ The monks lived a very **ascetic** life.
    
 his house is an **eclectic** mix of modern furnishings and **antiques**  
 I enjoy acting as an **emcee** of many lectures and evenings  
-Love is a **potion** of **philter** God-made -  
+Love is a **potion** of **philter** God-made  
    
 While natural light is great, too much of it can turn your home into a **sauna** during the summer months  
 **oscillate**  

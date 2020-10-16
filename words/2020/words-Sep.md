@@ -10,7 +10,7 @@ Still, the pandemic is **stunting** overall travel; those 600 million trips are 
 He summarized the **salient** points   
 
 **tabloid** newspaper  
-I wouldn't feel any **guilt**, **per se** for leaving it. -  
+I wouldn't feel any **guilt**, **per se** for leaving it.  
 
 Nvidia is not **setting out to be** a partner, someone that gets along with everyone **in exchange for** a couple of pennies in licensing fees  
 
@@ -120,7 +120,7 @@ there’s a biological diversity that comes in the split of night owls and **mor
 
 you, along with 60% of 16–34 year-old’s will probably have to **dust off** one of those technological dinosaurs known as an alarm clock  
 
-She seems **eminently** suitable for the job -  
+She seems **eminently** suitable for the job  
 A federal court granted a **preliminary injunction** halting the Trump administration’s planned ban of Chinese app WeChat, in response to a **plaintiff** lawsuit saying the ban would harm their First Amendment rights  
 
 Normal **cornea**  
@@ -130,7 +130,7 @@ he was **munching** an apple
 **crumby** soil, **crumby break**  
 permanent **magnetism**  
 **goo**, **goop**  
-a **humdinger** of a **blizzard** -  
+a **humdinger** of a **blizzard**  
 **presumably**  
 they want to **forfeit** our assets  
 **chamomile** tea  
@@ -197,7 +197,7 @@ Welsh **Kilt**
 **aerosol** spray/can   
 **undercover** FBI agents, **undercover** operation  
 **sputnik** 
-I'm such a **dingus**! -  
+I'm such a **dingus**!  
 **Appalling** weather  
 the enemy was **appalled** at our attack  
 **ladybug**  
@@ -334,7 +334,7 @@ he managed to **endear** himself to my entire family
 **corpses** as far as they eye can see  
 the **marine corps** will carry out **live-fire** drills  
 **eel**  
-the smelling of **ammonia** brought him around -  
+the smelling of **ammonia** brought him around  
 the tooth **relic** is in a special **casket**  
 **Salmonella** bacteria  
 **Pesos** are used in Mexico  
