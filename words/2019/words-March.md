@@ -323,5 +323,5 @@ The reason for this is not **wholly** clear.
    
 The **asymmetric** encrypted file format.  
    
-**prospectus** summary. -  
+**prospectus** summary.  
 preliminary **prospectus**.  

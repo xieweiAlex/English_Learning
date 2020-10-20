@@ -1,3 +1,10 @@
+I was wondering where you **wandered off** to.  
+you can **grind down** your **fingernails** **scrabbling** away and making little progress  
+The whole **ball game** changed a lot  
+**a hot button issue**  
+It's **rounding the corner**  
+Zoom was **on a roll** this week, launching two new products that got everyone talking  
+I'm remembering a lot of stuff. The **ketamine**'s **wearing off**.  
 I wouldn't feel any **guilt**, **per se** for leaving it.  
 That guy's **dead weight**, Princess Carolyn  
 they didn't give you fake **bourbon** **on set**?  

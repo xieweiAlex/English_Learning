@@ -1,3 +1,20 @@
+## E 3  
+Thank you, Tina, for those touching **grunts** and **growls**.  
+In his last days, Herb's cancer had gone into **remission**. -  
+I was wondering where you **wandered off** to.  
+But I do know a **hot ticket**  
+let's get some light in here, it's so **dreadfully** **dreary**. -  
+He was a **peculiar** client.  
+the network said it was too **edgy**.  
+I never met the guy. I'm just here to **schmooze** -  
+you blew up again, **dweeb**.  
+if you are being **zonked up** all the time, I'm not sure I can trust you with the responsibility.  
+I'm remembering a lot of stuff. The **ketamine**'s **wearing off**.  
+Do you mean I'm a "killer of **gloom**"?  
+it would make Herb a **laughingstock**  
+ABC sent us **limousines** to take us to the wrap party.  
+I never been in a **limo**  
+
 
 ## E 1, E 2 
 Oh, big **stud**, **running off** to **gallivant** with your **fillies**. 

@@ -1,43 +1,45 @@
 ## bojack1.md ## 
-media/bojack-horseman/bojack1.md
-**true dat** -  
-**chauffer** him around on his little errands, to the **groomer** and **whatnot**, but **all the while** you'll be studying him, **scouring** his weakness, **biding your time** till we're ready to strike. -  
+media/bojack-horseman/bojack1.md  
 The bank robber thing was a **dud**. -  
-every day we don't fire him, we're flushing money down the **crapper**. -  
-Bojack **sabotages** himself with an epic **bender** -  
 **mon dieu**, never have I ever! -  
 
+## bojack2.md ## 
+media/bojack-horseman/bojack2.md  
+In his last days, Herb's cancer had gone into **remission**. -  
+let's get some light in here, it's so **dreadfully** **dreary**. -  
+I never met the guy. I'm just here to **schmooze** -  
+
 ## words-Oct.md ## 
-words/2020/words-Oct.md
+words/2020/words-Oct.md  
+If they were not hidden under a few inches of sand, they would cover it like **cobbles** on a **creek bed** -  
+through management of the **fishery** alone they have so **bountifully** returned -  
+Why did every **starry-eyed** post-bubble founder **plop** their headquarters in a **dinky** suburb that would fight them for office space and housing forever after? Abundance is an accident -  
+We have such a **meager window** into such an immiserated natural world, that we don’t realize how deeply natural this is. The most **intransigent** cause of a lack of imagination is, **after all**, a lack of **referrents** -  
+Let’s go for a **saunter** along the river -  
+I still got **blister** on my hand from yesterday -  
+These allow investors to make **wagers** based on the volatility index itself, rather than on the changes to individual names it attempts to represent -  
+VIX ETFs are a bit of a **misnomer** -  
+what we were looking at, it's not necessary the **nadirs** or the bottom of those trends. -  
 I like pears better than **apricots**. -  
 **Deride**: to laugh at **in scorn**, make fun of: ridicule -  
-she picked out her own **urn** -  
-The song is too low for a **tenor** -  
-**mealworm**: the **larva** of beetles of the ... -  
-ETNs have default risk since the repayment of **principal** is **contingent** on the issuer's financial viability -  
-you want to be **cognizant** of the fact of diversification your income and net worth -    
-Allen is a **wiseacre** who **hears the grass grow** -  
+She knows exactly how to **tug** at readers' **heartstrings** -  
 **vernacular** language -  
 Many commercial airlines have **retrofitted** aircraft -   
-At one of America’s most toxic **Superfund** sites, climate change **imperils** more than cleanup. -  
-The **valedictory address**, or **valediction**, is the closing or farewell statement delivered at a graduation ceremony. It is an **oration** at **commencement** -  
-**Upholstery** Material: Genuine Leather -  
 **wecker** **beat-up** **jalopy** -  
-human **placenta** -  
+She behaves with **decorum** -  
 
 ## words-Sep.md ## 
-words/2020/words-Sep.md
-Let the dog for a **scamper**. -  
+words/2020/words-Sep.md  
 he **blubbered** like a child who had been **spanked**. -  
 
 ## words-April.md ## 
-words/2019/words-April.md
+words/2019/words-April.md  
 to **stave off** hunger/illness -  
 an **impediment** to reform -  
 The **despot** who **disposed** of all his enemies, real or imaged. -  
 
 ## words-March.md ## 
-words/2019/words-March.md
+words/2019/words-March.md  
 Her **petty** complaints really **gripe** me. -  
 The **slums** are a **reproach** to London -   
 The **butler** was an **accomplice** in the robbery. -  
@@ -56,10 +58,9 @@ This is basically where you are **infatuated** with who you are dating, and you 
 Yes, that’s right: Facebook. Cryptocurrency. Earthquake! Revolution! The world is **tilting** on its **axis**! The end times are **cometh** -  
 But then your family in Ghana has to somehow convert them to cedis at an **exchange** — a task which is, as of this writing, likely to be slower, much **clumsier**, far more **user-hostile** -  
 Those negotiations were all accelerated, at least in part, by the **imposition** or threat of tariffs. -  
-**prospectus** summary. -  
 
 ## words-Feb.md ## 
-words/2019/words-Feb.md
+words/2019/words-Feb.md  
 What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing. -   
 While the Chrome browser itself is not open-source, most of its **innards** are. Chromium, the non-proprietary subset of Chrome, was open-sourced early on with a generously **permissive license** as a sign of commitment to the open Web community. -  
 Spotify's acquisition **spree** won't change the podcast industry on its own. But it's another signal that we're on the **cusp** of a similar change for podcasting --   
@@ -79,3 +80,29 @@ the **crux** of an argument. -
 The **sinitic** languages. -   
 It's gonna be **rip-roaring**. -   
 The **exorbitant** fees we paid for the VIP room **pertain** the actual deliver room. -   
+Through all the adventures and **tribulation** we've had -  
+it isn't that China is ruled by a government that **harshly** punished **dissenting** opinions and nearly destroys free speech - 
+Compare California with Guizhou (one of the most **impoverished** regions in the country) and your conclusion is giving birth in CHINA is terrible - 
+The front **parlour** was the hub of her universe. -   
+We're not **unduly** worried. -   
+**indignation** at the injustice. -   
+The **glare** of the sun on the water. -   
+Strip clubs in the outer **boroughs**. -   
+refreshment **kiosk** -  
+**Binge eating**, **binge drinking**, **binge watching** -  
+this car **guzzles** petrol - 
+We got a **blip** on the radar. -   
+**fissile** material -   
+a **labyrinth** of passages and secret **chambers** - 
+**Aquiculture** and **poultry** - 
+**Clear-cut** evidence of **tampering**. - 
+There billionaires are **fear mongering**, right? -   
+He **thrashed** the boy with a stick -  
+They have nothing better to do than **brawl** in the street. -   
+An **injunction** restraining the **disclosure** of company secrets. -   
+We went into a passionate **clinch** on the sofa. -   
+**Redress** the scales -  
+They're real **aggro** men who'll bully anybody for a few **quid** -   
+**subliminal** perception -   
+Growing up, I was always **coprophilia**. -   
+Many properties are listed under “**gratis** transfer” for the sum of **literally** zero yen -   

@@ -1,4 +1,14 @@
 
+contingent?? 
+
+It's **rounding the corner**  
+they're all **in unison** about this.  
+**a hot button issue**  
+we're not the lowest, but we're **among** the lowest   
+I'm fortunately very under **levered**.  
+The whole **ball game** changed a lot  
+home **depot**  
+
 Apple (AAPL) rolled out its new iPhone 12 today, along with a **bevy** of other products and services  
 
 The Elections: Investors are **handicapping** the potential regulatory and tax implications of a Biden win and a blue wave.  
@@ -6,9 +16,9 @@ The Elections: Investors are **handicapping** the potential regulatory and tax i
 The hotel staff are friendly and **attentive**  
 The dog **nosed** out a rat  
 **stairway**  
-Let’s go for a **saunter** along the river  
+Let’s go for a **saunter** along the river -  
 ice **rink**  
-**mortician**  
+Being a **mortician**, however, can be serious business  
 I still got **blister** on my hand from yesterday -  
 **plumbing**  
 silk **cocoon**  
@@ -46,7 +56,7 @@ The professor made **mincemeat** of the speaker at the conference
 **boa**  
 **courtship**  
 **ref**: referee  
-**checkers**  
+**Swedish checkers**  
 **meteorologist**  
 
 She carried an **armload** of boxes   
@@ -77,9 +87,9 @@ People **mingled** happily at the **carnival**.
 
 She knows exactly how to **tug** at readers' **heartstrings** -  
 all the **accolade** to xxx   
-she picked out her own **urn** -  
+she picked out her own **urn**  
 
-The song is too low for a **tenor** -  
+The song is too low for a **tenor**  
 I never joke when it comes to **vertigo**  
 telephone **handset**  
 **skyway**   
@@ -88,22 +98,22 @@ the girl **tinted** her hair green
 the soils have a rusty **red tint**  
 **shortbread** cookie  
 **letch**??  
-**mealworm**: the **larva** of beetles of the ... -  
+**mealworm**: the **larva** of beetles of the ...  
 
 Hope for rain late this week over wildfire-**scarred** Northern California **fading** Wednesday.  
-ETNs have default risk since the repayment of **principal** is **contingent** on the issuer's financial viability -  
-you want to be **cognizant** of the fact of diversification your income and net worth -    
+ETNs have default risk since the repayment of **principal** is **contingent** on the issuer's financial viability  
+you want to be **cognizant** of the fact of diversification your income and net worth  
 
 He has been under a probe for **graft** since last year  
 **breach** position  
 **billfold**  
-Allen is a **wiseacre** who **hears the grass grow** -  
+Allen is a **wiseacre** who **hears the grass grow**  
 **indigenous**  
 **vernacular** language -  
 she cried out of **anguish** at **parting**  
 I've worked in the surgical **ward**  
 juice drinks from **guava**  
-**papaya**  
+Hawaii **papaya**  
 **masseur**  
 
 With the virus spreading renew, and the stimulus bill derailed, Powell's plea **fell on** **deaf ears**. 
@@ -131,7 +141,7 @@ get a **glimmer** to see what's going on
 
 It runs **on par with** the swift version of the cache  
 
-At one of America’s most toxic **Superfund** sites, climate change **imperils** more than cleanup. -  
+At one of America’s most toxic **Superfund** sites, climate change **imperils** more than cleanup.  
 Trump briefly left the hospital Sunday to wave at supporters from his **motorcade**  
 with voters saying by **2-to-1** that Biden has the better **temperament** to be president, according to a new NBC News/Wall Street Journal poll.  
 The poll was conducted in the two days after the **unruly** and insult-filled debate Tuesday  
@@ -141,9 +151,9 @@ A **trio** of White House journalists recently tested positive, and ABC News is 
 I **weep** for the future of science.  
 The campfire **smoldered** for hours after the blaze **died out**.  
 hardly used in **mint condition**  
-The **valedictory address**, or **valediction**, is the closing or farewell statement delivered at a graduation ceremony. It is an **oration** at **commencement** -  
+The **valedictory address**, or **valediction**, is the closing or farewell statement delivered at a graduation ceremony. It is an **oration** at **commencement**  
 **goatee**  
-**Upholstery** Material: Genuine Leather -  
+**Upholstery** Material: Genuine Leather  
 
 I reject the **notion** that any user is a **freeloader** or a **leech**  
 In America even if you live with your relatives, you cannot be a **freeloader**.  
@@ -180,7 +190,7 @@ The furniture is old and the paint is **chipping**
 **crease mark**  
 does artificial silk **crease** more easily than natural silk?  
 **wecker** **beat-up** **jalopy** -  
-human **placenta** -  
+human **placenta**  
 **dermatologist**  
 **Mutagenesis**   
 You're young. You probably don't have **glaucoma**.  
@@ -201,7 +211,7 @@ No bank would be willing to **underwrite** such a loss.
 JPMorgan **Spoofs** Investors  
 The election will end months of political **bickering**.  
 
-She behaves with **decorum**  
+She behaves with **decorum** -  
 many animals were seen as the manifestation of a **deity**  
 Greek **myth**  
 a man in **loincloth**  

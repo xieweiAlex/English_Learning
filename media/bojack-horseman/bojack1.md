@@ -16,7 +16,7 @@ Keep that air **spritzed** for me.
 you're **in mood**  
 Todd is super weird, I think he is **onto** me.  
 **crew neck** shirt  
-**true dat** -  
+**true dat**  
 There is an entire **chapter** about me eating apple **fritters**.  
 I got something that's gonna get you a **shit-ton** of hearts or **digs** or smileys or whatever the hell you measure your journalism with.   
 The book turned out to be a total **hatchet job**.  
@@ -31,7 +31,7 @@ It's a **beach read** you can **thumb through** in a **wing chair**.
 ## E 9  
 it's **arid**.  
 **trench coat**  
-**chauffer** him around on his little errands, to the **groomer** and **whatnot**, but **all the while** you'll be studying him, **scouring** his weakness, **biding your time** till we're ready to strike. -  
+**chauffer** him around on his little errands, to the **groomer** and **whatnot**, but **all the while** you'll be studying him, **scouring** his weakness, **biding your time** till we're ready to strike.  
 And once you **zero in** on his **Achilles's hill**, we will take... him... down.  
 They **called off** their wedding.  
 this is a **guerilla theater**, no stage, no script, no net.  
@@ -56,7 +56,7 @@ I got **caught up** in the moment.
 One that takes an **unflinching** look at the **gritty** reality of the American family.  
 I don't want to see you in any more **tabloids**.  
 **no dob**  
-every day we don't fire him, we're flushing money down the **crapper**. -  
+every day we don't fire him, we're flushing money down the **crapper**.  
 you can **storm out**, make a big show out of what a "good" friend you are, or you could be the guy who does his job.  
 **secretariat**  
 went into a **turnaround**.  
@@ -65,7 +65,7 @@ went into a **turnaround**.
 
 
 ## E 7 
-Bojack **sabotages** himself with an epic **bender** -  
+Bojack **sabotages** himself with an epic **bender**  
 they didn't give you fake **bourbon** **on set**?  
 Somebody's got to **take the fall**  
 just me, you, and a bottle of **pinot**.  

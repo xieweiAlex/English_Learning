@@ -1,4 +1,6 @@
 
+* penalize vs punish
+* finicky
 * except vs besides 
 * sleazy vs tacky 
 * genuflected
@@ -35,7 +37,7 @@
 * discern
 * silver lining
 * stopgap 
-* streatch goal 
+* stretch goal 
 * seat of the pants
 * anabolic steroids
 * soul train  

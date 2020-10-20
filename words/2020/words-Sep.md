@@ -17,7 +17,7 @@ Nvidia is not **setting out to be** a partner, someone that gets along with ever
 The **tally** was two **ayes** and three **nays**  
 His **impotence** to help made him **despair**  
 
-Let the dog for a **scamper**. -  
+Let the dog for a **scamper**.  
 The kid who **ends up with** the backpack while the other kids **scamper** has been left **holding the bag**.  
 He tried to **even out** the distribution of work among his employees.  
 

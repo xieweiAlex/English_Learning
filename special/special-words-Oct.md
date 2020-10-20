@@ -1,3 +1,13 @@
+**frantically**  
+
+**laborious**
+
+**rampant**  
+
+**contingent**
+
+**vigilant**  
+
 **legibly**  
 
 **attentive**  
@@ -10,7 +20,7 @@
 
 **Alarming** 
 
-**Anthem**  
+**Anthem**, **anathema**  
 
 **contrary**, **contrarian**  
 
