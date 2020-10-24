@@ -2,7 +2,8 @@
   
 Expanding vocabulary for a non native-speaker is tedious and time-consuming, are you with me 🤔? I try to record the **words or phrases** I encounter daily with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and hopefully if it can inspire someone else, that's even better ✊.  
 
-|  Special Review 🐗   |    File Marks       |  file   	|
+### Review 
+|  Review 🐗   |    File Marks       |  file   	|
 | ------------- |-------------  | ------- |
 |    Recent words record   |  A  | [current-month](./words/2020/words-Oct.md)   |
 |    Word Review   |  I  |  [words-review](./words-review.md)       |
@@ -10,6 +11,7 @@ Expanding vocabulary for a non native-speaker is tedious and time-consuming, are
 |    Special Words |  K  | [special-words](./special/special-words-Sep.md)       |
 |    Movie Record |  L | [movie-record](./media/movie.md)       |
 
+### TV Show 
 |  TV Show      |     S1     |  S2 	| S3   | S4 | S5 | S6   | S7   | S8   |
 | ------------ |--------  | ------- | ---- | ---| -- | ---  | ---  | ---  |
 |    House of Card  🐺  |    [S1](./media/houseOfCards/HOC1.md) 
@@ -18,10 +20,13 @@ Expanding vocabulary for a non native-speaker is tedious and time-consuming, are
 | Silicon Valley 🐨 | NA| NA | [S3](./media/siliconValley/sv3.md) | [S4](./media/siliconValley/sv4.md)| [S5](./media/siliconValley/sv5.md) 
 | Game of Thrones 👑 | NA | [S2](./media/GOT/GOT2.md) | [S3](./media/GOT/GOT3.md) | [S4](./media/GOT/GOT4.md) | [S5](./media/GOT/GOT5.md)  | [S6](./media/GOT/GOT6.md)  | [S7](./media/GOT/GOT7.md)  | [S8](./media/GOT/GOT8.md)
 
-### Special words 
+### Special 
+|  Special      |   A       |  B   	| C   |
+| ------------- |---------  | ------- | --| 
+|    Special words    |  [words-Aug](./special/special-words-Aug.md) | [words-Sep](./special/special-words-Sep.md) | [words-Oct](./special/special-words-Oct.md)  
+|    Phrase    |    [special-phrase](./special/phrase.md) |  
+| Word with Question | [questions](./words-question.md) | 
 
-[words-Aug](./special/special-words-Aug.md) | [words-Sep](./special/special-words-Sep.md) | [words-Oct](./special/special-words-Oct.md)  
-[Word With Question](./words-question.md)
 
 ### Words 
 |  Words | Jan | Feb | Mar | Apr | May | Jun | Jul | Aug | Sep | Oct | Nov | Dec

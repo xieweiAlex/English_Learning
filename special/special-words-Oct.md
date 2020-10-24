@@ -1,3 +1,16 @@
+
+**bulk** 
+
+**insulation**
+
+**jitters**  
+
+**segue**
+
+**Scour**, **scouring**  
+
+**complacency** 
+
 **frantically**  
 
 **laborious**
@@ -8,7 +21,7 @@
 
 **vigilant**  
 
-**legibly**  
+**legibly**, **legality**  
 
 **attentive**  
 

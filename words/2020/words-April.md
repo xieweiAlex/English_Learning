@@ -186,7 +186,7 @@ Check out the **rack** on that chick
 **dopamine**  
 Ross didn't get the **annulment**. We're still married  
 Her hair is natural **wavy**  
-The earth's surface is like an **armadillo**'s armor  
+The earth's surface is like an **armadillo**'s armor -  
 The walls were **draped** with the maps  
 
 **arcane**  

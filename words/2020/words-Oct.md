@@ -1,5 +1,74 @@
 
-contingent?? 
+He decided to scour the sink  
+**GI**: gastrointestinal
+Do you take anything for your **bowels**  
+
+**Plum tree** 
+Are a lot of girls carrying **mace**?  
+Civil **commotion**  
+**madam**, **maiden**  
+air **commodore**  
+We were **welded** into a fighting collective -  
+She's been **beavering away** at her homework for hours. -  
+**beaver** teeth  
+**tarantula**  
+
+Despite interest from studios and fans, Gale and Zemeckis have affirmed that they will not make a further **sequel** as they consider the series concluded and do not want to **tarnish** its legacy  
+
+**clinical trial**  
+
+And they are mean and have a sense of **entitlement**  
+So on Monday morning I walked onto the floor of the exchange expecting **pandemonium** as stocks took a dive -  
+We are like ants **preoccupied** with our jobs of carrying **crumbs** in our **minuscule** lifetimes instead of having a broader perspective of the big-picture patterns and cycles -  
+I have been going to China a lot over the last 35 years and am lucky enough to have become **well-acquainted** with its top policy makers  
+which allowed Americans to borrow excessively from the rest of the world (including from China) which put the US in the **tenuous** position of owing other countries (including China) a lot of money -  
+Alphabet, which owns Google, has more than $120 billion cash on hand and has the resources to fight a long and **protracted** legal battle  
+2020 has been a year for the **head-spins**, to say the least.  
+In a ruling **handed down** on Wednesday, the U.S. Court of Appeals for the Ninth Circuit said the warrantless telephone **dragnet** that secretly collected millions of Americans’ telephone records violated the Foreign Intelligence Surveillance Act and may well have been **unconstitutional**  
+**sergeant-at-arms** -  
+
+it will be **painfully obvious** if you miss the needle in this haystack. Optimism becomes urgent  
+But there is another more **sinister** reason people dismiss new ideas. If you try something ambitious, many of those around you will hope, consciously or unconsciously, that you'll fail  
+ Encouraging startups has been practiced for so long that it has become a custom 
+One of their great favorites is Theranos. But the most **conspicuous** feature of Theranos's **cap table** is the absence of Silicon Valley firms  
+She is a **conspicuous** figure -  
+
+After 3 up weeks in a row for the market (4 weeks for the Nasdaq), there's **bound to** be some profit taking and position **squaring** along the way.  
+As some countries face **resurgent** caseloads, China's strict lockdown, testing, and tracing programs have **tamped down** subsequent outbreaks and kept the coronavirus under control.   
+China still has a **migraine** of a Q1 to recover from -  
+Even with Q3's stats, it's only expected to **eke out** 1.8% growth this year, according to the IMF.  
+China's National Bureau of Statistics acknowledged it's hard to be #thriving while the global economy remains **in tatters**.  
+
+He decided to **scour** the sink  
+And that is an excellent **segue** into the notion of a bank note -  
+Sorry I had to **bolt out** of our discussion Friday
+
+## Week 3
+
+**lump sum** payment 
+A FEDERAL JUDGE **struck down** Trump’s plan to cut food stamps for 700,000 unemployed Americans  
+Why Is American Airlines So **Infuriating**?  
+With its industry **reeling**, the company is quietly betting that diminished competition will keep passengers coming — even as they **grumble** about poor service, late arrivals, and **jam-packed** flights.   
+**circuit breaker**  
+
+**vision acuity**  
+Once it vests, you officially own the stock, can **liquidate** the shares, and are **subject to** the **requisite** income tax due on the value of the grant -  
+We're two months in **arrears** with the rent. -  
+He's always so **frazzled** when I get home  
+
+Most recently, **shortsighted** equity investors **spouting** this mantra participated in the "tech wreck," **snapping up** shares in tech companies at inflated prices even though these firms had no hope of ever making a profit  
+construct your portfolio based on long-term thinking and long-term **convictions** -  
+keep in mind that inversions are an **anomaly** and they don't last forever  
+
+**give a nod to**  
+An **inverted Treasury yield curve** is one of the most reliable **leading** indicators of an **impending** recession  
+When this occurs, many argue that it is the laws of **supply and demand**, rather than **impending** economic doom and gloom, that enable lenders to attract buyers without having to pay higher interest rates  
+
+It is important to remember the 2020 recession was caused by a **self-induced** shutdown and not structural or cyclical imbalances  
+**Insofar** as banks are a **proxy** for the economy’s health, the **outlook** for growth is likely better than most think.  
+
+We have **contingency** plans  
+Our success is **contingent on** your support.  
 
 It's **rounding the corner**  
 they're all **in unison** about this.  
@@ -8,6 +77,59 @@ we're not the lowest, but we're **among** the lowest
 I'm fortunately very under **levered**.  
 The whole **ball game** changed a lot  
 home **depot**  
+
+you can **grind down** your **fingernails** **scrabbling** away and making little progress  
+When a wave comes, even a long slow gentle one, **buoyancy** and **turbulence** **dissolve** the surface of the sand out from under you  
+until the tumbling and streaming of water triggers some instinct, and then with their **hydrofoil** shells angled into the **receding** wave, they extend their muscular tongues  
+The suspended sand **slurry** offers little traction or support, so the clams **ratchet** themselves deeper, tongue by shell, as a climber on a **floppy** rope does with arms and legs  
+When you find so many clams in every place you check, and then look up from your small catch to the extent of the beach, your brain cannot **fathom** the **multiplication**  
+> The spoils themselves seem **inconsequential**, but their implications for the scale of the vast unseen world around you **boggle** the imagination  
+
+If they were not hidden under a few inches of sand, they would cover it like **cobbles** on a **creek bed** -  
+Pismo clams were a **mainstay** in the **diet** of California’s native peoples  
+through management of the **fishery** alone they have so **bountifully** returned  
+It too is a huge beach, with a wide, flat **intertidal** region  
+It too is nestled into a graceful **arc** of **coastline**  
+**Mole crabs** live a life much like clams, fishing for **debris** among the waves, but they are completely opposite in **temperament**  
+From the moment they’re exposed to the air, they **frantically** dig with their **hind legs** if the surface they’re on resembles wet sand even as little as a human palm wet with seawater  
+When you drop them on the sand, they right themselves like **roly-polies** and rebury themselves in a blink  
+The large ones that can’t help but be caught, and will sit in your hand embarrassed to be exposed are the **matronly** females, which you can confirm from the orange eggs packed among their leg joints
+Why did every **starry-eyed** post-bubble founder **plop** their headquarters in a **dinky** suburb that would fight them for office space and housing forever after? Abundance is an accident -  
+The political forces that would preserve the bay area’s structures **in amber**, even as its people **decamp**, cry that this growth isn’t natural  
+We have such a **meager window** into such an immiserated natural world, that we don’t realize how deeply natural this is. The most **intransigent** cause of a lack of imagination is, **after all**, a lack of **referrents** -  
+Until now. As covid and wildfire smoke have **atomized** us all into whatever living space we can afford, and into a **grid of** separate video boxes on a screen, the place as it was no longer exists  
+Zoom was **on a roll** this week, launching two new products that got everyone talking  
+**anatomy** of success  
+The **well-trod** path  
+Put the container on the outer **ring** of the **turntable** to keep the food moving while it cooks  
+Microwaves only reach about an inch and a half deep into the food, and the rest **heats up** through **conduction**  
+
+**Limousines** often have a **lengthened** **wheelbase**  
+
+**thistle**  
+**kabob** 
+Let's go for a saunter along the river -  
+**rendition**  
+**grub** 
+**locust** 
+**sera** 
+**rover** 
+**kerb** 
+**slipnot**  
+**scatterbrain**  
+**gravel**  
+**doe**  
+**streaking**  
+**shimmy**  
+**sateen**  
+**outline**  
+**decoy**  
+**welder**  
+**ness**  
+**jug**  
+**highness**  
+**mortician**  
+**spotter**  
 
 Apple (AAPL) rolled out its new iPhone 12 today, along with a **bevy** of other products and services  
 
@@ -61,7 +183,7 @@ The professor made **mincemeat** of the speaker at the conference
 
 She carried an **armload** of boxes   
 **magnifying glass**  
-I like pears better than **apricots**. -  
+I like pears better than **apricots**.  
 
 **Deride**: to laugh at **in scorn**, make fun of: ridicule -  
 Must be deemed medically **advisable** by an IQLV surgeon  
@@ -126,7 +248,7 @@ something that is **legibly** impressive or valuable but has no **playbook**
 **foreheads**  
 **legroom**  
 experts in the pharma industry still expect up to a 20% **spoilage rate**.  
-Many commercial airlines have **retrofitted** aircraft -   
+Many commercial airlines have **retrofitted** aircraft  
 This isn’t the cargo industry's first **mile-high** **rodeo**  
 Under pressure to digitize, producers are expected to **phase out** more low-skilled work in favor of data, IT, and remote operations positions.   
 
@@ -211,7 +333,7 @@ No bank would be willing to **underwrite** such a loss.
 JPMorgan **Spoofs** Investors  
 The election will end months of political **bickering**.  
 
-She behaves with **decorum** -  
+She behaves with **decorum**  
 many animals were seen as the manifestation of a **deity**  
 Greek **myth**  
 a man in **loincloth**  

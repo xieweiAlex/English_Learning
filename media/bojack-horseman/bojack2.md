@@ -1,6 +1,24 @@
+## E 6  
+
+**Ever since** I heard about that agent who died from that blue-face **blastoff**?  
+Are you saying you want tot **auto-erotic** **asphyxiate** yourself?  
+If I'm gonna do it, I'm gonna go **all out**.  
+what a **hoot**  
+
+## E 4, E 5  
+Jump out of the window, **shimmy** down the **drainpipe** and wait in the car.  
+I'm still **getting up to speed**  
+Finding out Sinatra was dead was a real **curveball**.  
+**mulch**  
+I think maybe there's some things we kind of **glossed over** as we rushed into this relationship.  
+A deer in **arrears**. -  
+**fowl** **run afoul** -  
+Let's **bust her out**  
+Does she have a **meadow** that Becca can **frolic** around in? -  
+
 ## E 3  
 Thank you, Tina, for those touching **grunts** and **growls**.  
-In his last days, Herb's cancer had gone into **remission**. -  
+In his last days, Herb's cancer had gone into **remission**.  
 I was wondering where you **wandered off** to.  
 But I do know a **hot ticket**  
 let's get some light in here, it's so **dreadfully** **dreary**. -  

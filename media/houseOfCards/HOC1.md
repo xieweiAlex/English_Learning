@@ -1,3 +1,21 @@
+## E 4  
+I just can't resist the chance to see him **shrivel**. -  
+**water under the bridge**, we're **starting over**  
+**slippery slope**  
+which is **akin to** being between a very hungry wolf and a very **quarrelsome** sheep  
+before you and I have **dentures**  
+I **lobbied** the **commission**, my entire office  
+I'm sure you've done **splendid** work, but unfortunately it can't come to **fruition**  
+if you want look **inviting**, wear that black one.  
+I have no **testimony** to offer  
+He'll think you organized a coup, got **cold feet**, and are marking me the **scapegoat**  
+I actually didn't call to **badger** you.  
+Are you trying to **rub this in** or something?  
+You got **night sweat** too?  
+If there had been a **party revolt**, I would've known about it  
+We'll **cleave** you from the **herd**, and watch you die in the **wilderness**  
+you sound **tipsy**. -  
+
 ## E 3 
 I have to get up to the negotiation table because some **two-bit** county administrator wants to ...  
 This is **cut and dry**, Frank.  

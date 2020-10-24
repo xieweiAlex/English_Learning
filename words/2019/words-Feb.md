@@ -50,7 +50,7 @@ More people **executed** in China than rest of the world combined.
 **mandate of heaven**  
 having lived in China for 3 years and seeing what rights the Chinese people are **forfeiting** and what they are gaining in return  
 
-Spotify's acquisition **spree** won't change the podcast industry on its own. But it's another signal that we're on the **cusp** of a similar change for podcasting --   
+Spotify's acquisition **spree** won't change the podcast industry on its own. But it's another signal that we're on the **cusp** of a similar change for podcasting  
 
 Do you have any **arthritis** or pain, aching, or stiffness in your joints? --  
 **downhearted**  
@@ -119,7 +119,7 @@ August **intranet**.
 **ballot tampering**
 
 Danger runs during your CI process, and gives teams the chance to automate common code review **chores** 
-any special process for reporting **leukemia** and **lymphoma** society donations for Jason to match? - 
+any special process for reporting **leukemia** and **lymphoma** society donations for Jason to match?  
 
 **torii** gates  
 **certificate of deposit**
@@ -166,7 +166,7 @@ It's a shame to **pigeonhole** ourselves there
 Through all the adventures and **tribulation** we've had -  
 he moved to China years ago before Winnie the Pooh took over and tried bringing back the **suffocating** Soviet-like presence of the CCP into major cities
 **totalitarian government**
-it isn't that China is ruled by a government that **harshly** punished **dissenting** opinions and nearly destroys free speech - 
+it isn't that China is ruled by a government that **harshly** punished **dissenting** opinions and nearly destroys free speech  
 Where I live here in Germany kids are delivered by **midwifes**. Doctors only come, if there are problems. 
 this only helps making sure your whole family have the ability to stay permanently in the States if conditions in China become much more **draconian**
 > I can't understand how people can **get away with** crimes like the vaccine scam, and at the same time people will spend endless amounts of effort to track down someone who says something bad about China and try to ruin their life.
@@ -175,7 +175,7 @@ Compare California with Guizhou (one of the most **impoverished** regions in the
 They were in a state of **euphoria** after the baby was born.  
 The moon is in **conjunction** with the sun.    
 Be in a **subordinate** position.  
-The front **parlour** was the hub of her universe. -   
+The front **parlour** was the hub of her universe.  
 **unilateral** contract  
 a **midair hijack** 
 
@@ -201,9 +201,9 @@ This is one of the parts of book I genuinely was **engrossed** by.
 
 Strip clubs in the outer **boroughs**. -   
 Counterfeit and **shoddy** products
-refreshment **kiosk** -  
+refreshment **kiosk**  
 The **drunken** man **lurched** along 
-**Binge eating**, **binge drinking**, **binge watching** -  
+**Binge eating**, **binge drinking**, **binge watching**  
 this car **guzzles** petrol - 
 **baffle plate**, **baffle wall**. 
 **pesticide** **residue**
@@ -216,7 +216,7 @@ a **dull** **lackluster** life
 **twilight** of gods. 
 
 **strained** the **pulp** from the juice.  
-We got a **blip** on the radar. -   
+We got a **blip** on the radar.  
 **letter of undertaking**, **undertaking clause** 
 **undertaking simultaneous interpretation**  
 **fissile** material -   
@@ -240,7 +240,7 @@ Clear expression is the **hallmark** of good writing.
 **Aquiculture** and **poultry** - 
 **Aquarium**
 A young **goose** is a **gosling**.  
-**Clear-cut** evidence of **tampering**. - 
+**Clear-cut** evidence of **tampering**.  
 a **deluge** of complains.  
 
 There billionaires are **fear mongering**, right? -   

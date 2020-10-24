@@ -2,7 +2,7 @@
 
 **Imperil** one's life to save sb.  
 diamond **mesh** 
-Her **petty** complaints really **gripe** me. -  
+Her **petty** complaints really **gripe** me.  
 He is a **paradoxical** **aesthete**. 
 They are **mucking** the apple trees.  
 Oil **muck** on the floor of a garage.  

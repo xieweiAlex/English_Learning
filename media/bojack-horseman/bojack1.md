@@ -78,7 +78,7 @@ You really **shat** the bed on this one.
 probably just forgot, the **lazy bum**.  
 **drunken**  
 I will keep your little crush busy long enough for you to get rid of the **contraband**.  
-Am I **attracted to** her? Sure. 
+Am I **attracted to** her? Sure.  
 **two-crossed** man  
 
 ## E 5

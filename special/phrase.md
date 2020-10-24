@@ -1,3 +1,6 @@
+Let's **bust her out**  
+I think maybe there's some things we kind of **glossed over** as we rushed into this relationship.  
+Sorry I had to **bolt out** of our discussion Friday
 I was wondering where you **wandered off** to.  
 you can **grind down** your **fingernails** **scrabbling** away and making little progress  
 The whole **ball game** changed a lot  

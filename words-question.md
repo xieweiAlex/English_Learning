@@ -1,4 +1,7 @@
 
+* I always wanted 
+* I never did 
+* propitious vs auspicious 
 * penalize vs punish
 * finicky
 * except vs besides 
