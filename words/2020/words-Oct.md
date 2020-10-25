@@ -1,7 +1,60 @@
 
-He decided to scour the sink  
+Topless senoritas frolic on the new beach  
+
+His **dogged** determination helped him to win the race  
+
+a **thumbnail** **biography**.  
+a **thumbnail** sketch  
+**wear and tear**  
+I thought I bought a **lemon**  
+the seller was in **hospice**, going to die any day. -  
+Call it the **piggy bank** strategy  
+what helps me have some **semblance** of happiness -  
+**Aristotle**  
+after spent 1500 to 2000 hours, I kind of started almost becoming **jaded** what it was like to be in that car   
+
+The pigs were **grubbing** about among the bushes -  
+you silly **twit**  
+she filled the **jug** with fresh water -  
+dried fruit and **granola**  
+pickled **artichoke**  
+**iron clad**  
+it's an **outrage** and an insult  
+my child was diagnosed as being slightly **dyslexic**  
+were you wishing you could taste her cherry **chapstick**?  
+she blew a kiss to the **onlookers**.  
+**flattery**  
+course **syllabus**  
+**wigs off**  
+A bra and a pair of **briefs** lay on the floor  
+I'll give you the whole **debrief** later, okay?  
+**range rover**, lunar **rover**  
+we refuse to **water down** our message  
+they would **sandbag** any progress until January  
+The rise of remote work might **spell** the end for Silicon Valley -   
+
+
+I needed to adjust from the roots, to **spit out** that wolf’s milk we had all drunk  
+A **pail** of water  
+
+The **intravenous** drug has helped shorten the recovery time of some hospitalized Covid-19 patients.  
+
 **GI**: gastrointestinal
 Do you take anything for your **bowels**  
+
+A NASA spacecraft successfully landed on an **asteroid** named Bennu more than 200 million miles away to grab some space rock samples.   
+
+Just a reminder, if the six indicators above look like **hieroglyphics**, earlier this week we published a guide that walks you through our markets section. -
+Businesses have **shied away** from cryptocurrency transactions because of long transfer times and price volatility -  
+But PayPal has **allayed** those fears by converting the cryptocurrency used to buy a coffee into dollars, pounds, or any other currency that the merchant would typically accept -  
+Barack Obama delivered a **scathing** **condemnation** of Trump in his return to the campaign trail.  
+
+A **short squeeze** occurs when a stock or other asset jumps sharply higher, forcing traders who had bet that its price would fall, to buy it in order to **forestall** even **greater** losses  
+The **flight** of short-sellers and their impact on the stock's price is known as a **short squeeze**  
+Short sellers **zero in** on a stock that they think is **overvalued** by the market -  
+However **sound** their reasoning is, it can be **upended** by a positive news story, a product announcement, or an earnings beat that excites the interest of buyers  
+The **turnaround** in the stock’s fortunes may prove to be temporary. But if it's not, the short seller can face **runaway losses** as the expiration date on their positions approaches. They generally **opt to** sell out immediately even if it means taking a **substantial** loss  
+The stock may be heavily shorted for good reason, such as it has a **dismal** future outlook  
 
 **Plum tree** 
 Are a lot of girls carrying **mace**?  
@@ -16,6 +69,13 @@ She's been **beavering away** at her homework for hours. -
 Despite interest from studios and fans, Gale and Zemeckis have affirmed that they will not make a further **sequel** as they consider the series concluded and do not want to **tarnish** its legacy  
 
 **clinical trial**  
+
+Meanwhile, Microsoft's competing product, Teams, continues to grow **unabated** and boasts 1,800 customers with more than 10,000 users -  
+Bears think that slowing growth and **ramped-up** competition from a **deep-pocketed** software giant could **relegate** Slack to serving a **niche** market, limiting its long-term potential -  
+Surprisingly, the coronavirus has been both a **tailwind** and **headwind** for Slack  
+he had a **scrappy** New York **temperament**. -  
+If you don't mind taking a little risk on a **scrappy** **upstart** with an exceptional product and a solid management team that isn't scared of its **heavyweight** competitor, this stock is a buy  
+Unfortunately for management, revenue guidance that is **in line with** Street expectations may not be enough to **quench** investors’ thirst for growth  
 
 And they are mean and have a sense of **entitlement**  
 So on Monday morning I walked onto the floor of the exchange expecting **pandemonium** as stocks took a dive -  
@@ -85,7 +145,7 @@ The suspended sand **slurry** offers little traction or support, so the clams **
 When you find so many clams in every place you check, and then look up from your small catch to the extent of the beach, your brain cannot **fathom** the **multiplication**  
 > The spoils themselves seem **inconsequential**, but their implications for the scale of the vast unseen world around you **boggle** the imagination  
 
-If they were not hidden under a few inches of sand, they would cover it like **cobbles** on a **creek bed** -  
+If they were not hidden under a few inches of sand, they would cover it like **cobbles** on a **creek bed**  
 Pismo clams were a **mainstay** in the **diet** of California’s native peoples  
 through management of the **fishery** alone they have so **bountifully** returned  
 It too is a huge beach, with a wide, flat **intertidal** region  
@@ -108,7 +168,7 @@ Microwaves only reach about an inch and a half deep into the food, and the rest 
 
 **thistle**  
 **kabob** 
-Let's go for a saunter along the river -  
+Let's go for a **saunter** along the river -  
 **rendition**  
 **grub** 
 **locust** 
@@ -134,17 +194,15 @@ Let's go for a saunter along the river -
 Apple (AAPL) rolled out its new iPhone 12 today, along with a **bevy** of other products and services  
 
 The Elections: Investors are **handicapping** the potential regulatory and tax implications of a Biden win and a blue wave.  
-
 The hotel staff are friendly and **attentive**  
 The dog **nosed** out a rat  
 **stairway**  
-Let’s go for a **saunter** along the river -  
 ice **rink**  
 Being a **mortician**, however, can be serious business  
-I still got **blister** on my hand from yesterday -  
+I still got **blister** on my hand from yesterday  
 **plumbing**  
 silk **cocoon**  
-**Nectarine** is a nutritious fruit and is welcomed by consumers  
+**Nectarine** is a nutritious fruit and is welcomed by consumers -  
 **lipper**  
 **emphysema**  
 **meteorologist**  
@@ -153,7 +211,7 @@ silk **cocoon**
 ## Week 2 
 
 **no-go topic**  
-These allow investors to make **wagers** based on the volatility index itself, rather than on the changes to individual names it attempts to represent -  
+These allow investors to make **wagers** based on the volatility index itself, rather than on the changes to individual names it attempts to represent  
 VIX ETFs are a bit of a **misnomer** -  
 As the examples above illustrate, VIX ETFs are incredibly **finicky**  
 **Mean Reversion**  
@@ -207,7 +265,7 @@ It hurt, so she put some **aloe vera** on it
 People **mingled** happily at the **carnival**.  
 **contango** 
 
-She knows exactly how to **tug** at readers' **heartstrings** -  
+She knows exactly how to **tug** at readers' **heartstrings**  
 all the **accolade** to xxx   
 she picked out her own **urn**  
 
@@ -231,7 +289,7 @@ He has been under a probe for **graft** since last year
 **billfold**  
 Allen is a **wiseacre** who **hears the grass grow**  
 **indigenous**  
-**vernacular** language -  
+**vernacular** language  
 she cried out of **anguish** at **parting**  
 I've worked in the surgical **ward**  
 juice drinks from **guava**  
@@ -311,7 +369,7 @@ The furniture is old and the paint is **chipping**
 **socket**  
 **crease mark**  
 does artificial silk **crease** more easily than natural silk?  
-**wecker** **beat-up** **jalopy** -  
+**wecker** **beat-up** **jalopy**  
 human **placenta**  
 **dermatologist**  
 **Mutagenesis**   

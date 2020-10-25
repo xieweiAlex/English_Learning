@@ -1,3 +1,15 @@
+Even with Q3's stats, it's only expected to **eke out** 1.8% growth this year, according to the IMF.  
+
+He'll think you organized a coup, got **cold feet**, and are marking me the **scapegoat**  
+**water under the bridge**, we're **starting over**  
+If I'm gonna do it, I'm gonna go **all out**.  
+Are you trying to **rub this in** or something?  
+Short sellers **zero in** on a stock that they think is **overvalued** by the market -  
+**Clear-cut** evidence of **tampering**. - 
+
+In a ruling **handed down** on Wednesday, the U.S. Court of Appeals for the Ninth Circuit  
+he's telling his followers to snap up shares immediately.  
+
 Let's **bust her out**  
 I think maybe there's some things we kind of **glossed over** as we rushed into this relationship.  
 Sorry I had to **bolt out** of our discussion Friday

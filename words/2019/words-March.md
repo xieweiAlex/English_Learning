@@ -297,7 +297,7 @@ You kind of **overlook** any flaws and see them through rose-colored glasses
 Yes, that’s right: Facebook. Cryptocurrency. Earthquake! Revolution! The world is **tilting** on its **axis**! The end times are **cometh** -  
 **Remittances** are a massive market, and a **holy grail** of cryptocurrencies, and WhatsApp is widely used worldwide.  
 He sends **regular remittances** to his parents.  
-But then your family in Ghana has to somehow convert them to cedis at an **exchange** — a task which is, as of this writing, likely to be slower, much **clumsier**, far more **user-hostile** -  
+But then your family in Ghana has to somehow convert them to cedis at an **exchange** — a task which is, as of this writing, likely to be slower, much **clumsier**, far more **user-hostile**  
    
    
 here's a **roundup** of what we do know about the upcoming 2019 iPhones.  

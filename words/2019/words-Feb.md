@@ -75,7 +75,7 @@ He would have preferred his wife not to work, although **conversely** he was als
 He **renounced** drugs and alcohol completely.  
 The romance **fizzled out**.  
 The politicians and **warlords** who are **fermenting** this chaos. -   
-An **egregious** lie. -  
+An **egregious** lie.  
 She slowed for a **roundabout**, taking the second exit.  
 The city was **awash** with journalists.  
 A quiet, **reflective**, **astute** man. -   
@@ -87,7 +87,7 @@ This invention is **ascribed** to Edison.
 
 For many years my wife had been **extolling** the virtues of spending time outside -   
 perhaps I've just been walking in “simple enough” environments—that I haven’t **tripped** even when I’m not consciously paying attention -    
-But if video is on, seeing people who are not paying attention just seems to **viscerally** kill the mood of almost any meeting - 
+But if video is on, seeing people who are not paying attention just seems to **viscerally** kill the mood of almost any meeting  
 my headset is wired, **albeit** with a long wire that lets me roam around my office  
 But I never like to be computerless, and the 13″ laptop is a heavy thing to **lug around**  
 
@@ -104,7 +104,7 @@ a **rhetorical** **device**
 They arrested him on charges of public **intoxication** and **possession** of a firearm while **intoxicated**.  
 
 
-Particularly since I’m at my desk much of each day, I've tried to optimize its **ergonomics** - 
+Particularly since I’m at my desk much of each day, I've tried to optimize its **ergonomics**  
 **patent troll**
 
 There’s a **peculiar** person **snooping** around.  
@@ -127,7 +127,7 @@ any special process for reporting **leukemia** and **lymphoma** society donation
 it can be changed **on the fly** with  
 Planking (or the Lying Down Game) is an activity consisting of lying face down, sometimes in an unusual or **incongruous** location -  
 
-They arrested him on charges of public **intoxication** and **possession** of a firearm while **intoxicated**. -   
+They arrested him on charges of public **intoxication** and **possession** of a firearm while **intoxicated**.  
 
 ## Week 2 
 Remove the **thorn** form **tread**.  
@@ -140,7 +140,7 @@ front **derailleur**
 you can also add mushrooms, to add in more **antioxidants**.  
 
 The **crux** of each test is a call to assertEqual() to check for an expected result. 
-the **crux** of an argument. -  
+the **crux** of an argument.  
 **probiotics** help repopulate your **gut** with the healthy bacteria
 
 But I felt my learning rate was being **annealed** (slowing down) **yet** my mind was **craving** more
@@ -170,7 +170,7 @@ it isn't that China is ruled by a government that **harshly** punished **dissent
 Where I live here in Germany kids are delivered by **midwifes**. Doctors only come, if there are problems. 
 this only helps making sure your whole family have the ability to stay permanently in the States if conditions in China become much more **draconian**
 > I can't understand how people can **get away with** crimes like the vaccine scam, and at the same time people will spend endless amounts of effort to track down someone who says something bad about China and try to ruin their life.
-Compare California with Guizhou (one of the most **impoverished** regions in the country) and your conclusion is giving birth in CHINA is terrible - 
+Compare California with Guizhou (one of the most **impoverished** regions in the country) and your conclusion is giving birth in CHINA is terrible  
 
 They were in a state of **euphoria** after the baby was born.  
 The moon is in **conjunction** with the sun.    
@@ -193,7 +193,7 @@ We're not **unduly** worried. -
 **Antenna**  
 **hobbled** by responsibilities.  
 Get into a **hobble**.  
-The **glare** of the sun on the water. -   
+The **glare** of the sun on the water.  
 **touche** (well spoke)
 You were part of that **prophecy**.  
 Because I had pursued his father and put him in jail, and that was a family matter that should be resolved by the **rabbis** not by a prosecutor 
@@ -243,7 +243,7 @@ A young **goose** is a **gosling**.
 **Clear-cut** evidence of **tampering**.  
 a **deluge** of complains.  
 
-There billionaires are **fear mongering**, right? -   
+There billionaires are **fear mongering**, right?  
 a **myth busting** show   
 People in that country are living in a thick bubble of **intercultural ignorance**, they barely understand people outside their border
 
