@@ -1,5 +1,3 @@
-
-
 ## HOC1.md ## 
 media/houseOfCards/HOC1.md
 I need a full **picket** -  

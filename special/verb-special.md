@@ -1,4 +1,8 @@
 
+## Oct 
+
+**forgo**  
+
 **boggle**  
 
 **rachet**
