@@ -37,7 +37,7 @@ They **called off** their wedding.
 this is a **guerilla theater**, no stage, no script, no net.  
 that terrifying robber is making some very **cogent points**.  
 Sorry, kind of **went off on a tangent** there.  
-The bank robber thing was a **dud**. -  
+The bank robber thing was a **dud**.  
 Take the mic, **spin us a yarn**.  
 Since I'm both of your friends and have no **ulterior** **motives**...  
 We're on my **turf**  
@@ -111,7 +111,7 @@ It's **spellbinding**.
 In this **heady** time, what Todd needs is an agent.  
 There is **no time** for a **relapse**  
 you **pompous** **affected** asshole!  
-**mon dieu**, never have I ever! -  
+**mon dieu**, never have I ever!  
 
 ## E 3 
 I can't believe you **pawned** my award.  

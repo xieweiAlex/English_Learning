@@ -87,7 +87,7 @@ he is too **feverish** to rest
 **blinding** layer  
 I woke up with the **blinding** realization that it was time to go  
 I'm a **cyborg** photographer  
-he **blubbered** like a child who had been **spanked**. -  
+he **blubbered** like a child who had been **spanked**.  
 A **spanking** breeze is a **boon** to sailors  
 nausea **retch**  
 The smell made her **retch**  

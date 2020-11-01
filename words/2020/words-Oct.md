@@ -1,6 +1,79 @@
+The olives are crushed to a **pulp** by stone rollers  
+She lacks the **requisite** experience for the job -  
+I have discretionary income  
 
-Topless senoritas frolic on the new beach  
+**hostage** was **abducted** by criminal gang  
+Good food and good conversation go **hand in hand**.  
+My view hasn't changed since then, but Slack's price-to-sales ratio has declined from 26 times to a more **palatable** 19  
+I can tell that you arent **jazzed up** by group events.  
+**steroid hormone**
+the order **cutoff** date!  
+Honey is an **antiseptic** and antibacterial ingredient that also has wound healing properties -  
+**Makeshift** shelters for those left behind have **sprung up** all over the area.  
 
+you even have the **cojones** to open the stock market app -  
+Spending on services increased, but not nearly enough to **recoup** losses from the pandemic  
+Google parent Alphabet also reported **blowout** earnings, with profits at $11.2 billion and revenue at $46 billion last quarter.   
+Every year, Netflix invests more money in **pumping out** original content (did you see Holidate?). **Execs** think that value for customers is worth a **pricier** subscription.  
+It's been an economic savior for some parts of the state that were **hollowed** out by the decline of manufacturing jobs, but some Pennsylvanians are against it on environmental grounds.  
+
+Investing an outsized portion of one's portfolio in an IPO could occasionally produce significant returns, but it also introduces **undue** risk for the investor  
+He **subsequently** purchases 2,380 shares at the $42 opening price on May 10, 2019  
+However, Q3 also followed the biggest GDP drop on record, so the numbers won’t reflect a **rip-roaring** economy. -  
+
+As a merchant, you can let customers know about your commitment with a **spiffy** badge embedded on checkout - a great visual, especially if your audience is eco-conscious. -  
+
+France and Germany will **institute** temporary lockdowns to control the renewed spread of the virus.  
+tech and internet stocks, which have been **quasi**-safety havens, were also on sale -  
+That act, passed in 1996 before these companies became advertising **juggernauts**, has allowed these internet giants to be **shielded** from liability from false advertising and any claims made on their platforms by any of their users  
+Earnings season usually **buoys** stocks  
+And once the election is over, the negotiation over stimulus is likely to resume **in earnest**  
+Even though we've seen a **spectacular** rally so far (recent pullback **notwithstanding**), it looks like there's a lot more upside to go. -  
+And there's nothing like **sitting back** and watching the gains **rack up**  
+Since then, they've been **scouting** some interesting projects, including Climeworks that launched earlier this yea  
+There’s a lot of darkness in the world, so let’s **start off** with a message from a school **superintendent** that was making the rounds on Twitter  
+It **edged up** in New York and California, though.  
+**Pfizer Labs**  
+The U.S.' vaccine game is **high-stakes**. Any **slip-ups** in the program—such as only four out of six candidates proving effective, or not enough people getting vaccinated—could mean we'll be dealing with the virus well into 2023  
+But if everything goes smoothly, we could **turn the tide** by July of next year.   
+On Monday, Dr. Anthony Fauci told Yahoo Finance that the “primary **endpoint**” of a vaccine is “to prevent **clinically** recognizable disease,” aka **stamping out** symptoms, rather than eliminating the virus entirely  
+Texas's Economic **Makeover** -  
+It would still take a historic **upswell** of Democratic support to flip the state in this election -  
+But as new job seekers continue to **reshape** its economic **landscape**, Texas and its **meaty** 38 electoral college votes might be **up for grabs** when 2024 rolls around  
+A FEDERAL JUDGE rejected the Justice Department’s attempt to **represent** President Trump in a **defamation** lawsuit filed by E. Jean Carroll, who alleges he raped her in the 1990s. 
+It's **off to** a great start  
+**hang in there** 
+
+**paramedic** ambulance -  
+I'd like something for a **sunburn**  
+**starlight**  
+she thinks I'm a **hussy** -  
+stretch **briefts**  
+swan **mussel** -  
+**saltine** crackers  
+**mormon** doctrine  
+holy **hymn** in church 
+**equator**  
+**shuffleboard**  
+**padlock**  
+legal **formality**  
+Don't **talk down** to coworkers, including **subordinates**
+Donald Trump did not come to Washington to win the praise of the **beltway elites** -  
+I suppose I can use one of the **less-frayed** cables I have at home to charge this phone."  
+You told us as much in our recent survey (more below), but broadly speaking, individual investors see **inclement** weather **on the horizon** -  
+Rise In Virus Cases **Weigh On** Stocks, But Big Earnings Week Could Provide **Lift**  
+This enables you to **narrow down** the Zacks #1 Rank List to stocks that best fit your investing style
+Tech stocks have **buoyed** the market recovery, but SAP's **plunge** could **undermine** investor confidence in other software vendors facing similar **headwinds**  
+Don't **talk down** to coworkers, including **subordinates**
+
+### Week 4
+I got **tackled** in his office  
+the **payoff** phase  
+**gtfo** my room  
+Order has been received, and everything looks good! We’ll get to work on it **pronto**. -  
+How Amazon keeps a close eye on employee activism to **head off** unions  
+The harbor is now entirely **silted up**.  
+Topless **senoritas** **frolic** on the new beach  
 His **dogged** determination helped him to win the race  
 
 a **thumbnail** **biography**.  
@@ -13,17 +86,24 @@ what helps me have some **semblance** of happiness -
 **Aristotle**  
 after spent 1500 to 2000 hours, I kind of started almost becoming **jaded** what it was like to be in that car   
 
-The pigs were **grubbing** about among the bushes -  
+The pigs were **grubbing** about among the bushes  
 you silly **twit**  
-she filled the **jug** with fresh water -  
+she filled the **jug** with fresh water  
 dried fruit and **granola**  
 pickled **artichoke**  
 **iron clad**  
 it's an **outrage** and an insult  
-my child was diagnosed as being slightly **dyslexic**  
+my child was diagnosed as being slightly **dyslexic** -  
 were you wishing you could taste her cherry **chapstick**?  
 she blew a kiss to the **onlookers**.  
 **flattery**  
+I may have accidentally **insinuated** that she is getting chubbier. -  
+she is an **enigma** to me. -  
+**newlywed**  
+**renaissance** music -   
+**beanstalk**  
+national **emblem**, Olympic **emblem**   
+her shirt has the company **emblem** on it. -  
 course **syllabus**  
 **wigs off**  
 A bra and a pair of **briefs** lay on the floor  
@@ -31,8 +111,17 @@ I'll give you the whole **debrief** later, okay?
 **range rover**, lunar **rover**  
 we refuse to **water down** our message  
 they would **sandbag** any progress until January  
-The rise of remote work might **spell** the end for Silicon Valley -   
+The rise of remote work might **spell** the end for Silicon Valley  
 
+An ethnic nationalist, Xi holds a vision of Chinese **revival** that draws on **allusions** to past empires  
+He speaks in **Marxist** terms of class struggle and uses **Maoist** tactics such as self-criticism and rectification  
+The Chinese president sees himself as a savior, **anointed** to lead the country into a “**new era**” of greatness **propelled** by rising prosperity and political **devotion**  
+His rule has led to sweeping **crackdowns** on corruption and political **dissent** at home and an increasingly **strident** foreign policy -  
+**coarse grain**   
+Xi Zhongxun lived through **hellish** periods of internal party **factionalism**  
+Some scholars suggest that the shame of that period pushed Xi not to question or **renounce** the extremities of Mao’s leadership, but to prove himself worthy to lead  
+he went on a “southern tour” to Shenzhen, **retracing** the footsteps of Deng Xiaoping  
+He speaks in Marxist terms of class struggle and uses Maoist tactics such as self-criticism and **rectification**, but his brand of communism also promotes **Confucius** and e-commerce  
 
 I needed to adjust from the roots, to **spit out** that wolf’s milk we had all drunk  
 A **pail** of water  
@@ -45,13 +134,13 @@ Do you take anything for your **bowels**
 A NASA spacecraft successfully landed on an **asteroid** named Bennu more than 200 million miles away to grab some space rock samples.   
 
 Just a reminder, if the six indicators above look like **hieroglyphics**, earlier this week we published a guide that walks you through our markets section. -
-Businesses have **shied away** from cryptocurrency transactions because of long transfer times and price volatility -  
-But PayPal has **allayed** those fears by converting the cryptocurrency used to buy a coffee into dollars, pounds, or any other currency that the merchant would typically accept -  
+Businesses have **shied away** from cryptocurrency transactions because of long transfer times and price volatility  
+But PayPal has **allayed** those fears by converting the cryptocurrency used to buy a coffee into dollars, pounds, or any other currency that the merchant would typically accept  
 Barack Obama delivered a **scathing** **condemnation** of Trump in his return to the campaign trail.  
 
 A **short squeeze** occurs when a stock or other asset jumps sharply higher, forcing traders who had bet that its price would fall, to buy it in order to **forestall** even **greater** losses  
 The **flight** of short-sellers and their impact on the stock's price is known as a **short squeeze**  
-Short sellers **zero in** on a stock that they think is **overvalued** by the market -  
+Short sellers **zero in** on a stock that they think is **overvalued** by the market  
 However **sound** their reasoning is, it can be **upended** by a positive news story, a product announcement, or an earnings beat that excites the interest of buyers  
 The **turnaround** in the stock’s fortunes may prove to be temporary. But if it's not, the short seller can face **runaway losses** as the expiration date on their positions approaches. They generally **opt to** sell out immediately even if it means taking a **substantial** loss  
 The stock may be heavily shorted for good reason, such as it has a **dismal** future outlook  
@@ -61,15 +150,14 @@ Are a lot of girls carrying **mace**?
 Civil **commotion**  
 **madam**, **maiden**  
 air **commodore**  
-We were **welded** into a fighting collective -  
-She's been **beavering away** at her homework for hours. -  
+We were **welded** into a fighting collective  
+She's been **beavering away** at her homework for hours.  
 **beaver** teeth  
 **tarantula**  
 
 Despite interest from studios and fans, Gale and Zemeckis have affirmed that they will not make a further **sequel** as they consider the series concluded and do not want to **tarnish** its legacy  
 
 **clinical trial**  
-
 Meanwhile, Microsoft's competing product, Teams, continues to grow **unabated** and boasts 1,800 customers with more than 10,000 users -  
 Bears think that slowing growth and **ramped-up** competition from a **deep-pocketed** software giant could **relegate** Slack to serving a **niche** market, limiting its long-term potential -  
 Surprisingly, the coronavirus has been both a **tailwind** and **headwind** for Slack  
@@ -85,17 +173,17 @@ which allowed Americans to borrow excessively from the rest of the world (includ
 Alphabet, which owns Google, has more than $120 billion cash on hand and has the resources to fight a long and **protracted** legal battle  
 2020 has been a year for the **head-spins**, to say the least.  
 In a ruling **handed down** on Wednesday, the U.S. Court of Appeals for the Ninth Circuit said the warrantless telephone **dragnet** that secretly collected millions of Americans’ telephone records violated the Foreign Intelligence Surveillance Act and may well have been **unconstitutional**  
-**sergeant-at-arms** -  
+**sergeant-at-arms**  
 
 it will be **painfully obvious** if you miss the needle in this haystack. Optimism becomes urgent  
 But there is another more **sinister** reason people dismiss new ideas. If you try something ambitious, many of those around you will hope, consciously or unconsciously, that you'll fail  
  Encouraging startups has been practiced for so long that it has become a custom 
 One of their great favorites is Theranos. But the most **conspicuous** feature of Theranos's **cap table** is the absence of Silicon Valley firms  
-She is a **conspicuous** figure -  
+She is a **conspicuous** figure  
 
 After 3 up weeks in a row for the market (4 weeks for the Nasdaq), there's **bound to** be some profit taking and position **squaring** along the way.  
 As some countries face **resurgent** caseloads, China's strict lockdown, testing, and tracing programs have **tamped down** subsequent outbreaks and kept the coronavirus under control.   
-China still has a **migraine** of a Q1 to recover from -  
+China still has a **migraine** of a Q1 to recover from  
 Even with Q3's stats, it's only expected to **eke out** 1.8% growth this year, according to the IMF.  
 China's National Bureau of Statistics acknowledged it's hard to be #thriving while the global economy remains **in tatters**.  
 
@@ -112,12 +200,12 @@ With its industry **reeling**, the company is quietly betting that diminished co
 **circuit breaker**  
 
 **vision acuity**  
-Once it vests, you officially own the stock, can **liquidate** the shares, and are **subject to** the **requisite** income tax due on the value of the grant -  
-We're two months in **arrears** with the rent. -  
+Once it vests, you officially own the stock, can **liquidate** the shares, and are **subject to** the **requisite** income tax due on the value of the grant   
+We're two months in **arrears** with the rent.  
 He's always so **frazzled** when I get home  
 
 Most recently, **shortsighted** equity investors **spouting** this mantra participated in the "tech wreck," **snapping up** shares in tech companies at inflated prices even though these firms had no hope of ever making a profit  
-construct your portfolio based on long-term thinking and long-term **convictions** -  
+construct your portfolio based on long-term thinking and long-term **convictions**  
 keep in mind that inversions are an **anomaly** and they don't last forever  
 
 **give a nod to**  
@@ -154,7 +242,7 @@ It too is nestled into a graceful **arc** of **coastline**
 From the moment they’re exposed to the air, they **frantically** dig with their **hind legs** if the surface they’re on resembles wet sand even as little as a human palm wet with seawater  
 When you drop them on the sand, they right themselves like **roly-polies** and rebury themselves in a blink  
 The large ones that can’t help but be caught, and will sit in your hand embarrassed to be exposed are the **matronly** females, which you can confirm from the orange eggs packed among their leg joints
-Why did every **starry-eyed** post-bubble founder **plop** their headquarters in a **dinky** suburb that would fight them for office space and housing forever after? Abundance is an accident -  
+Why did every **starry-eyed** post-bubble founder **plop** their headquarters in a **dinky** suburb that would fight them for office space and housing forever after? Abundance is an accident  
 The political forces that would preserve the bay area’s structures **in amber**, even as its people **decamp**, cry that this growth isn’t natural  
 We have such a **meager window** into such an immiserated natural world, that we don’t realize how deeply natural this is. The most **intransigent** cause of a lack of imagination is, **after all**, a lack of **referrents** -  
 Until now. As covid and wildfire smoke have **atomized** us all into whatever living space we can afford, and into a **grid of** separate video boxes on a screen, the place as it was no longer exists  
@@ -168,31 +256,25 @@ Microwaves only reach about an inch and a half deep into the food, and the rest 
 
 **thistle**  
 **kabob** 
-Let's go for a **saunter** along the river -  
+Let's go for a **saunter** along the river  
 **rendition**  
-**grub** 
 **locust** 
 **sera** 
-**rover** 
 **kerb** 
 **slipnot**  
 **scatterbrain**  
-**gravel**  
+Sand is **finer** than **gravel**.  
 **doe**  
-**streaking**  
+**Streaking** is one of the oldest tricks in the book  
 **shimmy**  
 **sateen**  
 **outline**  
 **decoy**  
 **welder**  
 **ness**  
-**jug**  
-**highness**  
-**mortician**  
-**spotter**  
-
-Apple (AAPL) rolled out its new iPhone 12 today, along with a **bevy** of other products and services  
-
+I am most grateful, Your **Highness**.  
+A **spotter** plane circling **on high**  
+Apple (AAPL) rolled out its new iPhone 12 today, along with a **bevy** of other products and services -  
 The Elections: Investors are **handicapping** the potential regulatory and tax implications of a Biden win and a blue wave.  
 The hotel staff are friendly and **attentive**  
 The dog **nosed** out a rat  
@@ -202,7 +284,7 @@ Being a **mortician**, however, can be serious business
 I still got **blister** on my hand from yesterday  
 **plumbing**  
 silk **cocoon**  
-**Nectarine** is a nutritious fruit and is welcomed by consumers -  
+**Nectarine** is a nutritious fruit and is welcomed by consumers  
 **lipper**  
 **emphysema**  
 **meteorologist**  
@@ -212,12 +294,12 @@ silk **cocoon**
 
 **no-go topic**  
 These allow investors to make **wagers** based on the volatility index itself, rather than on the changes to individual names it attempts to represent  
-VIX ETFs are a bit of a **misnomer** -  
+VIX ETFs are a bit of a **misnomer**  
 As the examples above illustrate, VIX ETFs are incredibly **finicky**  
 **Mean Reversion**  
 delaying when they were going to get back in because they got **spooked**.  
 they were experiencing this emotional **distress**  
-what we were looking at, it's not necessary the **nadirs** or the bottom of those trends. -  
+what we were looking at, it's not necessary the **nadirs** or the bottom of those trends.  
 **stop-loss point**  
 **whip out**  
 **trailing stop loss**  
@@ -243,7 +325,8 @@ She carried an **armload** of boxes
 **magnifying glass**  
 I like pears better than **apricots**.  
 
-**Deride**: to laugh at **in scorn**, make fun of: ridicule -  
+**Deride**: to laugh at **in scorn**, make fun of: ridicule   
+That newspaper columnist **derides** the mayor whenever he can -   
 Must be deemed medically **advisable** by an IQLV surgeon  
 **ashtray** 
 Road to **stardom**  
@@ -294,6 +377,7 @@ she cried out of **anguish** at **parting**
 I've worked in the surgical **ward**  
 juice drinks from **guava**  
 Hawaii **papaya**  
+Apply **papaya** **pulp** on the skin  
 **masseur**  
 
 With the virus spreading renew, and the stimulus bill derailed, Powell's plea **fell on** **deaf ears**. 

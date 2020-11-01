@@ -77,7 +77,7 @@ He is as **cunning** as fox.
 A **pejorative** (also called a **derogatory** term, a term of abuse, or a term of **disparagement**)  
 **means of subsistence**, **subsistence level**.  
 Our troops **withstood** the **onset** of the enemy.  
-**Malaise** is a feeling of general discomfort, uneasiness or pain, of being "out of sorts", often the first indication of an infection or other disease.-   
+**Malaise** is a feeling of general discomfort, uneasiness or pain, of being "out of sorts", often the first indication of an infection or other disease.  
 
 **Russia lunacy**   
 
@@ -158,7 +158,7 @@ He was of **stalwart** build
 **hydrogen peroxide** (H2O2)
 **Heady liqueur**  
 a **heady**, exotic perfume  
-**upstart**: an arrogant or **presumptuous** person -  
+**upstart**: an arrogant or **presumptuous** person  
 **genome mutation**  
 Don't **overdo** the salt in your cooking.  
 Tractors **facilitate** farming.  

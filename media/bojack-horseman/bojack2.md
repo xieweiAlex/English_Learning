@@ -12,16 +12,16 @@ Finding out Sinatra was dead was a real **curveball**.
 **mulch**  
 I think maybe there's some things we kind of **glossed over** as we rushed into this relationship.  
 A deer in **arrears**. -  
-**fowl** **run afoul** -  
+**fowl** **run afoul**  
 Let's **bust her out**  
-Does she have a **meadow** that Becca can **frolic** around in? -  
+Does she have a **meadow** that Becca can **frolic** around in?  
 
 ## E 3  
 Thank you, Tina, for those touching **grunts** and **growls**.  
 In his last days, Herb's cancer had gone into **remission**.  
 I was wondering where you **wandered off** to.  
 But I do know a **hot ticket**  
-let's get some light in here, it's so **dreadfully** **dreary**. -  
+let's get some light in here, it's so **dreadfully** **dreary**.  
 He was a **peculiar** client.  
 the network said it was too **edgy**.  
 I never met the guy. I'm just here to **schmooze** -  

@@ -1,3 +1,13 @@
+## E 5 
+Is it my job to **pander** to all my employees?  
+If we do this event, the whole staff **walks out**  
+I need your **manpower**  
+I need a full **picket** -  
+**aspirin**, go ahead.  
+I made them keep you **in contention**.  
+will he **wither** or he will thrive, only time will tell.  
+
+
 ## E 4  
 I just can't resist the chance to see him **shrivel**. -  
 **water under the bridge**, we're **starting over**  
@@ -14,7 +24,7 @@ Are you trying to **rub this in** or something?
 You got **night sweat** too?  
 If there had been a **party revolt**, I would've known about it  
 We'll **cleave** you from the **herd**, and watch you die in the **wilderness**  
-you sound **tipsy**. -  
+you sound **tipsy**.  
 
 ## E 3 
 I have to get up to the negotiation table because some **two-bit** county administrator wants to ...  
@@ -49,7 +59,7 @@ How very **deep throat** of you.
 both **passive-aggressive** and **condescending**  
 It's golden, it's in **bull's eye**  
 have it **steam cleaned** **over the weekend**.  
-
+  
 ## E 1 
 I'm **awfully** sorry  
 It's a **chicken-shit** move  

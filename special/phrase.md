@@ -1,14 +1,29 @@
+I can tell that you arent **jazzed up** by group events.  
+Good food and good conversation go **hand in hand**.  
+It **edged up** in New York and California, though.  
+It's **off to** a great start  
+The U.S.' vaccine game is **high-stakes**. Any **slip-ups** in the program—such as only four out of six candidates proving effective, or not enough people getting vaccinated—could mean we'll be dealing with the virus well into 2023  
+However, Q3 also followed the biggest GDP drop on record, so the numbers won’t reflect a **rip-roaring** economy.  
+And there's nothing like **sitting back** and watching the gains **rack up**  
+
+Oh, big **stud**, **running off** to **gallivant** with your **fillies**. 
+**hang in there** 
+Rise In Virus Cases **Weigh On** Stocks, But Big Earnings Week Could Provide **Lift**  
+This enables you to **narrow down** the Zacks #1 Rank List to stocks that best fit your investing style
+
+Don't **talk down** to coworkers, including **subordinates**
+How Amazon keeps a close eye on employee activism to **head off** unions  
 Even with Q3's stats, it's only expected to **eke out** 1.8% growth this year, according to the IMF.  
 
 He'll think you organized a coup, got **cold feet**, and are marking me the **scapegoat**  
 **water under the bridge**, we're **starting over**  
 If I'm gonna do it, I'm gonna go **all out**.  
 Are you trying to **rub this in** or something?  
-Short sellers **zero in** on a stock that they think is **overvalued** by the market -  
-**Clear-cut** evidence of **tampering**. - 
+Short sellers **zero in** on a stock that they think is **overvalued** by the market   
+**Clear-cut** evidence of **tampering**.  
 
 In a ruling **handed down** on Wednesday, the U.S. Court of Appeals for the Ninth Circuit  
-he's telling his followers to snap up shares immediately.  
+he's telling his followers to **snap up** shares immediately.  
 
 Let's **bust her out**  
 I think maybe there's some things we kind of **glossed over** as we rushed into this relationship.  
@@ -34,7 +49,7 @@ What's going to prevent somebody from coming in here and competing me **out of b
 It's something we all **fall prey to**.   
 Under pressure to digitize, producers are expected to **phase out** more low-skilled work in favor of data, IT, and remote operations positions.   
 **Battered** oil prices also **shot up**.  
-I don't know. A sense of **deja vu**. -  
+I don't know. A sense of **deja vu**.   
 The book turned out to be a total **hatchet job**.   
 **Giddy-Up** Little Doggies
 I'm **well-adjusted**, you all want my life.  
@@ -45,7 +60,7 @@ Daenerys has **taken up** residence in Meereen
 What's been **taking up** your days as of late?  
 The bill — which was approved without a single GOP vote — isn’t expected to be **taken up** by the Senate.
 
-he **huffed out** his **sudden irritation** -  
+he **huffed out** his **sudden irritation**   
 And once you **zero in** on his **Achilles's hill**, we will take... him... down.  
 They **called off** their wedding.  
 Take the mic, **spin us a yarn**.  
@@ -68,7 +83,7 @@ full truth, **warts and all**
 He tried to **even out** the distribution of work among his employees.  
 I'm not gonna leave you **holding the bag**.  
 
-The **last thing** the people here need is a **two-bit** **charlatan**... -  
+The **last thing** the people here need is a **two-bit** **charlatan**...   
 Their opposition **stems from** fear and ignorance  
 They're **narrow-minded**, **mean-spirited** **dirtbags**.  
 
