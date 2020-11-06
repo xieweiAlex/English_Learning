@@ -1,5 +1,22 @@
+**precede**  
+
+**sow** 
+
+**topple**  
+
+**botch**  
+
+**stem** 
+
+**implore**  
+
+**nibble**
 
 ## Oct 
+
+**swig**
+
+**snip**, **nip** 
 
 **forgo**  
 

@@ -1,4 +1,12 @@
 
+**hardline**
+
+**Farce** 
+
+**Conspicuous** 
+
+**manipulative**
+
 **virility**
 
 **ingrained**

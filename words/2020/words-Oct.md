@@ -1,13 +1,12 @@
-
 ## Week 5 
 The olives are crushed to a **pulp** by stone rollers  
 She lacks the **requisite** experience for the job -  
-I have discretionary income  
+I have **discretionary** income  
 
 **hostage** was **abducted** by criminal gang  
 Good food and good conversation go **hand in hand**.  
 My view hasn't changed since then, but Slack's price-to-sales ratio has declined from 26 times to a more **palatable** 19  
-I can tell that you arent **jazzed up** by group events.  
+I can tell that you aren't **jazzed up** by group events.  
 **steroid hormone**
 the order **cutoff** date!  
 Honey is an **antiseptic** and antibacterial ingredient that also has wound healing properties -  
@@ -22,12 +21,11 @@ It's been an economic savior for some parts of the state that were **hollowed** 
 Investing an outsized portion of one's portfolio in an IPO could occasionally produce significant returns, but it also introduces **undue** risk for the investor  
 He **subsequently** purchases 2,380 shares at the $42 opening price on May 10, 2019  
 However, Q3 also followed the biggest GDP drop on record, so the numbers won’t reflect a **rip-roaring** economy. -  
-
 As a merchant, you can let customers know about your commitment with a **spiffy** badge embedded on checkout - a great visual, especially if your audience is eco-conscious. -  
 
 France and Germany will **institute** temporary lockdowns to control the renewed spread of the virus.  
 tech and internet stocks, which have been **quasi**-safety havens, were also on sale -  
-That act, passed in 1996 before these companies became advertising **juggernauts**, has allowed these internet giants to be **shielded** from liability from false advertising and any claims made on their platforms by any of their users  
+That act, passed in 1996 before these companies became advertising **juggernauts**, has allowed these internet giants to be **shielded from** liability from false advertising and any claims made on their platforms by any of their users  
 Earnings season usually **buoys** stocks  
 And once the election is over, the negotiation over stimulus is likely to resume **in earnest**  
 Even though we've seen a **spectacular** rally so far (recent pullback **notwithstanding**), it looks like there's a lot more upside to go. -  

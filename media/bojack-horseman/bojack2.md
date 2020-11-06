@@ -1,5 +1,23 @@
-## E 6  
+## E 8 
+this isn't funny, no more **tomfoolery**  
+**trigonometry**, advanced physics, or at the movies with Mr. Peanutbutter  
+when he gets excited, his ears so slightly **flop up** and **give him away**. 
 
+## E 7 
+**hippo**  
+What you got against Uncle Hanky, you **uppity** **cooze**?   
+I'm not **slinking** away  
+I'm so **incorrigible**. -  
+everybody thinks he is a nice guy, people don't want to think he **is capable of** awful things, so they let him **off the hook**.  
+Hey **turtleneck**, you're fired.  
+I wanted to pitch you an **expose** on Hank Hippopolaous  
+I'd love to **take down** Hippopolaous and finally **topple** the **acropolis** of **monstrous** **hypocrisy** that **ensconces** us. -   
+you gonna **drag down** people close to you.  
+A **genocide** may or may not have been **perpetrated** in my name. -  
+I'm **in your corner**
+
+
+## E 6  
 **Ever since** I heard about that agent who died from that blue-face **blastoff**?  
 Are you saying you want tot **auto-erotic** **asphyxiate** yourself?  
 If I'm gonna do it, I'm gonna go **all out**.  
@@ -25,7 +43,7 @@ let's get some light in here, it's so **dreadfully** **dreary**.
 He was a **peculiar** client.  
 the network said it was too **edgy**.  
 I never met the guy. I'm just here to **schmooze** -  
-you blew up again, **dweeb**.  
+you **blew up** again, **dweeb**.  
 if you are being **zonked up** all the time, I'm not sure I can trust you with the responsibility.  
 I'm remembering a lot of stuff. The **ketamine**'s **wearing off**.  
 Do you mean I'm a "killer of **gloom**"?  

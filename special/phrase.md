@@ -1,11 +1,24 @@
-I can tell that you arent **jazzed up** by group events.  
+
+I can tell that you aren't **jazzed up** by group events.  
 Good food and good conversation go **hand in hand**.  
-It **edged up** in New York and California, though.  
+She has **sworn off** cigarettes 
+Those **traits** didn't **pop up** in humans.
+once the US starts to **mend** its ties with China, they might be **left high and dry**, paying for their shortsightedness with real money.  
+The **cold shoulders** Pompeo has met on his Asian tour have shown his anti-China **soothsaying** to be nothing but a self-directed and self-performed **farce**, as Wang Wenbin, spokesperson for the Foreign Ministry, described his trip.  
+Please vote. We’ll all be **better off** for it. -  
+
+## Oct 
+If a guy isn't into you because you **opt for** the chocolate cake, he needs to be **kicked to the curb** **pronto**  
+More specifically, I've **stumbled upon** an **under-the-radar** stock I believe could be one of the greatest discoveries of my 27 years as a professional investor.  
+Los Angeles is **rife with** gossip about the stars' private lives  
+Those **traits** didn't **pop up** in humans.
+About that girl, the one I let **get away**  
+She has **sworn off** cigarettes 
+Prices **edged up** 2% in the year to December  
 It's **off to** a great start  
 The U.S.' vaccine game is **high-stakes**. Any **slip-ups** in the program—such as only four out of six candidates proving effective, or not enough people getting vaccinated—could mean we'll be dealing with the virus well into 2023  
 However, Q3 also followed the biggest GDP drop on record, so the numbers won’t reflect a **rip-roaring** economy.  
 And there's nothing like **sitting back** and watching the gains **rack up**  
-
 Oh, big **stud**, **running off** to **gallivant** with your **fillies**. 
 **hang in there** 
 Rise In Virus Cases **Weigh On** Stocks, But Big Earnings Week Could Provide **Lift**  
@@ -24,7 +37,6 @@ Short sellers **zero in** on a stock that they think is **overvalued** by the ma
 
 In a ruling **handed down** on Wednesday, the U.S. Court of Appeals for the Ninth Circuit  
 he's telling his followers to **snap up** shares immediately.  
-
 Let's **bust her out**  
 I think maybe there's some things we kind of **glossed over** as we rushed into this relationship.  
 Sorry I had to **bolt out** of our discussion Friday

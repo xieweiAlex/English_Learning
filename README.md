@@ -21,11 +21,11 @@ Expanding vocabulary for a non native-speaker is tedious and time-consuming, are
 | Game of Thrones 👑 | NA | [S2](./media/GOT/GOT2.md) | [S3](./media/GOT/GOT3.md) | [S4](./media/GOT/GOT4.md) | [S5](./media/GOT/GOT5.md)  | [S6](./media/GOT/GOT6.md)  | [S7](./media/GOT/GOT7.md)  | [S8](./media/GOT/GOT8.md)
 
 ### Special 
-|  Special      |   A       |  B   	| C   |
-| ------------- |---------  | ------- | --| 
-|    Special words    |  [words-Aug](./special/special-words-Aug.md) | [words-Sep](./special/special-words-Sep.md) | [words-Oct](./special/special-words-Oct.md)  
+|  Special      |   A       |  B   	| C   |   D   |
+| ------------- |---------  | ------- | --|  ---- | 
+|    Special words    |  [words-Aug](./special/special-words-Aug.md) | [words-Sep](./special/special-words-Sep.md) | [words-Oct](./special/special-words-Oct.md) | [words-Nov](./special/special-words-Nov.md)
 | Special Verb | [special-Verb](./special/verb-special.md)
-|    Phrase    |    [special-phrase](./special/phrase.md) |  
+|  Phrase    |    [special-phrase](./special/phrase.md) | [phrase-Nov](./special/phrase-Nov.md)  
 | Question | [questions](./words-question.md) | 
 
 
