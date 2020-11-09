@@ -1,3 +1,18 @@
+
+**Throw a wrench** to Ant's IPO  
+A lot of sectors are **in harm's way**  
+**book value**  
+
+He is a trustworthy and **level-headed** leader  
+maybe it's the word "date" that's **throwing me off**.  
+Just **dabble** with it every now and then, then just stop and then come back to it  
+
+the Fed will also continue **flexing its** quantitative easing **muscles**, buying assets like mortgage-backed securities and U.S  
+The **bespectacled** banker was appointed to the board by former President Barack Obama in 2012   
+The rat **gnawed** a hole in the wooden box -  
+as everyone **gnawed** on **pepperoni** while watching Steve Kornacki defy the limits of **human endurance**  
+U.S. officials said they seized $1 billion worth of bitcoin that was linked to the **dormant** darknet marketplace Silk Road.  
+
 Hitler tried to **liquidate** the Jews in Germany  
 I'm trying to keep you from **liquidation**  
 
@@ -5,7 +20,7 @@ I'm trying to keep you from **liquidation**
 **round robin**  
 **count me in**, **count me out**
 It's **naff** to say it, but it is amazing that the Americans can look at the last four years and be split 48-52 on whether they want more of it  
-> To a lot of people in America, Democrats are **smug** college kids who regard them as untouchables  
+> To a lot of people in America, Democrats are **smug** college kids who regard them as **untouchables**  
 
 **coal**, **charcoal**  
 The pandemic **smothered** demand and the export market **dried up** 

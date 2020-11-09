@@ -1,29 +1,18 @@
-
-I can tell that you aren't **jazzed up** by group events.  
-Good food and good conversation go **hand in hand**.  
-She has **sworn off** cigarettes 
-Those **traits** didn't **pop up** in humans.
-once the US starts to **mend** its ties with China, they might be **left high and dry**, paying for their shortsightedness with real money.  
-The **cold shoulders** Pompeo has met on his Asian tour have shown his anti-China **soothsaying** to be nothing but a self-directed and self-performed **farce**, as Wang Wenbin, spokesperson for the Foreign Ministry, described his trip.  
-Please vote. We’ll all be **better off** for it. -  
-
 ## Oct 
 If a guy isn't into you because you **opt for** the chocolate cake, he needs to be **kicked to the curb** **pronto**  
-More specifically, I've **stumbled upon** an **under-the-radar** stock I believe could be one of the greatest discoveries of my 27 years as a professional investor.  
 Los Angeles is **rife with** gossip about the stars' private lives  
 Those **traits** didn't **pop up** in humans.
 About that girl, the one I let **get away**  
 She has **sworn off** cigarettes 
 Prices **edged up** 2% in the year to December  
 It's **off to** a great start  
-The U.S.' vaccine game is **high-stakes**. Any **slip-ups** in the program—such as only four out of six candidates proving effective, or not enough people getting vaccinated—could mean we'll be dealing with the virus well into 2023  
+The U.S.' vaccine game is **high-stakes**. Any **slip-ups** in the program—such as only four out of six candidates proving effective, ... we'll be dealing with the virus well into 2023  
 However, Q3 also followed the biggest GDP drop on record, so the numbers won’t reflect a **rip-roaring** economy.  
 And there's nothing like **sitting back** and watching the gains **rack up**  
 Oh, big **stud**, **running off** to **gallivant** with your **fillies**. 
 **hang in there** 
 Rise In Virus Cases **Weigh On** Stocks, But Big Earnings Week Could Provide **Lift**  
 This enables you to **narrow down** the Zacks #1 Rank List to stocks that best fit your investing style
-
 Don't **talk down** to coworkers, including **subordinates**
 How Amazon keeps a close eye on employee activism to **head off** unions  
 Even with Q3's stats, it's only expected to **eke out** 1.8% growth this year, according to the IMF.  

@@ -42,7 +42,7 @@ But I do know a **hot ticket**
 let's get some light in here, it's so **dreadfully** **dreary**.  
 He was a **peculiar** client.  
 the network said it was too **edgy**.  
-I never met the guy. I'm just here to **schmooze** -  
+I never met the guy. I'm just here to **schmooze**  
 you **blew up** again, **dweeb**.  
 if you are being **zonked up** all the time, I'm not sure I can trust you with the responsibility.  
 I'm remembering a lot of stuff. The **ketamine**'s **wearing off**.  

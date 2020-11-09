@@ -1,3 +1,8 @@
+
+**pundit** 
+
+**premise**  
+
 **dweeb** 
 
 **perpetual**, **perpetuate** 

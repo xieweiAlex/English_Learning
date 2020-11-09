@@ -12,7 +12,7 @@ the order **cutoff** date!
 Honey is an **antiseptic** and antibacterial ingredient that also has wound healing properties -  
 **Makeshift** shelters for those left behind have **sprung up** all over the area.  
 
-you even have the **cojones** to open the stock market app -  
+you even have the **cojones** to open the stock market app  
 Spending on services increased, but not nearly enough to **recoup** losses from the pandemic  
 Google parent Alphabet also reported **blowout** earnings, with profits at $11.2 billion and revenue at $46 billion last quarter.   
 Every year, Netflix invests more money in **pumping out** original content (did you see Holidate?). **Execs** think that value for customers is worth a **pricier** subscription.  
@@ -20,7 +20,7 @@ It's been an economic savior for some parts of the state that were **hollowed** 
 
 Investing an outsized portion of one's portfolio in an IPO could occasionally produce significant returns, but it also introduces **undue** risk for the investor  
 He **subsequently** purchases 2,380 shares at the $42 opening price on May 10, 2019  
-However, Q3 also followed the biggest GDP drop on record, so the numbers won’t reflect a **rip-roaring** economy. -  
+However, Q3 also followed the biggest GDP drop on record, so the numbers won’t reflect a **rip-roaring** economy.  
 As a merchant, you can let customers know about your commitment with a **spiffy** badge embedded on checkout - a great visual, especially if your audience is eco-conscious. -  
 
 France and Germany will **institute** temporary lockdowns to control the renewed spread of the virus.  
@@ -28,7 +28,7 @@ tech and internet stocks, which have been **quasi**-safety havens, were also on 
 That act, passed in 1996 before these companies became advertising **juggernauts**, has allowed these internet giants to be **shielded from** liability from false advertising and any claims made on their platforms by any of their users  
 Earnings season usually **buoys** stocks  
 And once the election is over, the negotiation over stimulus is likely to resume **in earnest**  
-Even though we've seen a **spectacular** rally so far (recent pullback **notwithstanding**), it looks like there's a lot more upside to go. -  
+Even though we've seen a **spectacular** rally so far (recent pullback **notwithstanding**), it looks like there's a lot more upside to go.  
 And there's nothing like **sitting back** and watching the gains **rack up**  
 Since then, they've been **scouting** some interesting projects, including Climeworks that launched earlier this yea  
 There’s a lot of darkness in the world, so let’s **start off** with a message from a school **superintendent** that was making the rounds on Twitter  
@@ -49,7 +49,7 @@ I'd like something for a **sunburn**
 **starlight**  
 she thinks I'm a **hussy** -  
 stretch **briefts**  
-swan **mussel** -  
+swan **mussel**  
 **saltine** crackers  
 **mormon** doctrine  
 holy **hymn** in church 
@@ -60,7 +60,7 @@ legal **formality**
 Don't **talk down** to coworkers, including **subordinates**
 Donald Trump did not come to Washington to win the praise of the **beltway elites** -  
 I suppose I can use one of the **less-frayed** cables I have at home to charge this phone."  
-You told us as much in our recent survey (more below), but broadly speaking, individual investors see **inclement** weather **on the horizon** -  
+You told us as much in our recent survey (more below), but broadly speaking, individual investors see **inclement** weather **on the horizon**  
 Rise In Virus Cases **Weigh On** Stocks, But Big Earnings Week Could Provide **Lift**  
 This enables you to **narrow down** the Zacks #1 Rank List to stocks that best fit your investing style
 Tech stocks have **buoyed** the market recovery, but SAP's **plunge** could **undermine** investor confidence in other software vendors facing similar **headwinds**  
@@ -70,7 +70,7 @@ Don't **talk down** to coworkers, including **subordinates**
 I got **tackled** in his office  
 the **payoff** phase  
 **gtfo** my room  
-Order has been received, and everything looks good! We’ll get to work on it **pronto**. -  
+Order has been received, and everything looks good! We’ll get to work on it **pronto**.  
 How Amazon keeps a close eye on employee activism to **head off** unions  
 The harbor is now entirely **silted up**.  
 Topless **senoritas** **frolic** on the new beach  
@@ -82,7 +82,7 @@ a **thumbnail** sketch
 I thought I bought a **lemon**  
 the seller was in **hospice**, going to die any day. -  
 Call it the **piggy bank** strategy  
-what helps me have some **semblance** of happiness -  
+what helps me have some **semblance** of happiness  
 **Aristotle**  
 after spent 1500 to 2000 hours, I kind of started almost becoming **jaded** what it was like to be in that car   
 
@@ -93,14 +93,14 @@ dried fruit and **granola**
 pickled **artichoke**  
 **iron clad**  
 it's an **outrage** and an insult  
-my child was diagnosed as being slightly **dyslexic** -  
+my child was diagnosed as being slightly **dyslexic**  
 were you wishing you could taste her cherry **chapstick**?  
 she blew a kiss to the **onlookers**.  
 **flattery**  
-I may have accidentally **insinuated** that she is getting chubbier. -  
+I may have accidentally **insinuated** that she is getting chubbier.  
 she is an **enigma** to me. -  
 **newlywed**  
-**renaissance** music -   
+**renaissance** music  
 **beanstalk**  
 national **emblem**, Olympic **emblem**   
 her shirt has the company **emblem** on it. -  
@@ -116,7 +116,7 @@ The rise of remote work might **spell** the end for Silicon Valley
 An ethnic nationalist, Xi holds a vision of Chinese **revival** that draws on **allusions** to past empires  
 He speaks in **Marxist** terms of class struggle and uses **Maoist** tactics such as self-criticism and rectification  
 The Chinese president sees himself as a savior, **anointed** to lead the country into a “**new era**” of greatness **propelled** by rising prosperity and political **devotion**  
-His rule has led to sweeping **crackdowns** on corruption and political **dissent** at home and an increasingly **strident** foreign policy -  
+His rule has led to sweeping **crackdowns** on corruption and political **dissent** at home and an increasingly **strident** foreign policy  
 **coarse grain**   
 Xi Zhongxun lived through **hellish** periods of internal party **factionalism**  
 Some scholars suggest that the shame of that period pushed Xi not to question or **renounce** the extremities of Mao’s leadership, but to prove himself worthy to lead  
@@ -159,17 +159,17 @@ Despite interest from studios and fans, Gale and Zemeckis have affirmed that the
 
 **clinical trial**  
 Meanwhile, Microsoft's competing product, Teams, continues to grow **unabated** and boasts 1,800 customers with more than 10,000 users -  
-Bears think that slowing growth and **ramped-up** competition from a **deep-pocketed** software giant could **relegate** Slack to serving a **niche** market, limiting its long-term potential -  
+Bears think that slowing growth and **ramped-up** competition from a **deep-pocketed** software giant could **relegate** Slack to serving a **niche** market, limiting its long-term potential  
 Surprisingly, the coronavirus has been both a **tailwind** and **headwind** for Slack  
 he had a **scrappy** New York **temperament**. -  
 If you don't mind taking a little risk on a **scrappy** **upstart** with an exceptional product and a solid management team that isn't scared of its **heavyweight** competitor, this stock is a buy  
 Unfortunately for management, revenue guidance that is **in line with** Street expectations may not be enough to **quench** investors’ thirst for growth  
 
 And they are mean and have a sense of **entitlement**  
-So on Monday morning I walked onto the floor of the exchange expecting **pandemonium** as stocks took a dive -  
-We are like ants **preoccupied** with our jobs of carrying **crumbs** in our **minuscule** lifetimes instead of having a broader perspective of the big-picture patterns and cycles -  
+So on Monday morning I walked onto the floor of the exchange expecting **pandemonium** as stocks took a dive  
+We are like ants **preoccupied** with our jobs of carrying **crumbs** in our **minuscule** lifetimes instead of having a broader perspective of the big-picture patterns and cycles  
 I have been going to China a lot over the last 35 years and am lucky enough to have become **well-acquainted** with its top policy makers  
-which allowed Americans to borrow excessively from the rest of the world (including from China) which put the US in the **tenuous** position of owing other countries (including China) a lot of money -  
+which allowed Americans to borrow excessively from the rest of the world (including from China) which put the US in the **tenuous** position of owing other countries (including China) a lot of money  
 Alphabet, which owns Google, has more than $120 billion cash on hand and has the resources to fight a long and **protracted** legal battle  
 2020 has been a year for the **head-spins**, to say the least.  
 In a ruling **handed down** on Wednesday, the U.S. Court of Appeals for the Ninth Circuit said the warrantless telephone **dragnet** that secretly collected millions of Americans’ telephone records violated the Foreign Intelligence Surveillance Act and may well have been **unconstitutional**  
@@ -188,7 +188,7 @@ Even with Q3's stats, it's only expected to **eke out** 1.8% growth this year, a
 China's National Bureau of Statistics acknowledged it's hard to be #thriving while the global economy remains **in tatters**.  
 
 He decided to **scour** the sink  
-And that is an excellent **segue** into the notion of a bank note -  
+And that is an excellent **segue** into the notion of a bank note  
 Sorry I had to **bolt out** of our discussion Friday
 
 ## Week 3
@@ -244,7 +244,7 @@ When you drop them on the sand, they right themselves like **roly-polies** and r
 The large ones that can’t help but be caught, and will sit in your hand embarrassed to be exposed are the **matronly** females, which you can confirm from the orange eggs packed among their leg joints
 Why did every **starry-eyed** post-bubble founder **plop** their headquarters in a **dinky** suburb that would fight them for office space and housing forever after? Abundance is an accident  
 The political forces that would preserve the bay area’s structures **in amber**, even as its people **decamp**, cry that this growth isn’t natural  
-We have such a **meager window** into such an immiserated natural world, that we don’t realize how deeply natural this is. The most **intransigent** cause of a lack of imagination is, **after all**, a lack of **referrents** -  
+We have such a **meager window** into such an immiserated natural world, that we don’t realize how deeply natural this is. The most **intransigent** cause of a lack of imagination is, **after all**, a lack of **referrents**  
 Until now. As covid and wildfire smoke have **atomized** us all into whatever living space we can afford, and into a **grid of** separate video boxes on a screen, the place as it was no longer exists  
 Zoom was **on a roll** this week, launching two new products that got everyone talking  
 **anatomy** of success  

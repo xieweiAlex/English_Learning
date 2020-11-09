@@ -1,3 +1,20 @@
+
+### American's great divide II
+There was a kind of **prejudice** against Trump.  
+a kind of **incredulity** **in the parlors** of Washington.  
+Somehow this guy was **coarse** and so **blatantly** exploiting race and division could actually win.  
+for Obama, it's like a **gut punch**  
+an **out-of-body** experience  
+I think that **set the tone** for what was to follow  
+Steve Banner rejects the **premise**  
+there was a certain amount of **spontaneity** and **impulsiveness** about the way this administration was going to operate  
+the division became a **chasm** -  
+the words "many sides" were **ad-libbed** and added by Trump  
+that's not in his **wheelhouse**, not in the way he **rolls**. Let Trump be Trump  
+that's a **lay-up**, that's easy.  
+Donald Trump has **conflated** Republican party loyalty with loyalty to himself to an extreme degree. -  
+
+
 ### American's great divide  
 I mean, just the way he spoke was so compelling and so dynamic and so **magnetizing**.  
 Most people aren’t **hyperpartisan**.  

@@ -15,7 +15,7 @@ be under the **oversight** of.
 
 Google—the search engine company that everyone grew to love at the time—announced that they’re entering the **ring**. Chrome was born.  
 What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing. -   
-While the Chrome browser itself is not open-source, most of its **innards** are. Chromium, the non-proprietary subset of Chrome, was open-sourced early on with a generously **permissive license** as a sign of commitment to the open Web community. -  
+While the Chrome browser itself is not open-source, most of its **innards** are. Chromium, the non-proprietary subset of Chrome, was open-sourced early on with a generously **permissive license** as a sign of commitment to the open Web community.  
 
 he personally **overheard** Trump and Stone discussing Assange's plans in July 2016.  
 
@@ -52,7 +52,7 @@ having lived in China for 3 years and seeing what rights the Chinese people are 
 
 Spotify's acquisition **spree** won't change the podcast industry on its own. But it's another signal that we're on the **cusp** of a similar change for podcasting  
 
-Do you have any **arthritis** or pain, aching, or stiffness in your joints? --  
+Do you have any **arthritis** or pain, aching, or stiffness in your joints?  
 **downhearted**  
 
 the President missed an opportunity to **hold Russia accountable**.  
@@ -62,7 +62,7 @@ FAA: Federal **Aviation** Administration
 
 The two leaders will meet in **Hanoi** on Wednesday and Thursday
 
-The six most common elements in living things are carbon, **hydrogen**, oxygen, **nitrogen**, **phosphorus**, and **sulfur**. Atoms of these elements combine and form thousands of large **molecules**. These large molecules make up the structures of cells and **carry out** many processes essential to life. -   
+The six most common elements in living things are carbon, **hydrogen**, oxygen, **nitrogen**, **phosphorus**, and **sulfur**. Atoms of these elements combine and form thousands of large **molecules**. These large molecules make up the structures of cells and **carry out** many processes essential to life.  
 
 
 ## Week 3 
@@ -74,7 +74,7 @@ For god's sake stop **dithering** and make up your mind!
 He would have preferred his wife not to work, although **conversely** he was also proud of what she did.  
 He **renounced** drugs and alcohol completely.  
 The romance **fizzled out**.  
-The politicians and **warlords** who are **fermenting** this chaos. -   
+The politicians and **warlords** who are **fermenting** this chaos.  
 An **egregious** lie.  
 She slowed for a **roundabout**, taking the second exit.  
 The city was **awash** with journalists.  
@@ -125,7 +125,7 @@ any special process for reporting **leukemia** and **lymphoma** society donation
 **certificate of deposit**
 
 it can be changed **on the fly** with  
-Planking (or the Lying Down Game) is an activity consisting of lying face down, sometimes in an unusual or **incongruous** location -  
+Planking (or the Lying Down Game) is an activity consisting of lying face down, sometimes in an unusual or **incongruous** location  
 
 They arrested him on charges of public **intoxication** and **possession** of a firearm while **intoxicated**.  
 
@@ -151,11 +151,11 @@ His **quarrel** is with my creator
 
 **drizzle** starting in 50 mins.  
 
-The **sinitic** languages. -   
+The **sinitic** languages.  
 
 Become **literate**  
 The idea of abolishing **Kanji** is **out of question**. 
-It's gonna be **rip-roaring**. -   
+It's gonna be **rip-roaring**.  
 The worst thing you can do is to **stagnate**   
 If someone has the money to be able to **sway** them to do either a better job or just not **sabotage** their health in general.  
 The **exorbitant** fees we paid for the VIP room **pertain** the actual deliver room. -   
@@ -204,7 +204,7 @@ Counterfeit and **shoddy** products
 refreshment **kiosk**  
 The **drunken** man **lurched** along 
 **Binge eating**, **binge drinking**, **binge watching**  
-this car **guzzles** petrol - 
+this car **guzzles** petrol  
 **baffle plate**, **baffle wall**. 
 **pesticide** **residue**
 not a **shred** of evidence.  
@@ -273,7 +273,7 @@ We keep the pain of what was done to our **predecessors**
   
 An **irresistible** **impulse** to **sneeze**.  
 A **burial** chamber  
-An **injunction** restraining the **disclosure** of company secrets. -   
+An **injunction** restraining the **disclosure** of company secrets.  
   
 Fortune is **fickle**  
 He is **fickle** to a **proverb**.   
