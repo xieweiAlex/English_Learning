@@ -46,7 +46,7 @@ The sun, the stars, and the moon are **celestial** bodies.
   
 That's the basic **gist** of this video.  
 I just **preemptively** went to the police. -  
-High school **antics** which doesn't bother me. -  
+High school **antics** which doesn't bother me.  
 These disgusting **underhanded** tactics that these **scumbags** use just shows how cowardly they are.   
 People like me don't **bend**.  
 **patriotism** is the last refuge of a **scoundrel**. --  

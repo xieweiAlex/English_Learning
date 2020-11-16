@@ -1,3 +1,20 @@
+## E 6  
+
+So you've been wrong twice about this. Why should I believe you're right about **holding out**?  
+If I **water down** the bill, the president will still see me as a failure.  
+I can't **abide** falling back to **square one**  
+Come on, Slugline is just another **stepping stone** for you   
+What's better than a **blank slate** in the right hands?  
+It's mostly **broad strokes**, but we can **hone** it.  
+the fist thing we need to address, is your **sobriety**  
+they will **chalk it up** as a **colossal** defeat   
+You let this situation **devolve** to where it is. -  
+**Gut** the bill 
+> Sometimes the only way to gain your superior's respect, is to **defy** him.  
+
+This thing is **up to fate**  
+
+
 ## E 5 
 Is it my job to **pander** to all my employees?  
 If we do this event, the whole staff **walks out**  
@@ -9,7 +26,7 @@ will he **wither** or he will thrive, only time will tell.
 
 
 ## E 4  
-I just can't resist the chance to see him **shrivel**. -  
+I just can't resist the chance to see him **shrivel**.  
 **water under the bridge**, we're **starting over**  
 **slippery slope**  
 which is **akin to** being between a very hungry wolf and a very **quarrelsome** sheep  

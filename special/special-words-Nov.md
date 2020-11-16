@@ -1,3 +1,28 @@
+**preemptively**  
+
+**liquidity**
+
+**unassailable**  
+
+**unscathed**
+
+**obfuscate**
+
+**predicament**
+
+**slog**
+
+**Mind-blowing**  
+
+**hype** 
+
+**gratitude**  
+
+**astute**
+
+**uppity**
+
+**temperament**  
 
 **pundit** 
 

@@ -8,11 +8,11 @@ an **out-of-body** experience
 I think that **set the tone** for what was to follow  
 Steve Banner rejects the **premise**  
 there was a certain amount of **spontaneity** and **impulsiveness** about the way this administration was going to operate  
-the division became a **chasm** -  
+the division became a **chasm**  
 the words "many sides" were **ad-libbed** and added by Trump  
 that's not in his **wheelhouse**, not in the way he **rolls**. Let Trump be Trump  
 that's a **lay-up**, that's easy.  
-Donald Trump has **conflated** Republican party loyalty with loyalty to himself to an extreme degree. -  
+Donald Trump has **conflated** Republican party loyalty with loyalty to himself to an extreme degree.  
 
 
 ### American's great divide  

@@ -9,7 +9,7 @@ My view hasn't changed since then, but Slack's price-to-sales ratio has declined
 I can tell that you aren't **jazzed up** by group events.  
 **steroid hormone**
 the order **cutoff** date!  
-Honey is an **antiseptic** and antibacterial ingredient that also has wound healing properties -  
+Honey is an **antiseptic** and antibacterial ingredient that also has wound healing properties  
 **Makeshift** shelters for those left behind have **sprung up** all over the area.  
 
 you even have the **cojones** to open the stock market app  
@@ -21,7 +21,7 @@ It's been an economic savior for some parts of the state that were **hollowed** 
 Investing an outsized portion of one's portfolio in an IPO could occasionally produce significant returns, but it also introduces **undue** risk for the investor  
 He **subsequently** purchases 2,380 shares at the $42 opening price on May 10, 2019  
 However, Q3 also followed the biggest GDP drop on record, so the numbers won’t reflect a **rip-roaring** economy.  
-As a merchant, you can let customers know about your commitment with a **spiffy** badge embedded on checkout - a great visual, especially if your audience is eco-conscious. -  
+As a merchant, you can let customers know about your commitment with a **spiffy** badge embedded on checkout - a great visual, especially if your audience is eco-conscious.  
 
 France and Germany will **institute** temporary lockdowns to control the renewed spread of the virus.  
 tech and internet stocks, which have been **quasi**-safety havens, were also on sale -  
@@ -37,8 +37,8 @@ It **edged up** in New York and California, though.
 The U.S.' vaccine game is **high-stakes**. Any **slip-ups** in the program—such as only four out of six candidates proving effective, or not enough people getting vaccinated—could mean we'll be dealing with the virus well into 2023  
 But if everything goes smoothly, we could **turn the tide** by July of next year.   
 On Monday, Dr. Anthony Fauci told Yahoo Finance that the “primary **endpoint**” of a vaccine is “to prevent **clinically** recognizable disease,” aka **stamping out** symptoms, rather than eliminating the virus entirely  
-Texas's Economic **Makeover** -  
-It would still take a historic **upswell** of Democratic support to flip the state in this election -  
+Texas's Economic **Makeover**  
+It would still take a historic **upswell** of Democratic support to flip the state in this election  
 But as new job seekers continue to **reshape** its economic **landscape**, Texas and its **meaty** 38 electoral college votes might be **up for grabs** when 2024 rolls around  
 A FEDERAL JUDGE rejected the Justice Department’s attempt to **represent** President Trump in a **defamation** lawsuit filed by E. Jean Carroll, who alleges he raped her in the 1990s. 
 It's **off to** a great start  
@@ -58,7 +58,7 @@ holy **hymn** in church
 **padlock**  
 legal **formality**  
 Don't **talk down** to coworkers, including **subordinates**
-Donald Trump did not come to Washington to win the praise of the **beltway elites** -  
+Donald Trump did not come to Washington to win the praise of the **beltway elites**  
 I suppose I can use one of the **less-frayed** cables I have at home to charge this phone."  
 You told us as much in our recent survey (more below), but broadly speaking, individual investors see **inclement** weather **on the horizon**  
 Rise In Virus Cases **Weigh On** Stocks, But Big Earnings Week Could Provide **Lift**  
@@ -98,7 +98,7 @@ were you wishing you could taste her cherry **chapstick**?
 she blew a kiss to the **onlookers**.  
 **flattery**  
 I may have accidentally **insinuated** that she is getting chubbier.  
-she is an **enigma** to me. -  
+she is an **enigma** to me.  
 **newlywed**  
 **renaissance** music  
 **beanstalk**  
@@ -158,10 +158,10 @@ She's been **beavering away** at her homework for hours.
 Despite interest from studios and fans, Gale and Zemeckis have affirmed that they will not make a further **sequel** as they consider the series concluded and do not want to **tarnish** its legacy  
 
 **clinical trial**  
-Meanwhile, Microsoft's competing product, Teams, continues to grow **unabated** and boasts 1,800 customers with more than 10,000 users -  
+Meanwhile, Microsoft's competing product, Teams, continues to grow **unabated** and boasts 1,800 customers with more than 10,000 users  
 Bears think that slowing growth and **ramped-up** competition from a **deep-pocketed** software giant could **relegate** Slack to serving a **niche** market, limiting its long-term potential  
 Surprisingly, the coronavirus has been both a **tailwind** and **headwind** for Slack  
-he had a **scrappy** New York **temperament**. -  
+he had a **scrappy** New York **temperament**.  
 If you don't mind taking a little risk on a **scrappy** **upstart** with an exceptional product and a solid management team that isn't scared of its **heavyweight** competitor, this stock is a buy  
 Unfortunately for management, revenue guidance that is **in line with** Street expectations may not be enough to **quench** investors’ thirst for growth  
 
@@ -274,7 +274,7 @@ Sand is **finer** than **gravel**.
 **ness**  
 I am most grateful, Your **Highness**.  
 A **spotter** plane circling **on high**  
-Apple (AAPL) rolled out its new iPhone 12 today, along with a **bevy** of other products and services -  
+Apple (AAPL) rolled out its new iPhone 12 today, along with a **bevy** of other products and services  
 The Elections: Investors are **handicapping** the potential regulatory and tax implications of a Biden win and a blue wave.  
 The hotel staff are friendly and **attentive**  
 The dog **nosed** out a rat  

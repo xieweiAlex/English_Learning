@@ -38,7 +38,7 @@ He sees **culling** deer as **necessity**
 Being a **kick-ass** writer means you need to know how to get and keep customers
 Building an intuition for reading and **grokking** disassembly comes with practice. I’m no good at it either   
 A **moribund** way of life 
-The **butler** was an **accomplice** in the robbery. -  
+The **butler** was an **accomplice** in the robbery.  
 But how do we know when **irrational exuberance** has **unduly** escalated asset values, which then become subject to unexpected and **prolonged** contractions as they have in Japan over the past decade?
 The test can differentiate **roe** of those two species from that of eight other species of **sturgeon**. 
 **cave dwelling**  
@@ -135,7 +135,7 @@ But look up in hash table should be **amortized** O(1) time as long as the hash 
 BMR: **Basal Metabolic Rate**
 
 ## Week 2 
-Roasted salmon is served with a protein-packed **barley** **risotto**, **summer squash**, and **tangy** **artichoke** **pesto**. -  
+Roasted salmon is served with a protein-packed **barley** **risotto**, **summer squash**, and **tangy** **artichoke** **pesto**.  
 
 A **dossier** of complaints 
 A **study-cum-bedroom**  
@@ -303,7 +303,7 @@ But then your family in Ghana has to somehow convert them to cedis at an **excha
 here's a **roundup** of what we do know about the upcoming 2019 iPhones.  
 Why Trump's effort to **narrow** the **Trade Cap** has **flopped** so far?  
 The trade **deficit** would continue to **widen** with Trump's policies  
-Those negotiations were all accelerated, at least in part, by the **imposition** or threat of tariffs. -  
+Those negotiations were all accelerated, at least in part, by the **imposition** or threat of tariffs.  
 But tariff policies so far have **fallen well short** of the president's **oft-stated** goal  
    
 An **eminent** musical mastermind  

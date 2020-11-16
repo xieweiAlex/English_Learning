@@ -3,7 +3,6 @@ If a guy isn't into you because you **opt for** the chocolate cake, he needs to 
 Los Angeles is **rife with** gossip about the stars' private lives  
 Those **traits** didn't **pop up** in humans.
 About that girl, the one I let **get away**  
-She has **sworn off** cigarettes 
 Prices **edged up** 2% in the year to December  
 It's **off to** a great start  
 The U.S.' vaccine game is **high-stakes**. Any **slip-ups** in the program—such as only four out of six candidates proving effective, ... we'll be dealing with the virus well into 2023  
@@ -19,7 +18,6 @@ Even with Q3's stats, it's only expected to **eke out** 1.8% growth this year, a
 
 He'll think you organized a coup, got **cold feet**, and are marking me the **scapegoat**  
 **water under the bridge**, we're **starting over**  
-If I'm gonna do it, I'm gonna go **all out**.  
 Are you trying to **rub this in** or something?  
 Short sellers **zero in** on a stock that they think is **overvalued** by the market   
 **Clear-cut** evidence of **tampering**.  

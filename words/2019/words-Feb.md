@@ -78,7 +78,7 @@ The politicians and **warlords** who are **fermenting** this chaos.
 An **egregious** lie.  
 She slowed for a **roundabout**, taking the second exit.  
 The city was **awash** with journalists.  
-A quiet, **reflective**, **astute** man. -   
+A quiet, **reflective**, **astute** man.  
 This invention is **ascribed** to Edison.  
 **quash** a rebellion.  
 **writ** of summons  
@@ -199,7 +199,7 @@ You were part of that **prophecy**.
 Because I had pursued his father and put him in jail, and that was a family matter that should be resolved by the **rabbis** not by a prosecutor 
 This is one of the parts of book I genuinely was **engrossed** by.  
 
-Strip clubs in the outer **boroughs**. -   
+Strip clubs in the outer **boroughs**.  
 Counterfeit and **shoddy** products
 refreshment **kiosk**  
 The **drunken** man **lurched** along 
@@ -265,7 +265,7 @@ it is designed to **favor** readability and flexibility for the programmer perfo
 **inferior** quality  
 **wooden casks**  
 The fire **charred** the woodwork    
-They have nothing better to do than **brawl** in the street. -   
+They have nothing better to do than **brawl** in the street.  
   
   
 It isn’t just about some land, it was our home, our way of life was **taken away**.  
@@ -279,7 +279,7 @@ Fortune is **fickle**
 He is **fickle** to a **proverb**.   
 **faulty** concrete  
   
-We went into a passionate **clinch** on the sofa. -   
+We went into a passionate **clinch** on the sofa.  
 You must seek **redress** in the law courts.    
 **Redress** the scales -  
 deadly **infighting** among the politicians  
@@ -340,7 +340,7 @@ diligence **redeems** stupidity.
 He **decried** it as a criminal act, but was **overruled**. -  
 The Weather Bureau gave **adequate** warning of the **advent** of the hurricane.  
 **Overload** protection  
-the bed **sags** in the middle, and is uncomfortable -  
+the bed **sags** in the middle, and is uncomfortable  
 **resurgent** nationalism  
 In which case, I was merely the **catalyst** to get things going.  
 **excise duties**  
