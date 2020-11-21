@@ -47,7 +47,7 @@ It's **off to** a great start
 **paramedic** ambulance -  
 I'd like something for a **sunburn**  
 **starlight**  
-she thinks I'm a **hussy** -  
+she thinks I'm a **hussy**  
 stretch **briefts**  
 swan **mussel**  
 **saltine** crackers  
@@ -326,7 +326,7 @@ She carried an **armload** of boxes
 I like pears better than **apricots**.  
 
 **Deride**: to laugh at **in scorn**, make fun of: ridicule   
-That newspaper columnist **derides** the mayor whenever he can -   
+That newspaper columnist **derides** the mayor whenever he can  
 Must be deemed medically **advisable** by an IQLV surgeon  
 **ashtray** 
 Road to **stardom**  

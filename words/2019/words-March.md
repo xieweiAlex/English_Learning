@@ -246,7 +246,7 @@ In their duty-free sections no **knock-off** cigarettes or **booze** are **in si
 Ellis **chided** Manafort for **not expressing** remorse for his crimes in his statement.  
 He also agreed to **forfeit** multiple bank accounts and properties, including his apartment in Trump Tower.  
    
-He would love to have enough money to buy the school so he could **bulldoze** it. -  
+He would love to have enough money to buy the school so he could **bulldoze** it.  
 But by June, he was the only **moron** who could be the nominee.   
 Now, you got to admit, that's real **shady**, right?  
 **jaunty music**  
@@ -262,7 +262,7 @@ That combination of prescience and self-confidence helped Facebook become a **ph
  
 The board was put together to make recommendations on policies to "to develop and implement a strategy to **revamp** the American workforce to better meet the challenges of the 21st century."  
    
-Trump has a long history of **flubbing** people’s names, usually swapping out the first name for something more **alliterative** -  
+Trump has a long history of **flubbing** people’s names, usually swapping out the first name for something more **alliterative**  
    
 I know we were all working **feverishly** to get this announcement out the door   
    

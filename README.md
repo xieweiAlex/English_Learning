@@ -5,10 +5,10 @@ Expanding vocabulary for a non native-speaker is tedious and time-consuming, are
 ### Review 
 |  Review 🐗   |    File Marks       |  file   	|
 | ------------- |-------------  | ------- |
-|    Recent words record   |  A  | [current-month](./words/2020/words-Oct.md)   |
+|    Recent words record   |  A  | [current-month](./words/2020/words-Nov.md)   |
 |    Word Review   |  I  |  [words-review](./words-review.md)       |
 |    Common Phrase |  J  | [special-phrase](./special/phrase.md)       |
-|    Special Words |  K  | [special-words](./special/special-words-Sep.md)       |
+|    Special Words |  K  | [special-words](./special/special-words-Nov.md)       |
 |    Movie Record |  L | [movie-record](./media/movie.md)       |
 
 ### TV Show 

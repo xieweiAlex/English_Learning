@@ -84,7 +84,7 @@
 
 **optimistic**, **pessimistic**
 
-**daunting**, **promissing** 
+**daunting**, **promising** 
 
 **narcissist**  
 

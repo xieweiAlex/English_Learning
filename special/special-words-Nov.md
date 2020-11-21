@@ -1,3 +1,32 @@
+
+**canonical**
+
+**pervasive**  
+
+**meticulous**
+
+**glittering**  
+
+**heroic**  
+
+**renowned**  
+
+**covet**
+
+**hype** 
+
+**finicky**
+
+**catalyst**  
+
+**obnoxious**  
+
+**heist** 
+
+### Week 2 
+
+**Acoustic**  
+
 **preemptively**  
 
 **liquidity**
@@ -13,8 +42,6 @@
 **slog**
 
 **Mind-blowing**  
-
-**hype** 
 
 **gratitude**  
 
@@ -34,11 +61,4 @@
 
 **perennial**
 
-**hardline**
-
-**Farce** 
-
-**Conspicuous** 
-
-**manipulative**
 

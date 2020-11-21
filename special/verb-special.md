@@ -1,8 +1,22 @@
+
+**flop**  
+
+**Squelch**
+
+**cannibalize**
+
+**commoditize**  
+
+**inundate**  
+
+**flub**
+
 **skyrocket**  
 
 **advance** 
 
 **budge**  
+**botch**  
 
 **guzzle**  
 
@@ -13,8 +27,6 @@
 **sow** 
 
 **topple**  
-
-**botch**  
 
 **stem** 
 
@@ -28,9 +40,13 @@
 
 **snip**, **nip** 
 
+**sip**
+
 **forgo**  
 
 **boggle**  
+
+**bog**, **mire**
 
 **rachet**
 

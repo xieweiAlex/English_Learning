@@ -1,10 +1,75 @@
+
+he is wiping **snot** all over his face  
+We **ended up** finding a trashed **fixer-upper**.  
+**fine grained** component -  
+**federated** identity  
+**interoperability**  
+
+Brazil’s pink river dolphins have long gotten blamed for all sorts of **heinous** crimes. Why do the myths refuse to die? -  
+The grandson of a Nazi who took over a Jewish family’s store **tracked down** the owner’s descendants to apologize. CNN  
+The SEC Modernizes the **Accredited** Investor Definition  
+A solution is a grand bargain, a **resounding** win, a comprehensive resolution expected to withstand the pressures of all unknown future challenges  
+But Amazon is something else entirely, isn’t it? Its **amalgamation** of businesses don’t seem to make sense -  
+It **defies** **norms** of focus yet it executes faster than seems possible for an entity of its size, **let alone** scope  
+“a wide **assortment** of good quality merchandise” at “the lowest possible prices.”
+not only did it provide zero value to the customer, it also **robbed** the customer of the opportunity to buy something that they did need  
+The **advent** of the internet – of online shopping – meant that an online retailer had **infinite** shelf space  
+Amazon would never be able to match Walmart’s **hard-won** skills in fighting on the customer’s behalf for better prices  
+It engineered **intricate** systems, aligned incentives, and built a culture of thinking small to **stamp out** inefficiencies wherever it could find them  
+Amazon had to find a way of **abdicating** responsibility for solving these problems altogether; with Marketplace, Amazon had begun to grasp at a solution that would do exactly that -  
+And so, **circa** 2002, we start to see the emergence of a pattern  
+The **canonical** example here is the DMV -  
+its customers cannot go elsewhere for service, and the DMV does not experience the pain of interacting with itself, and so the DMV will **perpetually** remain in **stasis** **at best**  
+I don’t mean to imply that using Retail Link is in any way **analogous** to the experience of visiting the DMV  
+In order to thrive at ‘internet scale,’ Amazon would need to open itself up at every **facet** to outside feedback loops  
+Jeff Bezos issued an **edict** -  
+His first **stroke** of genius was in making it **unbound**  
+his second – the **masterstroke** – was **devising** a solution to the bureaucratic complexity that would have otherwise caused it to implode  
+It carried with it the tremendous added benefit of **honing** Amazon’s own rapidly-expanding fulfillment network, which were certainly at risk of bloat and **slop**, with the **sharp edge** of seller expectations -  
+
+In the days before they were denizens of the White House, Kushner and Trump inhabited a **rarified** slice of New York society.  
+It eliminates **pesky** business charges on your personal credit card  
+It gives Walmart a **rebate** for almost every dollar spent on the card -  
+
+Literally. Because people living near parks or gardens seem to have a **leg up**.  
+Perhaps it’s not you. Habits, by definition, are what is **habitual**. What you’re used to doing  
+So in order to change your routine, you have to create new habits that are just as **ingrained** as the old ones  
+
+That's **tantalizingly** close to its all-time high of nearly $20,000 set during the crypto **frenzy** of December 2017 -  
+Whereas in late 2017 you couldn't go two Morning Brew newsletters without seeing a bitcoin headline, the conversation this time around has been **tamer**.  
+Study participants who didn’t replace their toothbrushes on the 40th day of use experienced considerably more **plaque** **buildup** -  
+
+But even the top competitors in their respective **spheres** inevitably fall short  
+it just means they're able to **shrug off** their failures and move on  
+Not everything is perfect, of course. Apple’s insistence on using **dumpy** webcams continues to be a **bummer**, and running iPad apps is a m  
+
+US prosecutors say he **netted** at least $2.8 million, which he used to buy a $160,000 Tesla and a $1.6 million **waterfront** home  
+his **proceeds** were less than the value of the stolen credit because he had to sell at a **steep** discount  
+He used **throwaway** email addresses and began using a virtual private networking service  
+Kvashuk reported the bitcoin **windfall** to the IRS but claimed the bitcoins had been a gift from his father -  
+two counts of **aggravated** identity theft  
+access device fraud, and access to a protected computer in **furtherance** of fraud  
+(He took these actions purely in (the) **furtherance** of his own career)
+Kvashuk has been ordered to pay $8.3 million in **restitution**, though it seems unlikely he'll ever be able to do that  
+These damn **whippersnappers** got it so easy with their online gift-cards and fancy cryptocurrency -  
+**Squelching** the Sound  
+all the sound bouncing around inside and outside your house can make it tough to get some decent **shut-eye**  
+
+But the optimism from the anticipated vaccines, and new **therapeutics** is **superseding** those concerns  
+Investors have been forced to make an **educated guess** about which companies will recover first  
+I’m not **going out on a limb** to advocate significant patience  
+
 ## Week 2 
+A **spitball** hit the **principal** on his nose  
+
+The ducklings **plumped** into the water  
+He was a **plump**, **placid** boy  
+She **plumped up** the pillow  
+**roly-poly**: being short and **pudgy** - **rotund** -  
 
 Others have claimed that the lack of insoluble fiber in Soylent has significantly reduced the frequency of their **bowel** movements  
 
-
-
-U.S. election vote counts suggest that this U.S. election had the largest voter **turnout** in over 100 years, at 67%. That’s truly **laudable** voter engagement. (**commendable**) -  
+U.S. election vote counts suggest that this U.S. election had the largest voter **turnout** in over 100 years, at 67%. That’s truly **laudable** voter engagement. (**commendable**)  
 The rest are **mired** in a deep decline with an uncertain path ahead.  
 **By and large**, they are **prospering**.  
 Third, we have an uber-**dovish** Fed. We have **dovish** central banks outside the USA.  
@@ -13,12 +78,11 @@ CEOs weren’t buying the **euphoria**, the way the stock markets did.
 Consumer interest rates stay low, in particular, home mortgage rates. Auto and home purchases are **atypically** strong in a recession.  
 The Fed has provided **immense** **liquidity** across bond markets, in government, mortgage, and corporate.  
 For years, gold prices **danced** between $1200 to $1300 an ounce.  
-
-A replay of today's workshop is available for three days and then it will disappear into the **ether**  
-He received a **paltry** annuity of $100 -  
+A replay of today's workshop is available for three days and then it will disappear into the **ether** -  
+He received a **paltry** annuity of $100  
 
 Is that a **sound** strategy  
-As Warren Buffett **quipped** in an **op-ed** written during the heart of the 2008 financial crisis, "If you wait for the robins, spring will be over -  
+As Warren Buffett **quipped** in an **op-ed** written during the heart of the 2008 financial crisis, "If you wait for the robins, spring will be over  
 Nobody has a functioning **crystal ball** and anyone who gives a prediction about where the economy or the stock market will be some time down the road is either deluding themselves or you, and probably both!  
 You can take **solace** in the knowledge that you'll make more when the market eventually **goes up**, as it will.  
 DoorDash was founded in 2013 by Stanford students, and it’s raised $2.5 billion since, from the likes of SoftBank and other **heavy-hitter** VCs  
@@ -30,7 +94,7 @@ The pandemic has played a big role in Americans’ desire to **sock away** cash
 Big technology stocks in the U.S. and China have been **world-beaters** all year  
 The company only made CA$300,000 in revenue last quarter, and lost CA$8.8 million, but managed to impress investors by turning a **pro forma** profit of CA$0.19 per share. -  
 (These are **pro forma** questions I'm asking everyone)
-Melt ups often **precede** melt downs. -  
+Melt ups often **precede** melt downs.  
 
 These things, happen, they happen systematically, they happen predictably, they happen **unavoidably**  
 my drift that you should end up catching at the end of the answer probably applies for other **endeavors** in life in general  
@@ -48,7 +112,7 @@ Now the great coder is well aware that old code will contain bugs **precisely** 
 Which **more often than not** it will be of the abstract art type. The great coder **makes peace with** the “it is what it is” truism  
 > “Good judgment comes from experience, and experience comes from bad judgment.”  
 
-If you try to patch this **thingamajig** and that thingamabob that was introduced by the implementation of some TODO, you end up in situations like this  
+If you try to patch this **thingamajig** and that thingamabob that was introduced by the implementation of some TODO, you end up in situations like this -  
 Miscommunication, misunderstandings and even **antipathy** may run **rampant** completely **disrupting** and **hindering** everything  
 keep that **asinine** opinion to yourself -  
 (I'm sorry. I'm just so **frazzled** today)
@@ -78,13 +142,13 @@ The **intimidation** game
 The **humbling** of Jack Ma wasn’t a **one-off**. Xi Jinping is determined to assert the party’s authority over China’s **glittering** tech industry
 
 Sony continues to be the hardware leader for **die-hard** gamers  
-The top global market since 2010 is **woolly** -  
+The top global market since 2010 is **woolly**  
 It **vaulted out** of that following strict lockdowns over the summer and has been able to keep the virus relatively under control.  
 
 a **concerted effort**   
 More and more companies are using blockchain in their businesses as it provides an **incorruptible** digital **ledger** for all types of transactions and data transfers   
 
-**popover** text box -  
+**popover** text box  
 My finances were in a **deplorable** state of neglect.  
 We **deplore** the accident.  
 
@@ -111,7 +175,7 @@ Just **dabble** with it every now and then, then just stop and then come back to
 
 the Fed will also continue **flexing its** quantitative easing **muscles**, buying assets like mortgage-backed securities and U.S  
 The **bespectacled** banker was appointed to the board by former President Barack Obama in 2012   
-The rat **gnawed** a hole in the wooden box -  
+The rat **gnawed** a hole in the wooden box  
 as everyone **gnawed** on **pepperoni** while watching Steve Kornacki defy the limits of **human endurance**  
 U.S. officials said they seized $1 billion worth of bitcoin that was linked to the **dormant** darknet marketplace Silk Road.  
 
@@ -132,7 +196,7 @@ While very popular in the main developped countries such as the USA and China, s
 Trump and Biden **blitz** through swing states, the races that will decide the Senate  
 England announced a monthlong lockdown to **stem** a surge in coronavirus infections and prevent a “disaster” for the UK’s national health system. BBC NEWS
 
-That is, until the baby was **kidnapped** and found **dismembered**. -  
+That is, until the baby was **kidnapped** and found **dismembered**.  
 If a guy isn't into you because you **opt for** the chocolate cake, he needs to be **kicked to the curb** **pronto**  
 The declines are evidence of **wary** traders and investors moving into “risk-off” mode and holding cash heading into Tuesday’s elections  
 The bigger the total **turnout**, the greater the chances will be that the results will be **unassailable**.  

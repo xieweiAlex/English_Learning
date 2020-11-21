@@ -348,13 +348,13 @@ In which case, I was merely the **catalyst** to get things going.
 as stiff as a **poker**  
 the **gleam** of hope **vanished**  
 the cafe was **engulfed** in flames.  
-**rump** steak -   
+**rump** steak  
 **adorn** oneself with jewels.  
 **flog** a dead horse  
 a **sanguine** **complexion**.  
 a **rickety** old building  
 **repatriate** war refugees.  
 **aeroplane** carrier  
-a **renowned** painter -  
+a **renowned** painter  
    
    

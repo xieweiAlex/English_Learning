@@ -7,28 +7,18 @@ I need a full **picket** -
 media/bojack-horseman/bojack2.md  
 I'm so **incorrigible**. -  
 I'd love to **take down** Hippopolaous and finally **topple** the **acropolis** of **monstrous** **hypocrisy** that **ensconces** us. -  
-A **genocide** may or may not have been **perpetrated** in my name. -  
-A deer in **arrears**. -  
   
 ## words-Nov.md ##  
 words/2020/words-Nov.md  
-U.S. election vote counts suggest that this U.S. election had the largest voter **turnout** in over 100 years, at 67%. That’s truly **laudable** voter engagement. (**commendable**) -  
-He received a **paltry** annuity of $100 -  
-As Warren Buffett **quipped** in an **op-ed** written during the heart of the 2008 financial crisis, "If you wait for the robins, spring will be over -  
 According to the WSJ’s Eliot Brown, DoorDash has **surged** to the lead in use of the word “platform” in an IPO prospectus, **pummeling** WeWork by a count of 646 to 157. -  
 The company only made CA$300,000 in revenue last quarter, and lost CA$8.8 million, but managed to impress investors by turning a **pro forma** profit of CA$0.19 per share. -  
-Melt ups often **precede** melt downs. -  
 A good coder might feel **flabbergasted** by such **occurrences** -  
 keep that **asinine** opinion to yourself -  
 I actually **abhor** this idea as it is broadly wrong except **at the margin** -  
 Try to avoid allowing the noise and short-term **gyrations** to convince you to do otherwise -  
 So we end up looking for clues to the story for Fastly and others in **exogenous** data — like election returns -  
-The top global market since 2010 is **woolly** -  
-**popover** text box -  
 The stock market does not appear to be **fazed** by the ‘contested’ election, with the S&P 500 soaring +7.3% last week and jumping over +3% as I write my response to you -  
-The rat **gnawed** a hole in the wooden box -  
 It's **naff** to say it, but it is amazing that the Americans can look at the last four years and be split 48-52 on whether they want more of it -  
-That is, until the baby was **kidnapped** and found **dismembered**. -  
 It seems that no grave **calamity** has ever **befallen** any country without it being **foretold** by some **seer**, and Pompeo has put himself forward as the **presager** of coming disaster. -  
   
 ## words-Oct.md ##  
@@ -36,10 +26,8 @@ words/2020/words-Oct.md
 She lacks the **requisite** experience for the job -  
 tech and internet stocks, which have been **quasi**-safety havens, were also on sale -  
 **paramedic** ambulance -  
-she thinks I'm a **hussy** -  
 the seller was in **hospice**, going to die any day. -  
 her shirt has the company **emblem** on it. -  
-That newspaper columnist **derides** the mayor whenever he can -  
   
 ## words-April.md ##  
 words/2019/words-April.md  
@@ -56,8 +44,6 @@ Eternal life to the **revolutionary** **martyrs**.  -
 When we first wake up in the morning, our brains are too **groggy** to make sound decisions. -  
 rebuke: an act or expression of criticism and **censure**. -  
 But every day only a hundred or so enter each first-class lounge. Instead of the overpriced fast-food on offer in the public **concourse** -  
-He would love to have enough money to buy the school so he could **bulldoze** it. -  
-Trump has a long history of **flubbing** people’s names, usually swapping out the first name for something more **alliterative** -  
 This is basically where you are **infatuated** with who you are dating, and you can’t get enough of them --  
 Yes, that’s right: Facebook. Cryptocurrency. Earthquake! Revolution! The world is **tilting** on its **axis**! The end times are **cometh** -  
   
@@ -86,19 +72,14 @@ a **prelude** to disaster -
 **disburse** a large amount of money for education -  
 The rebels had the perfect **pretext** for making their move. -  
 He **decried** it as a criminal act, but was **overruled**. -  
-**rump** steak -  
-a **renowned** painter -  
   
 ## words-Jan.md ##  
 words/2019/words-Jan.md  
 be **persecuted** by the **reactionary** government -  
 the **stodgy** **three-storey** building -  
-I just **preemptively** went to the police. -  
 **patriotism** is the last refuge of a **scoundrel**. --  
 One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions --  
 He might be their **unwitting** **stooge**. -  
-Same **cadences**, same **delivery**. Maybe it's Obama. -  
-although he is a **long shot**, Castro could be a real **contender**. -  
 Some of Milland's more **remunerative** work came from employers who posted hundreds or thousands of tasks at a time that could be completed in rapid succession --  
 Milland didn't feel like she could leave her apartment, or even her computer, **lest** she miss out on an opportunity to work on good tasks -  
 **veterinarian** -  

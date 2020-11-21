@@ -1,3 +1,14 @@
+## E 10  
+I'm **swamped** here at work.  
+there is no reason to **sulk** about it  
+I don't think **moping around** the house with Diane all day is healthy.  
+I don't wanna **put you out**. - It's no bother.    
+It's such an **eyesore**  
+there is a real **stick-in-the-mud** dean there who doesn't like my **in-your-face** style  
+sounds like a real **bust-ass** super-**skank**  
+this prom is really **bourgeois**. -  
+you said LA is a **tar pit**  
+
 ## E 9  
 He is a **groovy** dude  
 I'm the biggest agent in the entire **idyllic** New England village.  
@@ -20,7 +31,7 @@ Hey **turtleneck**, you're fired.
 I wanted to pitch you an **expose** on Hank Hippopolaous  
 I'd love to **take down** Hippopolaous and finally **topple** the **acropolis** of **monstrous** **hypocrisy** that **ensconces** us. -   
 you gonna **drag down** people close to you.  
-A **genocide** may or may not have been **perpetrated** in my name. -  
+A **genocide** may or may not have been **perpetrated** in my name.  
 I'm **in your corner**
 
 
@@ -36,7 +47,7 @@ I'm still **getting up to speed**
 Finding out Sinatra was dead was a real **curveball**.  
 **mulch**  
 I think maybe there's some things we kind of **glossed over** as we rushed into this relationship.  
-A deer in **arrears**. -  
+A deer in **arrears**.  
 **fowl** **run afoul**  
 Let's **bust her out**  
 Does she have a **meadow** that Becca can **frolic** around in?  

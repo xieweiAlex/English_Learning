@@ -45,7 +45,7 @@ I want to see your **feline** friends
 The sun, the stars, and the moon are **celestial** bodies.  
   
 That's the basic **gist** of this video.  
-I just **preemptively** went to the police. -  
+I just **preemptively** went to the police.  
 High school **antics** which doesn't bother me.  
 These disgusting **underhanded** tactics that these **scumbags** use just shows how cowardly they are.   
 People like me don't **bend**.  
@@ -58,8 +58,8 @@ If you look at East Asia, many places are pretty similar because they tend to be
 One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions --  
   
 He might be their **unwitting** **stooge**. -  
-Same **cadences**, same **delivery**. Maybe it's Obama. -  
-although he is a **long shot**, Castro could be a real **contender**. -  
+Same **cadences**, same **delivery**. Maybe it's Obama.  
+although he is a **long shot**, Castro could be a real **contender**.  
   
 **Expulsion** of sb from school.  
 **quadruple**  

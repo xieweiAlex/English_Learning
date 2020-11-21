@@ -16,7 +16,7 @@ This thing is **up to fate**
 
 
 ## E 5 
-Is it my job to **pander** to all my employees?  
+Is it my job to **pander** to all my employees? -  
 If we do this event, the whole staff **walks out**  
 I need your **manpower**  
 I need a full **picket** -  

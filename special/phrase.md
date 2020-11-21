@@ -1,3 +1,4 @@
+although he is a **long shot**, Castro could be a real **contender**. -  
 ## Oct 
 If a guy isn't into you because you **opt for** the chocolate cake, he needs to be **kicked to the curb** **pronto**  
 Los Angeles is **rife with** gossip about the stars' private lives  
