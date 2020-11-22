@@ -86,7 +86,7 @@ This invention is **ascribed** to Edison.
 **White crane** 
 
 For many years my wife had been **extolling** the virtues of spending time outside -   
-perhaps I've just been walking in “simple enough” environments—that I haven’t **tripped** even when I’m not consciously paying attention -    
+perhaps I've just been walking in “simple enough” environments—that I haven’t **tripped** even when I’m not consciously paying attention  
 But if video is on, seeing people who are not paying attention just seems to **viscerally** kill the mood of almost any meeting  
 my headset is wired, **albeit** with a long wire that lets me roam around my office  
 But I never like to be computerless, and the 13″ laptop is a heavy thing to **lug around**  
@@ -158,7 +158,7 @@ The idea of abolishing **Kanji** is **out of question**.
 It's gonna be **rip-roaring**.  
 The worst thing you can do is to **stagnate**   
 If someone has the money to be able to **sway** them to do either a better job or just not **sabotage** their health in general.  
-The **exorbitant** fees we paid for the VIP room **pertain** the actual deliver room. -   
+The **exorbitant** fees we paid for the VIP room **pertain** the actual deliver room.  
 It's little **unnerving experience** to sit in a abortion **ward** next to the deliver ward. 
 **clutching** their now empty wombs **white in the face**.  
 It's getting difficult to **justify** living there.    
@@ -221,7 +221,7 @@ We got a **blip** on the radar.
 **undertaking simultaneous interpretation**  
 **fissile** material -   
 
-a **labyrinth** of passages and secret **chambers** - 
+a **labyrinth** of passages and secret **chambers**  
 **Digital Pimps**
 
 In a **nascent** condition  
@@ -299,7 +299,7 @@ Straight / **heterosexual**
   
 **subliminal** perception -   
 **subliminal** advertising  
-Growing up, I was always **coprophilia**. -   
+Growing up, I was always **coprophilia**.  
   
   
 You get **slutty** when you drink  

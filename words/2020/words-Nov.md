@@ -1,4 +1,38 @@
 
+In 2020, the recession was based on an **extraneous** shock – the sudden and unexpected pandemic -  
+And I think it **behooves** any man to toss all female troubles into the hands of a stranger -  
+She gets very **hyped up** before a race.  
+Victorian men developed **fetishes** focusing on feet, shoes, and boots.  
+The shocking **revelations** caused quite a **storm**.  
+She took a **dim view** of my suggestion -  
+
+**spitball**  
+The government is **ducking** the issue  
+arguing against the **ordination** of women.  
+earth **excavation**  
+rock **excavation**  
+they plan to **excavate** a large hole  
+**manicurist**  
+your heart will **throb** with the **bass**  
+It's the **rhyme** that made it popular  
+Canada's **Gazette**, Boston **Gazette** -  
+I gave up my job because I felt I was stuck **in a rut**.   
+The farm carts have worn **ruts** in the lane  
+**baseboard**  
+**mush** potato  
+You can't **jackhammer** into the safe.  
+A **passerby** told me the time  
+he decided to **loon** around London  
+Stop the car, you crazy **loon**! -  
+There is some **consternation** among business leaders.  
+I'm in **mourning** for my former life  
+the world is **mourning** my loss 
+you bring nothing but pain and **sorrow**  
+I had the **plea** in my hand 
+**polyglot** usage -  
+no hardware **affinity**  
+
+Pollution can **aggravate** **asthma**  
 he is wiping **snot** all over his face  
 We **ended up** finding a trashed **fixer-upper**.  
 **fine grained** component -  
@@ -42,7 +76,6 @@ Study participants who didn’t replace their toothbrushes on the 40th day of us
 But even the top competitors in their respective **spheres** inevitably fall short  
 it just means they're able to **shrug off** their failures and move on  
 Not everything is perfect, of course. Apple’s insistence on using **dumpy** webcams continues to be a **bummer**, and running iPad apps is a m  
-
 US prosecutors say he **netted** at least $2.8 million, which he used to buy a $160,000 Tesla and a $1.6 million **waterfront** home  
 his **proceeds** were less than the value of the stolen credit because he had to sell at a **steep** discount  
 He used **throwaway** email addresses and began using a virtual private networking service  
@@ -54,7 +87,6 @@ Kvashuk has been ordered to pay $8.3 million in **restitution**, though it seems
 These damn **whippersnappers** got it so easy with their online gift-cards and fancy cryptocurrency -  
 **Squelching** the Sound  
 all the sound bouncing around inside and outside your house can make it tough to get some decent **shut-eye**  
-
 But the optimism from the anticipated vaccines, and new **therapeutics** is **superseding** those concerns  
 Investors have been forced to make an **educated guess** about which companies will recover first  
 I’m not **going out on a limb** to advocate significant patience  
@@ -68,7 +100,6 @@ She **plumped up** the pillow
 **roly-poly**: being short and **pudgy** - **rotund** -  
 
 Others have claimed that the lack of insoluble fiber in Soylent has significantly reduced the frequency of their **bowel** movements  
-
 U.S. election vote counts suggest that this U.S. election had the largest voter **turnout** in over 100 years, at 67%. That’s truly **laudable** voter engagement. (**commendable**)  
 The rest are **mired** in a deep decline with an uncertain path ahead.  
 **By and large**, they are **prospering**.  
@@ -87,7 +118,7 @@ Nobody has a functioning **crystal ball** and anyone who gives a prediction abou
 You can take **solace** in the knowledge that you'll make more when the market eventually **goes up**, as it will.  
 DoorDash was founded in 2013 by Stanford students, and it’s raised $2.5 billion since, from the likes of SoftBank and other **heavy-hitter** VCs  
 if DoorDash succeeds, it won’t remain a **pure-play** food delivery company.  
-According to the WSJ’s Eliot Brown, DoorDash has **surged** to the lead in use of the word “platform” in an IPO prospectus, **pummeling** WeWork by a count of 646 to 157. -   
+According to the WSJ’s Eliot Brown, DoorDash has **surged** to the lead in use of the word “platform” in an IPO prospectus, **pummeling** WeWork by a count of 646 to 157.  
 We need an **orderly** transfer of power following the election.  
 **lift-off**  
 The pandemic has played a big role in Americans’ desire to **sock away** cash  
@@ -114,9 +145,8 @@ Which **more often than not** it will be of the abstract art type. The great cod
 
 If you try to patch this **thingamajig** and that thingamabob that was introduced by the implementation of some TODO, you end up in situations like this -  
 Miscommunication, misunderstandings and even **antipathy** may run **rampant** completely **disrupting** and **hindering** everything  
-keep that **asinine** opinion to yourself -  
+keep that **asinine** opinion to yourself  
 (I'm sorry. I'm just so **frazzled** today)
-
 Where do most of us **draw the line**  
 The Goals & Resistance Course will help you move past that **stuckness**  
 I had to **concede** that I'd **overreacted**.  
@@ -131,7 +161,7 @@ It’s a **darkly** humorous example
 
 No matter who you were **pulling for**, I think that's a funny and **apt** description  
 Never **haphazardly** sell your stocks on a strong feeling you might have about what "should" happen in a given larger **circumstance**  
-Try to avoid allowing the noise and short-term **gyrations** to convince you to do otherwise -  
+Try to avoid allowing the noise and short-term **gyrations** to convince you to do otherwise  
 If cloud-computing stocks **go wobbly** — and they will, because they already have been — it won't be because of the election or the economy  
 Zoom's ability to **put up** triple-digit revenue growth and then accelerate its gains has set a bar too high for others to reach, and that has consequences  
 Expectations for cloud stocks are too **darn** high.  
@@ -140,7 +170,6 @@ Traders may as well be throwing **darts** at a board with no **bullseye**
 So we end up looking for clues to the story for Fastly and others in **exogenous** data — like election returns -  
 The **intimidation** game
 The **humbling** of Jack Ma wasn’t a **one-off**. Xi Jinping is determined to assert the party’s authority over China’s **glittering** tech industry
-
 Sony continues to be the hardware leader for **die-hard** gamers  
 The top global market since 2010 is **woolly**  
 It **vaulted out** of that following strict lockdowns over the summer and has been able to keep the virus relatively under control.  

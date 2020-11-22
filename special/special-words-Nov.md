@@ -1,3 +1,10 @@
+### Week 3 
+
+**exorbitant**  
+
+**haphazardly**
+
+**credibility**
 
 **canonical**
 

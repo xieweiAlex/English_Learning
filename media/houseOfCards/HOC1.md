@@ -1,3 +1,18 @@
+## E 7 
+an endorsement from you, would be a big **coup** for him.  
+I feel the same way about **condescension**.  
+You're just afraid I'm gonna **stand you up** again.  
+I don't write **puff** pieces.  
+If I can **get under his skin** in less than an hour, how do you think he'll **hold up** under the press?  
+It's okay to **vacillate** a little -  
+I'm not trying to **throw a wrench** in the works.  
+I don't want to deal with a **diva**. -  
+My children **stay out of** the **limelight**. -   
+we have to be **discreet**  
+He'll **keep his nose out of it**.  
+You don't have to **mince words**  
+this is not a **Hail Mary**, Mr. President. This is a **well-thought-out** game plan.   
+
 ## E 6  
 
 So you've been wrong twice about this. Why should I believe you're right about **holding out**?  

@@ -71,7 +71,7 @@ and then worked **furiously** to finish them and grab more before they were **sn
 When they sent pictures of **genitals**, Milland sent back a link to a book called I’m Calling the Police  
 Milland didn't feel like she could leave her apartment, or even her computer, **lest** she miss out on an opportunity to work on good tasks -  
 Another **slideshow** contained photos of animal abuse so **graphic** that years later Milland had trouble taking her dogs to the **vet** without crying  
-**veterinarian** -  
+**veterinarian**  
 But there is no workers’ compensation in **the gig economy**. There is no paid sick leave in the gig economy  
 But when, two years after she’d been working on Mechanical Turk, Milland’s husband finally **landed** a job, as a **forklift** driver at a printer company   
   
@@ -92,7 +92,7 @@ The default, --group, **lumps** multiple matches in the same file together, and 
 A **whiff** of perfume  
 However, **stool** eating, also known as **coprophagy**, is actually quite normal behavior for a puppy  
 The mother usually stops eating her puppies' **feces** around the time that they have begun eating solid food and can leave the **den** to **defecate**  -  
-you will need to consult a **veterinarian** or **behaviorist** in order to identify the problem  
+you will need to consult a **veterinarian**  
 The **bog** is home to rare **mosses**. -  
 A **bog** of legal complications.  
 She often buys clothes on **impluse**.  

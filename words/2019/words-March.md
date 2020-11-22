@@ -141,7 +141,7 @@ A **dossier** of complaints
 A **study-cum-bedroom**  
 **extraction** pump  
 deposits in **offshore** accounts.  
-The **reactionary** **ruling clique** was torn by internal **strife** -  
+The **reactionary** **ruling clique** was torn by internal **strife**  
 Try to think of unusual and **ingenious** solutions.  
 His father-in-low is a **plantation** manager.  
 **Vacant** possession  
@@ -294,7 +294,7 @@ Bayshore **boulevard**(blvd)
 This is basically where you are **infatuated** with who you are dating, and you can’t get enough of them --  
 You kind of **overlook** any flaws and see them through rose-colored glasses  
    
-Yes, that’s right: Facebook. Cryptocurrency. Earthquake! Revolution! The world is **tilting** on its **axis**! The end times are **cometh** -  
+Yes, that’s right: Facebook. Cryptocurrency. Earthquake! Revolution! The world is **tilting** on its **axis**! The end times are **cometh**  
 **Remittances** are a massive market, and a **holy grail** of cryptocurrencies, and WhatsApp is widely used worldwide.  
 He sends **regular remittances** to his parents.  
 But then your family in Ghana has to somehow convert them to cedis at an **exchange** — a task which is, as of this writing, likely to be slower, much **clumsier**, far more **user-hostile**  
