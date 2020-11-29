@@ -1,289 +1,58 @@
-although he is a **long shot**, Castro could be a real **contender**. -  
-## Oct 
-If a guy isn't into you because you **opt for** the chocolate cake, he needs to be **kicked to the curb** **pronto**  
-Los Angeles is **rife with** gossip about the stars' private lives  
-Those **traits** didn't **pop up** in humans.
-About that girl, the one I let **get away**  
-Prices **edged up** 2% in the year to December  
-It's **off to** a great start  
-The U.S.' vaccine game is **high-stakes**. Any **slip-ups** in the program—such as only four out of six candidates proving effective, ... we'll be dealing with the virus well into 2023  
-However, Q3 also followed the biggest GDP drop on record, so the numbers won’t reflect a **rip-roaring** economy.  
-And there's nothing like **sitting back** and watching the gains **rack up**  
-Oh, big **stud**, **running off** to **gallivant** with your **fillies**. 
-**hang in there** 
-Rise In Virus Cases **Weigh On** Stocks, But Big Earnings Week Could Provide **Lift**  
-This enables you to **narrow down** the Zacks #1 Rank List to stocks that best fit your investing style
-Don't **talk down** to coworkers, including **subordinates**
-How Amazon keeps a close eye on employee activism to **head off** unions  
-Even with Q3's stats, it's only expected to **eke out** 1.8% growth this year, according to the IMF.  
+His work setup is **meticulously** **thought out**  
+His work setup is **meticulously** **thought out**  
+This study IMO **sheds much more light on** the process of trading than any other studies out there  
 
-He'll think you organized a coup, got **cold feet**, and are marking me the **scapegoat**  
-**water under the bridge**, we're **starting over**  
-Are you trying to **rub this in** or something?  
-Short sellers **zero in** on a stock that they think is **overvalued** by the market   
-**Clear-cut** evidence of **tampering**.  
+You don't have to **mince words**  
+My children **stay out of** the **limelight**.   
+I'm not trying to **throw a wrench** in the works.  
+You're just afraid I'm gonna **stand you up** again.  
+If I can **get under his skin** in less than an hour, how do you think he'll **hold up** under the press?  
+I gave up my job because I felt I was stuck **in a rut**.   
+She took a **dim view** of my suggestion -  
+I’m not **going out on a limb** to advocate significant patience  
+Literally. Because people living near parks or gardens seem to have a **leg up**.  
+it just means they're able to **shrug off** their failures and move on  
+I don't wanna **put you out**. - It's no bother.    
+I don't think **moping around** the house with Diane all day is healthy.  
+**By and large**, they are **prospering**.  
+Where do most of us **draw the line**  
+Which **more often than not** it will be of the abstract art type. The great coder **makes peace with** the “it is what it is” truism  
+These are **pro forma** questions I'm asking everyone
+The pandemic has played a big role in Americans’ desire to **sock away** cash  
 
-In a ruling **handed down** on Wednesday, the U.S. Court of Appeals for the Ninth Circuit  
-he's telling his followers to **snap up** shares immediately.  
-Let's **bust her out**  
-I think maybe there's some things we kind of **glossed over** as we rushed into this relationship.  
-Sorry I had to **bolt out** of our discussion Friday
-I was wondering where you **wandered off** to.  
-you can **grind down** your **fingernails** **scrabbling** away and making little progress  
-The whole **ball game** changed a lot  
-**a hot button issue**  
-It's **rounding the corner**  
-Zoom was **on a roll** this week, launching two new products that got everyone talking  
-I'm remembering a lot of stuff. The **ketamine**'s **wearing off**.  
-I wouldn't feel any **guilt**, **per se** for leaving it.  
-That guy's **dead weight**, Princess Carolyn  
-they didn't give you fake **bourbon** **on set**?  
-somebody's got to **take the fall**  
-I want to **swing for the fences**, you know?  
-**no-go topic**  
-I know I'm a little **long in the tooth**, but I think you more than anyone would know not to **count out** an old pro.  
-But the family comedy **struck a chord** with America and went on to air for nine seasons.  
+## Week 1 & 2 
 
-It runs **on par with** the swift version of the cache  
-What's going to prevent somebody from coming in here and competing me **out of blue**  
-It's something we all **fall prey to**.   
-Under pressure to digitize, producers are expected to **phase out** more low-skilled work in favor of data, IT, and remote operations positions.   
-**Battered** oil prices also **shot up**.  
-I don't know. A sense of **deja vu**.   
-The book turned out to be a total **hatchet job**.   
-**Giddy-Up** Little Doggies
-I'm **well-adjusted**, you all want my life.  
+Overall, the markets have been **on a tear**  
+On Apple's **Piss-Poor** Documentation  
+The **humbling** of Jack Ma wasn’t a **one-off**. Xi Jinping is determined to assert the party’s authority over China’s **glittering** tech industry
+I know it's **weak sauce** to just say, "Well, 2020," but to me, there is a much bigger thing going on, and Tim hit on it, kind of  
+Zoom's ability to **put up** triple-digit revenue growth and then accelerate its gains has set a bar too high for others to reach, and that has consequences  
+This thing is **up to fate**  
+they will **chalk it up** as a **colossal** defeat   
+If I **water down** the bill, the president will still see me as a failure.  
+So you've been wrong twice about this. Why should I believe you're right about **holding out**?  
+No matter who you were **pulling for**, I think that's a funny and **apt** description  
+I'm **in your corner**
+It's on my **tip of tongue**  
+it was **touch and go**  
 
-#### Take up 
-I want men to **take up** this mantle.  
-Daenerys has **taken up** residence in Meereen  
-What's been **taking up** your days as of late?  
-The bill — which was approved without a single GOP vote — isn’t expected to be **taken up** by the Senate.
-
-he **huffed out** his **sudden irritation**   
-And once you **zero in** on his **Achilles's hill**, we will take... him... down.  
-They **called off** their wedding.  
-Take the mic, **spin us a yarn**.  
-**rise and shine**, Todd.  
-
-I'm not **cut out for** the **slammer**.  
-I got **caught up** in the moment.  
-
-## September
-
-After much **trial and error**, I arrived at four sections that I needed to make changes in. Daylight activities, evening activities, bedroom conditions and waking  
-
-Dreams of becoming a movie star suddenly don't seem so **far fetched**. 🎬  
-
-**Step away** from the stolen vehicle, sir!  
-
-Nvidia is not **setting out to be** a partner, someone that gets along with everyone **in exchange for** a couple of pennies in licensing fees  
-full truth, **warts and all**  
-
-He tried to **even out** the distribution of work among his employees.  
-I'm not gonna leave you **holding the bag**.  
-
-The **last thing** the people here need is a **two-bit** **charlatan**...   
-Their opposition **stems from** fear and ignorance  
-They're **narrow-minded**, **mean-spirited** **dirtbags**.  
-
-That means that the **go-it-alone** **unilateralism** that has characterized the Trump administration’s approach to trade could soon **spread far and wide**  
-
-This is **cut and dry**, Frank.  
-Frank, I know you want to **swoop down** and **save the day**, but there's principle **at stake** here.  
+That's a **lay-up**, that's easy.  
+I think that **set the tone** for what was to follow  
+He is a trustworthy and **level-headed** leader  
+More specifically, I've **stumbled upon** an **under-the-radar** stock I believe could be one of the greatest discoveries of my 27 years as a professional investor.  
+everybody thinks he is a nice guy, people don't want to think he **is capable of** awful things, so they let him **off the hook**.  
+let me **sleep on** it  
+If I'm gonna do it, I'm gonna go **all out**.  
 Let's not get **bogged down** in abstractions, let's deal with **specifics**.  
+She has **sworn off** cigarettes 
+You **hit the nail on the head**  
 
-Everyone thinks that I'm just this **washed-up** hack, but actually, what if they're right.  
-if you don't swallow your pride, this is never gonna **let up**.  
-How did I **come off**?  
+I can tell that you aren't **jazzed up** by group events.  
+Good food and good conversation go **hand in hand**.  
+She has **sworn off** cigarettes 
+Those **traits** didn't **pop up** in humans.
+once the US starts to **mend** its ties with China, they might be **left high and dry**, paying for their shortsightedness with real money.  
+The **cold shoulders** Pompeo has met on his Asian tour have shown his anti-China **soothsaying** to be nothing but a self-directed and self-performed **farce**
+Please vote. We’ll all be **better off** for it.   
 
-You're way **out of line**  
-he was arrested **on the spot**  
-the dating issue for Asians is kinda like a **double whammy**  
 
-Teachers inform me that Todd's behaviour has improved **no end**.
-**Come off it**, Ma. She don't mean no harm.  
-you might want to **loosen up** a little bit.  
-
-**put out**
-**horsing around**  
-He is **up for grabs**  
-you've been **tight-lipped**  
-**non-comprehensive list** 
-he is **head over heels** in debt  
-Just to **gets by**  
-**off the hook**  
-
-That’s really how they left it, the Founders, because they wanted there to be some **wiggle room**.
-he has not a **peg** to **hang on**  
-Across the country, Amazon warehouses began to **spring up**, filled with millions of products.  
-  
-## August 
-Fires **thin out** the dense, **flammable** **undergrowth**  
-this is not some of those **off the cuff** situation  
-**Snip off** what you need, cutting the leaves **all the way** to the ground  
-cost **an arm and a leg**  
-  
-thankfully, she never **followed through**  
-The malaria results have certainly been **well-received**.  
-**rabbit hole**  
-**a towering figure**  
-  
-**pile up**  
-to **stave off** hunger/illness  
-you're **kindred spirit**, you have lots **in common**  
-I knew you two would **hit it off**.  
-You tell Seppen that and Pied-Piper's off **scot-free**  
-   
-the Optimoji guys have really **stepped up** their game, you guys have kind of been **flagging**.  
-I don't need those **bells and whistles**  
-the feature bloated IDE Emacs is rather of **off-putting**  
-and I understood I needed to keep him **at arm’s length**, like you do all the candidates.  
-And then Obamacare got **shoved down our throats**, without majority support in the country, which was a huge thing.  
-Just give us the **blow-by-blow**, if you don’t mind.  
-But if you looked through his binder, and I read every page, there was one theme that started to **come through**.  
-And my job as the **anchor** was not to go out there and be **Helen of Troy**.  
-And if you manage to get past, can you win the general if you’re too **hard-line**?  
-And that’s Trump **in a nutshell**.  
-Breitbart decided to **go after** you. What’s the point?  
-   
-**nip it in the bud**  
-**nip and tuck**   
-   
-**double down**  
-He hears your **tale of woe** and quite naturally wants to **cheer you up**.   
-I can't **pin you down**  
-I **conjured** him **out of thin air**   
-They're gonna **wind up** chasing a **figment** of my imagination  
-   
-**over-the-ear**  
-we recommend the tactile Cherry MX Browns a great **all-around** switch.  
-Come on, let's **call a spade a spade**  
-Animals don't have three legs because they would **fall over**  
-   
-You'll never even double the "throughput" of that "channel", **let alone** improve it by an **order of magnitude**  
-   
-the art of **comeback**  
-   
-This is a **one-two punch**  
-Our routines may be a little **out of whack**, but at least the Earth still revolves around the Sun  
-**pipe dream**  
-I know that's **a long shot**  
-The **runner up** was miss USA, Nia Sanchez.  
-you threw a **full-on** **tantrum**  
-Would you really **stoop** this low, Ford?  
-If you **twist my arm** I'll stay for another drink  
-I liked these **glimpses** of life **from all over**  
-She was small, shy, and **unassuming**, but she seemed to understand that these qualities could put people **at ease**  
-**take up**  
-   
-Zumper does not foresee a **bounce back** in the rental rate **any time soon**  
-Big Tech pledged a billion to racial justice, but it was **pocket change**  
-**long-winded**  
-But many believe that U.S. policies still **fall short** of a solution  
-**here-and-now**  
-What is Monica's biggest **pet peeve**  
-Donald Trump’s executive orders do little for **hard-hit** Americans  
-**long-running** variable/branch  
-**crash**/cram course**  
-This year the airline will be **hard-pressed** to make a profit.  
-**put on hold**  
-**hard truth**  
-**hard sell**  
-Slack messages are not **set in stone**  
-To **Head Off** Regulators, Google Makes Certain Words Taboo  
-**a long way off**  
-**prima facie**  
-**crank out**  
-**from scratch**  
-**pass down**  
-**bubble up**  
-he has been in congress **ever since**  
-New cases **taper off** in some states  
-**cut the clutter**  
-you kind of have to **sneak up on** it.  
-keep the mobs **in check**  
-put it **on hold**  
-He's getting you all **riled up**  
-I'm not a **wheeler dealer**  
-I don’t want to go into politics— there’s too much **wheeling and dealing**.  
-you knew it from the **get-go**  
-   
-## July  
-**Colonel** Moore was **benevolent** but no **pushover**  
-It's golden, it's in **bull's eye**  
-I'm **up to here** with them, Donald, for lying, for turning their back on you.  
-   
-Tom is **out of step** with the times.  
-it's a fine ship, **top of line**  
-**root out** bad behavior  
-don't **bank on** a mass exodus  
-You got **ripped off**  
-**when push comes to shove**  
-her coldness really **puts me off**  
-   
-we are **poles apart** in personality  
-Three fugitives from the prison are still **at large**  
-Their pranks are amusing **at times**.  
-**up until now**  
-I don't **rule it out**, I'm keeping my options open  
-**up to speed**  
-it’s a **monkey on the back**  
-Just want to **touch base** with you  
-Staying true to its **no-frills** form  
-There are some **silver linings** to this flu season.  
-   
-We weren't **well off** but we were comfortable  
-Eventually the **hysteria** **died down**.  
-   
-the pandemic could have **knock-on effect** on global co-operation and economic growth  
-**mind blowing**  
-**if only**  
-**only if**  
-**it goes without saying**  
-You didn't **come off** in that story as well as you think you do.  
-Well, he was a big guy and… well, I don't like to complain or **make a fuss**.  
-**Tipping point**  
-China will try to make sure that Hong Kong continues to **prosper**, **not least** by pumping up its stockmarket  
-I kind of **zoned out**  
-Ed Chen run this event just to **suck up to** Laurie  
-**tack sth on**  
-Social distancing via automation will have **wide-ranging** **implications**  
-   
-## June  
-   
-You should **sheer off** the **wicked** **urchin**  
-Our TargetType is **shaping up**, but we're not done yet  
-   
-Many traders **went under** during the war.  
-A simple handshake would **give them away**  
-   
-#### Hold back  
-Promise me, you would not **hold me back** from killing Stannis.  
-**hold back**, let's go for a walk.  
-Probably what's **holding me back** from making rank.  
-   
-Go for a walk, Hector, **Cool off**.  
-Leonard's coming down the **home stretch**  
-she is **up and running**  
-Sir, shall we prepare to **fall back**?  
-Creating a makefile for every small Latex project is **over the top**  
-you can't just **willy-nilly** like eat every creature  
-It's a **nerve-wracking** thing  
-**nerve-racking**  
-The idea of other universes out there is **mind-bending**, but scientists say in some ways it actually makes sense  
-**over the years**  
-**in return**  
-Why not use something to abstract away the **nitty-gritty** of URLs, parameters, etc?  
-they're suppose to shoot **off-handed**  
-She had made these remarks **offhandedly**  
-**Come after** you  
-**start out**  
-**pull off**  
-he's just dying to find someone to **take it out on**  
-This is the world **going sideways**.  
-She had a quick **swig** of water and then **set off** again  
-we're gonna **make off** with that **geisha**? We're gonna die  
-   
-Disney, Papa John’s, Poshmark and T-Mobile **backed away** from “Tucker Carlson Tonight” after the host’s comments about Black Lives Matter protests.  
-   

@@ -1,4 +1,6 @@
 
+* faze, frazzle
+* vacillate, oscillate
 * I always wanted 
 * I never did 
 * propitious vs auspicious 

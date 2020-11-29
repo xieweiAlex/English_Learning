@@ -5,19 +5,19 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 ### General Review 
 |  Review 🐗   |    File Marks       |  file   	|
 | ------------- |-------------  | ------- |
-|    Monthly Word  |  A  | [current-month](./words/2020/words-Nov.md)   |
-|    Monthly Word Review   |  I  |  [words-review](./words-review.md)       |
-|    Monthly Phrase |  J  | [special-phrase](./special/phrase.md)       |
-|    Monthly Special Words |  K  | [special-words][phrase-Nov]       |
-|    Monthly Verb Words |  V  | [special-Verb][special-Verb]       |
-|    Movie Record |  L | [movie-record](./media/movie.md)       |
+| Monthly Word  |  A  | [current-month](./words/2020/words-Nov.md)   |
+| Monthly Word **Review**   |  I  |  [words-review](./words-review.md)       |
+| Monthly **Phrase** |  J  | [special-phrase][phrase]
+| Monthly **Special Words** |  K  | [special-words](./special/special-words-Nov.md)
+| Monthly **Verb Words** |  V  | [special-Verb][special-Verb]       |
+| **Movie** Record |  L | [movie-record](./media/movie.md)       |
 
 ### Special Review
 |  Special      |   A       |  B   	| C   |   D   |
 | ------------- |---------  | ------- | --|  ---- | 
 |    Special words |  [words-Aug][Special-Aug] | [words-Sep][Special-Sep] | [words-Oct][Special-Oct] | [words-Nov][Special-Nov] |
 | Special Verb | [special-Verb][special-Verb]
-|  Phrase    |    [special-phrase](./special/phrase.md) | [phrase-Nov][phrase-Nov]|  
+|  Phrase    |    [phrase-Oct](./special/phrase-Oct.md) | [phrase-Nov][phrase-Nov]|  
 | Question | [questions](./words-question.md) | 
 
 
@@ -39,7 +39,9 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 | 2017  👀 | NA | NA | NA| [April](./words/2017/words-Apr.md)  | [May](./words/2017/words-May.md)  | [June](./words/2017/words-Jun.md)  | [July](./words/2017/words-Jul.md)  | [August](./words/2017/words-Aug.md)  | [Sep](./words/2017/words-Sep.md)  | [Oct](./words/2017/words-Oct.md) | [Nov](./words/2017/words-Nov.md)  | [Dec](./words/2017/words-Dec.md)
 
 <!-- General Review -->
-[phrase-Nov]: special/phrase-Nov.md
+[phrase]: special/phrase.md
+[phrase-Nov]: special/phrase.md
+[phrase-Oct]: special/phrase-Oct.md
 [special-Verb]: ./special/verb-special.md
 
 <!-- Special Review --> 

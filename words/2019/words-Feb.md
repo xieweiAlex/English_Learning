@@ -186,7 +186,7 @@ Several **pitfalls** remain
 I just **puked** on the hood of that car.    
 The experience completely **unnerved** me.  
 Joy and **grief** are extremes.  
-We're not **unduly** worried. -   
+We're not **unduly** worried.  
 **duly authorized**
 
 **indignation** at the injustice. -   
@@ -308,7 +308,7 @@ I try to change the **foreplay** because I'd get bored
 There are more than 8 million **vacant** properties **littered** throughout Japan – and they're going **dirt cheap**.  
 Many properties are listed under “**gratis** transfer” for the sum of **literally** zero yen -   
 Another factor is **superstition**. Properties associated with tragedies such as suicide, murder, or "lonely deaths" are thought to bring bad luck in Japanese culture, making it harder to sell them on to a new owner and further feeding the **surfeit** of vacant properties that are slowly falling into **disrepair** around the country --    
-the homes aren't technically “free” until you've rented them out for a number of years and the property has **subsequently** been **deemed** yours - 
+the homes aren't technically “free” until you've rented them out for a number of years and the property has **subsequently** been **deemed** yours  
   
 Ignore the **naysayers** say you don't need it.    
   
@@ -327,17 +327,17 @@ I saw a problem, I **heroically** stepped up.
 **caucasus** mountains  
 blasting **fuse**  
 blow a **fuse**  
-Opium is a **narcotic** drug -  
+Opium is a **narcotic** drug  
 a **prelude** to disaster -  
 **disburse** a large amount of money for education -  
 The Japanese **archipelago**  
    
-The rebels had the perfect **pretext** for making their move. -  
+The rebels had the perfect **pretext** for making their move.  
 Find **consolation** in one's work.  
 Commit no **nuisance**  
 **Nuisance** analysis  
 diligence **redeems** stupidity.    
-He **decried** it as a criminal act, but was **overruled**. -  
+He **decried** it as a criminal act, but was **overruled**.  
 The Weather Bureau gave **adequate** warning of the **advent** of the hurricane.  
 **Overload** protection  
 the bed **sags** in the middle, and is uncomfortable  

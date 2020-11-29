@@ -1,4 +1,26 @@
+
+**peripheral**   
+
+**vibe** 
+**vitality**
+
+**wrath**  
+
+**doughy**
+
+**unduly**
+
+**meticulous**  
+
+**cranky**  
+
+**sappy** 
+**sapping**
+
 ### Week 3 
+
+**extrapolate**
+**interpolate**
 
 **exorbitant**  
 
@@ -21,6 +43,8 @@
 **covet**
 
 **hype** 
+**fad**
+**rave**
 
 **finicky**
 

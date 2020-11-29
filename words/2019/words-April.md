@@ -228,7 +228,7 @@ The **arson** is professional.
 **spooky**  
 **feckless** **stooge**  
 **statutory** agent  
-an **impediment** to reform -  
+an **impediment** to reform  
 **dossier**  
 **deductive inference**  
 

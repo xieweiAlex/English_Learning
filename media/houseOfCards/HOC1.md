@@ -4,10 +4,10 @@ I feel the same way about **condescension**.
 You're just afraid I'm gonna **stand you up** again.  
 I don't write **puff** pieces.  
 If I can **get under his skin** in less than an hour, how do you think he'll **hold up** under the press?  
-It's okay to **vacillate** a little -  
+It's okay to **vacillate** a little  
 I'm not trying to **throw a wrench** in the works.  
 I don't want to deal with a **diva**. -  
-My children **stay out of** the **limelight**. -   
+My children **stay out of** the **limelight**.  
 we have to be **discreet**  
 He'll **keep his nose out of it**.  
 You don't have to **mince words**  
@@ -23,7 +23,7 @@ What's better than a **blank slate** in the right hands?
 It's mostly **broad strokes**, but we can **hone** it.  
 the fist thing we need to address, is your **sobriety**  
 they will **chalk it up** as a **colossal** defeat   
-You let this situation **devolve** to where it is. -  
+You let this situation **devolve** to where it is.  
 **Gut** the bill 
 > Sometimes the only way to gain your superior's respect, is to **defy** him.  
 
@@ -31,14 +31,13 @@ This thing is **up to fate**
 
 
 ## E 5 
-Is it my job to **pander** to all my employees? -  
+Is it my job to **pander** to all my employees?  
 If we do this event, the whole staff **walks out**  
 I need your **manpower**  
-I need a full **picket** -  
+I need a full **picket**  
 **aspirin**, go ahead.  
 I made them keep you **in contention**.  
 will he **wither** or he will thrive, only time will tell.  
-
 
 ## E 4  
 I just can't resist the chance to see him **shrivel**.  

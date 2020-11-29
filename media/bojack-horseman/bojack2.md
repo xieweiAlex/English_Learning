@@ -1,3 +1,11 @@
+## E 11 
+Come see the movie, we'll **schmooze**, we'll **kibitz**... -  
+Honestly, you'll probably be **better off** without me.  
+you really are the master of **spontaneous** **witticisms**.  
+you look **doughy**, do you run? **Cardio**? Anything?  
+Feel the **wrath** of my **flamethrower**  
+listen, **bozo**...  
+
 ## E 10  
 I'm **swamped** here at work.  
 there is no reason to **sulk** about it  
@@ -6,7 +14,7 @@ I don't wanna **put you out**. - It's no bother.
 It's such an **eyesore**  
 there is a real **stick-in-the-mud** dean there who doesn't like my **in-your-face** style  
 sounds like a real **bust-ass** super-**skank**  
-this prom is really **bourgeois**. -  
+this prom is really **bourgeois**.  
 you said LA is a **tar pit**  
 
 ## E 9  
@@ -25,7 +33,7 @@ It's on my **tip of tongue**
 **hippo**  
 What you got against Uncle Hanky, you **uppity** **cooze**?   
 I'm not **slinking** away  
-I'm so **incorrigible**. -  
+I'm so **incorrigible**.  
 everybody thinks he is a nice guy, people don't want to think he **is capable of** awful things, so they let him **off the hook**.  
 Hey **turtleneck**, you're fired.  
 I wanted to pitch you an **expose** on Hank Hippopolaous  

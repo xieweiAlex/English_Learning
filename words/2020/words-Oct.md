@@ -1,6 +1,6 @@
 ## Week 5 
 The olives are crushed to a **pulp** by stone rollers  
-She lacks the **requisite** experience for the job -  
+She lacks the **requisite** experience for the job  
 I have **discretionary** income  
 
 **hostage** was **abducted** by criminal gang  
@@ -24,7 +24,7 @@ However, Q3 also followed the biggest GDP drop on record, so the numbers won’t
 As a merchant, you can let customers know about your commitment with a **spiffy** badge embedded on checkout - a great visual, especially if your audience is eco-conscious.  
 
 France and Germany will **institute** temporary lockdowns to control the renewed spread of the virus.  
-tech and internet stocks, which have been **quasi**-safety havens, were also on sale -  
+tech and internet stocks, which have been **quasi**-safety havens, were also on sale  
 That act, passed in 1996 before these companies became advertising **juggernauts**, has allowed these internet giants to be **shielded from** liability from false advertising and any claims made on their platforms by any of their users  
 Earnings season usually **buoys** stocks  
 And once the election is over, the negotiation over stimulus is likely to resume **in earnest**  

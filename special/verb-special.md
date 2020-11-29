@@ -1,4 +1,12 @@
 
+**cemented**  
+
+**debilitate**
+
+**bluff** 
+
+**barge** 
+
 **dabble**  
 
 **sift**  
