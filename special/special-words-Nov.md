@@ -1,7 +1,30 @@
 
+**frenzy**
+
+**feverishly**, **ferociously**  
+
+**holdout**  
+
+**smattering**  
+
+**brash** 
+
+**drastically**
+
+**frothy**
+
+**lively**  
+**spunky**  
+
+**insatiable**  
+
+**blaze** 
+
+**vigorously**  
+
 **peripheral**   
 
-**vibe** 
+**vibe**   
 **vitality**
 
 **wrath**  

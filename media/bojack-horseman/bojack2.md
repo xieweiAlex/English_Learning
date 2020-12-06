@@ -37,7 +37,7 @@ I'm so **incorrigible**.
 everybody thinks he is a nice guy, people don't want to think he **is capable of** awful things, so they let him **off the hook**.  
 Hey **turtleneck**, you're fired.  
 I wanted to pitch you an **expose** on Hank Hippopolaous  
-I'd love to **take down** Hippopolaous and finally **topple** the **acropolis** of **monstrous** **hypocrisy** that **ensconces** us. -   
+I'd love to **take down** Hippopolaous and finally **topple** the **acropolis** of **monstrous** **hypocrisy** that **ensconces** us.  
 you gonna **drag down** people close to you.  
 A **genocide** may or may not have been **perpetrated** in my name.  
 I'm **in your corner**

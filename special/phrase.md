@@ -1,4 +1,34 @@
-His work setup is **meticulously** **thought out**  
+Lemonade has a **first-mover** advantage, but it can't **coast on** that head start for long  
+This is **uncharted** political territory, likely with hidden benefits. The U.S. stock markets recognized that, **straight away**.  
+
+she's determined to **ferret out** the truth  
+wat are you **fed up** on ?  
+
+In contrast, for those working multiple jobs to **make ends meet**, we've seen only a 40% **bounce-back**  
+I think it's **over the hump**  
+I thought that was a **step up**.  
+there is a lot **in flux**, and **it'll be tight**.  
+I just wanted to thank you for agreeing to **pitch in**, I know you have a **full plate**.  
+I think you don't want to go **hat in hand** to somebody who **used to** work for you.  
+Jim is a proud man, **tap into** that pride.  
+That wouldn't **make for** a very good story  
+Good to see you. - **You too**.  
+Small business, that's the solution, everything else is **window dressing**.  
+I think she is a little **down in the dumps**  
+you're telling me that none of them have **come on to** you?  
+But when you recreate it at home, even with what you’d think are the same ingredients, it **falls flat**  
+there is a real **stick-in-the-mud** dean there who doesn't like my **in-your-face** style  
+
+That was underscored by the PMI Manufacturing report which came in at 56.7, which was **in line with** views, but nicely above last month's showing of 53.4.  
+They're going to **lay into** me **big time**.  
+
+## Week 3 & Week 4 
+
+The old **vinaigrette** formula is **out the window**  
+But when you recreate it at home, even with what you’d think are the same ingredients, it **falls flat**  
+She is going to divorce him **on the grounds of** **adultery**.   
+a **concerted effort**   
+I agree with it **in principle** but I doubt if it will happen in practice
 His work setup is **meticulously** **thought out**  
 This study IMO **sheds much more light on** the process of trading than any other studies out there  
 

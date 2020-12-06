@@ -1,3 +1,52 @@
+
+## E 10 
+The two **renegades** who voted against the bill.  
+
+## E 9 
+**talking points**  
+Does Peter Russo honestly have the **gall** to lecture us on the purity of our rivers.  
+they **stonewalled** me  
+**show-and-tell**  
+they say dad is **crackhead**  
+you're telling me that none of them have **come on to** you?  
+Did Zoe expect me to **twiddle my thumbs** until her arrival?  
+**Proximity** to power **deludes** some into believing they **wield** it. -  
+I think she is a little **down in the dumps**  
+she **wouldn't tell me**  
+My **hands are tied**  
+Good to see you. - **You too**.  
+Small business, that's the solution, everything else is **window dressing**.  
+That wouldn't **make for** a very good story  
+It's better than him **torpedoing** the whole bus tour.  
+Jim is a proud man, **tap into** that pride.  
+He **propositioned** you? -  
+I think you don't want to go **hat in hand** to somebody who **used to** work for you.  
+that sounds you're both **leaning to NO** 
+we **have been very clear about** what we're asking.  
+let them **toss and turn** tonight.  
+It's **antagonizing** oil and gas  
+I just wanted to thank you for agreeing to **pitch in**, I know you have a **full plate**.  
+But I figured If I could meet the **provost** **face to face** ... -  
+I've called every member in the white house to **cobble** together a number, but no one's getting back to me. -  
+there is a lot **in flux**, and **it'll be tight**.  
+You're **hijacking** our microphone  
+I left the governor's mansion right **in my prime**  
+I thought that was a **step up**.  
+I don't have a fucking **shred** of real influence -  
+I'm **trotted around** like a goddamn **mascot**, and this is my **home state**. -  
+You're **expecting**.  
+**doctors without borders**  
+But I've never considered this **any more or less than** a transaction between two **consenting** adults.  
+I think it's **over the hump**  
+
+## E 8 
+you want me to be your **lapdog**, after I lost my fucking job?  
+**moral support**  
+They're going to **lay into** me **big time**.  
+I saw you **cuss out** the **drill** **sergeant** when we were **knobs**.  
+The library is a **sham**.  
+Most of you **cadets** probably don't know who I am.  
+
 ## E 7 
 an endorsement from you, would be a big **coup** for him.  
 I feel the same way about **condescension**.  
@@ -6,12 +55,14 @@ I don't write **puff** pieces.
 If I can **get under his skin** in less than an hour, how do you think he'll **hold up** under the press?  
 It's okay to **vacillate** a little  
 I'm not trying to **throw a wrench** in the works.  
-I don't want to deal with a **diva**. -  
+I don't want to deal with a **diva**.  
 My children **stay out of** the **limelight**.  
 we have to be **discreet**  
 He'll **keep his nose out of it**.  
 You don't have to **mince words**  
 this is not a **Hail Mary**, Mr. President. This is a **well-thought-out** game plan.   
+You want me to **pull up** now, sir?  
+
 
 ## E 6  
 

@@ -44,7 +44,7 @@ A FEDERAL JUDGE rejected the Justice Department’s attempt to **represent** Pre
 It's **off to** a great start  
 **hang in there** 
 
-**paramedic** ambulance -  
+**paramedic** ambulance  
 I'd like something for a **sunburn**  
 **starlight**  
 she thinks I'm a **hussy**  
@@ -80,7 +80,7 @@ a **thumbnail** **biography**.
 a **thumbnail** sketch  
 **wear and tear**  
 I thought I bought a **lemon**  
-the seller was in **hospice**, going to die any day. -  
+the seller was in **hospice**, going to die any day.  
 Call it the **piggy bank** strategy  
 what helps me have some **semblance** of happiness  
 **Aristotle**  
@@ -103,7 +103,7 @@ she is an **enigma** to me.
 **renaissance** music  
 **beanstalk**  
 national **emblem**, Olympic **emblem**   
-her shirt has the company **emblem** on it. -  
+her shirt has the company **emblem** on it.  
 course **syllabus**  
 **wigs off**  
 A bra and a pair of **briefs** lay on the floor  

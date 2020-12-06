@@ -237,7 +237,7 @@ He tried to **pacify** the mob.
 Clear expression is the **hallmark** of good writing.  
 **respiratory** tract  
 **monsoon** climate of medium latitudes  
-**Aquiculture** and **poultry** - 
+**Aquiculture** and **poultry**  
 **Aquarium**
 A young **goose** is a **gosling**.  
 **Clear-cut** evidence of **tampering**.  
@@ -281,7 +281,7 @@ He is **fickle** to a **proverb**.
   
 We went into a passionate **clinch** on the sofa.  
 You must seek **redress** in the law courts.    
-**Redress** the scales -  
+**Redress** the scales  
 deadly **infighting** among the politicians  
 The court refused to **extradite** political refugees.  
 **Sewer system**  
@@ -307,7 +307,7 @@ I try to change the **foreplay** because I'd get bored
   
 There are more than 8 million **vacant** properties **littered** throughout Japan – and they're going **dirt cheap**.  
 Many properties are listed under “**gratis** transfer” for the sum of **literally** zero yen -   
-Another factor is **superstition**. Properties associated with tragedies such as suicide, murder, or "lonely deaths" are thought to bring bad luck in Japanese culture, making it harder to sell them on to a new owner and further feeding the **surfeit** of vacant properties that are slowly falling into **disrepair** around the country --    
+Another factor is **superstition**. Properties associated with tragedies such as suicide, murder, or "lonely deaths" are thought to bring bad luck in Japanese culture, making it harder to sell them on to a new owner and further feeding the **surfeit** of vacant properties that are slowly falling into **disrepair** around the country  
 the homes aren't technically “free” until you've rented them out for a number of years and the property has **subsequently** been **deemed** yours  
   
 Ignore the **naysayers** say you don't need it.    

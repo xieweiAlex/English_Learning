@@ -20,6 +20,7 @@ export files=(
   "./media/GOT/GOT3.md"
   "./media/GOT/GOT2.md"
   "./media/GOT/GOT1.md"
+  "./words/2020/words-Dec.md"
   "./words/2020/words-Nov.md"
   "./words/2020/words-Oct.md"
   "./words/2020/words-Sep.md"

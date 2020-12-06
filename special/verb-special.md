@@ -1,3 +1,18 @@
+**catapulte**  
+
+**coerce** 
+
+**grapple**  
+
+**sprinkle**  
+
+## Nov 
+
+**canvass**  
+
+**splash**
+
+**shriek**  
 
 **cemented**  
 

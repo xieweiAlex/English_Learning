@@ -116,7 +116,7 @@ the **thumping** **cadence** of the engines.
 One of his **quirks** is that he refuses to travel by train.   
 
 **outgun**  
-Image God let us decide whether or not to **smite** ourselves. -   
+Image God let us decide whether or not to **smite** ourselves.  
 Well, I did **covet** Gary's wife, but **in my defense**, Gary's wife got that ass.  
 **Flight attendant**  
 We have a **cold sore**.  

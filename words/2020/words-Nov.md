@@ -1,37 +1,33 @@
-A strong rebound in spending was ushered in from fiscal stimulus and a better summer with the pandemic, making comparison growth harder to come by for October  
+## Week 4 
 
+A strong **rebound** in spending was **ushered** in from fiscal stimulus and a better summer with the pandemic, making comparison growth harder to come by for October  
+Arrive at work feeling **frazzled** and **scattered**  
+These **piecemeal** solutions won't work  
 
-Arrive at work feeling frazzled and scattered  
-These piecemeal solutions won't work  
-
-
-The Quest 2 has launched to a ‘mostly’ rapturous fanfare of positivity  
-
-Deliverance, when it arrives, will come in a small glass vial  
-As the nurse drops the used syringe into the bin with a clatter, it will be hard not to wonder how something so small can solve a problem so large.  
-That's a bit lopsided  
+The Quest 2 has launched to a ‘mostly’ **rapturous** **fanfare** of positivity -  
+**Deliverance**, when it arrives, will come in a small glass **vial** -  
+As the nurse drops the used **syringe** into the bin with a **clatter**, it will be hard not to wonder how something so small can solve a problem so large. -  
+That's a bit **lopsided**  
 Employers could simply ask all of their employees to get vaccinated, return to the office, and **bid adieu to** Zoom's 40-minute **cutoff** forever  
-Despite record-breaking, around-the-clock production, the disinfectant still vanishes from store shelves in a matter of hours.   
+Despite record-breaking, **around-the-clock** production, the disinfectant still **vanishes** from store shelves in a matter of hours. -   
 
-
-Musk went out on the limb even further, as he had to borrow the money from Goldman Sachs to buy the shares  
-Hedge funds and other professional investors routinely use this information to get an edge on their trades.  
-While the media will trumpet huge insider buys like Elon Musk's $100 million purchase  
-The SEC vigorously pursues such insider trading cases in order to ensure that the capital market is a level playing field where no one has an unfair advantage  
+Musk **went out on the limb** even further, as he had to borrow the money from Goldman Sachs to buy the shares  
+Hedge funds and other professional investors routinely use this information to get an **edge** on their trades.  
+While the media will **trumpet** huge insider buys like Elon Musk's $100 million purchase  
+The SEC **vigorously** pursues such insider trading cases in order to ensure that the capital market is a **level playing field** where no one has an unfair advantage -  
 
 **self-paced** online course  
 Biden has cast himself as a moderate with **sensible**  
 Biden believes that American workers can **out-compete** anyone, but their government needs to fight for them  
 He does not buy **for one second** that the **vitality** of U.S. manufacturing is **a thing of the past**  
-
-Salesforce is often cited as the first **entrant** into the software-as-a-service (SaaS) domain -  
+Salesforce is often cited as the first **entrant** into the software-as-a-service (SaaS) domain  
 **big-box retailer**  
-The oil and gas company that is **domiciled** in France has seen its shares tumble 59% year-to-date, along with the rest of the sector.  
+The oil and gas company that is **domiciled** in France has seen its shares tumble 59% year-to-date, along with the rest of the sector. -  
 The **Lucky Country** is the object of an unusual amount of **bile**  
 market is facing one of the best **backdrops** for sustained gains in years  
-Their **love affair** was played out against the **backdrop** of war. -  
+Their **love affair** was played out against the **backdrop** of war.  
 Another way of looking at it is through the **prism** of the equity risk premium — the return that investing in the stock market provides over a risk-free rate like government bonds.  
-Defensive vs **Enterprising** 
+Defensive vs **Enterprising** - 
 **enterprising spirit**   
 Some **enterprising** girls organized a sponsored walk.  
 
@@ -40,17 +36,17 @@ I want to **clue you in** on a powerful discovery we've made over these past few
 The market close early today **in observance of** the thanksgiving holiday  
 
 His work setup is **meticulously** **thought out**  
-Are you seriously **shortchanging** your retirement? -  
+Are you seriously **shortchanging** your retirement?  
 
 It's been an unbelievable 2020 as millions of people have been impacted by the coronavirus pandemic, which has devastated families and communities around the world. The economic hardship has been very real and **debilitating** for people in all countries and communities, but particularly for those with low incomes or who have lost their jobs and businesses. The damage is **deep**.  
-XXX has given us **whiplash** and turned so many investing **premises** **upside down**. -  
+XXX has given us **whiplash** and turned so many investing **premises** **upside down**.  
 
 PoolSide FM for creating the right **vibes** for when we need to **jam out**.  
 He is an extremely **astute** political **tactician**  
 
-Between the car break-ins and attempted home invasion, it sounds like somebody was **canvassing** the neighborhood. -  
+Between the car break-ins and attempted home invasion, it sounds like somebody was **canvassing** the neighborhood.  
 This study IMO **sheds much more light on** the process of trading than any other studies out there  
-One word may have **discrete** meanings -  
+One word may have **discrete** meanings  
 But despite the **allure** of quick profits, it's generally a good idea not to use options at least for your first year or two as an investor.  
 > As Fools, we're willing to take risk when the potential reward justifies it
 
@@ -58,19 +54,19 @@ Over time, options exchanges realized that their biggest customers were short-te
 Get Your **Sea Legs** First  
 **First and foremost**, before you can use options effectively, you have to have an opinion on the fundamental business prospects of the underlying company  
 The item in question is currently out of stock and we do not have plans to **replenish** it  
-Expect e-commerce sales to go **parabolic**. -  
+Expect e-commerce sales to go **parabolic**.  
 With Covid lockdowns **sapping** demand for chocolate, buyers are looking for cheaper options—like tapping the futures market to **skirt** the fees.   
 
 ## Week 3 
 
 Obviously not as good as the Go or the Quest, but it’s not **gimmicky** at all  
-The **duo** of Mnuchin and Powell has earned praise for their all-hands-on-deck approach to steering the economy through the pandemic  
-But Thursday’s surprise announcement was one of the few times that politics may have **weaseled** into their relationship -  
+The **duo** of Mnuchin and Powell has earned praise for their **all-hands-on-deck** approach to steering the economy through the pandemic  
+But Thursday’s surprise announcement was one of the few times that politics may have **weaseled** into their relationship  
 He's now trying to **weasel out of** our agreement  
 **recency bias**  
 
-In 2020, the recession was based on an **extraneous** shock – the sudden and unexpected pandemic -  
-And I think it **behooves** any man to toss all female troubles into the hands of a stranger -  
+In 2020, the recession was based on an **extraneous** shock – the sudden and unexpected pandemic  
+And I think it **behooves** any man to toss all female troubles into the hands of a stranger  
 She gets very **hyped up** before a race.  
 Victorian men developed **fetishes** focusing on feet, shoes, and boots.  
 The shocking **revelations** caused quite a **storm**.  
@@ -93,7 +89,7 @@ The farm carts have worn **ruts** in the lane
 You can't **jackhammer** into the safe.  
 A **passerby** told me the time  
 he decided to **loon** around London  
-Stop the car, you crazy **loon**! -  
+Stop the car, you crazy **loon**!  
 There is some **consternation** among business leaders.  
 I'm in **mourning** for my former life  
 the world is **mourning** my loss 
@@ -126,7 +122,7 @@ The **canonical** example here is the DMV
 its customers cannot go elsewhere for service, and the DMV does not experience the pain of interacting with itself, and so the DMV will **perpetually** remain in **stasis** **at best**  
 I don’t mean to imply that using Retail Link is in any way **analogous** to the experience of visiting the DMV  
 In order to thrive at ‘internet scale,’ Amazon would need to open itself up at every **facet** to outside feedback loops  
-Jeff Bezos issued an **edict** -  
+Jeff Bezos issued an **edict**  
 His first **stroke** of genius was in making it **unbound**  
 his second – the **masterstroke** – was **devising** a solution to the bureaucratic complexity that would have otherwise caused it to implode  
 It carried with it the tremendous added benefit of **honing** Amazon’s own rapidly-expanding fulfillment network, which were certainly at risk of bloat and **slop**, with the **sharp edge** of seller expectations  
@@ -153,7 +149,7 @@ two counts of **aggravated** identity theft
 access device fraud, and access to a protected computer in **furtherance** of fraud  
 (He took these actions purely in (the) **furtherance** of his own career)
 Kvashuk has been ordered to pay $8.3 million in **restitution**, though it seems unlikely he'll ever be able to do that  
-These damn **whippersnappers** got it so easy with their online gift-cards and fancy cryptocurrency -  
+These damn **whippersnappers** got it so easy with their online gift-cards and fancy cryptocurrency  
 **Squelching** the Sound  
 all the sound bouncing around inside and outside your house can make it tough to get some decent **shut-eye**  
 But the optimism from the anticipated vaccines, and new **therapeutics** is **superseding** those concerns  
@@ -173,7 +169,7 @@ U.S. election vote counts suggest that this U.S. election had the largest voter 
 The rest are **mired** in a deep decline with an uncertain path ahead.  
 **By and large**, they are **prospering**.  
 Third, we have an uber-**dovish** Fed. We have **dovish** central banks outside the USA.  
-2021 offers the possibility of strong **snapbacks** with upgrades to earnings and revenue growth rates  
+2021 offers the possibility of strong **snapbacks** with upgrades to earnings and revenue growth rates -  
 CEOs weren’t buying the **euphoria**, the way the stock markets did.  
 Consumer interest rates stay low, in particular, home mortgage rates. Auto and home purchases are **atypically** strong in a recession.  
 The Fed has provided **immense** **liquidity** across bond markets, in government, mortgage, and corporate.  
@@ -184,7 +180,7 @@ He received a **paltry** annuity of $100
 Is that a **sound** strategy  
 As Warren Buffett **quipped** in an **op-ed** written during the heart of the 2008 financial crisis, "If you wait for the robins, spring will be over  
 Nobody has a functioning **crystal ball** and anyone who gives a prediction about where the economy or the stock market will be some time down the road is either deluding themselves or you, and probably both!  
-You can take **solace** in the knowledge that you'll make more when the market eventually **goes up**, as it will.  
+You can take **solace** in the knowledge that you'll make more when the market eventually **goes up**, as it will. -  
 DoorDash was founded in 2013 by Stanford students, and it’s raised $2.5 billion since, from the likes of SoftBank and other **heavy-hitter** VCs  
 if DoorDash succeeds, it won’t remain a **pure-play** food delivery company.  
 According to the WSJ’s Eliot Brown, DoorDash has **surged** to the lead in use of the word “platform” in an IPO prospectus, **pummeling** WeWork by a count of 646 to 157.  
@@ -206,8 +202,8 @@ the great coder accepts that they are going to be REAAAALLY frustrated with thei
 A great coder has learned that compiling is a **finicky** process especially if you are a member of a team  
 A good coder might feel **flabbergasted** by such **occurrences** -  
 The reason is that the great-coder/best-programmer has accepted and made peace with the **truism** that theory and reality do not always agree  
-They do not **ruminate** on it because they know that quite often it is natural for a coder to find themselves in this position  
-(I agree with it **in principle** but I doubt if it will happen in practice)
+They do not **ruminate** on it because they know that quite often it is natural for a coder to find themselves in this position -  
+I agree with it **in principle** but I doubt if it will happen in practice
 Now the great coder is well aware that old code will contain bugs **precisely** because coders in the past did what is **depicted** above  
 Which **more often than not** it will be of the abstract art type. The great coder **makes peace with** the “it is what it is” truism  
 > “Good judgment comes from experience, and experience comes from bad judgment.”  
@@ -303,7 +299,7 @@ More specifically, I've **stumbled upon** an **under-the-radar** stock I believe
 Los Angeles is **rife with** gossip about the stars' private lives  
 This is pure **conjecture** with no basis in fact.  
 
-It seems that no grave **calamity** has ever **befallen** any country without it being **foretold** by some **seer**, and Pompeo has put himself forward as the **presager** of coming disaster. -  
+It seems that no grave **calamity** has ever **befallen** any country without it being **foretold** by some **seer**, and Pompeo has put himself forward as the **presager** of coming disaster.  
 The **cold shoulders** Pompeo has met on his Asian tour have shown his anti-China **soothsaying** to be nothing but a self-directed and self-performed **farce**, as Wang Wenbin, spokesperson for the Foreign Ministry, described his trip.  
 once the US starts to **mend** its ties with China, they might be **left high and dry**, paying for their shortsightedness with real money.  
 But if it continues to try and **sow** **discord** in the region, it is **liable to** find it counterproductive.  

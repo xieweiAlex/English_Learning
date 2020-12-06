@@ -49,7 +49,7 @@ I just **preemptively** went to the police.
 High school **antics** which doesn't bother me.  
 These disgusting **underhanded** tactics that these **scumbags** use just shows how cowardly they are.   
 People like me don't **bend**.  
-**patriotism** is the last refuge of a **scoundrel**. --  
+**patriotism** is the last refuge of a **scoundrel**.  
   
 If you censor **genitals**, it's not considered **indecent** any more.  
 There are **orgs** that check every porn to make sure that censorship is **adequate**.   
@@ -57,7 +57,7 @@ If you look at East Asia, many places are pretty similar because they tend to be
   
 One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions --  
   
-He might be their **unwitting** **stooge**. -  
+He might be their **unwitting** **stooge**.  
 Same **cadences**, same **delivery**. Maybe it's Obama.  
 although he is a **long shot**, Castro could be a real **contender**.  
   
@@ -91,7 +91,7 @@ The default, --group, **lumps** multiple matches in the same file together, and 
 **Carrefour**  
 A **whiff** of perfume  
 However, **stool** eating, also known as **coprophagy**, is actually quite normal behavior for a puppy  
-The mother usually stops eating her puppies' **feces** around the time that they have begun eating solid food and can leave the **den** to **defecate**  -  
+The mother usually stops eating her puppies' **feces** around the time that they have begun eating solid food and can leave the **den** to **defecate**  
 you will need to consult a **veterinarian**  
 The **bog** is home to rare **mosses**. -  
 A **bog** of legal complications.  
@@ -127,7 +127,7 @@ She was an **atheist** but now she says she's seen the light.
 **Atheism**  
 He was easily **dissuaded** from going.   
 **glamour girl**  
-He took up the **cause** with **evangelical** fervor. -  
+He took up the **cause** with **evangelical** fervor.  
 **open-hearted** **goodwill**  
 **secularism**  
 A **bastion** of **male chauvinism**. -  
@@ -147,10 +147,10 @@ It's us being **full-blown** **timewasting** jackass.
 You get downtime between set ups, and you have some time, we all sit around and **goof off** -  
 I play lots of **solitaire**.  
 What a **dweebazoid**. -  
-Essentially it's an **amalgamation** of myself. -  
+Essentially it's an **amalgamation** of myself.  
 **LAN party**  
 I was eating in the lobby of the hotel right before a **premiere** -  
-**mahatma gandhi**. -  
+**mahatma gandhi**.  
 The second question was **impenetrable**.  
 **impromptu**  
 They could be real **auteurs**  
@@ -174,7 +174,7 @@ The **syndicate** appears to be organized like a typical corporation, with desce
 He runs his own little crime **syndicate**.  
 The stairs **creaked** as she went up them. -  
 a **shadowy** path through the woods.  
-A challenge of the **ethos** of the 1960s. -  
+A challenge of the **ethos** of the 1960s.  
 My household duties were not **particularly** **onerous**. -  
 He's full of **pep** in the morning. -  
 the move was a **snub** to the government. -  
@@ -185,7 +185,7 @@ This is a blatantly **implausible** claim. -
 **undemanding** **clerical** jobs. -  
 **Confound** right and wrong. -  
 The Chief **Constable** came along in **civvies**. -  
-The pond **teemed** with **tadpoles**. -  
+The pond **teemed** with **tadpoles**.  
 There are signs of **rapprochement** between George and his son. -  
 **Splurge** millions on the wedding. -  
 **imposition** of surcharge. -  
