@@ -169,7 +169,7 @@ U.S. election vote counts suggest that this U.S. election had the largest voter 
 The rest are **mired** in a deep decline with an uncertain path ahead.  
 **By and large**, they are **prospering**.  
 Third, we have an uber-**dovish** Fed. We have **dovish** central banks outside the USA.  
-2021 offers the possibility of strong **snapbacks** with upgrades to earnings and revenue growth rates -  
+2021 offers the possibility of strong **snapbacks** with upgrades to earnings and revenue growth rates  
 CEOs weren’t buying the **euphoria**, the way the stock markets did.  
 Consumer interest rates stay low, in particular, home mortgage rates. Auto and home purchases are **atypically** strong in a recession.  
 The Fed has provided **immense** **liquidity** across bond markets, in government, mortgage, and corporate.  
@@ -180,7 +180,7 @@ He received a **paltry** annuity of $100
 Is that a **sound** strategy  
 As Warren Buffett **quipped** in an **op-ed** written during the heart of the 2008 financial crisis, "If you wait for the robins, spring will be over  
 Nobody has a functioning **crystal ball** and anyone who gives a prediction about where the economy or the stock market will be some time down the road is either deluding themselves or you, and probably both!  
-You can take **solace** in the knowledge that you'll make more when the market eventually **goes up**, as it will. -  
+You can take **solace** in the knowledge that you'll make more when the market eventually **goes up**, as it will.  
 DoorDash was founded in 2013 by Stanford students, and it’s raised $2.5 billion since, from the likes of SoftBank and other **heavy-hitter** VCs  
 if DoorDash succeeds, it won’t remain a **pure-play** food delivery company.  
 According to the WSJ’s Eliot Brown, DoorDash has **surged** to the lead in use of the word “platform” in an IPO prospectus, **pummeling** WeWork by a count of 646 to 157.  

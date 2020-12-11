@@ -319,7 +319,7 @@ If anyone wants to follow the **wacky** **antics** of my band, you can find Tsun
 
 **deride**: to laugh at or insult **contemptuously**  
 were **derided** as the weaker sex
-The **despot** who **disposed** of all his enemies, real or imaged. -  
+The **despot** who **disposed** of all his enemies, real or imaged.  
 The **coils** **intertwine** together like strands of spaghetti.  
 a **longstanding** dispute between the two families.  
 **arbitrage** of exchange  

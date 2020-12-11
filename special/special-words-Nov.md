@@ -1,7 +1,11 @@
 
+**uncompromising**  
+
 **frenzy**
 
 **feverishly**, **ferociously**  
+
+### Week 4 
 
 **holdout**  
 

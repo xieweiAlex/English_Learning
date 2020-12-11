@@ -1,6 +1,6 @@
 
 ## E 10 
-The two **renegades** who voted against the bill.  
+The two **renegades** who voted against the bill. -  
 
 ## E 9 
 **talking points**  
@@ -19,7 +19,7 @@ Small business, that's the solution, everything else is **window dressing**.
 That wouldn't **make for** a very good story  
 It's better than him **torpedoing** the whole bus tour.  
 Jim is a proud man, **tap into** that pride.  
-He **propositioned** you? -  
+He **propositioned** you?  
 I think you don't want to go **hat in hand** to somebody who **used to** work for you.  
 that sounds you're both **leaning to NO** 
 we **have been very clear about** what we're asking.  
@@ -27,12 +27,12 @@ let them **toss and turn** tonight.
 It's **antagonizing** oil and gas  
 I just wanted to thank you for agreeing to **pitch in**, I know you have a **full plate**.  
 But I figured If I could meet the **provost** **face to face** ... -  
-I've called every member in the white house to **cobble** together a number, but no one's getting back to me. -  
+I've called every member in the white house to **cobble** together a number, but no one's getting back to me.  
 there is a lot **in flux**, and **it'll be tight**.  
 You're **hijacking** our microphone  
 I left the governor's mansion right **in my prime**  
 I thought that was a **step up**.  
-I don't have a fucking **shred** of real influence -  
+I don't have a fucking **shred** of real influence  
 I'm **trotted around** like a goddamn **mascot**, and this is my **home state**. -  
 You're **expecting**.  
 **doctors without borders**  

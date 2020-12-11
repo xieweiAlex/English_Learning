@@ -150,7 +150,7 @@ insurance **actuary**
 bride and **groom** 
 **groom** a presidential candidate  
 a **well-groomed** horse  
-Eternal life to the **revolutionary** **martyrs**.  - 
+Eternal life to the **revolutionary** **martyrs**.  
 It's a little **tentative** at first, but then I realize she's kissing me back.  
 **tortuous** legal procedures  
 He was of **stalwart** build 

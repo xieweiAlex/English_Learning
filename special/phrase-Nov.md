@@ -1,5 +1,23 @@
+Jim is a proud man, **tap into** that pride.  
+All those **perky**, **well-adjusted** people you see in movies and TV shows? -  
+I am just trying to **get through** each day.  
+I will not going to **spill more beans**.  
+Doesn't **ring the bell**, hasn't met this guy.  
+I'm **on the clock**, you want to chat, you need to buy me a private dance in the **Blowhole** Room.  
+**you betcha**  
+**Keep it down**, buddy.  
+
+Leaving you and a bunch of other Fools **in the lurch**  
+**beat around the bush**   
+thanks for the **run down** of the portfolio 
+This study imo **sheds much more light on** the process of trading than any other studies out there  
+
+**Biting the bullet** now gives you a chance essentially to lock in that current rate  
+You get downtime between set ups, and you have some time, we all sit around and **goof off** -  
 Lemonade has a **first-mover** advantage, but it can't **coast on** that head start for long  
 This is **uncharted** political territory, likely with hidden benefits. The U.S. stock markets recognized that, **straight away**.  
+
+## Week 1 
 
 she's determined to **ferret out** the truth  
 wat are you **fed up** on ?  

@@ -69,7 +69,7 @@ Some of Milland's more **remunerative** work came from employers who posted hund
 No matter where Milland was in her house, if she heard the alarm **go off**, she would run to her computer  
 and then worked **furiously** to finish them and grab more before they were **snatched** by other people  
 When they sent pictures of **genitals**, Milland sent back a link to a book called I’m Calling the Police  
-Milland didn't feel like she could leave her apartment, or even her computer, **lest** she miss out on an opportunity to work on good tasks -  
+Milland didn't feel like she could leave her apartment, or even her computer, **lest** she miss out on an opportunity to work on good tasks  
 Another **slideshow** contained photos of animal abuse so **graphic** that years later Milland had trouble taking her dogs to the **vet** without crying  
 **veterinarian**  
 But there is no workers’ compensation in **the gig economy**. There is no paid sick leave in the gig economy  
@@ -81,7 +81,7 @@ swagger ?--
 **Optometry**  
   
 ## Weeek 2  
-Because if you get too **aggro**, you might just end up with Trump jumping in the middle. -  
+Because if you get too **aggro**, you might just end up with Trump jumping in the middle.  
   
 China's top **anti-graft** watchdog will step up supervision efforts this year.  
   
@@ -144,7 +144,7 @@ I wish I could do it more **readily**.
 It's something, just from a character point, and also comedically that you can really **latch onto**. -  
 Besides, this guy sounds like a **jackass**.  
 It's us being **full-blown** **timewasting** jackass.  
-You get downtime between set ups, and you have some time, we all sit around and **goof off** -  
+You get downtime between set ups, and you have some time, we all sit around and **goof off**  
 I play lots of **solitaire**.  
 What a **dweebazoid**. -  
 Essentially it's an **amalgamation** of myself.  
