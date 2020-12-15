@@ -1,4 +1,12 @@
 
+**perky**
+
+**infatuated**  
+
+**groggy**  
+
+**pristine**
+
 **uncompromising**  
 
 **frenzy**

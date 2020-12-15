@@ -1,4 +1,36 @@
 
+## E 7 
+He is pretty **steamed**  
+We do have an **infestation**, of Todds, look at that, they're getting bigger.  
+Did the head help to **ameliorate** your pest **peccadillo**?  
+Do you often **keep people at arm's length**?  
+So you don't feel any guilt about your **tryst** with Emily? -  
+I knew I had to **lay low**. Go off the grid, disappear.  
+
+## E 6 
+A **streetwise** but **soulful** teen needed somehwere to live as he waited for his Juliliard audition.  
+that **takes me back**.  
+Just pick out something extra soft for my **tushy**.  
+It has nothing to do with whether you're a good **publicist** or not.  
+Obviously, we'll **pre-tape** it.  
+I'm **making things all about me**? I'm the one who's having an abortion.  
+I gotta take the **high road**, go on the news and **rat those suckers out**.  
+Is somebody standing in my **windpipe**?  
+A little **queasy**, but **on the whole**, wonderful.  
+
+## E 5 
+I want you to on my side, **soaking up** the **spillover** and **feasting** on my discarded **leftovers**.  
+they **jizz** their pants for that shit. -  
+**rehearsal dinner**  
+The famous **Snatch** Batch.  
+Let's not waste each other's time and **cut right to the chase**.  
+
+## E 4 
+**pantomime**   
+**panto**  
+
+## E2 & E 3 
+
 ## E 1 
 **Keep it down**, buddy.  
 **you betcha**  

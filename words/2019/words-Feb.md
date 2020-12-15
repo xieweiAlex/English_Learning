@@ -219,7 +219,7 @@ a **dull** **lackluster** life
 We got a **blip** on the radar.  
 **letter of undertaking**, **undertaking clause** 
 **undertaking simultaneous interpretation**  
-**fissile** material -   
+**fissile** material  
 
 a **labyrinth** of passages and secret **chambers**  
 **Digital Pimps**
@@ -293,11 +293,11 @@ This is almost **surreal** in today's America
 Some presidents need **show-and-tell** on that front  
   
 Thieves in the **bazaar** rubbed us blind.  
-They're real **aggro** men who'll bully anybody for a few **quid** -   
+They're real **aggro** men who'll bully anybody for a few **quid**  
   
 Straight / **heterosexual**  
   
-**subliminal** perception -   
+**subliminal** perception  
 **subliminal** advertising  
 Growing up, I was always **coprophilia**.  
   
@@ -329,7 +329,7 @@ blasting **fuse**
 blow a **fuse**  
 Opium is a **narcotic** drug  
 a **prelude** to disaster  
-**disburse** a large amount of money for education -  
+**disburse** a large amount of money for education  
 The Japanese **archipelago**  
    
 The rebels had the perfect **pretext** for making their move.  

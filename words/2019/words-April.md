@@ -212,7 +212,7 @@ Interviewers love to ask people this question **point‐blank**,�
 last will and **testament**  
 **coping** stone  
 bear a **calamity** with **fortitude**.  
-to **stave off** hunger/illness -  
+to **stave off** hunger/illness   
 a remote **Inuit** **hamlet**  
 an innumerable **throng** of people  
 **poach** a start in a race 

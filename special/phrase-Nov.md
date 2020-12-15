@@ -1,3 +1,12 @@
+
+I always said he would **wind up** in prison  
+Right **on cue**, software giant Oracle said yesterday it was moving its HQ from Redwood City, CA, to Austin, TX.  
+
+in season 1, she and Bojack **fall out**, because she insists on telling the truth.  
+I gotta take the **high road**, go on the news and **rat those suckers out**.  
+we can do this **off the books**  
+Let's not waste each other's time and **cut right to the chase**.  
+desperate attempts to **stave off** civil war 
 Jim is a proud man, **tap into** that pride.  
 All those **perky**, **well-adjusted** people you see in movies and TV shows? -  
 I am just trying to **get through** each day.  

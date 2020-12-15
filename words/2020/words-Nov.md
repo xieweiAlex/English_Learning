@@ -5,16 +5,16 @@ Arrive at work feeling **frazzled** and **scattered**
 These **piecemeal** solutions won't work  
 
 The Quest 2 has launched to a ‘mostly’ **rapturous** **fanfare** of positivity -  
-**Deliverance**, when it arrives, will come in a small glass **vial** -  
+**Deliverance**, when it arrives, will come in a small glass **vial**  
 As the nurse drops the used **syringe** into the bin with a **clatter**, it will be hard not to wonder how something so small can solve a problem so large. -  
 That's a bit **lopsided**  
 Employers could simply ask all of their employees to get vaccinated, return to the office, and **bid adieu to** Zoom's 40-minute **cutoff** forever  
-Despite record-breaking, **around-the-clock** production, the disinfectant still **vanishes** from store shelves in a matter of hours. -   
+Despite record-breaking, **around-the-clock** production, the disinfectant still **vanishes** from store shelves in a matter of hours.  
 
 Musk **went out on the limb** even further, as he had to borrow the money from Goldman Sachs to buy the shares  
 Hedge funds and other professional investors routinely use this information to get an **edge** on their trades.  
 While the media will **trumpet** huge insider buys like Elon Musk's $100 million purchase  
-The SEC **vigorously** pursues such insider trading cases in order to ensure that the capital market is a **level playing field** where no one has an unfair advantage -  
+The SEC **vigorously** pursues such insider trading cases in order to ensure that the capital market is a **level playing field** where no one has an unfair advantage  
 
 **self-paced** online course  
 Biden has cast himself as a moderate with **sensible**  
@@ -22,12 +22,12 @@ Biden believes that American workers can **out-compete** anyone, but their gover
 He does not buy **for one second** that the **vitality** of U.S. manufacturing is **a thing of the past**  
 Salesforce is often cited as the first **entrant** into the software-as-a-service (SaaS) domain  
 **big-box retailer**  
-The oil and gas company that is **domiciled** in France has seen its shares tumble 59% year-to-date, along with the rest of the sector. -  
+The oil and gas company that is **domiciled** in France has seen its shares tumble 59% year-to-date, along with the rest of the sector.  
 The **Lucky Country** is the object of an unusual amount of **bile**  
 market is facing one of the best **backdrops** for sustained gains in years  
 Their **love affair** was played out against the **backdrop** of war.  
 Another way of looking at it is through the **prism** of the equity risk premium — the return that investing in the stock market provides over a risk-free rate like government bonds.  
-Defensive vs **Enterprising** - 
+Defensive vs **Enterprising**  
 **enterprising spirit**   
 Some **enterprising** girls organized a sponsored walk.  
 
@@ -81,7 +81,7 @@ they plan to **excavate** a large hole
 **manicurist**  
 your heart will **throb** with the **bass**  
 It's the **rhyme** that made it popular  
-Canada's **Gazette**, Boston **Gazette** -  
+Canada's **Gazette**, Boston **Gazette**  
 I gave up my job because I felt I was stuck **in a rut**.   
 The farm carts have worn **ruts** in the lane  
 **baseboard**  
@@ -134,7 +134,7 @@ Literally. Because people living near parks or gardens seem to have a **leg up**
 Perhaps it’s not you. Habits, by definition, are what is **habitual**. What you’re used to doing  
 So in order to change your routine, you have to create new habits that are just as **ingrained** as the old ones  
 
-That's **tantalizingly** close to its all-time high of nearly $20,000 set during the crypto **frenzy** of December 2017 -  
+That's **tantalizingly** close to its all-time high of nearly $20,000 set during the crypto **frenzy** of December 2017  
 Whereas in late 2017 you couldn't go two Morning Brew newsletters without seeing a bitcoin headline, the conversation this time around has been **tamer**.  
 Study participants who didn’t replace their toothbrushes on the 40th day of use experienced considerably more **plaque** **buildup**  
 
@@ -232,7 +232,7 @@ Zoom's ability to **put up** triple-digit revenue growth and then accelerate its
 Expectations for cloud stocks are too **darn** high.  
 I know it's **weak sauce** to just say, "Well, 2020," but to me, there is a much bigger thing going on, and Tim hit on it, kind of  
 Traders may as well be throwing **darts** at a board with no **bullseye**  
-So we end up looking for clues to the story for Fastly and others in **exogenous** data — like election returns -  
+So we end up looking for clues to the story for Fastly and others in **exogenous** data — like election returns  
 The **intimidation** game
 The **humbling** of Jack Ma wasn’t a **one-off**. Xi Jinping is determined to assert the party’s authority over China’s **glittering** tech industry
 Sony continues to be the hardware leader for **die-hard** gamers  

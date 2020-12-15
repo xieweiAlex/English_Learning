@@ -237,7 +237,7 @@ export **restitution**
 ostrich hides its head in the sand **in time of** danger  
    
 According to Cook, there are certain **in-demand** skills that students may not learn in college — **namely**, coding.  
-But every day only a hundred or so enter each first-class lounge. Instead of the overpriced fast-food on offer in the public **concourse** -  
+But every day only a hundred or so enter each first-class lounge. Instead of the overpriced fast-food on offer in the public **concourse**  
 In their duty-free sections no **knock-off** cigarettes or **booze** are **in sight**  
    
    
@@ -291,7 +291,7 @@ The Trump administration has **barred** MUthana, 24, and her son from returning 
    
 Bayshore **boulevard**(blvd)  
    
-This is basically where you are **infatuated** with who you are dating, and you can’t get enough of them --  
+This is basically where you are **infatuated** with who you are dating, and you can’t get enough of them  
 You kind of **overlook** any flaws and see them through rose-colored glasses  
    
 Yes, that’s right: Facebook. Cryptocurrency. Earthquake! Revolution! The world is **tilting** on its **axis**! The end times are **cometh**  

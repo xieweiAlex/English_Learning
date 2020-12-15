@@ -55,7 +55,7 @@ If you censor **genitals**, it's not considered **indecent** any more.
 There are **orgs** that check every porn to make sure that censorship is **adequate**.   
 If you look at East Asia, many places are pretty similar because they tend to be pretty **homogeneous**.  
   
-One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions --  
+One of the requirements was to have more than 85% of code coverage to ensure code quality. The result was **perverse**: development team wrote tests without assertions  
   
 He might be their **unwitting** **stooge**.  
 Same **cadences**, same **delivery**. Maybe it's Obama.  
@@ -93,7 +93,7 @@ A **whiff** of perfume
 However, **stool** eating, also known as **coprophagy**, is actually quite normal behavior for a puppy  
 The mother usually stops eating her puppies' **feces** around the time that they have begun eating solid food and can leave the **den** to **defecate**  
 you will need to consult a **veterinarian**  
-The **bog** is home to rare **mosses**. -  
+The **bog** is home to rare **mosses**.  
 A **bog** of legal complications.  
 She often buys clothes on **impluse**.  
 But my **impluse** was still right.  
@@ -130,26 +130,26 @@ He was easily **dissuaded** from going.
 He took up the **cause** with **evangelical** fervor.  
 **open-hearted** **goodwill**  
 **secularism**  
-A **bastion** of **male chauvinism**. -  
+A **bastion** of **male chauvinism**.  
 A free press is one of the **bastions** of a democracy.  
 **dissipate** one's energy.  
 To **err** is human.  
-**Securities** that are **denominated** in dollars or yen. -  
+**Securities** that are **denominated** in dollars or yen.  
 Teaching is a **worthwhile** **calling**.  
 Official **referee**  
    
    
 **pathological** adoration  
 I wish I could do it more **readily**.  
-It's something, just from a character point, and also comedically that you can really **latch onto**. -  
+It's something, just from a character point, and also comedically that you can really **latch onto**.  
 Besides, this guy sounds like a **jackass**.  
 It's us being **full-blown** **timewasting** jackass.  
 You get downtime between set ups, and you have some time, we all sit around and **goof off**  
 I play lots of **solitaire**.  
-What a **dweebazoid**. -  
+What a **dweebazoid**.  
 Essentially it's an **amalgamation** of myself.  
 **LAN party**  
-I was eating in the lobby of the hotel right before a **premiere** -  
+I was eating in the lobby of the hotel right before a **premiere**  
 **mahatma gandhi**.  
 The second question was **impenetrable**.  
 **impromptu**  
@@ -160,7 +160,7 @@ that's a pretty **deep cut**.
 **moderation**  
 **Moderation** in all things is my **motto**.  
    
-I can't stand listening to this **demented** **ignorant** old liar anymore.  Please bring the adults back into the room. -  
+I can't stand listening to this **demented** **ignorant** old liar anymore.  Please bring the adults back into the room.  
 Oh, no, thanks. I'm **on a diet**.  
    
 John **bungled** the job.  
@@ -291,7 +291,7 @@ He is **famed** for his **eccentricities**.
 She **flouted** the **proprieties**. -  
 a remote **outpost** of civilization  
    
-Who would argue that some of this history is of course has been **lopsided**. -  
+Who would argue that some of this history is of course has been **lopsided**.  
    
 Imagining a new **culinary** possibility  
 the relaxed **ambience** of the cocktail lounge is popular with guests.  

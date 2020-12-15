@@ -1,6 +1,32 @@
 
+## E 11 
+Has he been **bad-mouthing** about me?  
+Garret would never **go along** with something like this, even if he **hates my guts**.  
+I think he'd take it as an **affront**, like I'm trying to get rid of him.  
+**Tying up loose ends**?  
+He is **torn** .  
+
 ## E 10 
+I made a **judgement call** that we could pass the bill without her help.  
 The two **renegades** who voted against the bill. -  
+they will soon **indelibly** learn.  
+You came here, came to my office and **berate** me. -  
+That gives The White House **too much time to** **vet** somebody.  
+Maybe he was just **blowing off steam**.  
+Am I **intruding**?  
+You don't have to **tiptoe**.  
+When we started lobbying for the **meatpacking** industry.  
+**brain food**  
+we can do this **off the books**  
+I think he's **glorified** **gofer**  
+a friend **set me up** with him  
+> I hate being kept in the dark. Waiting, speculating. 
+
+That's the last of it. - Better **make it count**, then.  
+You're **slurring** your words.  
+I'm asking you a question, and it may **come across**, as **indelicate**, but are you drunk right now?  
+Ruben was just **ecstatic**  
+
 
 ## E 9 
 **talking points**  
@@ -26,14 +52,14 @@ we **have been very clear about** what we're asking.
 let them **toss and turn** tonight.  
 It's **antagonizing** oil and gas  
 I just wanted to thank you for agreeing to **pitch in**, I know you have a **full plate**.  
-But I figured If I could meet the **provost** **face to face** ... -  
+But I figured If I could meet the **provost** **face to face** ...  
 I've called every member in the white house to **cobble** together a number, but no one's getting back to me.  
 there is a lot **in flux**, and **it'll be tight**.  
 You're **hijacking** our microphone  
 I left the governor's mansion right **in my prime**  
 I thought that was a **step up**.  
 I don't have a fucking **shred** of real influence  
-I'm **trotted around** like a goddamn **mascot**, and this is my **home state**. -  
+I'm **trotted around** like a goddamn **mascot**, and this is my **home state**.  
 You're **expecting**.  
 **doctors without borders**  
 But I've never considered this **any more or less than** a transaction between two **consenting** adults.  
