@@ -6,7 +6,7 @@ These **piecemeal** solutions won't work
 
 The Quest 2 has launched to a ‘mostly’ **rapturous** **fanfare** of positivity -  
 **Deliverance**, when it arrives, will come in a small glass **vial**  
-As the nurse drops the used **syringe** into the bin with a **clatter**, it will be hard not to wonder how something so small can solve a problem so large. -  
+As the nurse drops the used **syringe** into the bin with a **clatter**, it will be hard not to wonder how something so small can solve a problem so large.  
 That's a bit **lopsided**  
 Employers could simply ask all of their employees to get vaccinated, return to the office, and **bid adieu to** Zoom's 40-minute **cutoff** forever  
 Despite record-breaking, **around-the-clock** production, the disinfectant still **vanishes** from store shelves in a matter of hours.  
@@ -95,7 +95,7 @@ I'm in **mourning** for my former life
 the world is **mourning** my loss 
 you bring nothing but pain and **sorrow**  
 I had the **plea** in my hand 
-**polyglot** usage -  
+**polyglot** usage  
 no hardware **affinity**  
 
 Pollution can **aggravate** **asthma**  
@@ -116,7 +116,7 @@ not only did it provide zero value to the customer, it also **robbed** the custo
 The **advent** of the internet – of online shopping – meant that an online retailer had **infinite** shelf space  
 Amazon would never be able to match Walmart’s **hard-won** skills in fighting on the customer’s behalf for better prices  
 It engineered **intricate** systems, aligned incentives, and built a culture of thinking small to **stamp out** inefficiencies wherever it could find them  
-Amazon had to find a way of **abdicating** responsibility for solving these problems altogether; with Marketplace, Amazon had begun to grasp at a solution that would do exactly that -  
+Amazon had to find a way of **abdicating** responsibility for solving these problems altogether; with Marketplace, Amazon had begun to grasp at a solution that would do exactly that  
 And so, **circa** 2002, we start to see the emergence of a pattern  
 The **canonical** example here is the DMV  
 its customers cannot go elsewhere for service, and the DMV does not experience the pain of interacting with itself, and so the DMV will **perpetually** remain in **stasis** **at best**  

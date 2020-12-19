@@ -1,54 +1,3 @@
-
-I always said he would **wind up** in prison  
-Right **on cue**, software giant Oracle said yesterday it was moving its HQ from Redwood City, CA, to Austin, TX.  
-
-in season 1, she and Bojack **fall out**, because she insists on telling the truth.  
-I gotta take the **high road**, go on the news and **rat those suckers out**.  
-we can do this **off the books**  
-Let's not waste each other's time and **cut right to the chase**.  
-desperate attempts to **stave off** civil war 
-Jim is a proud man, **tap into** that pride.  
-All those **perky**, **well-adjusted** people you see in movies and TV shows? -  
-I am just trying to **get through** each day.  
-I will not going to **spill more beans**.  
-Doesn't **ring the bell**, hasn't met this guy.  
-I'm **on the clock**, you want to chat, you need to buy me a private dance in the **Blowhole** Room.  
-**you betcha**  
-**Keep it down**, buddy.  
-
-Leaving you and a bunch of other Fools **in the lurch**  
-**beat around the bush**   
-thanks for the **run down** of the portfolio 
-This study imo **sheds much more light on** the process of trading than any other studies out there  
-
-**Biting the bullet** now gives you a chance essentially to lock in that current rate  
-You get downtime between set ups, and you have some time, we all sit around and **goof off** -  
-Lemonade has a **first-mover** advantage, but it can't **coast on** that head start for long  
-This is **uncharted** political territory, likely with hidden benefits. The U.S. stock markets recognized that, **straight away**.  
-
-## Week 1 
-
-she's determined to **ferret out** the truth  
-wat are you **fed up** on ?  
-
-In contrast, for those working multiple jobs to **make ends meet**, we've seen only a 40% **bounce-back**  
-I think it's **over the hump**  
-I thought that was a **step up**.  
-there is a lot **in flux**, and **it'll be tight**.  
-I just wanted to thank you for agreeing to **pitch in**, I know you have a **full plate**.  
-I think you don't want to go **hat in hand** to somebody who **used to** work for you.  
-Jim is a proud man, **tap into** that pride.  
-That wouldn't **make for** a very good story  
-Good to see you. - **You too**.  
-Small business, that's the solution, everything else is **window dressing**.  
-I think she is a little **down in the dumps**  
-you're telling me that none of them have **come on to** you?  
-But when you recreate it at home, even with what you’d think are the same ingredients, it **falls flat**  
-there is a real **stick-in-the-mud** dean there who doesn't like my **in-your-face** style  
-
-That was underscored by the PMI Manufacturing report which came in at 56.7, which was **in line with** views, but nicely above last month's showing of 53.4.  
-They're going to **lay into** me **big time**.  
-
 ## Week 3 & Week 4 
 
 The old **vinaigrette** formula is **out the window**  
@@ -65,7 +14,7 @@ I'm not trying to **throw a wrench** in the works.
 You're just afraid I'm gonna **stand you up** again.  
 If I can **get under his skin** in less than an hour, how do you think he'll **hold up** under the press?  
 I gave up my job because I felt I was stuck **in a rut**.   
-She took a **dim view** of my suggestion -  
+She took a **dim view** of my suggestion   
 I’m not **going out on a limb** to advocate significant patience  
 Literally. Because people living near parks or gardens seem to have a **leg up**.  
 it just means they're able to **shrug off** their failures and move on  

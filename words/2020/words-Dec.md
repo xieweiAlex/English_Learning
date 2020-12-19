@@ -1,10 +1,110 @@
-vilify  
+
+The market never fails to test investor patience, and I think we should expect a sharp pullback in the first half of 2021 to weed-out some of this newfound enthusiasm and optimism  
+There’s an old Wall Street adage that investors should “buy the rumor and sell the news.”  
+I think it is good to mentally prepare for a correction, so you can avoid any knee-jerk reactions when it arrives.  
 
 
+Her tone can be bombastic, breathless and laden with pathos, just as it was on the city streets.  
 
 
+Part of this is due to a seasonal slowdown in hiring, but it is being severely compounded by more business closures as COVID-19 cases continue to top record highs.  
+Without admitting or denying wrongdoing, Robinhood agreed to a cease-and-desist order that prohibits it from violating antifraud provisions as well as requires it to pay the hefty fine  
+
+His comments cast a **slur** on the **integrity** of his employees -  
+
+**Testosterone**-driven **windbags**, **boasting** about your big guns  
+
+The company needs to **pep up** its image.  
+Movie **critics** **extolled** the young performer's acting -  
+You can also say that you passed with **flying colors**  
+Optimism over vaccines and stimulus continue to **underpin** the market.  
+  
+Making it increasingly difficult for everyday investors like us to get in on the **ground floor** of what could be the most exciting and innovative new businesses of our time.  
+The opportunities are **tantalizing**, **to say the least**.  
+
+The announcement by Pomp (Anthony Pompliano) yesterday that BlockFi was introducing a 6% annual interest rate **raised a few eyebrows**  
+There is nothing wrong with that, of course – he has **put** his company’s **money where its mouth is**, **so to speak**.  
+Pomp as well has been a great **evangelical** ambassador for spreading knowledge about Bitcoin  
+They are not in the same **mould** of a typical cryptocurrency scam. This is a legitimate business  
+
+
+U.S. Public Transportation is facing a "**Make or break**" moment  
+The attack has cybersecurity professionals **rattled**. -  
+
+**pound for pound**, Taiwan s the most important place in the world.  
+
+You may experience **hives** or develop a **rash** near the site of a bite  
+An infected bite will turn red, warm, and it may release **pus**  
+A hunt through your dog’s fur with a flea comb will reveal these tiny **critters**  
+Fleas prefer **tall grass** and shaded areas near decks, **woodpiles**, or storage buildings  
+
+They’re about 3mm long with a flat body. And are a **reddish-brown** in colour  
+left/right **atrium**  
+Returning to the house, the girls cross the **atrium**  
+**phantom** limb  
+deception **jammer**  
+Vocational **smock**  
+She wore a pink **nylon** **smock** similar to a nurse's uniform.  
+**Calendula** Extract  
+The golden star of **tinsel** was still on the top of the Tree, and **glittered** in the sunshine.  
+Did you ever see a **lassie**?  
+The army is one of the main **props** of the government.  
+I worried about **props** and costumes  
+The whole housing market is **propped up** on these bad loans  
+She's a **whizz** at crosswords  
+glass **beaker**  
+Why did you **draw up** this **addendum**?  
+He's a **gemini**, and his favorite color is blue.  
+
+I always said he would **wind up** in prison  
+Coding interviews can be **contrived**, and it can be confusing how much effort you should expend applying best practices, especially when there are significant time constraints -  
+**differently abled**  
+
+Right **on cue**, software giant Oracle said yesterday it was moving its HQ from Redwood City, CA, to Austin, TX.  
+We've got you covered, **literally and figuratively**  
+But one **cantankerous** group of investors got crushed: short sellers. -   
+
+**contemporary design**  
+**high-minded**  
+**high horse**  
+a state of **paralysis**  
+in season 1, she and Bojack **fall out**, because she insists on telling the truth.  
+Brutal honesty is the source of the series' humor, its **pathos**. -  
+
+I don't know how long my crying **jag** lasted  
+Laughing again, she was seized by a sudden coughing **jag**  
+He is **infatuated** with her, and doesn't see her faults  
+Are you sure it’s the real thing , not just **infatuation**  
+
+As we keep destroying our own **habitat** in the **eternal quest** for economic growth, the number of diseases caused by pollution continues to rise  
+Persistent **underperformance** by active managers is **spurring** the growth of passive index funds and ETFs  
+
+One **knotty** ethical question for the Eleanor Shellstrops out there: The committee debated whether participants in the vaccine trial who had unknowingly been taking a **placebo** should be “**unblinded**,” or told it was a placebo and given an actual vaccine.   
+**Unblinding** would **hamstring** the research process...but it would also get people vaccinated.   
+with the federal government not providing clear vaccine guidance, it’s up to the states to decide who gets **jabbed** first.   
+
+**suction** cup   
+**earpiece**  
+The **frescoes** in these churches are magnificent -  
+He was the world's longest serving **monarch**  
+**headrest** cover  
+You were her most faithful **ally**  
+she is my **namesake** but we're not related.  
+I heard a lot of **chink**, **gook**.  
+**rotunda**  
+**regatta**  
+Stop messing around, you silly **twit**! -  
+**Tattletale**! I'll make you pay for **snitching** on me! -   
+**dangler**  
+**smock**
+
+We would **sit out** and look at the stars and the mountains  
+Another quarter, another **blowout** report.  
+A **pullout** of mortgage lenders from the most at risk markets, resulting in a situation where no insurance policies are issued which effectively denies new premiums into the fund  
+
+Everyone knows that it's the woman who gets **vilified** in these scenarios.  
 This won't be a **standoff** or a **dogfall**.  
-never **squander** a good red day. -  
+never **squander** a good red day.  
 The Supreme Court rejected a **last-ditch** Republican request to block Joe Biden's win in Pennsylvania, in a one-sentence order with **no dissent**. 
 Leaving you and a bunch of other Fools **in the lurch**  
 From cushion to **canopy**, AirPods Max are designed for an **uncompromising** fit that creates the optimal acoustic seal for many different head shapes -  
@@ -83,7 +183,7 @@ A round or **oval** **dormer** window.
 **Cirque** **du Soleil**  
 **hemp**  
 **Ursa** Major, **Ursa** Minor  
-I do hope he gets a **cataract** operation. -  
+I do hope he gets a **cataract** operation.  
 The way is blocked by the tall **cataract**  
 She plays the **cello** in an orchestra  
 That was underscored by the PMI Manufacturing report which came in at 56.7, which was **in line with** views, but nicely above last month's showing of 53.4.  
@@ -104,18 +204,18 @@ On stage she seems hard, **brash** and **uncompromising**
 Violent, **lively** and **brash**, **taverns** were everywhere in early **colonial** America   
 There is a red **seesaw** in the park. -  
 Your salad is a **seesaw**  
-Being in the same place at the same time leads to the mythical water cooler conversations which in turn can cause **fortuitous** discoveries and are difficult to replicate at a distance -  
+Being in the same place at the same time leads to the mythical water cooler conversations which in turn can cause **fortuitous** discoveries and are difficult to replicate at a distance  
 
 Google plans a New **Corridor** for internet traffic  
 **whip up** racist sentiments  
 it has a way of tasting a little more special than the ones you **whip up** at home  
-There’s something about the **crunch**, the zip of the dressing, and the full flavor that **permeates** every bite -  
+There’s something about the **crunch**, the zip of the dressing, and the full flavor that **permeates** every bite  
 But when you recreate it at home, even with what you’d think are the same ingredients, it **falls flat**  
 It helps make salads taste even better and makes them more **satiating**  
 Start adding a little at a time; you can always add more, but a salad can go from great to **overdressed** quickly, so **take heed**  
 a liberal **sprinkling**—and a good massage—renders tough greens like kale, **collards**, and cabbage **silky-soft** yet still **spunky**   
 (she's very beautiful. And she's **spunky**.)
-Think beyond the **crouton** -  
+Think beyond the **crouton**  
 The old **vinaigrette** formula is **out the window**  
 The **culinary** school mantra of 3 parts fat to 1 part **acid** has been retired. Chefs prefer the **livelier**, **zingier** ratio of 2 parts fat to 1 part acid (and some extra flavor). -  
 
@@ -136,7 +236,7 @@ There’s no **stipulation** as to the amount you can invest.
 The **sacramental** seal is **inviolable**. I will not betray it.  
 She was cited in the divorce **proceedings**  
 a **bale** of straw  
-We placed a large **boulder** **on that ledge**. -  
+We placed a large **boulder** **on that ledge**.  
 rubber **stopper**  
 **fixer**  
 **enclosure** movement   

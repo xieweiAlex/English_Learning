@@ -1,18 +1,45 @@
+## E 9 
+
+It's already an **overused** **trope** now, in 2007.  
+can you be **wistful** a little quieter?  
+**bygones**  
+Luis Guzman said I'm too **portly** for TV? -  
+Is there a single woman you've worked with who you haven't tried to **groggily** thrust yourself into?  
+Is there **any wonder** I don't want to be around you?  
+Please, you're such a self-pitying **masochist**  
+I'm good at driving **sober**, but I don't **relish** the opportunity.  
+
+
+## E 8 
+Rutabaga, do you think we have the **spunk** and **moxie**? -  
+I've been telling people I didn't need the **trappings of fame**.  
+that's an **untapped market**  
+He is probably just **razzing** ya, but he's a good dog.  
+It's a **coming-of-age** story about a girl who likes **Jellybeans**.  
+The movie I want to make isn't **glamorous** or sexy.  
+Put that **raggedy**-ass bitch on, I'm gonna **bat** her around like a **ball of foil**.  
+Gonna **tie this up** tonight if it's going to happen.  
+You're **overplaying** your hand, PC, and I'm calling your **bluff**.  
+Why is my house full of sexy **orcas**?  
+That **fell apart**, too.  
+If things don't **perk up** the first quarter, we might be looking at **broader** layoffs.  
+
+I've been **tied up** with my studies
 
 ## E 7 
 He is pretty **steamed**  
 We do have an **infestation**, of Todds, look at that, they're getting bigger.  
-Did the head help to **ameliorate** your pest **peccadillo**?  
+Did the head help to **ameliorate** your pest **peccadillo**? -  
 Do you often **keep people at arm's length**?  
-So you don't feel any guilt about your **tryst** with Emily? -  
-I knew I had to **lay low**. Go off the grid, disappear.  
+So you don't feel any guilt about your **tryst** with Emily?  
+I knew I had to **lay low**. **Go off the grid**, disappear.  
 
 ## E 6 
-A **streetwise** but **soulful** teen needed somehwere to live as he waited for his Juliliard audition.  
+A **streetwise** but **soulful** teen needed somewhere to live as he waited for his Juliliard **audition**.  
 that **takes me back**.  
 Just pick out something extra soft for my **tushy**.  
 It has nothing to do with whether you're a good **publicist** or not.  
-Obviously, we'll **pre-tape** it.  
+Obviously, we'll **pre-tape** it. -  
 I'm **making things all about me**? I'm the one who's having an abortion.  
 I gotta take the **high road**, go on the news and **rat those suckers out**.  
 Is somebody standing in my **windpipe**?  
@@ -43,7 +70,7 @@ Doesn't **ring the bell**, hasn't met this guy.
 
 I will not going to **spill more beans**.  
 I am just trying to **get through** each day.  
-All those **perky**, **well-adjusted** people you see in movies and TV shows? -  
+All those **perky**, **well-adjusted** people you see in movies and TV shows?  
 because to you my face is a symbol for the **opiate** of show business  
 this going to be a really **caper** -  
 I turned my home into a **halfway** house for troubled addicts.  

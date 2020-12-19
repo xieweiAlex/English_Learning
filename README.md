@@ -8,28 +8,31 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 | Monthly Word  |  A  | [current-month](./words/2020/words-Dec.md)   |
 | Monthly Word **Review**   |  I  |  [words-review](./words-review.md)       |
 | Monthly **Phrase** |  J  | [special-phrase][phrase-Nov]
-| Monthly **Special Words** |  K  | [special-words](./special/special-words-Nov.md)
-| Monthly **Verb Words** |  V  | [special-Verb][special-Verb]       |
+| Monthly **Special Words** |  K  | [special-words](./special/special-words-Dec.md)
+| Monthly **Verb Words** |  V  | [special-Verb][Verb-Dec]       |
 | **Movie** Record |  L | [movie-record](./media/movie.md)       |
 
 ### Special Review
-|  Special      |   A       |  B   	| C   |   D   |
-| ------------- |---------  | ------- | --|  ---- | 
-|    Special words |  [words-Aug][Special-Aug] | [words-Sep][Special-Sep] | [words-Oct][Special-Oct] | [words-Nov][Special-Nov] |
-| Special Verb | [special-Verb][special-Verb]
-|  Phrase    |    [phrase-Oct](./special/phrase-Oct.md) | [phrase-Nov][phrase-Nov]|  
+|  Special      |   A       |  B   	| C   |   D   | E | 
+| ------------- |---------  | ------- | --|  ---- | --- | 
+| Special words |  [words-Aug][Special-Aug] | [words-Sep][Special-Sep] | [words-Oct][Special-Oct] | [words-Nov][Special-Nov] |
+| Special Verb | [verb-Nov][verb-Dec] | [verb-Dec][verb-Dec] 
+| Phrase    |  [phrase-Oct](./special/phrase-Oct.md) | [phrase-Nov][phrase-Nov]| [phrase-Dec][phrase-Dec]
 | Question | [questions](./words-question.md) | 
 
 <!-- General Review -->
-[phrase-Nov]: special/phrase-Nov.md
-[phrase-Oct]: special/phrase-Oct.md
-[special-Verb]: ./special/verb-special.md
+[phrase-Dec]: ./special/phrase-Dec.md
+[phrase-Nov]: ./special/phrase-Nov.md
+[phrase-Oct]: ./special/phrase-Oct.md
+[Verb-Nov]: special/verb-special-Nov.md
+[Verb-Dec]: special/verb-special-Dec.md
 
 <!-- Special Review --> 
 [Special-Aug]: ./special/special-words-Aug.md 
 [Special-Sep]: ./special/special-words-Sep.md 
 [Special-Oct]: ./special/special-words-Oct.md
 [Special-Nov]: ./special/special-words-Nov.md
+[Special-Dec]: ./special/special-words-Nov.md
 
 
 ### TV Show 

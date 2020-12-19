@@ -165,7 +165,7 @@ Oh, no, thanks. I'm **on a diet**.
    
 John **bungled** the job.  
 I got it cheap. It was a **foreclosure**.  
-a **solitary** **retreat**. -  
+a **solitary** **retreat**.  
 There was a **solitary** sheep in the field.  
    
 The village **straddles** the frontier  
@@ -175,7 +175,7 @@ He runs his own little crime **syndicate**.
 The stairs **creaked** as she went up them. -  
 a **shadowy** path through the woods.  
 A challenge of the **ethos** of the 1960s.  
-My household duties were not **particularly** **onerous**. -  
+My household duties were not **particularly** **onerous**.  
 He's full of **pep** in the morning. -  
 the move was a **snub** to the government. -  
 The **patriarch** of the **herd**.  
@@ -186,15 +186,15 @@ This is a blatantly **implausible** claim. -
 **Confound** right and wrong. -  
 The Chief **Constable** came along in **civvies**. -  
 The pond **teemed** with **tadpoles**.  
-There are signs of **rapprochement** between George and his son. -  
+There are signs of **rapprochement** between George and his son.  
 **Splurge** millions on the wedding. -  
-**imposition** of surcharge. -  
+**imposition** of surcharge.  
 They **threatened** to **baton** him to death.  
 A **shroud** of **mist**  
 Apply a **plaster** on a wound.  
 **plaster** bandages. **plaster** walls.  
    
-There are other contexts in which smaller numbers have **run afoul of** laws or regulations, or drawn the attention of authorities. -  
+There are other contexts in which smaller numbers have **run afoul of** laws or regulations, or drawn the attention of authorities.  
    
 schoolchildren **wreaking havoc** in the classroom. -  
 **salvation** from alcoholism -  
@@ -223,7 +223,7 @@ What they really mean is, don't get **demoralized**
 **self-deception**  
    
 > Don't forget to consider that you may regret whatever you do - by human nature, the grass is **proverbially** always greener on the other side  
-It is **proverbially** easier to destroy than to construct. -  
+It is **proverbially** easier to destroy than to construct.  
 
    
 on the short history of this group, this is the longest sub-side-topic conversation, **whilst** being super friendly  
@@ -244,7 +244,7 @@ The result — what you do today — is more or less **happenstance**.
    
 ## Week 1  
 Three hardy **perennials**: intellectual property protection, force technology transfer.  
-**perennial grasses**. -  
+**perennial grasses**.  
 **come to naught**  
    
 **Swarm** across the **Volga river**  
@@ -254,7 +254,7 @@ Too tall to **surmount** too thick to penetrate these **hedgerows** provide perf
 **POW**: prisoner of war  
 **crest** of the mountain. -  
 The bloodiest battle in the pacific was **Okinawa**  
-6 million **Jewish** people were killed in the **holocaust**. -  
+6 million **Jewish** people were killed in the **holocaust**.  
 **torpedo**  
    
 A **dollop** of whiskey  
@@ -284,7 +284,7 @@ I **covet** one of their **bubblejet** printers. -
 The boys **coveted** John's new hat. -  
 The **growl** of a dog.  
 He **growled** out an answer.  
-Orders to **rev up** factory output. -  
+Orders to **rev up** factory output.  
 She **bequeathed** everything to her son.  
 In his will he made a substantial **bequest** to his wife  
 He is **famed** for his **eccentricities**.  

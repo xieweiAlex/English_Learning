@@ -4,13 +4,13 @@ Has he been **bad-mouthing** about me?
 Garret would never **go along** with something like this, even if he **hates my guts**.  
 I think he'd take it as an **affront**, like I'm trying to get rid of him.  
 **Tying up loose ends**?  
-He is **torn** .  
+He is **torn**.  
 
 ## E 10 
 I made a **judgement call** that we could pass the bill without her help.  
-The two **renegades** who voted against the bill. -  
+The two **renegades** who voted against the bill.  
 they will soon **indelibly** learn.  
-You came here, came to my office and **berate** me. -  
+You came here, came to my office and **berate** me.  
 That gives The White House **too much time to** **vet** somebody.  
 Maybe he was just **blowing off steam**.  
 Am I **intruding**?  
@@ -23,8 +23,8 @@ a friend **set me up** with him
 > I hate being kept in the dark. Waiting, speculating. 
 
 That's the last of it. - Better **make it count**, then.  
-You're **slurring** your words.  
-I'm asking you a question, and it may **come across**, as **indelicate**, but are you drunk right now?  
+You're **slurring** your words. -  
+I'm asking you a question, and it may **come across, as** **indelicate**, but are you drunk right now?  
 Ruben was just **ecstatic**  
 
 
@@ -36,7 +36,7 @@ they **stonewalled** me
 they say dad is **crackhead**  
 you're telling me that none of them have **come on to** you?  
 Did Zoe expect me to **twiddle my thumbs** until her arrival?  
-**Proximity** to power **deludes** some into believing they **wield** it. -  
+**Proximity** to power **deludes** some into believing they **wield** it.  
 I think she is a little **down in the dumps**  
 she **wouldn't tell me**  
 My **hands are tied**  

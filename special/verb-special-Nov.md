@@ -1,18 +1,4 @@
 
-**spur**
-
-**jab**
-
-**cobble**
-
-**catapult**  
-
-**coerce** 
-
-**grapple**  
-
-**sprinkle**  
-
 ## Nov 
 
 **canvass**  

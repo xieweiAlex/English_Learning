@@ -1,18 +1,4 @@
 
-**perky**
-
-**infatuated**  
-
-**groggy**  
-
-**pristine**
-
-**uncompromising**  
-
-**frenzy**
-
-**feverishly**, **ferociously**  
-
 ### Week 4 
 
 **holdout**  
@@ -66,8 +52,6 @@
 **canonical**
 
 **pervasive**  
-
-**meticulous**
 
 **glittering**  
 

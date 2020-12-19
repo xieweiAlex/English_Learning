@@ -1,6 +1,6 @@
 
 ## E 11 
-Come see the movie, we'll **schmooze**, we'll **kibitz**... -  
+Come see the movie, we'll **schmooze**, we'll **kibitz**...  
 Honestly, you'll probably be **better off** without me.  
 you really are the master of **spontaneous** **witticisms**.  
 you look **doughy**, do you run? **Cardio**? Anything?  
