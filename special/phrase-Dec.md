@@ -1,3 +1,5 @@
+The market never fails to test investor patience, and I think we should expect a sharp pullback in the first half of 2021 to **weed-out** some of this newfound enthusiasm and optimism  
+**beat around the bush**   
 
 
 U.S. Public Transportation is facing a "**Make or break**" moment  

@@ -1,12 +1,25 @@
+## HOC1.md ## 
+media/houseOfCards/HOC1.md
+You're **slurring** your words. -  
 
 ## bojack3.md ## 
 media/bojack-horseman/bojack3.md
+Luis Guzman said I'm too **portly** for TV? -  
+Rutabaga, do you think we have the **spunk** and **moxie**? -  
+Did the head help to **ameliorate** your pest **peccadillo**? -  
+Obviously, we'll **pre-tape** it. -  
 they **jizz** their pants for that shit. -  
 I didn't know you were such a **klepto**. I can buy you a new phone. -  
 this going to be a really **caper** -  
 
 ## words-Dec.md ## 
 words/2020/words-Dec.md
+Square is about to turn into a mega banking **goliath**. -  
+There’s an old Wall Street **adage** that investors should “buy the rumor and sell the news.” -  
+Her tone can be **bombastic**, **breathless** and **laden** with **pathos**, just as it was on the city streets. -  
+Without admitting or denying **wrongdoing**, Robinhood agreed to a **cease-and-desist** order that prohibits it from violating **antifraud** **provisions** as well as requires it to pay the **hefty** fine -  
+His comments cast a **slur** on the **integrity** of his employees -  
+Movie **critics** **extolled** the young performer's acting -  
 Coding interviews can be **contrived**, and it can be confusing how much effort you should expend applying best practices, especially when there are significant time constraints -  
 But one **cantankerous** group of investors got crushed: short sellers. -   
 Brutal honesty is the source of the series' humor, its **pathos**. -  
@@ -16,10 +29,7 @@ Stop messing around, you silly **twit**! -
 From cushion to **canopy**, AirPods Max are designed for an **uncompromising** fit that creates the optimal acoustic seal for many different head shapes -  
 What I did for you was free, **gratis**, you understand? -  
 They were a bit of a **mixed bag**, despite the **jubilant** reaction from investors. -  
-This is a **rhetorical device** known as **ellipsis** -  
 while a majority of the financial media has focused **intently** on the 41% **annualized** gains from FAANG stocks -  
-He was **abrasive**. He was **brash** He thought he knew everything -  
-There is a red **seesaw** in the park. -  
 The **culinary** school mantra of 3 parts fat to 1 part **acid** has been retired. Chefs prefer the **livelier**, **zingier** ratio of 2 parts fat to 1 part acid (and some extra flavor). -  
 
 ## words-Nov.md ## 
@@ -31,29 +41,19 @@ A good coder might feel **flabbergasted** by such **occurrences** -
 They do not **ruminate** on it because they know that quite often it is natural for a coder to find themselves in this position -  
 If you try to patch this **thingamajig** and that thingamabob that was introduced by the implementation of some TODO, you end up in situations like this -  
 
-## words-March.md ## 
-words/2019/words-March.md
-When we first wake up in the morning, our brains are too **groggy** to make sound decisions. -  
-rebuke: an act or expression of criticism and **censure**. -  
-
 ## words-Feb.md ## 
 words/2019/words-Feb.md
 What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing. -   
-For many years my wife had been **extolling** the virtues of spending time outside    
-Through all the adventures and **tribulation** we've had -  
 He **thrashed** the boy with a stick -  
 
 ## words-Jan.md ## 
 words/2019/words-Jan.md
-be **persecuted** by the **reactionary** government    
 the **stodgy** **three-storey** building -  
 Some of Milland's more **remunerative** work came from employers who posted hundreds or thousands of tasks at a time that could be completed in rapid succession --  
 **Reprieve** a condemned prisoner. -  
 **straddle** on the tariff issue. -  
 The **syndicate** appears to be organized like a typical corporation, with descending levels of power. -  
 The stairs **creaked** as she went up them. -  
-He's full of **pep** in the morning.   
-the move was a **snub** to the government. -  
 This is a blatantly **implausible** claim. -  
 **undemanding** **clerical** jobs. -  
 **Confound** right and wrong. -  
@@ -70,13 +70,11 @@ The reporter described it as **sombre**. That means dark and serious. -
 The fever was a **sombre** **presage** of his final illness. --  
 **articles of confederation**. -  
 Being **grouchy**. -  
-I **covet** one of their **bubblejet** printers.   
 The boys **coveted** John's new hat. -  
 She **flouted** the **proprieties**. -  
 Apple Inc. reported falling iPhone sales, highlighting the need to deliver **blockbuster** new features in the next edition of the flagship device if the company is to **fend off** rivals like Samsung Electronics Co. -  
 try and pay with cash for lunch, and you’ll look like a **luddite**. -  
 And to be sure, an iPhone is still **status-conferring**: Apple is **by no means** **doomed**, and it’s possible if not probable that those China numbers will turn positive this fall. -  
 Amazon partnered with JPMorgan Chase and **Berkshire Hathaway** to create a new, still nameless company **ostensibly** designed to improve healthcare and cut costs. In August, CNBC reported that Amazon plans to open **primary care** clinics at its headquarters in Seattle. -  
-**homosexual** acts are a crime and can lead to **incarceration**.   
 **plunder** all the valuable things. -  
-While Taiwan is self-governed and **de-facto** independent, Beijing considers the island to be a **breakaway** province -  
+Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people". -  

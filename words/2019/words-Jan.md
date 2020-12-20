@@ -13,7 +13,7 @@ Angle of **incidence**
   
 ## Week 3  
 **persecute** sb. with questions  
-be **persecuted** by the **reactionary** government -   
+be **persecuted** by the **reactionary** government  
 The five countries formed a regional trade **bloc**.  
 The **restless** sea.  
 The government has done nothing to **ease** restrictions and manufacturers are growing **restive**.    
@@ -176,8 +176,8 @@ The stairs **creaked** as she went up them. -
 a **shadowy** path through the woods.  
 A challenge of the **ethos** of the 1960s.  
 My household duties were not **particularly** **onerous**.  
-He's full of **pep** in the morning. -  
-the move was a **snub** to the government. -  
+He's full of **pep** in the morning.  
+the move was a **snub** to the government.  
 The **patriarch** of the **herd**.  
 **herd behavior**  
 An **implausible** explanation.  
@@ -280,7 +280,7 @@ A **therapeutic** silence
 a wild **sequestered** spot.  
 Being **grouchy**. -  
 **sequester** from the thief.  
-I **covet** one of their **bubblejet** printers. -  
+I **covet** one of their **bubblejet** printers.  
 The boys **coveted** John's new hat. -  
 The **growl** of a dog.  
 He **growled** out an answer.  
@@ -340,7 +340,7 @@ The **mistress** of her own mind
 the police struggled to **garner** sufficient evidence  
 the **minor irritations** of life.  
 He was proposed for the job of **treasurer**.  
-**homosexual** acts are a crime and can lead to **incarceration**. -  
+**homosexual** acts are a crime and can lead to **incarceration**.  
 racial **segregation**  
 the **segregation** of sick animals  
 the community is the last **outpost** of civilization in the far north  
@@ -349,7 +349,7 @@ The invaders **plunder** at no allowance.
    
    
    
-While Taiwan is self-governed and **de-facto** independent, Beijing considers the island to be a **breakaway** province -  
+While Taiwan is self-governed and **de-facto** independent, Beijing considers the island to be a **breakaway** province  
 The Chinese president said both sides were part of the same Chinese family and that Taiwanese independence was "an **adverse current** from history and a dead end".  
 Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people". -  
 Taiwan remains **defiant** of Beijing's sovereignty claims  
@@ -366,8 +366,4 @@ The shell has to be slightly **porous** to enable oxygen to pass in.
 A **magnificent** palace  
 **Airborne pollen**  
 **airborne troops**  
-   
-   
-   
-   
    

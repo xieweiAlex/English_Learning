@@ -85,7 +85,7 @@ This invention is **ascribed** to Edison.
 
 **White crane** 
 
-For many years my wife had been **extolling** the virtues of spending time outside -   
+For many years my wife had been **extolling** the virtues of spending time outside  
 perhaps I've just been walking in “simple enough” environments—that I haven’t **tripped** even when I’m not consciously paying attention  
 But if video is on, seeing people who are not paying attention just seems to **viscerally** kill the mood of almost any meeting  
 my headset is wired, **albeit** with a long wire that lets me roam around my office  
@@ -163,7 +163,7 @@ It's little **unnerving experience** to sit in a abortion **ward** next to the d
 **clutching** their now empty wombs **white in the face**.  
 It's getting difficult to **justify** living there.    
 It's a shame to **pigeonhole** ourselves there 
-Through all the adventures and **tribulation** we've had -  
+Through all the adventures and **tribulation** we've had  
 he moved to China years ago before Winnie the Pooh took over and tried bringing back the **suffocating** Soviet-like presence of the CCP into major cities
 **totalitarian government**
 it isn't that China is ruled by a government that **harshly** punished **dissenting** opinions and nearly destroys free speech  

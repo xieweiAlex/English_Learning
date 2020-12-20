@@ -1,4 +1,12 @@
 
+
+
+## Week 1,2,3
+
+**lucrative**
+
+**plagued**
+
 **ecstatic**
 
 **tantalizing**

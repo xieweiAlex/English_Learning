@@ -172,7 +172,7 @@ We need a **yardstick** for health
 Given two strings s and t, determine if they are **isomorphic**  
 Instead you're going to sit up all night long **tossing** and turning because your brain isn't ready to release the proper **neurotransmitters**.  
 You brain won't be **caught off guard** making it much easier for you.  
-When we first wake up in the morning, our brains are too **groggy** to make sound decisions. -  
+When we first wake up in the morning, our brains are too **groggy** to make sound decisions.  
   
 I took six weeks off just to kind of **decompress** between jobs.  
   
@@ -227,7 +227,7 @@ They had **assembled** at his **behest**
 **scoop** with a small **shovel**  
 I don't want that Swedish team **scooping** us.  
 Bedside **lamp**  
-rebuke: an act or expression of criticism and **censure**. -  
+rebuke: an act or expression of criticism and **censure**.  
 Praise in public, **censure** in private, right?  
    
 Whose **catchphrase** is literally "you're fired!", didn't have the balls or the **decency** to tell Tillerson the news to his face.  

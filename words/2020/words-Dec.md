@@ -1,14 +1,20 @@
 
-The market never fails to test investor patience, and I think we should expect a sharp pullback in the first half of 2021 to weed-out some of this newfound enthusiasm and optimism  
-There’s an old Wall Street adage that investors should “buy the rumor and sell the news.”  
-I think it is good to mentally prepare for a correction, so you can avoid any knee-jerk reactions when it arrives.  
+Square is about to turn into a mega banking **goliath**. -  
+this **tentacle** approach to taking every aspect that they touch into their business  
+> the best form of flattery is imitation  
 
+someone's **brainchild**  
+a little **crooked** s-curve  
+**concussion** 
+> Praise in public, **censure** in private, right?  
 
-Her tone can be bombastic, breathless and laden with pathos, just as it was on the city streets.  
+The market never fails to test investor patience, and I think we should expect a sharp pullback in the first half of 2021 to **weed-out** some of this newfound enthusiasm and optimism  
+There’s an old Wall Street **adage** that investors should “buy the rumor and sell the news.” -  
+I think it is good to mentally prepare for a **correction**, so you can avoid any **knee-jerk** reactions when it arrives.  
 
-
-Part of this is due to a seasonal slowdown in hiring, but it is being severely compounded by more business closures as COVID-19 cases continue to top record highs.  
-Without admitting or denying wrongdoing, Robinhood agreed to a cease-and-desist order that prohibits it from violating antifraud provisions as well as requires it to pay the hefty fine  
+Her tone can be **bombastic**, **breathless** and **laden** with **pathos**, just as it was on the city streets. -  
+Part of this is due to a seasonal slowdown in hiring, but it is being severely **compounded** by more business closures as COVID-19 cases continue to top record highs.  
+Without admitting or denying **wrongdoing**, Robinhood agreed to a **cease-and-desist** order that prohibits it from violating **antifraud** **provisions** as well as requires it to pay the **hefty** fine -  
 
 His comments cast a **slur** on the **integrity** of his employees -  
 
@@ -26,10 +32,8 @@ The announcement by Pomp (Anthony Pompliano) yesterday that BlockFi was introduc
 There is nothing wrong with that, of course – he has **put** his company’s **money where its mouth is**, **so to speak**.  
 Pomp as well has been a great **evangelical** ambassador for spreading knowledge about Bitcoin  
 They are not in the same **mould** of a typical cryptocurrency scam. This is a legitimate business  
-
-
 U.S. Public Transportation is facing a "**Make or break**" moment  
-The attack has cybersecurity professionals **rattled**. -  
+The attack has cybersecurity professionals **rattled**.  
 
 **pound for pound**, Taiwan s the most important place in the world.  
 
@@ -119,6 +123,8 @@ no **formality** here
 A **mole** has **burrowed** a hole in the sand  
 **short-circuit**  
 depths will never hold more than three elements, so we can **write that off** as O(1).  
+
+
 ## Week 1 
 
 the best thing to do was to **stay the course** and wait for other opportunities  
@@ -158,7 +164,7 @@ I'll tell you what happened **afterward**
 
 He was **smitten** by deep remorse  
 They were totally **smitten** with each other  
-This is a **rhetorical device** known as **ellipsis** -  
+This is a **rhetorical device** known as **ellipsis**  
 For people with one job, we've **recouped** two-thirds of **recessionary** job losses. In contrast, for those working multiple jobs to **make ends meet**, we've seen only a 40% **bounce-back**, and their ranks have **thinned** since summer.  
 while a majority of the financial media has focused **intently** on the 41% **annualized** gains from FAANG stocks -  
 wat are you **fed up** on?  
@@ -199,10 +205,10 @@ A lot of developers **revere** Apple.
 
 American **Thoroughbred** **racehorse** that, in 1973, became the first U.S. Triple Crown winner in twenty-five years  
 His nose and mouth are grey and he has a white **blaze** on his **snout** that stops at the top of his nose  
-He was **abrasive**. He was **brash** He thought he knew everything -  
+He was **abrasive**. He was **brash** He thought he knew everything  
 On stage she seems hard, **brash** and **uncompromising**  
 Violent, **lively** and **brash**, **taverns** were everywhere in early **colonial** America   
-There is a red **seesaw** in the park. -  
+There is a red **seesaw** in the park.  
 Your salad is a **seesaw**  
 Being in the same place at the same time leads to the mythical water cooler conversations which in turn can cause **fortuitous** discoveries and are difficult to replicate at a distance  
 
