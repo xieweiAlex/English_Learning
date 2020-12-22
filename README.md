@@ -7,7 +7,7 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 | ------------- |-------------  | ------- |
 | Monthly Word  |  A  | [current-month](./words/2020/words-Dec.md)   |
 | Monthly Word **Review**   |  I  |  [words-review](./words-review.md)       |
-| Monthly **Phrase** |  J  | [special-phrase][phrase-Nov]
+| Monthly **Phrase** |  J  | [special-phrase][phrase-Dec]
 | Monthly **Special Words** |  K  | [special-words](./special/special-words-Dec.md)
 | Monthly **Verb Words** |  V  | [special-Verb][Verb-Dec]       |
 | **Movie** Record |  L | [movie-record](./media/movie.md)       |
