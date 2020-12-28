@@ -23,7 +23,7 @@ a friend **set me up** with him
 > I hate being kept in the dark. Waiting, speculating. 
 
 That's the last of it. - Better **make it count**, then.  
-You're **slurring** your words. -  
+You're **slurring** your words.  
 I'm asking you a question, and it may **come across, as** **indelicate**, but are you drunk right now?  
 Ruben was just **ecstatic**  
 

@@ -162,7 +162,7 @@ A **spitball** hit the **principal** on his nose
 The ducklings **plumped** into the water  
 He was a **plump**, **placid** boy  
 She **plumped up** the pillow  
-**roly-poly**: being short and **pudgy** - **rotund** -  
+**roly-poly**: being short and **pudgy** - **rotund**  
 
 Others have claimed that the lack of insoluble fiber in Soylent has significantly reduced the frequency of their **bowel** movements  
 U.S. election vote counts suggest that this U.S. election had the largest voter **turnout** in over 100 years, at 67%. That’s truly **laudable** voter engagement. (**commendable**)  
@@ -208,7 +208,7 @@ Now the great coder is well aware that old code will contain bugs **precisely** 
 Which **more often than not** it will be of the abstract art type. The great coder **makes peace with** the “it is what it is” truism  
 > “Good judgment comes from experience, and experience comes from bad judgment.”  
 
-If you try to patch this **thingamajig** and that thingamabob that was introduced by the implementation of some TODO, you end up in situations like this -  
+If you try to patch this **thingamajig** and that thingamabob that was introduced by the implementation of some TODO, you end up in situations like this  
 Miscommunication, misunderstandings and even **antipathy** may run **rampant** completely **disrupting** and **hindering** everything  
 keep that **asinine** opinion to yourself  
 (I'm sorry. I'm just so **frazzled** today)

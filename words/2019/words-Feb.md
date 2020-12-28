@@ -14,7 +14,7 @@ an administration official explained that the **gambit** was designed to avoid t
 be under the **oversight** of.  
 
 Google—the search engine company that everyone grew to love at the time—announced that they’re entering the **ring**. Chrome was born.  
-What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing. -   
+What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing.  
 While the Chrome browser itself is not open-source, most of its **innards** are. Chromium, the non-proprietary subset of Chrome, was open-sourced early on with a generously **permissive license** as a sign of commitment to the open Web community.  
 
 he personally **overheard** Trump and Stone discussing Assange's plans in July 2016.  
@@ -256,7 +256,7 @@ a **wretched** life
 **frantic** with worry  
 **leapfrog**  
 **vindicate** one's claim  
-He **thrashed** the boy with a stick -  
+He **thrashed** the boy with a stick  
 the batterfield was a scene of utter **carnage**.   
 Let me know when the **carnage** begins so i can **shield** my eyes  
 it is designed to **favor** readability and flexibility for the programmer performance.   

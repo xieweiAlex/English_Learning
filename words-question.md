@@ -1,4 +1,5 @@
 
+* undulations, fluctuation
 * faze, frazzle
 * vacillate, oscillate
 * I always wanted 

@@ -169,7 +169,7 @@ a **solitary** **retreat**.
 There was a **solitary** sheep in the field.  
    
 The village **straddles** the frontier  
-**straddle** on the tariff issue. -  
+**straddle** on the tariff issue.  
 The **syndicate** appears to be organized like a typical corporation, with descending levels of power. -  
 He runs his own little crime **syndicate**.  
 The stairs **creaked** as she went up them. -  
@@ -181,9 +181,9 @@ the move was a **snub** to the government.
 The **patriarch** of the **herd**.  
 **herd behavior**  
 An **implausible** explanation.  
-This is a blatantly **implausible** claim. -  
-**undemanding** **clerical** jobs. -  
-**Confound** right and wrong. -  
+This is a blatantly **implausible** claim.  
+**undemanding** **clerical** jobs.  
+**Confound** right and wrong.  
 The Chief **Constable** came along in **civvies**. -  
 The pond **teemed** with **tadpoles**.  
 There are signs of **rapprochement** between George and his son.  
@@ -207,7 +207,7 @@ No. You're **barking up** the wrong tree
 **Bento** club  
 Facebook is the new **crapware**  
    
-Everyone experiences at least some degree of **cognitive** and **motor** decline over time, and some 8.8 percent of Americans over 65 now have **dementia**. -  
+Everyone experiences at least some degree of **cognitive** and **motor** decline over time, and some 8.8 percent of Americans over 65 now have **dementia**.  
 **hallucinating**  
 Build results are cached “in the cloud”. This includes **intermediate** results  
 The fact that the code author chooses their reviewers helps avoid such problems, allowing engineers to avoid reviewers that might be **overly possessive** about their code  
@@ -307,7 +307,7 @@ A new **hegemon**
    
 Did you hear about the new Microsoft Surface Laptop? The usual suspects are claiming it’s a MacBook competitor, which is true **insomuch as** it is a laptop  
 This has always been the foundation of Apple’s business model: hardware differentiated by software such that said hardware can be sold with a **margin** much greater than nominal competitors running a **commodity** operating system.  
-Apple Inc. reported falling iPhone sales, highlighting the need to deliver **blockbuster** new features in the next edition of the flagship device if the company is to **fend off** rivals like Samsung Electronics Co. -  
+Apple Inc. reported falling iPhone sales, highlighting the need to deliver **blockbuster** new features in the next edition of the flagship device if the company is to **fend off** rivals like Samsung Electronics Co.  
 **counterbalanced** by the iPad’s continued **slippage**  
 Is [the iPhone] **out-of-reach** for the vast majority of consumers?  
 Saying stupid things like “the iPhone 5C is equivalent to the average monthly salary in China” **belies** a fundamental misunderstanding of China, its **inequality**, and its sheer size specifically, and all of Asia broadly.  
@@ -327,7 +327,7 @@ None of that **lock-in** exists in China
    
 Four years later, it launched AWS IoT, a platform for connecting and managing the **plethora** of connected devices known as the Internet of Things.  
 Sqrrl, a cybersecurity startup that was **spun out** of the NSA  
-Amazon partnered with JPMorgan Chase and **Berkshire Hathaway** to create a new, still nameless company **ostensibly** designed to improve healthcare and cut costs. In August, CNBC reported that Amazon plans to open **primary care** clinics at its headquarters in Seattle. -  
+Amazon partnered with JPMorgan Chase and **Berkshire Hathaway** to create a new, still nameless company **ostensibly** designed to improve healthcare and cut costs. In August, CNBC reported that Amazon plans to open **primary care** clinics at its headquarters in Seattle.  
    
    
 **Confound** fiction and fact.   

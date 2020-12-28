@@ -1,6 +1,75 @@
 
+## Week 4 
+
+Sales have been **dropping off** badly.  
+starting out with a **blank slate**  
+
+which look a lot like the in-ear headphones made for older devices, except they don’t have **unsightly** cables running from them -  
+He had **crept up** on his **unsuspecting** victim from behind  
+A common **reflex** in an economic crisis is to build-up cash reserves. The Covid-19 pandemic was no exception for many American households.  
+
+we recommend the Purple Double Seat Cushion because it offers two levels of firmness, stays cool, and holds its shape all day **thanks to** its unique **gel-lattice** construction -  
+A **solstice** is an **astronomical** event that occurs twice each year (in June and December) as the Sun reaches its highest or lowest **excursion** relative to the **celestial** **equator** on the **celestial sphere**  
+
+There is a **mound** of papers on my desk  
+the drilling troops **mustered** on the hill -  
+a long and **winding** road.  
+> The mind needs books like a sword needs a **whetstone** 
+
+No **minerals** have yet been exploited in **Antarctica**.  
+The thieves hid their **plunder** in the cave.  
+
+you **sass** me like a toddler  
+The Internet company stock took a **nosedive**.  
+Short-sellers got caught **flat-footed**, and even the most **ardent** **naysayers** have essentially given up on betting against the stock. -  
+The bullish sentiment that is **swarming** the worldwide equity markets is also **blatantly** evident in the options market as well  
+Others see the stock as overvalued, Musk's reputation as **overblown**, and the company as facing plenty of challenges in order to reach its full potential  
+This year was all **twists and turns**, joy and pain and Folly  
+
+She practices economy without being **stingy**  
+On this day in 1913, President Woodrow Wilson signed into law the Federal Reserve Act, authorizing the creation of the Federal Reserve System to monitor the nation’s banks and **modulate** the money supply.  
+But the **axiom** is proving itself correct yet again as the percentage of stocks in the S&P 500 that were considered "**overbought**" has been more than cut in half since **peaking** in mid-November  
+Charles had been described as a gentle and **even-tempered** man.  
+How Apple, Google, and other browser makers are quietly **duking it out** over the future of the web  
+Durov said he has personally **bankrolled** the seven-year-old business so far  
+
+so they have not endured the same amount of scrutiny as traditional custodians like Charles Schwab, Fidelity, TD Ameritrade, **to name a few**  
+Many of these traditional custodians now offer commission-free trades, if that’s what **you’re after**  
+One of the downsides of using ECNs is that they have access fees and commission charges that can **jack up** the overall price of use.  
+Many regard the Russell 2000 as an important **bellwether** of the American economy because it measures the performance of smaller, **domestically** focused businesses -  
+The Silicon Valley **colossus** reportedly plans to implement innovative new battery tech to maximize range and minimize cost.   
+He tweeted yesterday that when the Model 3 was **floundering**, he approached Apple CEO Tim Cook about an acquisition at about 10% of Tesla’s current price. Cook “refused to take the meeting,” Musk said -  
+We don’t know yet whether President Trump will **derail** the bill. 
+**Aides** told the WSJ this statement was more Trump celebrating **Festivus** one day early by **airing** his **grievances**, rather than a legitimate threat to block the stimulus package  
+**Foot traffic** fell 39% annually at U.S. retail stores on "Super Saturday," aka the Saturday before Christmas.  
+
+It’s not just doctors and nurses on the front lines of the pandemic: Hospital housekeeping staff **toil alongside** them. Now, they’re getting vaccinated.  
+The "420 = Weed" argument is a **sideshow**  
+If your vehicle was stolen, you should complete the Lost, Stolen or **Mutilated** License Plate **Affidavit** and bring this and any police report to a DMV office -  
+I could be **flat out** wrong, but ... 
+
+I'll say this **up front**: It's all a bit mysterious, which should always make investors **wary**  
+President Donald Trump on Tuesday issued **a flurry of** pardons and **commutations** to a **slew** of **controversial** figures with **ties to** his administration  
+Division between two integers should **truncate** toward zero. -
+Miguel, thanks for **dropping by** unexpectedly  
+
+There is nothing like a 400-point **swing** in the stock market in one day to focus the mind, but it doesn't beat a **planetary** **conjunction** occurring on the same day as the winter **solstice**. We are living in **spacey** times. -  
+Financial stocks also joined the party as real interest rates **crept** higher, which is good for the **banking** business  
+That put a serious **schism** in the 15-year relationship between the two companies, in addition to a massive dent in Intel's stock price and future growth -  
+I made him **hold off** for another forty-five minutes.  
+
+Her fellow teachers greeted her proposal with **scorn** -  
+He **made no attempt** to conceal his **smirk**.  
+He replied with **haughty** **disdain**. -  
+Bipartisan lawmakers **rebuked** President Trump for **downplaying** the breach. VOX
+For one, it’s absolutely **humongous**. With a market capitalization of $659 billion, Tesla will be the largest company to ever enter the S&P 500  
+It also **dwarfs** other car stocks. Tesla’s market value is 18x Ford’s and 10x GM’s.  
+Because of Tesla’s size, the value of those daily **undulations** can sometimes surpass the entire market capitalization of automakers such as BMW or Fiat Chrysler -  
+
+## Week 3
+
 Square is about to turn into a mega banking **goliath**. -  
-this **tentacle** approach to taking every aspect that they touch into their business  
+this **tentacle** approach to taking every aspect that they touch into their business -  
 > the best form of flattery is imitation  
 
 someone's **brainchild**  
@@ -14,17 +83,15 @@ I think it is good to mentally prepare for a **correction**, so you can avoid an
 
 Her tone can be **bombastic**, **breathless** and **laden** with **pathos**, just as it was on the city streets. -  
 Part of this is due to a seasonal slowdown in hiring, but it is being severely **compounded** by more business closures as COVID-19 cases continue to top record highs.  
-Without admitting or denying **wrongdoing**, Robinhood agreed to a **cease-and-desist** order that prohibits it from violating **antifraud** **provisions** as well as requires it to pay the **hefty** fine -  
+Without admitting or denying **wrongdoing**, Robinhood agreed to a **cease-and-desist** order that prohibits it from violating **antifraud** **provisions** as well as requires it to pay the **hefty** fine  
 
-His comments cast a **slur** on the **integrity** of his employees -  
-
+His comments cast a **slur** on the **integrity** of his employees  
 **Testosterone**-driven **windbags**, **boasting** about your big guns  
-
 The company needs to **pep up** its image.  
-Movie **critics** **extolled** the young performer's acting -  
+Movie **critics** **extolled** the young performer's acting  
 You can also say that you passed with **flying colors**  
 Optimism over vaccines and stimulus continue to **underpin** the market.  
-  
+
 Making it increasingly difficult for everyday investors like us to get in on the **ground floor** of what could be the most exciting and innovative new businesses of our time.  
 The opportunities are **tantalizing**, **to say the least**.  
 
@@ -61,7 +128,7 @@ Why did you **draw up** this **addendum**?
 He's a **gemini**, and his favorite color is blue.  
 
 I always said he would **wind up** in prison  
-Coding interviews can be **contrived**, and it can be confusing how much effort you should expend applying best practices, especially when there are significant time constraints -  
+Coding interviews can be **contrived**, and it can be confusing how much effort you should expend applying best practices, especially when there are significant time constraints  
 **differently abled**  
 
 Right **on cue**, software giant Oracle said yesterday it was moving its HQ from Redwood City, CA, to Austin, TX.  
@@ -73,7 +140,7 @@ But one **cantankerous** group of investors got crushed: short sellers. -
 **high horse**  
 a state of **paralysis**  
 in season 1, she and Bojack **fall out**, because she insists on telling the truth.  
-Brutal honesty is the source of the series' humor, its **pathos**. -  
+Brutal honesty is the source of the series' humor, its **pathos**.  
 
 I don't know how long my crying **jag** lasted  
 Laughing again, she was seized by a sudden coughing **jag**  
@@ -89,7 +156,7 @@ with the federal government not providing clear vaccine guidance, it’s up to t
 
 **suction** cup   
 **earpiece**  
-The **frescoes** in these churches are magnificent -  
+The **frescoes** in these churches are magnificent  
 He was the world's longest serving **monarch**  
 **headrest** cover  
 You were her most faithful **ally**  
@@ -97,8 +164,8 @@ she is my **namesake** but we're not related.
 I heard a lot of **chink**, **gook**.  
 **rotunda**  
 **regatta**  
-Stop messing around, you silly **twit**! -  
-**Tattletale**! I'll make you pay for **snitching** on me! -   
+Stop messing around, you silly **twit**!  
+**Tattletale**! I'll make you pay for **snitching** on me!  
 **dangler**  
 **smock**
 
@@ -132,7 +199,7 @@ Nobody likes losing money, but at least the IRS gives you a bit of a break as a 
 **Biting the bullet** now gives you a chance essentially to lock in that current rate  
 The **scaling down** of Libra’s vision comes as it has received a **sceptical** reception from global regulators, who have warned that it could threaten monetary stability and become a **hotbed** for money laundering
 
-What I did for you was free, **gratis**, you understand? -  
+What I did for you was free, **gratis**, you understand?  
 How a Kyoto **mochi** shop survived 1,020 years’ worth of crises  
 
 Wow! So, what's the **allure** of motorcycles  
@@ -148,7 +215,7 @@ President-elect Joe Biden called it a “**grim** jobs report. It shows an econo
 So, like any **astute** economic **observers**, we expected stocks to fall and Treasury prices to rise  
 They're betting that news of a slowing economic recovery will give Congress an even bigger **kick in the bum** to strike a deal on a coronavirus stimulus package.   
 Democratic leadership supports a bipartisan $908 billion package, which would be attached to a larger **omnibus** spending bill to **avert** a government shutdown after Dec. 11.  
-They were a bit of a **mixed bag**, despite the **jubilant** reaction from investors. -  
+They were a bit of a **mixed bag**, despite the **jubilant** reaction from investors.  
 AMC stock fell 16% and Cinemark's 22% following the news, **capping off** a devastating nine-month streak for theater chains.  
 
 The shift to remote **catapulted** the industry, **inflating** valuations and putting potential **buyouts** **out of reach**.   
@@ -239,7 +306,7 @@ He spoke with **menace** in his voice.
 **witticism**  
 **Giraffes** are eating leaves on trees.  
 There’s no **stipulation** as to the amount you can invest.  
-The **sacramental** seal is **inviolable**. I will not betray it.  
+The **sacramental** seal is **inviolable**. I will not betray it. -   
 She was cited in the divorce **proceedings**  
 a **bale** of straw  
 We placed a large **boulder** **on that ledge**.  

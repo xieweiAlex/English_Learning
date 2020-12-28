@@ -1,4 +1,10 @@
 
+**thrash**
+
+**underpin**  
+
+**truncate**
+
 **exert**
 
 **boasting**  

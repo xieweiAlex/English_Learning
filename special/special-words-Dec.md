@@ -1,5 +1,22 @@
 
 
+**leapfrog**
+
+**clemency**
+
+**contrived**
+
+**naysayer**
+
+**sadist**, **masochist** 
+
+**winding**
+
+**stingy**
+
+**formidable**
+
+**poetic**
 
 ## Week 1,2,3
 

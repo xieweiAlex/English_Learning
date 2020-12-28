@@ -1,3 +1,16 @@
+Sales have been **dropping off** badly.  
+He **made no attempt** to conceal his **smirk**.  
+Many of these traditional custodians now offer commission-free trades, if that’s what **you’re after**  
+How Apple, Google, and other browser makers are quietly **duking it out** over the future of the web  
+This year was all **twists and turns**, joy and pain and Folly  
+Short-sellers got caught **flat-footed**, and even the most **ardent** **naysayers** have essentially given up on betting against the stock. -  
+the best thing to do was to **stay the course** and wait for other opportunities  
+I could be **flat out** wrong, but ... 
+The company needs to **pep up** its image.  
+I made him **hold off** for another forty-five minutes.  
+The people who **glom onto** you, because of who they think you are, and think they can sleep on your couch and eat your food. -  
+That movie star has really **taken a shine to** our boy.  
+booing is generally **frowned upon** here.  
 The market never fails to test investor patience, and I think we should expect a sharp pullback in the first half of 2021 to **weed-out** some of this newfound enthusiasm and optimism  
 **beat around the bush**   
 
@@ -11,7 +24,6 @@ I knew I had to **lay low**. **Go off the grid**, disappear.
 The company needs to **pep up** its image.  
 You can also say that you passed with **flying colors**  
 I've been **tied up** with my studies
-
 although he is a **long shot**, Castro could be a real **contender**.   
 
 ## Week 2
@@ -34,7 +46,6 @@ I'm **on the clock**, you want to chat, you need to buy me a private dance in th
 **Keep it down**, buddy.  
 
 Leaving you and a bunch of other Fools **in the lurch**  
-**beat around the bush**   
 thanks for the **run down** of the portfolio 
 This study imo **sheds much more light on** the process of trading than any other studies out there  
 
