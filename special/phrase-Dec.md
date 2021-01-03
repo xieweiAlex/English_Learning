@@ -1,6 +1,17 @@
+**I don't follow**  
+Let's cut the bull shit, **once and for all**, Zoe.  
+No. Didn't give a reason, just wanted to **mull it over**.  
+I think you don't want to go **hat in hand** to somebody who **used to** work for you.  
+Well, I'm just **weighing my options**.  
+Hey, Diane, **What have you been up to**?  
+I can't **make heads or tails of** your email. Were you having problems with your computer?  
+So come on Feifei, **spill the tea**.  
+starting out with a **blank slate**  
+
+## Week 3, 4 
+
 Sales have been **dropping off** badly.  
-He **made no attempt** to conceal his **smirk**.  
-Many of these traditional custodians now offer commission-free trades, if that’s what **you’re after**  
+He **made no attempt** to conceal his **smirk**.  Many of these traditional custodians now offer commission-free trades, if that’s what **you’re after**  
 How Apple, Google, and other browser makers are quietly **duking it out** over the future of the web  
 This year was all **twists and turns**, joy and pain and Folly  
 Short-sellers got caught **flat-footed**, and even the most **ardent** **naysayers** have essentially given up on betting against the stock. -  

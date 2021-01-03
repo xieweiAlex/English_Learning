@@ -1,3 +1,16 @@
+## E 12 
+Should I prepared to press? - If he's **amenable**. -  
+He wants to **tap** Raymond Tusk.  
+He'll **alienate** half the country.  
+he does not want me to **fight him on this**.  
+He seemed **adamant**.  
+No. Didn't give a reason, just wanted to **mull it over**.  
+Let's cut the bull shit, **once and for all**, Zoe.  
+The assumption is you **strong-armed** him into closing the shipyard.  
+**free-for-all**  
+She **blindsided** me, now she knows my eyes are **wide open**. -  
+**hang in there**, Okay?  
+
 
 ## E 11 
 Has he been **bad-mouthing** about me?  
@@ -5,6 +18,13 @@ Garret would never **go along** with something like this, even if he **hates my 
 I think he'd take it as an **affront**, like I'm trying to get rid of him.  
 **Tying up loose ends**?  
 He is **torn**.  
+**I don't follow**  
+I can't be just a **pit stop**, Claire.  
+Just have you guys keep him **out of sight**,  I'll need a **back exit**.  
+It struck me as both desperate and **careless**  
+Then Linda **laid out** all the pros, and they clearly **outweighed** the **cons**. -  
+I hoped he wouldn't think I was **off my rocker**.  
+
 
 ## E 10 
 I made a **judgement call** that we could pass the bill without her help.  

@@ -1,3 +1,13 @@
+
+## E 1  
+I was **hoisted** by my own **petard**, the one petard I thought would never hoist me. -  
+
+## E 12   
+**pasta**  
+Hey, Diane, **What have you been up to**?  
+Well, I'm just **weighing my options**.  
+I think I'm having a **epiphany**.  
+
 ## E 11 
 What do you say we go on an epic **bender**?  
 booing is generally **frowned upon** here.  
@@ -24,12 +34,11 @@ can you be **wistful** a little quieter?
 Luis Guzman said I'm too **portly** for TV?  
 Is there a single woman you've worked with who you haven't tried to **groggily** thrust yourself into?  
 Is there **any wonder** I don't want to be around you?  
-Please, you're such a **self-pitying** **masochist** -  
+Please, you're such a **self-pitying** **masochist**  
 I'm good at driving **sober**, but I don't **relish** the opportunity.  
 
-
 ## E 8 
-Rutabaga, do you think we have the **spunk** and **moxie**? -  
+Rutabaga, do you think we have the **spunk** and **moxie**?  
 I've been telling people I didn't need the **trappings of fame**.  
 that's an **untapped market**  
 He is probably just **razzing** ya, but he's a good dog.  
@@ -64,7 +73,7 @@ A little **queasy**, but **on the whole**, wonderful.
 
 ## E 5 
 I want you to on my side, **soaking up** the **spillover** and **feasting** on my discarded **leftovers**.  
-they **jizz** their pants for that shit. -  
+they **jizz** their pants for that shit.  
 **rehearsal dinner**  
 The famous **Snatch** Batch.  
 Let's not waste each other's time and **cut right to the chase**.  

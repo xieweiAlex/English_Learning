@@ -1,4 +1,10 @@
 
+**covet**
+
+**ruminate**
+
+**creak**
+
 **thrash**
 
 **underpin**  

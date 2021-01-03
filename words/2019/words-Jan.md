@@ -172,7 +172,7 @@ The village **straddles** the frontier
 **straddle** on the tariff issue.  
 The **syndicate** appears to be organized like a typical corporation, with descending levels of power. -  
 He runs his own little crime **syndicate**.  
-The stairs **creaked** as she went up them. -  
+The stairs **creaked** as she went up them.  
 a **shadowy** path through the woods.  
 A challenge of the **ethos** of the 1960s.  
 My household duties were not **particularly** **onerous**.  
@@ -216,7 +216,7 @@ The fact that the code author chooses their reviewers helps avoid such problems,
 The focus is on the problems, and how to avoid them in future, not on the people or **apportioning** blame. -  
    
 > "Marry or do not marry, you will regret it either way. ...Laugh at the stupidities of the world or weep over them, you will regret it either way. ...Trust a girl or do not trust her, you will regret it either way. ...Hang yourself or do not hang yourself, you will regret it either way. ...This, gentlemen, is the **quintessence** of all the wisdom of life.".  Kierkegaard, Either/Or  
-the **quintessence** of evil. -  
+the **quintessence** of evil.  
 Flying a glider is a good metaphor here. Because a glider doesn't have an engine, you can't fly into the wind without losing a lot of altitude. If you let yourself get far downwind of good places to land, your options narrow uncomfortably. As a rule you want to stay upwind. So I propose that as a replacement for "don't give up on your dreams." **Stay upwind**  
 What they really mean is, don't get **demoralized**  
    
@@ -252,7 +252,7 @@ Three hardy **perennials**: intellectual property protection, force technology t
 Too tall to **surmount** too thick to penetrate these **hedgerows** provide perfect cover for the **outnumber** Germans.  
 **Geneva convention**  
 **POW**: prisoner of war  
-**crest** of the mountain. -  
+**crest** of the mountain.  
 The bloodiest battle in the pacific was **Okinawa**  
 6 million **Jewish** people were killed in the **holocaust**.  
 **torpedo**  
@@ -281,14 +281,14 @@ a wild **sequestered** spot.
 Being **grouchy**. -  
 **sequester** from the thief.  
 I **covet** one of their **bubblejet** printers.  
-The boys **coveted** John's new hat. -  
+The boys **coveted** John's new hat.  
 The **growl** of a dog.  
 He **growled** out an answer.  
 Orders to **rev up** factory output.  
 She **bequeathed** everything to her son.  
 In his will he made a substantial **bequest** to his wife  
 He is **famed** for his **eccentricities**.  
-She **flouted** the **proprieties**. -  
+She **flouted** the **proprieties**.  
 a remote **outpost** of civilization  
    
 Who would argue that some of this history is of course has been **lopsided**.  
@@ -344,14 +344,14 @@ He was proposed for the job of **treasurer**.
 racial **segregation**  
 the **segregation** of sick animals  
 the community is the last **outpost** of civilization in the far north  
-**plunder** all the valuable things. -  
+**plunder** all the valuable things.  
 The invaders **plunder** at no allowance.  
    
    
    
 While Taiwan is self-governed and **de-facto** independent, Beijing considers the island to be a **breakaway** province  
 The Chinese president said both sides were part of the same Chinese family and that Taiwanese independence was "an **adverse current** from history and a dead end".  
-Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people". -  
+Instead, unification was "an inevitable requirement for the great **rejuvenation** of the Chinese people".  
 Taiwan remains **defiant** of Beijing's sovereignty claims  
 I would like to call on China to face **squarely** the reality of the existence of the Republic of China on Taiwan  
 In November, Ms Tsai's political party saw a heavy **setback** in regional elections perceived by Beijing as a **blow** to her separatist stance   

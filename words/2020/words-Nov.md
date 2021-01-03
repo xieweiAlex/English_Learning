@@ -4,7 +4,7 @@ A strong **rebound** in spending was **ushered** in from fiscal stimulus and a b
 Arrive at work feeling **frazzled** and **scattered**  
 These **piecemeal** solutions won't work  
 
-The Quest 2 has launched to a ‘mostly’ **rapturous** **fanfare** of positivity -  
+The Quest 2 has launched to a ‘mostly’ **rapturous** **fanfare** of positivity  
 **Deliverance**, when it arrives, will come in a small glass **vial**  
 As the nurse drops the used **syringe** into the bin with a **clatter**, it will be hard not to wonder how something so small can solve a problem so large.  
 That's a bit **lopsided**  
@@ -109,7 +109,7 @@ Brazil’s pink river dolphins have long gotten blamed for all sorts of **heinou
 The grandson of a Nazi who took over a Jewish family’s store **tracked down** the owner’s descendants to apologize. CNN  
 The SEC Modernizes the **Accredited** Investor Definition  
 A solution is a grand bargain, a **resounding** win, a comprehensive resolution expected to withstand the pressures of all unknown future challenges  
-But Amazon is something else entirely, isn’t it? Its **amalgamation** of businesses don’t seem to make sense -  
+But Amazon is something else entirely, isn’t it? Its **amalgamation** of businesses don’t seem to make sense  
 It **defies** **norms** of focus yet it executes faster than seems possible for an entity of its size, **let alone** scope  
 “a wide **assortment** of good quality merchandise” at “the lowest possible prices.”
 not only did it provide zero value to the customer, it also **robbed** the customer of the opportunity to buy something that they did need  
@@ -200,9 +200,9 @@ sit in a comfy chair, relax, and read, this will be on the **longish** side
 the great coder accepts that they are going to be REAAAALLY frustrated with their past **selves**  
 (Eat up your fish and don’t be so **finicky**)
 A great coder has learned that compiling is a **finicky** process especially if you are a member of a team  
-A good coder might feel **flabbergasted** by such **occurrences** -  
+A good coder might feel **flabbergasted** by such **occurrences**  
 The reason is that the great-coder/best-programmer has accepted and made peace with the **truism** that theory and reality do not always agree  
-They do not **ruminate** on it because they know that quite often it is natural for a coder to find themselves in this position -  
+They do not **ruminate** on it because they know that quite often it is natural for a coder to find themselves in this position  
 I agree with it **in principle** but I doubt if it will happen in practice
 Now the great coder is well aware that old code will contain bugs **precisely** because coders in the past did what is **depicted** above  
 Which **more often than not** it will be of the abstract art type. The great coder **makes peace with** the “it is what it is” truism  

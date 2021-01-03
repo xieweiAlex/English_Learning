@@ -1,4 +1,19 @@
 
+**enormous**
+
+**rapturous**
+
+**bellwether**
+
+**silky-soft**  
+
+**blaze**, **blade**  
+
+**niggling**
+
+**heist**
+
+**grievances**
 
 **leapfrog**
 
