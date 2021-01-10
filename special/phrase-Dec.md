@@ -1,7 +1,21 @@
+Skate shoes are purposely designed to handle a lot of stress as well as **wear and tear**  
+We need to take this **portrait** before you and I both **take a powder**.  
+You're the one who **call his bluff**, don't do that.  
+eventually, she'll recognize you, and then you can totally **rip into** her.  
+you didn't feel a **twinge of guilt** when you left your mom in this place.  
+We both agreed it was the best place for my mom to **run out the clock**  
+Tesla was in our **pole position**  
+Trump went **ballistic** after being **tossed off** Twitter  
+It's going to be **nip and tuck** to get past that half a point.  
+
+**don't sweat it**  
+We stole them **fair and square**  
+This is **bound to happen**.  
+We need to take this **portrait** before you and I both **take a powder**.  
+Not only did they **hold up** the best **on the way down**, but they **skyrocketed** on the way up. And you barely would've had to **lift a finger**.  
 **I don't follow**  
 Let's cut the bull shit, **once and for all**, Zoe.  
 No. Didn't give a reason, just wanted to **mull it over**.  
-I think you don't want to go **hat in hand** to somebody who **used to** work for you.  
 Well, I'm just **weighing my options**.  
 Hey, Diane, **What have you been up to**?  
 I can't **make heads or tails of** your email. Were you having problems with your computer?  
@@ -25,9 +39,7 @@ booing is generally **frowned upon** here.
 The market never fails to test investor patience, and I think we should expect a sharp pullback in the first half of 2021 to **weed-out** some of this newfound enthusiasm and optimism  
 **beat around the bush**   
 
-
 U.S. Public Transportation is facing a "**Make or break**" moment  
-I think she is a little **down in the dumps**  
 I'm asking you a question, and it may **come across, as** **indelicate**, but are you drunk right now?  
 Garret would never **go along** with something like this, even if he **hates my guts**.  
 A little **queasy**, but **on the whole**, wonderful.  

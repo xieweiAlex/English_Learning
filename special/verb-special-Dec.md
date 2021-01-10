@@ -1,4 +1,8 @@
 
+**pluck**
+
+### Week 1111
+
 **covet**
 
 **ruminate**

@@ -1,6 +1,4 @@
 
-## E 1  
-I was **hoisted** by my own **petard**, the one petard I thought would never hoist me. -  
 
 ## E 12   
 **pasta**  
@@ -28,7 +26,7 @@ I'll go back to being another **cog** in the giant **Play-Doh** **spaghetti** ma
 
 
 ## E 9 
-It's already an **overused** **trope** now, in 2007. -  
+It's already an **overused** **trope** now, in 2007.  
 can you be **wistful** a little quieter?  
 **bygones**  
 Luis Guzman said I'm too **portly** for TV?  

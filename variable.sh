@@ -3,6 +3,7 @@ export WORDS_REVIEW="words-review.md"
 
 export files=(
   "./media/houseOfCards/HOC1.md"
+  "./media/bojack-horseman/bojack4.md"
   "./media/bojack-horseman/bojack3.md"
   "./media/bojack-horseman/bojack2.md"
   "./media/bojack-horseman/bojack1.md"
@@ -21,6 +22,7 @@ export files=(
   "./media/GOT/GOT3.md"
   "./media/GOT/GOT2.md"
   "./media/GOT/GOT1.md"
+  "./words/2021/words-Jan.md"
   "./words/2020/words-Dec.md"
   "./words/2020/words-Nov.md"
   "./words/2020/words-Oct.md"

@@ -184,7 +184,7 @@ An **implausible** explanation.
 This is a blatantly **implausible** claim.  
 **undemanding** **clerical** jobs.  
 **Confound** right and wrong.  
-The Chief **Constable** came along in **civvies**. -  
+The Chief **Constable** came along in **civvies**.  
 The pond **teemed** with **tadpoles**.  
 There are signs of **rapprochement** between George and his son.  
 **Splurge** millions on the wedding. -  

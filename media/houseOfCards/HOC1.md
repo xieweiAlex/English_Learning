@@ -8,7 +8,7 @@ No. Didn't give a reason, just wanted to **mull it over**.
 Let's cut the bull shit, **once and for all**, Zoe.  
 The assumption is you **strong-armed** him into closing the shipyard.  
 **free-for-all**  
-She **blindsided** me, now she knows my eyes are **wide open**. -  
+She **blindsided** me, now she knows my eyes are **wide open**.  
 **hang in there**, Okay?  
 
 
@@ -22,7 +22,7 @@ He is **torn**.
 I can't be just a **pit stop**, Claire.  
 Just have you guys keep him **out of sight**,  I'll need a **back exit**.  
 It struck me as both desperate and **careless**  
-Then Linda **laid out** all the pros, and they clearly **outweighed** the **cons**. -  
+Then Linda **laid out** all the pros, and they clearly **outweighed** the **cons**.  
 I hoped he wouldn't think I was **off my rocker**.  
 
 

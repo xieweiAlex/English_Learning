@@ -1,37 +1,35 @@
 
+## Week 5
 
 The girls were **dainty** and **feminine** -  
 If you're happy in Apple's **walled garden**, though, the HomePod Mini could be the perfect choice for you  
 It **debuted** alongside a unique new feature where you could **hand-off** music from your phone to the speaker and back with a simple tap  
 they’re exactly the same size and shape, with the same **chic** fabric grille and four-LED display.   
-The heat can be **oppressive** when you live in Arizona. -  
-Sure, temps are at least 100 degrees for a third of the year, but it’s a “**dry heat**.” So go ahead, donate your coats, **stock up** on **sunblock** (not **sunscreen**), and make sure you don’t have leather seats in your car. -  
-Beneath his **brash** exterior, he's still a little boy inside. -  
-He was greeted with **rapturous** applause. -   
+The heat can be **oppressive** when you live in Arizona.  
+Sure, temps are at least 100 degrees for a third of the year, but it’s a “**dry heat**.” So go ahead, donate your coats, **stock up** on **sunblock** (not **sunscreen**), and make sure you don’t have leather seats in your car.  
+Beneath his **brash** exterior, he's still a little boy inside.  
+He was greeted with **rapturous** applause.  
 > What man needs is not a tension-less state, but a striving & struggling for a worthwhile goal  
 
 This **niggling** feelings that if set a goal, then you're just unhappy until you hit it.  
-
 It feels smooth, but slightly **matte**, so it isn't **slippery**.  
 I can't **make heads or tails of** your email. Were you having problems with your computer?  
-
 So come on Feifei, **spill the tea**.  
-Not only did they hold up the best on the way down, but they skyrocketed on the way up. And you barely would've had to **lift a finger**.  
+Not only did they **hold up** the best **on the way down**, but they **skyrocketed** on the way up. And you barely would've had to **lift a finger**.  
 **pyjama**  
 
 No one has **tamed** you, and you have **tamed** no one  
 **lion tamer**  
 He is so **tame** that he agrees with everybody  
-
 U.S. equity markets closed higher on the **penultimate** trading day of the year.  
 The Active/Passage **Divergence** Continues  
 
-Never had she met such **spite** and pettiness.  
-She loves him in **spite** of his faults  
+Never had she met such **spite** and **pettiness**.  
+She loves him **in spite of** his faults  
 He did it just to **spite** her  
 
 Investor psychology is **peculiar**. When markets get **toppy** or **choppy**, many of us are afraid to put more money to work  
-The truth is, markets hitting highs is the clearest sign of an **uptrend** you could possibly ask for, despite the **vertigo** it produces in many of us  
+The truth is, markets hitting highs is the clearest sign of an **uptrend** you could possibly ask for, despite the **vertigo** it produces in many of us -  
 The water emptied with a **gurgle**  
 friendly **ambiance**  
 Rachel was quickly **whisked away** by her **entourage**  
@@ -54,8 +52,8 @@ He had reached a **crossroads** in his career.
 
 Those of you who celebrate Christmas may be celebrating the **Nativity** of Jesus, whose life is a demonstration of the power of one.  
 
-shares of the cruise line companies **bobbed** higher on recovery hopes -   
-It is soaring to record levels as investors lean into stocks, hoping for more **torrid** gains in 2021  
+shares of the cruise line companies **bobbed** higher on recovery hopes  
+It is soaring to record levels as investors lean into stocks, hoping for more **torrid** gains in 2021 -  
 
 TAN, the solar ETF, really started **cooking** when it appeared that Joe Biden would win the U.S. presidential election.  
 The surge in risk-taking indicates that investors were **euphoric** as COVID-19 vaccines **neared**  
@@ -91,7 +89,6 @@ Short-sellers got caught **flat-footed**, and even the most **ardent** **naysaye
 The bullish sentiment that is **swarming** the worldwide equity markets is also **blatantly** evident in the options market as well  
 Others see the stock as overvalued, Musk's reputation as **overblown**, and the company as facing plenty of challenges in order to reach its full potential  
 This year was all **twists and turns**, joy and pain and Folly  
-
 She practices economy without being **stingy**  
 On this day in 1913, President Woodrow Wilson signed into law the Federal Reserve Act, authorizing the creation of the Federal Reserve System to monitor the nation’s banks and **modulate** the money supply.  
 But the **axiom** is proving itself correct yet again as the percentage of stocks in the S&P 500 that were considered "**overbought**" has been more than cut in half since **peaking** in mid-November  
@@ -108,18 +105,16 @@ He tweeted yesterday that when the Model 3 was **floundering**, he approached Ap
 We don’t know yet whether President Trump will **derail** the bill. 
 **Aides** told the WSJ this statement was more Trump celebrating **Festivus** one day early by **airing** his **grievances**, rather than a legitimate threat to block the stimulus package  
 **Foot traffic** fell 39% annually at U.S. retail stores on "Super Saturday," aka the Saturday before Christmas.  
-
 It’s not just doctors and nurses on the front lines of the pandemic: Hospital housekeeping staff **toil alongside** them. Now, they’re getting vaccinated.  
 The "420 = Weed" argument is a **sideshow**  
 If your vehicle was stolen, you should complete the Lost, Stolen or **Mutilated** License Plate **Affidavit** and bring this and any police report to a DMV office  
 I could be **flat out** wrong, but ... 
-
 I'll say this **up front**: It's all a bit mysterious, which should always make investors **wary**  
 President Donald Trump on Tuesday issued **a flurry of** pardons and **commutations** to a **slew** of **controversial** figures with **ties to** his administration  
 Division between two integers should **truncate** toward zero. -
 Miguel, thanks for **dropping by** unexpectedly  
 
-There is nothing like a 400-point **swing** in the stock market in one day to focus the mind, but it doesn't beat a **planetary** **conjunction** occurring on the same day as the winter **solstice**. We are living in **spacey** times.  
+There is nothing like a 400-point **swing** in the stock market in one day to focus the mind, but it doesn't beat a **planetary** **conjunction** occurring on the same day as the winter **solstice**. We are living in **spacey** times. -  
 Financial stocks also joined the party as real interest rates **crept** higher, which is good for the **banking** business  
 That put a serious **schism** in the 15-year relationship between the two companies, in addition to a massive dent in Intel's stock price and future growth  
 I made him **hold off** for another forty-five minutes.  
@@ -135,7 +130,7 @@ Because of Tesla’s size, the value of those daily **undulations** can sometime
 ## Week 3
 
 Square is about to turn into a mega banking **goliath**.  
-this **tentacle** approach to taking every aspect that they touch into their business -  
+this **tentacle** approach to taking every aspect that they touch into their business  
 > the best form of flattery is imitation  
 
 someone's **brainchild**  
@@ -169,7 +164,6 @@ U.S. Public Transportation is facing a "**Make or break**" moment
 The attack has cybersecurity professionals **rattled**.  
 
 **pound for pound**, Taiwan s the most important place in the world.  
-
 You may experience **hives** or develop a **rash** near the site of a bite  
 An infected bite will turn red, warm, and it may release **pus**  
 A hunt through your dog’s fur with a flea comb will reveal these tiny **critters**  
@@ -199,10 +193,10 @@ Coding interviews can be **contrived**, and it can be confusing how much effort 
 
 Right **on cue**, software giant Oracle said yesterday it was moving its HQ from Redwood City, CA, to Austin, TX.  
 We've got you covered, **literally and figuratively**  
-But one **cantankerous** group of investors got crushed: short sellers. -   
+But one **cantankerous** group of investors got crushed: short sellers.  
 
 **contemporary design**  
-**high-minded**  
+The president's hopes for the country were **high-minded**, but too vague.  
 **high horse**  
 a state of **paralysis**  
 in season 1, she and Bojack **fall out**, because she insists on telling the truth.  

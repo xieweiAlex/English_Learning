@@ -1,7 +1,19 @@
 
+**proliferation**  
+
+**gratified**
+
+**stoked**
+
+**systemic** 
+
+**inherently**
+
 **enormous**
 
 **rapturous**
+
+## Week 4, 5
 
 **bellwether**
 

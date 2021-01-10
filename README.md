@@ -1,11 +1,11 @@
 # English_Learning
   
-Expanding vocabulary for a non native-speaker is very tedious and time-consuming, how do you think about it?🤔 I try to record all the **words or phrases** I encounter everyday with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and if it can inspire someone else, that's even better ✊.  
+Expanding vocabulary for a non native-speaker is very tedious and time-consuming, how do you think about it 🤔? I try to record the **words or phrases** I encounter everyday with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and if it can inspire someone else, that's even better 💖.  
 
 ### General Review 
 |  Review 🐗   |    File Marks       |  file   	|
 | ------------- |-------------  | ------- |
-| Monthly Word  |  A  | [current-month](./words/2020/words-Dec.md)   |
+| Monthly Word  |  A  | [current-month](./words/2021/words-Jan.md)   |
 | Monthly Word **Review**   |  I  |  [words-review](./words-review.md)       |
 | Monthly **Phrase** |  J  | [special-phrase][phrase-Dec]
 | Monthly **Special Words** |  K  | [special-words](./special/special-words-Dec.md)
@@ -47,6 +47,7 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 ### Words 
 |  Words | Jan | Feb | Mar | Apr | May | Jun | Jul | Aug | Sep | Oct | Nov | Dec
 | ------------- | --  | --- | --- | --- | --- | --- | --- | --- | --- | --- | --- | --- 
+| 2021 🐂 | [Jan](./words/2021/words-Jan.md) | 
 | 2020 👊 | [Jan](./words/2020/words-Jan.md) | [Feb](./words/2020/words-Feb.md) | [March](./words/2020/words-Mar.md) |  [April](./words/2020/words-April.md) | [May](./words/2020/words-May.md) | [June](./words/2020/words-Jun.md) | [July](./words/2020/words-July.md) | [Aug](./words/2020/words-Aug.md) | [Sep](./words/2020/words-Sep.md) | [Oct](./words/2020/words-Oct.md) | [Nov](./words/2020/words-Nov.md) | [Dec](./words/2020/words-Dec.md)
 | 2019  🏃| [Jan](./words/2019/words-Jan.md) | [Feb](./words/2019/words-Feb.md) | [March](./words/2019/words-March.md) |  [April](./words/2019/words-April.md) | [May](./words/2019/words-May.md) | [June](./words/2019/words-June.md) | [July](./words/2019/words-July.md) |  [August](./words/2019/words-Aug.md) | [Sep](./words/2019/words-Sep.md) | [Oct](./words/2019/words-Oct.md) | [Nov](./words/2019/words-Nov.md) | [Dec](./words/2019/words-Dec.md)
 | 2018 🐱 | [Jan](./words/2018/words-Jan.md) | [Feb](./words/2018/words-Feb.md) | [March](./words/2018/words-Mar.md) | [April](./words/2018/words-Apr.md)  | [May](./words/2018/words-May.md)  | [June](./words/2018/words-Jun.md)  | [July](./words/2018/words-Jul.md)  | [August](./words/2018/words-Aug.md)  | [Sep](./words/2018/words-Sep.md)  | [Oct](./words/2018/words-Oct.md) | [Nov](./words/2018/words-Nov.md)  | [Dec](./words/2018/words-Dec.md)
