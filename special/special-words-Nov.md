@@ -38,6 +38,8 @@
 **sappy** 
 **sapping**
 
+**saggy**, **sagging**
+
 ### Week 3 
 
 **extrapolate**

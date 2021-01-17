@@ -1,4 +1,36 @@
 
+**impeccable**
+
+**conventional**
+
+**torrid**
+
+**rigid**, **rigorous**
+
+**ravenous**
+
+**expediency**
+
+**remunerative**  
+
+**prowess**
+
+**deteriorate**, **decay**
+
+**indelible**
+
+**eligible**
+
+**craved**  
+
+**dysfunctional**
+
+## 2021 Week 1 
+
+**fetish**, **fetishism** 
+
+**precision**
+
 **proliferation**  
 
 **gratified**

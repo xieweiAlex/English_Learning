@@ -15,7 +15,7 @@ If by "**closure**" you mean I **lit** her **ottoman** on fire, then yes.
 so we decided to do a **stakeout** -  
 at night, she is a **high end** **call girl**, and by day, she's an international **superspy**.    
 It's a **rarefied breed**, man, Congratulations!  
-The people who **glom onto** you, because of who they think you are, and think they can sleep on your couch and eat your food. -  
+The people who **glom onto** you, because of who they think you are, and think they can sleep on your couch and eat your food.  
 **planetarium**  
 in a grand universe, we're just one tiny **speck** 
 

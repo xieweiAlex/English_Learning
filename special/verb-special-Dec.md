@@ -1,4 +1,8 @@
 
+**aspire**  
+
+**shatter**, **shutter** 
+
 **pluck**
 
 ### Week 1111

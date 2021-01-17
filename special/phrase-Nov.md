@@ -1,3 +1,5 @@
+I'm not gonna let you **glom onto** my new hit show!
+The people who **glom onto** you, because of who they think you are, and think they can sleep on your couch and eat your food. -  
 ## Week 3 & Week 4 
 
 The old **vinaigrette** formula is **out the window**  

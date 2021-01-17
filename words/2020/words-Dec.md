@@ -114,7 +114,7 @@ President Donald Trump on Tuesday issued **a flurry of** pardons and **commutati
 Division between two integers should **truncate** toward zero. -
 Miguel, thanks for **dropping by** unexpectedly  
 
-There is nothing like a 400-point **swing** in the stock market in one day to focus the mind, but it doesn't beat a **planetary** **conjunction** occurring on the same day as the winter **solstice**. We are living in **spacey** times. -  
+There is nothing like a 400-point **swing** in the stock market in one day to focus the mind, but it doesn't beat a **planetary** **conjunction** occurring on the same day as the winter **solstice**. We are living in **spacey** times.  
 Financial stocks also joined the party as real interest rates **crept** higher, which is good for the **banking** business  
 That put a serious **schism** in the 15-year relationship between the two companies, in addition to a massive dent in Intel's stock price and future growth  
 I made him **hold off** for another forty-five minutes.  
