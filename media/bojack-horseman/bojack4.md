@@ -1,3 +1,28 @@
+
+## E 10  
+> Diane leaks damaging information on Jessica Biel, Todd's clown dentist business **hits a snag**, and Princess Carolyn finds hope in an unlikely place.  
+
+Because the only thing voters care about is stupid bullshit, so **knock yourself out**.  
+> somebody said funny and sad are two sides of the same coin.  
+
+I will **send over** a contract, **iron-clad**. I don't want to risk that **jerkwad** skipping town again.    
+This is a really **head-scratcher** for me  
+
+
+## E 9   
+I was not trying to engage in **punnery** during business hours.  
+This is a priceless family **heirloom**.  
+A treasure from the past and a symbol of the **tenacity**. -  
+Judah, you'll never guess who I just **ran into**.  
+So? What's the **prognosis**?  
+I wouldn't **beat yourself up**. **Miscarriages** happen for so many reasons.  
+You **went over** my head and **turned him down** without telling me.  
+I'm **parched** from all the yelling I've been doing  
+I'm just gonna have a quick **nightcap** and go to bed. -  
+**third degree** much?  
+She is **poised** and funny, and tells people about me.   
+
+
 ## E 8 
 Your booty's been **adjudicated**! -  
 That's so **degrading**  

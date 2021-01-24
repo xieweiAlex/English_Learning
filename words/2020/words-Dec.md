@@ -1,7 +1,7 @@
 
 ## Week 5
 
-The girls were **dainty** and **feminine** -  
+The girls were **dainty** and **feminine**  
 If you're happy in Apple's **walled garden**, though, the HomePod Mini could be the perfect choice for you  
 It **debuted** alongside a unique new feature where you could **hand-off** music from your phone to the speaker and back with a simple tap  
 they’re exactly the same size and shape, with the same **chic** fabric grille and four-LED display.   

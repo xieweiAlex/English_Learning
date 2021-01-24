@@ -1,10 +1,28 @@
+As the shutdown **drags on**, some businesses are also **taking a hit**  
+
+Let me know if you **run into** any **snags**.  
+Judah, you'll never guess who I just **ran into**.  
+Because the only thing voters care about is stupid bullshit, so **knock yourself out**.  
+> Diane leaks damaging information on Jessica Biel, Todd's clown dentist business **hits a snag**, and Princess Carolyn finds hope in an unlikely place.  
+My personal opinion is that we just **ought to** settle back and **take our lumps** and start fresh  
+You **went over** my head and **turned him down** without telling me.  
+This is a really **head-scratcher** for me  
+Because the only thing voters care about is stupid bullshit, so **knock yourself out**.  
+But our technological investments **come with strings**  
+
+The scheme is still **on the anvil** -   
+When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price  
+
+When possible, try not to use more than 10% of your asset value as margin and **draw a line** at 30%.  
+The recession is finally beginning to show signs of **bottoming out**  
+Please **plug up** the hole for me.  
+the market is **shoveling**, it's just **sloughing off** all of this violence and craziness   
+As is usually the case in economics, it’s complicated — and everyone has a **pet theory**  
 The scheme is still **on the anvil** -   
 He was **cooped up** in a tiny room.  
 My personal opinion is that we just **ought to** settle back and **take our lumps** and start fresh  
 No matter how many things are going on around you, or how **on edge** you feel  
 I was **hoisted** by my own **petard**, the one petard I thought would never hoist me. -  
-
-
 Police surrounded Twitter HQ this week in preparation of Pro-Trump Rally that **fizzled out**.   
 
 You can't just **spout off** a bunch of terms you don't understand  
@@ -36,7 +54,8 @@ starting out with a **blank slate**
 ## Week 3, 4 
 
 Sales have been **dropping off** badly.  
-He **made no attempt** to conceal his **smirk**.  Many of these traditional custodians now offer commission-free trades, if that’s what **you’re after**  
+He **made no attempt** to conceal his **smirk**.  
+Many of these traditional custodians now offer commission-free trades, if that’s what **you’re after**  
 How Apple, Google, and other browser makers are quietly **duking it out** over the future of the web  
 This year was all **twists and turns**, joy and pain and Folly  
 Short-sellers got caught **flat-footed**, and even the most **ardent** **naysayers** have essentially given up on betting against the stock. -  

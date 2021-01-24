@@ -1,4 +1,6 @@
 
+**rip** 
+
 **aspire**  
 
 **shatter**, **shutter** 

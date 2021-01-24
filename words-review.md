@@ -16,36 +16,42 @@ Did the head help to **ameliorate** your pest **peccadillo**? -
 
 ## words-Jan.md ## 
 words/2021/words-Jan.md
+The greasy food made her stomach **heave** -  
+**Heave** the box onto the top shelf. -  
+Under 71 **decibels** is considered quiet. -  
+Whether you're looking for a room in a home or a **villa** to yourself, for budget accommodations or a unique **slice of luxury**, you can probably find it at your preferred destination -  
+Company guidance, which disappeared last year as executives were **reticent** to provide profit and revenue forecasts, has actually come back with some **gusto** so far leading into this earnings season -  
+"This is one **unfettered** presidential power the president enjoys using", one former administration official was quoted as saying by Reuters -  
+The koala is a sluggish, tailless, furry **arboreal** **marsupial** -  
+The warning sparked criticism from a colleague who **took offense** at the use of the word “Nazi” and **prompted** GitHub’s HR team to **reprimand** the Jewish employee. Two days later, he was fired. -  
+I don’t see how either of those **comport** with GitHub’s values -  
+**Prescient** investors knew this and **clung to** the greatest businesses within it -  
 Business leaders are publicly **recoiling** from the GOP after party officials thrust Arizona into the center of Trump’s failed effort to overturn the election results, further dividing an already **fractured** party -  
 The car is in **pristine** condition. -  
-A groundhog, also known as a woodchuck, is a sort of North American **marmot**. -  
+A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**. -  
 He looked suddenly **sombre**, **pensive** 😔. -   
 He was treated with **penicillin** injections -  
+an anti-**tetanus** injection -  
 **hermaphrodite**: **Hermie**, a pejorative term for an **intersex** person -  
 The scheme is still **on the anvil** -   
+The **clover** **sprang up** green and **luscious**. -  
+It'll be a nice way to **bookend** the pregnancy. -  
 **frieze** cloth, **frieze** carpet -  
-The conference might **reconvene** after its opening session -  
 The Capitol rioters-some carrying **nooses**, bats, **pipes** and **zip ties**. -   
 She **ensconced** herself in the closet in order to **eavesdrop**. -  
 When meeting ladies, he always raises his **sombrero**. -  
 A slow **comedown** accelerated through Sunday, with Monday continuing the selling pressure with little **respite** for traders attempting to “buy the dip.” -  
-**Damn good** food, interesting architecture, **kind** locals, and **ultra**-affordable **accommodations** more than **make up** for the **near-constant** **din** of honking motorbikes -  
-Remove dirt and **grime** from your sneakers **prior to** placing in the **washer** -  
-For President Donald Trump’, the Twitter ban was yet another **inglorious** passage to the final chapter of his presidency. -  
 Over the past two days, he's been **admonished** by his own aides, **chastised** by Republicans, and threatened once more with impeachment. -  
 Trump went **ballistic** after being **tossed off** Twitter -  
 **toots**: Toots is a slang term similar in meaning to "babe" or "sweetie" or "honey" -  
 The **obstetrician** delivered the child -  
 **diamond sutra** -  
-A woman protester was killed by a **ricochet** (bullet). -  
 eagle's **talons** -  
 The Myth of the **Megalith** - 
-I have a **manicure** **occasionally**. -  
 Each passenger slept on the **berth** allotted to him -   
 
 ## words-Dec.md ## 
 words/2020/words-Dec.md
-The girls were **dainty** and **feminine** -  
 The truth is, markets hitting highs is the clearest sign of an **uptrend** you could possibly ask for, despite the **vertigo** it produces in many of us -  
 It is soaring to record levels as investors lean into stocks, hoping for more **torrid** gains in 2021 -  
 The thieves hid their **plunder** in the cave. -   

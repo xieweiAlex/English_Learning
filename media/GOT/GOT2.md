@@ -219,7 +219,7 @@ I'd like to hear the **wishes** of my people.
 I don't **abuse** them to satisfy royal **whims**.  
 To create **strife** between my sister and me.  
 Would it be **excessive** for me to ask you to save my life twice in a week?  
-To be a dancing master is a special thing,  but to be a **faceless** man, that's something else entirely.  
+To be a dancing master is a special thing, but to be a **faceless** man, that's something else entirely.  
 Dragon **screechings** continue  
 They said you'd lost your nose, but it's not as **gruesome** as all that.  
 Because you've **slandered** me to Father before.  

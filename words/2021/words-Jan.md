@@ -1,30 +1,162 @@
 
+Let me know if you **run into** any **snags**.  
+
+It's like tinder but for spinsters elderly women looking for sex  
+His wife is here, grow a pair and talk to her, find out for sure.  
+Because she'd have to be crazy to tell him and I asked her point blank if she was crazy and she swore to me no, she's not crazy  
+
+solemn ceremony  
+
+The stars spangled banner  
+that flag way up on the rampart  
+if they will lower that flag, the shelling will stop immediately.  
+the rampart was tall enough there stood falg completely nondescript in shreds  
+at the twilight's last gleaming  
+through the perilous flight  
+gallantly streaming  
+
+Not many people can upstage Lady Gaga, J.Lo, or a new president.  
+President Biden is facing so many challenges on the homefront, it’s easy to forget the one that lies 7,000 miles away.  
+One of a series of moves the Trump administration made in its last few days to rankle Beijing.   
+Biden’s team will also take a hard line on China  
+Many QAnon conspiracy theorists were dejected after the inauguration failed to materialize into the “Great Awakening” that had been prophesied.  
+
+ If you made it through the pandemic unscathed, like many in the higher-income brackets did, you tried to level up your crib.   
+
+The economy is **poised** for recovery.  
+He is a remarkably **poised** young man  
+
+The candidate didnt rush to final solution, communication was clear, and on point  
+The coding velocity was reasonable  
+
+Sorting the array takes \mathcal{O}(n\log{n})O(nlogn), so overall complexity is \mathcal{O}(n\log{n} + n^2)O(nlogn+n 2). This is asymptotically equivalent to \mathcal{O}(n^2)O(n2).
+
+
+
+
+**Penicillin** was sold over the counter until the 1950s  
+
+There have been repeated calls to **reinstate** the death penalty  
+technically I can't refer to myself as an attorney until I'm **reinstated** and make **restitution** to my victims family. I'm a lawyer, and I'm a good one.  
+
+Colourful **psychedelic** journey through the dark night of the soul.  
+
+Bitcoin is a **mirage**.  
+As the shutdown **drags on**, some businesses are also **taking a hit**  
+algorithmic interviews are direct translations from **formalistic** college backgrounds  
+The screen is **encroaching** on the eye, from TVs to computer monitors to phone screens to smartwatches -  
+> Just as **life-saving** antibiotics also strengthen bacteria and weaken the **collective immune system**, or as **steroids** improve short-term performance **at the expense** of long-term health, there are trade-offs  
+
+turning a human-centered medium into a platform for manipulation, surveillance, and **extraction**  
+participation in the ever-changing economy requires some **acquiescence** to technology, from **streetcars** and eyeglasses to elevators and computers  
+But our technological investments **come with strings**  
+
+Testosterone deficiency has a **prevalence** of 10%-40% among adult males, and 20% among AYA men aged 15-39 years  
+This is especially worrisome in this young adult age group, as many men feel **stigma** and are less likely to seek care for these **low libido** and **erectile** dysfunction  
+Robinhood seemed a new **prodigal** son of 21st-century capitalism, an awesome hybrid of Wall Street and Silicon Valley -  
+with the **cheery**, **youth-friendly** user-engagement strategies of Instagram or TikTok  
+These **harmless-looking** **eggheads** sounded genuinely excited to bring their product to the world, explaining they had a mission to “democratize finance for all.”  
+**Small-time** customers who can’t afford a whole share of, say, Amazon stock can buy fractional stocks  
+
+**parkway**  
+The greasy food made her stomach **heave** -  
+**Heave** the box onto the top shelf. -  
+**lovebird**  
+The town is **in uproar** over the **dispute**  
+the tweet is **disputed**  
+yardstick   
+Under 71 **decibels** is considered quiet. -  
+undies  
+hives  
+airhead  
+**jughead**  
+odour  
+tress  
+newscaster  
+cashmere  
+chino  
+continuum  
+collie  
+chipmunnk  
+godsend  
+shoestring  
+prude  
+
+
+Whether you're looking for a room in a home or a **villa** to yourself, for budget accommodations or a unique **slice of luxury**, you can probably find it at your preferred destination -  
+The company has already been on **a heck of a journey**, but I see it as a **disruptor** that will continue to change how we travel for many years to come  
+
+The recession is finally beginning to show signs of **bottoming out**  
+Company guidance, which disappeared last year as executives were **reticent** to provide profit and revenue forecasts, has actually come back with some **gusto** so far leading into this earnings season -  
+When possible, try not to use more than 10% of your asset value as margin and **draw a line** at 30%.  
+"This is one **unfettered** presidential power the president enjoys using", one former administration official was quoted as saying by Reuters -  
+
+The koala is a sluggish, tailless, furry **arboreal** **marsupial** -  
+Squirrels are **arboreal** creatures.  
+
+As is usually the case in economics, it’s complicated — and everyone has a **pet theory**  
 You're new here, so I'll forgive the **patronizing** tone.  
 
->first mover advantage 
-> Build strong  levees, don't try to predict hurricanes. 
+## Week 2 
+The warning sparked criticism from a colleague who **took offense** at the use of the word “Nazi” and **prompted** GitHub’s HR team to **reprimand** the Jewish employee. Two days later, he was fired. -  
+The clear **insinuation** is that a Jewish Hubber was fired for calling a group of people (that included **Neo-Nazi** white supremacists) ‘Nazis,’” they wrote  
+I don’t see how either of those **comport** with GitHub’s values -  
+This is the type of failure I **aspire** to be  
+But others believe the U.S. slowdown was an **aberration**.  
+the market is **shoveling**, it's just **sloughing off** all of this violence and craziness   
+
+He was **cooped up** in a tiny room.  
+Such matters **transcend** human understanding  
+I think Intel's problem **transcends** leadership.  
+
+> first mover advantage 
+> Build strong levees, don't try to predict hurricanes. 
 
 Rule No. 1: Invest in companies with **unquantifiable** greatness; a secret sauce that gives them **an edge**  
+**Prescient** investors knew this and **clung to** the greatest businesses within it -  
+When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price  
+Team Tom seeks buying opportunities in **out-of-favor** industries, where short-term concerns and negative sentiment can **drag down** shares of even the **best-run** companies  
+A **stout** balance sheet and steady free cash flow allow a company to thrive, whether the economy is soaring or struggling  
+An old filter is not only going to be less effective — and crazy slow — but also really **gross** and **grimy**  
 **Noontime** snooze  
 **bucking bronco**   
 
 Corporate earnings will be in **full bloom**, and the inauguration of President-elect Biden will dominate the **headlines**  
 No matter how many things are going on around you, or how **on edge** you feel  
 While others are **wriggling around**, fixating on **uneven terrain** or the loud snorer, you’ll have a **combat-tested** system for sleep  
-Business leaders are publicly **recoiling** from the GOP after party officials thrust Arizona into the center of Trump’s failed effort to overturn the election results, further dividing an already **fractured** party -  
+Business leaders are publicly **recoiling** from the GOP after party officials thrust Arizona into the center of Trump’s failed effort to overturn the election results, further dividing an already **fractured** party   
 My personal opinion is that we just **ought to** settle back and **take our lumps** and start fresh  
 The car is in **pristine** condition. -  
 
 **commonweal** activities/organize
-A groundhog, also known as a woodchuck, is a sort of North American **marmot**. -  
+A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**. -  
 I don't like **flips of the coin**.  
+He looked suddenly **sombre**, **pensive** 😔. -   
+> The issue appears to be an example of convenience **trumping** security  
+
+But winning over this market will also pit Coupa against smaller rivals that may have more **piecemeal** solutions  
+Stocks **shed** gains as Biden preps stimulus request  
+Here's how the first **tranches** of stimulus funds were used, and where Goldman Sachs predicts the next wave will go.  
+profits may still be **elusive**, but investors like growth sectors. In fact, many of the new companies that came to market in the past six months have those **pedigrees**, and a lot of them are in growing market segments.   
+I've bought my **fair share** of tickets, so I'll wear the **dunce cap**, too. But, it does make us do irrational things, sometimes.  
+**lotto tickets**  
+A pimple occurs when a **pore** gets **clogged**. The end result depends on the materials that **plug up** the **pore**  
+Please **plug up** the hole for me.  
+
+He was treated with **penicillin** injections -  
+**gonad**  
+an anti-**tetanus** injection -  
+**continuum**  
+**hermaphrodite**: **Hermie**, a pejorative term for an **intersex** person -  
+**theorem**  
 The scheme is still **on the anvil** -   
-a good **anvil** does not fear the hammer  
+> a good **anvil** does not fear the hammer  
+
 a wecker beat-up **jalopy**  
 whey **protein**  
 **clove**
-The **clover** sprang up green and luscious.  
-It'll be a nice way to **bookend** the pregnancy.  
+The **clover** **sprang up** green and **luscious**. -  
+It'll be a nice way to **bookend** the pregnancy. -  
 **frieze** cloth, **frieze** carpet -  
 She **grasped** hold of the **banister** to support herself.  
 There is a **profusion** of flowers in the garden in summer  
@@ -34,7 +166,7 @@ Is it necessary to decide between **remunerative** work and meaningful work?
 inside the remarkable **rift** between Trump and Pence  
 **eggnog**  
 **pyjama**
-The conference might **reconvene** after its opening session -  
+The conference might **reconvene** after its opening session  
 I'm not gonna let you **glom onto** my new hit show!
 Trump's approval rating **craters** in final days 
 He did not **speculate** on the future of his **tenuous** career.  
@@ -80,7 +212,7 @@ The market continues to rally as it looks toward the future – a future with a 
 
 a **wee** joke  
 Thailand, with its natural **splendor** and **nonsensical** **exchange rate**, is one of the most **well-established** hubs for **digital nomads**  
-**Damn good** food, interesting architecture, **kind** locals, and **ultra**-affordable **accommodations** more than **make up** for the **near-constant** **din** of honking motorbikes -  
+**Damn good** food, interesting architecture, **kind** locals, and **ultra**-affordable **accommodations** more than **make up** for the **near-constant** **din** of honking motorbikes  
 Maybe it’s from a **swanky** Airbnb for a week in a different city  
 I'm going on **diet** from stock market  
 And by now, wise investors have learned to treat this day as a huge opportunity to **peer into** the mind of one of the market’s grandmaster investors  
@@ -89,10 +221,10 @@ if he hadn't **ceded** ~25% of his wealth in a 2019 divorce, Bezos would still b
 The apparent Blue Wave about to **crest** on Capitol Hill means a lot more government spending, and therefore **reflation**  
 Skate shoes are purposely designed to handle a lot of stress as well as **wear and tear**  
 A **half-pipe** is a structure used in gravity extreme sports such as snowboarding, skateboarding, skiing, freestyle **BMX**, and **skating**.  
-Remove dirt and **grime** from your sneakers **prior to** placing in the **washer** -  
+Remove dirt and **grime** from your sneakers **prior to** placing in the **washer**  
 
 If you don't like the **atmosphere** in the party, you can **take a powder**.  
-For President Donald Trump’, the Twitter ban was yet another **inglorious** passage to the final chapter of his presidency. -  
+For President Donald Trump’, the Twitter ban was yet another **inglorious** passage to the final chapter of his presidency.  
 Trump routinely **boasted** of the social media **bullhorn** he possessed  
 He credited it with launching his political trajectory. And he used it as a tool to **lacerate** his **foes**  
 Don Jr. offered up a URL to those hoping to keep tabs of his father’s **whereabouts**  
@@ -146,7 +278,7 @@ the **gremlin**
 We spent a **sedate** evening at home  
 Deep **Sedation**  
 A **general** comes before a **colonel**.  
-A woman protester was killed by a **ricochet** (bullet). -  
+A woman protester was killed by a **ricochet** (bullet).  
 the sound **ricocheted** around the hall.  
 **mugger**  
 eagle's **talons** -  
@@ -167,7 +299,7 @@ It's the old **adage**, divide and conquer.
 She was relieved to see his face **light up** with a **boyish** **grin**  
 His face **broadened** out **into a grin**  
 Loose your grip, **Lucifer**!  
-I have a **manicure** **occasionally**. -  
+I have a **manicure** **occasionally**.  
 tap **faucet**  
 They were all pledged to **secrecy**.  
 The **wisecrack** you believe is witty often is not  

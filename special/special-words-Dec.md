@@ -1,4 +1,16 @@
 
+**pristine**
+
+**parched**
+
+**poised**
+
+**horrendous**
+
+**rift**
+
+**verbiage** 
+
 **impeccable**
 
 **conventional**
@@ -11,7 +23,7 @@
 
 **expediency**
 
-**remunerative**  
+**ruminate**, **remunerative**  
 
 **prowess**
 
@@ -21,7 +33,7 @@
 
 **eligible**
 
-**craved**  
+**crave**, **aspire**  
 
 **dysfunctional**
 
