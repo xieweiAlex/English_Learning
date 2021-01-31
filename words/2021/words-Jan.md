@@ -1,45 +1,77 @@
 
+The GameStop saga will **ripple** far into the future.  
+Tying it all together: J&J’s vaccine won’t need to land many of the logistical **somersaults** required by the other two approved vaccines, which means it could supercharge the vaccination rollout in the coming months.   
+
+A number of prominent investors say the stock market is all **discombobulated** because of the historic stimulus measures deployed by the government  
+What Citron has experienced in the past 48 hours is **nothing short of** shameful and a sad commentary on the state of the investment community
+Believe it or not, 2021 is now in **full swing**  
+We haven't heard the end of this **outcry**  
+The U.S. economy is still clearly **ailing** with unemployment at **elevated** levels.   
+
+Fintech **behemoth** Robinhood **drew the ire** of Reddit this week when it restricted trades of GameStop amid an epic short squeeze that’s causing **havoc** from Wall Street to the White House. -  
+Regulatory reforms instituted after the global financial crisis ensured that the U.S. banking sector was in **rude health** as the pandemic arrived.  
+the **preceding** quarter's record growth rebound was likely a **one-off** reflecting a flood of fiscal and monetary stimulus that will be hard to sustain given the administration's **razor thin** Senate majority.  
+Bitcoin is **off to the races** again. Thank Tesla CEO Elon Musk  
+
+This theory suggests that these traders are motivated **primarily** by their **disdain** for “suits,” the longtime **wardens** of Wall Street, who, Redditors argue, **exploited** the little guy to get **filthy rich**. -   
+The people investing today are driven by **righteous anger**, about **generational** injustice  
+But there's **bound to be** some job losses and displacement **in the interim**.  
+
+They’re trying to stop the **attrition** of their rights -  
+I can't find a **plausible** motive for anyone -  
+
+A top post on the subreddit this morning calls the decision “market manipulation,” with angry comments calling for users to “dump robinhood for good” and **lamenting** the ensuring fall in stock prices that shortly followed the announcement.  
+However, Apple's apps do not track users or share data for advertising purposes, so this seems to be a **bemusing** foundation for the lawsuit. -   
+in December, Facebook paid for a series of full-page advertisements in national newspapers to **berate**  iOS 14 App Tracking Transparency, saying that it harms small businesses.   
+Hedge funds are **reeling** and amateurs are touting their new power. -  
+When you look at long-term historical returns on companies of different sizes, the results **bear out** this framework  
+no need for resumes, recruiter calls, or **haranguing** your friends for referrals. -  
+
+Rand Paul **spars** with ABC host over election integrity -  
+
+### Week 3 
+
+Morgan Stanley estimates that households have received transfers **in excess of** lost income by $612 billion -  
+In February 2020, the US unemployment rate hit a 50-year low of 3.5%, which reflected a **searingly** hot job market during the first three years of Trump's presidency  
+Because of his **erratic** approach to policymaking and his embrace of far-right extremists, President Trump's once-cozy relationship with Corporate America deteriorated over his term  
+Any remaining **goodwill** was extinguished with the storming of the Capitol on January 6  
+ODP Chairman Joseph Vassalluzzo said similar competition concerns that might invite regulatory attention made a **tie-up** **untenable**  
+
+Jone felt she could only **confide in** her mother. -  
+It took him years to **confide in** me  
 Let me know if you **run into** any **snags**.  
 
-It's like tinder but for spinsters elderly women looking for sex  
-His wife is here, grow a pair and talk to her, find out for sure.  
-Because she'd have to be crazy to tell him and I asked her point blank if she was crazy and she swore to me no, she's not crazy  
+It's like tinder but for **spinsters** elderly women looking for sex -  
+His wife is here, **grow a pair** and talk to her, find out for sure.  
+Because she'd have to be crazy to tell him and I asked her **point blank** if she was crazy and she **swore** to me no, she's not crazy  
 
-solemn ceremony  
+**solemn** ceremony -  
+The stars **spangled** banner  
+that flag way up on the **rampart** -  
+if they will lower that flag, the **shelling** will stop immediately.  
+the rampart was tall enough there stood flag completely **nondescript** in **shreds** -  
+at the **twilight**'s last **gleaming**  
+through the **perilous** flight -  
+**gallantly** **streaming**  
 
-The stars spangled banner  
-that flag way up on the rampart  
-if they will lower that flag, the shelling will stop immediately.  
-the rampart was tall enough there stood falg completely nondescript in shreds  
-at the twilight's last gleaming  
-through the perilous flight  
-gallantly streaming  
-
-Not many people can upstage Lady Gaga, J.Lo, or a new president.  
-President Biden is facing so many challenges on the homefront, it’s easy to forget the one that lies 7,000 miles away.  
-One of a series of moves the Trump administration made in its last few days to rankle Beijing.   
-Biden’s team will also take a hard line on China  
-Many QAnon conspiracy theorists were dejected after the inauguration failed to materialize into the “Great Awakening” that had been prophesied.  
-
- If you made it through the pandemic unscathed, like many in the higher-income brackets did, you tried to level up your crib.   
-
+Not many people can **upstage** Lady Gaga, J.Lo, or a new president.  
+President Biden is facing so many challenges on the **homefront**, it’s easy to forget the one that lies 7,000 miles away.  
+One of a series of moves the Trump administration made in its last few days to **rankle** Beijing. -   
+Biden’s team will also take a **hard line** on China  
+Many QAnon conspiracy theorists were **dejected** after the inauguration failed to **materialize** into the “Great Awakening” that had been **prophesied**. -  
+If you made it through the pandemic **unscathed**, like many in the higher-income brackets did, you tried to **level up your crib**.   
 The economy is **poised** for recovery.  
 He is a remarkably **poised** young man  
 
-The candidate didnt rush to final solution, communication was clear, and on point  
-The coding velocity was reasonable  
-
-Sorting the array takes \mathcal{O}(n\log{n})O(nlogn), so overall complexity is \mathcal{O}(n\log{n} + n^2)O(nlogn+n 2). This is asymptotically equivalent to \mathcal{O}(n^2)O(n2).
-
-
-
+The candidate didnt rush to final solution, communication was clear, and **on point**  
+The coding **velocity** was reasonable  
+Sorting the array takes \mathcal{O}(n\log{n})O(nlogn), so overall complexity is \mathcal{O}(n\log{n} + n^2)O(nlogn+n 2). This is **asymptotically** equivalent to \mathcal{O}(n^2)O(n2).
 
 **Penicillin** was sold over the counter until the 1950s  
 
 There have been repeated calls to **reinstate** the death penalty  
 technically I can't refer to myself as an attorney until I'm **reinstated** and make **restitution** to my victims family. I'm a lawyer, and I'm a good one.  
-
-Colourful **psychedelic** journey through the dark night of the soul.  
+Colourful **psychedelic** journey through the dark night of the soul. -  
 
 Bitcoin is a **mirage**.  
 As the shutdown **drags on**, some businesses are also **taking a hit**  
@@ -48,11 +80,10 @@ The screen is **encroaching** on the eye, from TVs to computer monitors to phone
 > Just as **life-saving** antibiotics also strengthen bacteria and weaken the **collective immune system**, or as **steroids** improve short-term performance **at the expense** of long-term health, there are trade-offs  
 
 turning a human-centered medium into a platform for manipulation, surveillance, and **extraction**  
-participation in the ever-changing economy requires some **acquiescence** to technology, from **streetcars** and eyeglasses to elevators and computers  
+participation in the ever-changing economy requires some **acquiescence** to technology, from **streetcars** and eyeglasses to elevators and computers -  
 But our technological investments **come with strings**  
-
 Testosterone deficiency has a **prevalence** of 10%-40% among adult males, and 20% among AYA men aged 15-39 years  
-This is especially worrisome in this young adult age group, as many men feel **stigma** and are less likely to seek care for these **low libido** and **erectile** dysfunction  
+This is especially worrisome in this young adult age group, as many men feel **stigma** and are less likely to seek care for these **low libido** and **erectile** dysfunction -  
 Robinhood seemed a new **prodigal** son of 21st-century capitalism, an awesome hybrid of Wall Street and Silicon Valley -  
 with the **cheery**, **youth-friendly** user-engagement strategies of Instagram or TikTok  
 These **harmless-looking** **eggheads** sounded genuinely excited to bring their product to the world, explaining they had a mission to “democratize finance for all.”  
@@ -64,24 +95,23 @@ The greasy food made her stomach **heave** -
 **lovebird**  
 The town is **in uproar** over the **dispute**  
 the tweet is **disputed**  
-yardstick   
+The book gives a **yardstick** for measuring assets. -  
 Under 71 **decibels** is considered quiet. -  
-undies  
-hives  
-airhead  
+**undies**  
+**hives**  
+She's a total **airhead**!  
 **jughead**  
-odour  
-tress  
-newscaster  
-cashmere  
-chino  
-continuum  
-collie  
-chipmunnk  
-godsend  
-shoestring  
-prude  
-
+**odour**  
+**tress**  
+**newscaster**  
+**cashmere**  
+**chino**  
+**continuum**  
+**collie**  
+**chipmunnk**  
+**godsend**  
+**shoestring**  
+As some sort of **prude** who just lays there like a **cold fish**?  
 
 Whether you're looking for a room in a home or a **villa** to yourself, for budget accommodations or a unique **slice of luxury**, you can probably find it at your preferred destination -  
 The company has already been on **a heck of a journey**, but I see it as a **disruptor** that will continue to change how we travel for many years to come  
@@ -89,18 +119,17 @@ The company has already been on **a heck of a journey**, but I see it as a **dis
 The recession is finally beginning to show signs of **bottoming out**  
 Company guidance, which disappeared last year as executives were **reticent** to provide profit and revenue forecasts, has actually come back with some **gusto** so far leading into this earnings season -  
 When possible, try not to use more than 10% of your asset value as margin and **draw a line** at 30%.  
-"This is one **unfettered** presidential power the president enjoys using", one former administration official was quoted as saying by Reuters -  
+"This is one **unfettered** presidential power the president enjoys using", one former administration official was quoted as saying by Reuters  
 
 The koala is a sluggish, tailless, furry **arboreal** **marsupial** -  
 Squirrels are **arboreal** creatures.  
-
 As is usually the case in economics, it’s complicated — and everyone has a **pet theory**  
 You're new here, so I'll forgive the **patronizing** tone.  
 
 ## Week 2 
-The warning sparked criticism from a colleague who **took offense** at the use of the word “Nazi” and **prompted** GitHub’s HR team to **reprimand** the Jewish employee. Two days later, he was fired. -  
+The warning sparked criticism from a colleague who **took offense** at the use of the word “Nazi” and **prompted** GitHub’s HR team to **reprimand** the Jewish employee. Two days later, he was fired.  
 The clear **insinuation** is that a Jewish Hubber was fired for calling a group of people (that included **Neo-Nazi** white supremacists) ‘Nazis,’” they wrote  
-I don’t see how either of those **comport** with GitHub’s values -  
+I don’t see how either of those **comport** with GitHub’s values  
 This is the type of failure I **aspire** to be  
 But others believe the U.S. slowdown was an **aberration**.  
 the market is **shoveling**, it's just **sloughing off** all of this violence and craziness   
@@ -113,7 +142,7 @@ I think Intel's problem **transcends** leadership.
 > Build strong levees, don't try to predict hurricanes. 
 
 Rule No. 1: Invest in companies with **unquantifiable** greatness; a secret sauce that gives them **an edge**  
-**Prescient** investors knew this and **clung to** the greatest businesses within it -  
+**Prescient** investors knew this and **clung to** the greatest businesses within it  
 When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price  
 Team Tom seeks buying opportunities in **out-of-favor** industries, where short-term concerns and negative sentiment can **drag down** shares of even the **best-run** companies  
 A **stout** balance sheet and steady free cash flow allow a company to thrive, whether the economy is soaring or struggling  
@@ -126,7 +155,7 @@ No matter how many things are going on around you, or how **on edge** you feel
 While others are **wriggling around**, fixating on **uneven terrain** or the loud snorer, you’ll have a **combat-tested** system for sleep  
 Business leaders are publicly **recoiling** from the GOP after party officials thrust Arizona into the center of Trump’s failed effort to overturn the election results, further dividing an already **fractured** party   
 My personal opinion is that we just **ought to** settle back and **take our lumps** and start fresh  
-The car is in **pristine** condition. -  
+The car is in **pristine** condition.  
 
 **commonweal** activities/organize
 A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**. -  
@@ -147,15 +176,15 @@ He was treated with **penicillin** injections -
 **gonad**  
 an anti-**tetanus** injection -  
 **continuum**  
-**hermaphrodite**: **Hermie**, a pejorative term for an **intersex** person -  
+**hermaphrodite**: **Hermie**, a pejorative term for an **intersex** person  
 **theorem**  
-The scheme is still **on the anvil** -   
+The scheme is still **on the anvil**  
 > a good **anvil** does not fear the hammer  
 
 a wecker beat-up **jalopy**  
 whey **protein**  
 **clove**
-The **clover** **sprang up** green and **luscious**. -  
+The **clover** **sprang up** green and **luscious**.  
 It'll be a nice way to **bookend** the pregnancy. -  
 **frieze** cloth, **frieze** carpet -  
 She **grasped** hold of the **banister** to support herself.  
@@ -177,7 +206,7 @@ Your sports analogy of **buckling down** and going into **hyperdrive** really re
 We spent **inordinate** amount of time talking about this.  
 You can't just **spout off** a bunch of terms you don't understand  
 the last part is really just a **sellout** part.  
-The Capitol rioters-some carrying **nooses**, bats, **pipes** and **zip ties**. -   
+The Capitol rioters-some carrying **nooses**, bats, **pipes** and **zip ties**.  
 
 It’s a great way to hear from **kindred** spirits, to laugh, cry, and unwind for a little while.  
 They're great to watch on a lunch break or listen to during your commute, or **brisk walk**.  
@@ -200,8 +229,8 @@ He is home by six every day regular as **clockwork**
 a small **Polaroid** **snapshot**.  
 **squawk**  
 The rain water drips from the **eaves**  
-She **ensconced** herself in the closet in order to **eavesdrop**. -  
-When meeting ladies, he always raises his **sombrero**. -  
+She **ensconced** herself in the closet in order to **eavesdrop**.  
+When meeting ladies, he always raises his **sombrero**.  
 **chiaroscuro**  
 black **shale**, **shale oil**  
 I'm not married yet, my **ovaries** are shrinking.  
@@ -238,7 +267,7 @@ I'm very **gratified** to see that, the **virtuous cycle**.
 manufacture are **scrambling** to catch up.  
 It takes a lot of **pluck** to start a new job at his age  
 
-Trump went **ballistic** after being **tossed off** Twitter -  
+Trump went **ballistic** after being **tossed off** Twitter  
 I would not **coddle** the child  
 **on a winning streak**  
 Biden offers **sympathy** to family of fallen Capitol Police officer  
@@ -265,12 +294,12 @@ She often gets **chesty** in wet weather.
 **bedspring**  
 get an **earful**  
 This is a real opportunity to **toot your own horn**  
-**toots**: Toots is a slang term similar in meaning to "babe" or "sweetie" or "honey" -  
+**toots**: Toots is a slang term similar in meaning to "babe" or "sweetie" or "honey"  
 Soon the **duet** will become a **trio**  
 Do anyone want to sing a **duet** with me?  
 Would you care for some **butterscotch** pudding?  
 It's on the north bank of the **Thames**  
-The **obstetrician** delivered the child -  
+The **obstetrician** delivered the child  
 **diamond sutra** -  
 
 it was an **afterthought**  
@@ -288,7 +317,7 @@ A little bird was **bobbing** its head up and down
 It's going to be **nip and tuck** to get past that half a point.  
 Successful investing is about owning businesses and **reaping** the huge rewards provided by the dividends and earnings growth of our nation's   
 **Coyotes** are beautiful animals that can become a **nuisance**  
-The Myth of the **Megalith** - 
+The Myth of the **Megalith**  
 Tesla was in our **pole position**  
 they work **complementary**, they're perfect **in tandem**.  
 No matter how you **slice** it, this was one for the record books.  

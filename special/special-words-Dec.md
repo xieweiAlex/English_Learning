@@ -1,4 +1,11 @@
 
+
+**flagrant**
+
+**Prescient**
+
+**at the expense of**
+
 **pristine**
 
 **parched**

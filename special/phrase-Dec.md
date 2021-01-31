@@ -1,16 +1,24 @@
+
+
+But sometimes, if you **squint** at it just right, everything **lines up**, and it's the most perfect... beautiful, amazing thing.  
+Well, **onwards and upwards**.  
+If you don't like the **atmosphere** in the party, you can **take a powder**.  
+Bitcoin is **off to the races** again. Thank Tesla CEO Elon Musk  
+
+His wife is here, **grow a pair** and talk to her, find out for sure.  
+The candidate didnt rush to final solution, communication was clear, and **on point**  
+Biden’s team will also take a **hard line** on China  
+Because she'd have to be crazy to tell him and I asked her **point blank** if she was crazy and she **swore** to me no, she's not crazy  
 As the shutdown **drags on**, some businesses are also **taking a hit**  
 
 Let me know if you **run into** any **snags**.  
 Judah, you'll never guess who I just **ran into**.  
-Because the only thing voters care about is stupid bullshit, so **knock yourself out**.  
 > Diane leaks damaging information on Jessica Biel, Todd's clown dentist business **hits a snag**, and Princess Carolyn finds hope in an unlikely place.  
-My personal opinion is that we just **ought to** settle back and **take our lumps** and start fresh  
+
 You **went over** my head and **turned him down** without telling me.  
 This is a really **head-scratcher** for me  
 Because the only thing voters care about is stupid bullshit, so **knock yourself out**.  
 But our technological investments **come with strings**  
-
-The scheme is still **on the anvil** -   
 When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price  
 
 When possible, try not to use more than 10% of your asset value as margin and **draw a line** at 30%.  

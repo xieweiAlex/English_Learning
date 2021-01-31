@@ -1,4 +1,26 @@
 
+## E 12 
+My mother, she's **senile**, and she was drugging the coffee.  
+Well, this is me giving you the Princess Carolyn **pep talk**.  
+**rabies**  
+We have zero ballrooms, in this **Thrifty** Lodge.  
+You're **willingly** misunderstanding me.  
+Well, **onwards and upwards**.  
+I guess I will see you **on set**.  
+But sometimes, if you **squint** at it just right, everything **lines up**, and it's the most perfect... beautiful, amazing thing.  
+
+
+## E 11 
+
+You're a reminder of **disparity** of wealth in this county. Poor people find that dreadfully **gauche**. -  
+I bet your thank-you letters are **perfunctory**, your flower arrangement are **uninspired**, and your courtesy is an embarrassment. -  
+Can I pay her 5 years **in a lump sum** now, so I don't have to think about her again?  
+It'll **dispense** with the need for goodbyes, **thus** eliminating my **transgression**.  
+If a beautiful creature like herself could ever love an **oaf** like him.  
+Why won't you just take that **corner office** job at Sugerman West, instead of breaking your back all day at the **cannery**, and then maybe you could afford me some decent help around here?  
+It would only depress me to watch you **bumble** around like that.  
+
+
 ## E 10  
 > Diane leaks damaging information on Jessica Biel, Todd's clown dentist business **hits a snag**, and Princess Carolyn finds hope in an unlikely place.  
 
@@ -18,7 +40,7 @@ So? What's the **prognosis**?
 I wouldn't **beat yourself up**. **Miscarriages** happen for so many reasons.  
 You **went over** my head and **turned him down** without telling me.  
 I'm **parched** from all the yelling I've been doing  
-I'm just gonna have a quick **nightcap** and go to bed. -  
+I'm just gonna have a quick **nightcap** and go to bed.  
 **third degree** much?  
 She is **poised** and funny, and tells people about me.   
 
@@ -31,10 +53,9 @@ That's so **degrading**
 I'm not waiting around to be rescued like some **chump**.  
 **woodchuck**, **beaver**  
 Asking for points is **conceited**. That's more points for me. -  
-For my crimes, I will be fed to its **ravenous** flames.  
+For my crimes, I will be fed to its **ravenous** flames. -  
 He's got **moxie** and a soft **thorax**. -  
 what an **eyesore**.  
-
 
 ## E 6  
 It's not like you to be so **testy**. -  

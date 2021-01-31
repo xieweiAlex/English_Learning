@@ -1,5 +1,5 @@
 ## E 12 
-Should I prepared to press? - If he's **amenable**. -  
+Should I prepared to press? - If he's **amenable**.  
 He wants to **tap** Raymond Tusk.  
 He'll **alienate** half the country.  
 he does not want me to **fight him on this**.  

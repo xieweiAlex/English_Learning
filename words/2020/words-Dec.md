@@ -29,7 +29,7 @@ She loves him **in spite of** his faults
 He did it just to **spite** her  
 
 Investor psychology is **peculiar**. When markets get **toppy** or **choppy**, many of us are afraid to put more money to work  
-The truth is, markets hitting highs is the clearest sign of an **uptrend** you could possibly ask for, despite the **vertigo** it produces in many of us -  
+The truth is, markets hitting highs is the clearest sign of an **uptrend** you could possibly ask for, despite the **vertigo** it produces in many of us  
 The water emptied with a **gurgle**  
 friendly **ambiance**  
 Rachel was quickly **whisked away** by her **entourage**  

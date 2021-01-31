@@ -316,7 +316,7 @@ Apple had **pulled forward** a huge number of **would-be** buyers?
 
 > In rather **stark contrast** to just a couple of years ago, when, in the **midst** of the iPhone 6 boom, Tim Cook was eager to sell the story of how many iPhone customers had not yet upgraded, this quarter the Apple CEO preferred to move the **goalposts**, telling analysts to wait for the next iPhone  
 try and pay with cash for lunch, and you’ll look like a **luddite**.  
-And to be sure, an iPhone is still **status-conferring**: Apple is **by no means** **doomed**, and it’s possible if not probable that those China numbers will turn positive this fall. -  
+And to be sure, an iPhone is still **status-conferring**: Apple is **by no means** **doomed**, and it’s possible if not probable that those China numbers will turn positive this fall.  
 the fundamental factor that was missed by so many for so long — is that **monopoly** on iOS  
 in some countries like the U.S., too many contacts on iMessage to even **countenance** another phone ?  
 None of that **lock-in** exists in China  
