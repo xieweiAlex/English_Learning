@@ -1,5 +1,9 @@
 
-The GameStop saga will **ripple** far into the future.  
+## Week 4 
+
+Meanwhile, most Republicans are **coalescing** around the argument that impeaching a former president is **unconstitutiona** -  
+
+The GameStop **saga** will **ripple** far into the future.  
 Tying it all together: J&J’s vaccine won’t need to land many of the logistical **somersaults** required by the other two approved vaccines, which means it could supercharge the vaccination rollout in the coming months.   
 
 A number of prominent investors say the stock market is all **discombobulated** because of the historic stimulus measures deployed by the government  
@@ -13,7 +17,7 @@ Regulatory reforms instituted after the global financial crisis ensured that the
 the **preceding** quarter's record growth rebound was likely a **one-off** reflecting a flood of fiscal and monetary stimulus that will be hard to sustain given the administration's **razor thin** Senate majority.  
 Bitcoin is **off to the races** again. Thank Tesla CEO Elon Musk  
 
-This theory suggests that these traders are motivated **primarily** by their **disdain** for “suits,” the longtime **wardens** of Wall Street, who, Redditors argue, **exploited** the little guy to get **filthy rich**. -   
+This theory suggests that these traders are motivated **primarily** by their **disdain** for “suits,” the longtime **wardens** of Wall Street, who, Redditors argue, **exploited** the little guy to get **filthy rich**.  
 The people investing today are driven by **righteous anger**, about **generational** injustice  
 But there's **bound to be** some job losses and displacement **in the interim**.  
 
@@ -23,15 +27,14 @@ I can't find a **plausible** motive for anyone -
 A top post on the subreddit this morning calls the decision “market manipulation,” with angry comments calling for users to “dump robinhood for good” and **lamenting** the ensuring fall in stock prices that shortly followed the announcement.  
 However, Apple's apps do not track users or share data for advertising purposes, so this seems to be a **bemusing** foundation for the lawsuit. -   
 in December, Facebook paid for a series of full-page advertisements in national newspapers to **berate**  iOS 14 App Tracking Transparency, saying that it harms small businesses.   
-Hedge funds are **reeling** and amateurs are touting their new power. -  
+Hedge funds are **reeling** and amateurs are **touting** their new power. -  
 When you look at long-term historical returns on companies of different sizes, the results **bear out** this framework  
 no need for resumes, recruiter calls, or **haranguing** your friends for referrals. -  
-
-Rand Paul **spars** with ABC host over election integrity -  
+Rand Paul **spars** with ABC host over election integrity  
 
 ### Week 3 
 
-Morgan Stanley estimates that households have received transfers **in excess of** lost income by $612 billion -  
+Morgan Stanley estimates that households have received transfers **in excess of** lost income by $612 billion  
 In February 2020, the US unemployment rate hit a 50-year low of 3.5%, which reflected a **searingly** hot job market during the first three years of Trump's presidency  
 Because of his **erratic** approach to policymaking and his embrace of far-right extremists, President Trump's once-cozy relationship with Corporate America deteriorated over his term  
 Any remaining **goodwill** was extinguished with the storming of the Capitol on January 6  
@@ -49,16 +52,16 @@ Because she'd have to be crazy to tell him and I asked her **point blank** if sh
 The stars **spangled** banner  
 that flag way up on the **rampart** -  
 if they will lower that flag, the **shelling** will stop immediately.  
-the rampart was tall enough there stood flag completely **nondescript** in **shreds** -  
+the rampart was tall enough there stood flag completely **nondescript** in **shreds**  
 at the **twilight**'s last **gleaming**  
-through the **perilous** flight -  
+through the **perilous** flight  
 **gallantly** **streaming**  
 
 Not many people can **upstage** Lady Gaga, J.Lo, or a new president.  
 President Biden is facing so many challenges on the **homefront**, it’s easy to forget the one that lies 7,000 miles away.  
 One of a series of moves the Trump administration made in its last few days to **rankle** Beijing. -   
 Biden’s team will also take a **hard line** on China  
-Many QAnon conspiracy theorists were **dejected** after the inauguration failed to **materialize** into the “Great Awakening” that had been **prophesied**. -  
+Many QAnon conspiracy theorists were **dejected** after the inauguration failed to **materialize** into the “Great Awakening” that had been **prophesied**.  
 If you made it through the pandemic **unscathed**, like many in the higher-income brackets did, you tried to **level up your crib**.   
 The economy is **poised** for recovery.  
 He is a remarkably **poised** young man  
@@ -66,9 +69,7 @@ He is a remarkably **poised** young man
 The candidate didnt rush to final solution, communication was clear, and **on point**  
 The coding **velocity** was reasonable  
 Sorting the array takes \mathcal{O}(n\log{n})O(nlogn), so overall complexity is \mathcal{O}(n\log{n} + n^2)O(nlogn+n 2). This is **asymptotically** equivalent to \mathcal{O}(n^2)O(n2).
-
 **Penicillin** was sold over the counter until the 1950s  
-
 There have been repeated calls to **reinstate** the death penalty  
 technically I can't refer to myself as an attorney until I'm **reinstated** and make **restitution** to my victims family. I'm a lawyer, and I'm a good one.  
 Colourful **psychedelic** journey through the dark night of the soul. -  
@@ -76,7 +77,7 @@ Colourful **psychedelic** journey through the dark night of the soul. -
 Bitcoin is a **mirage**.  
 As the shutdown **drags on**, some businesses are also **taking a hit**  
 algorithmic interviews are direct translations from **formalistic** college backgrounds  
-The screen is **encroaching** on the eye, from TVs to computer monitors to phone screens to smartwatches -  
+The screen is **encroaching** on the eye, from TVs to computer monitors to phone screens to smartwatches  
 > Just as **life-saving** antibiotics also strengthen bacteria and weaken the **collective immune system**, or as **steroids** improve short-term performance **at the expense** of long-term health, there are trade-offs  
 
 turning a human-centered medium into a platform for manipulation, surveillance, and **extraction**  
@@ -90,12 +91,12 @@ These **harmless-looking** **eggheads** sounded genuinely excited to bring their
 **Small-time** customers who can’t afford a whole share of, say, Amazon stock can buy fractional stocks  
 
 **parkway**  
-The greasy food made her stomach **heave** -  
+The greasy food made her stomach **heave**  
 **Heave** the box onto the top shelf. -  
 **lovebird**  
 The town is **in uproar** over the **dispute**  
 the tweet is **disputed**  
-The book gives a **yardstick** for measuring assets. -  
+The book gives a **yardstick** for measuring assets.  
 Under 71 **decibels** is considered quiet. -  
 **undies**  
 **hives**  
@@ -133,11 +134,9 @@ I don’t see how either of those **comport** with GitHub’s values
 This is the type of failure I **aspire** to be  
 But others believe the U.S. slowdown was an **aberration**.  
 the market is **shoveling**, it's just **sloughing off** all of this violence and craziness   
-
 He was **cooped up** in a tiny room.  
 Such matters **transcend** human understanding  
 I think Intel's problem **transcends** leadership.  
-
 > first mover advantage 
 > Build strong levees, don't try to predict hurricanes. 
 
@@ -156,7 +155,6 @@ While others are **wriggling around**, fixating on **uneven terrain** or the lou
 Business leaders are publicly **recoiling** from the GOP after party officials thrust Arizona into the center of Trump’s failed effort to overturn the election results, further dividing an already **fractured** party   
 My personal opinion is that we just **ought to** settle back and **take our lumps** and start fresh  
 The car is in **pristine** condition.  
-
 **commonweal** activities/organize
 A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**. -  
 I don't like **flips of the coin**.  
@@ -185,8 +183,8 @@ a wecker beat-up **jalopy**
 whey **protein**  
 **clove**
 The **clover** **sprang up** green and **luscious**.  
-It'll be a nice way to **bookend** the pregnancy. -  
-**frieze** cloth, **frieze** carpet -  
+It'll be a nice way to **bookend** the pregnancy.  
+**frieze** cloth, **frieze** carpet  
 She **grasped** hold of the **banister** to support herself.  
 There is a **profusion** of flowers in the garden in summer  
 He acted **in accordance with** his beliefs  
@@ -234,7 +232,7 @@ When meeting ladies, he always raises his **sombrero**.
 **chiaroscuro**  
 black **shale**, **shale oil**  
 I'm not married yet, my **ovaries** are shrinking.  
-A slow **comedown** accelerated through Sunday, with Monday continuing the selling pressure with little **respite** for traders attempting to “buy the dip.” -  
+A slow **comedown** accelerated through Sunday, with Monday continuing the selling pressure with little **respite** for traders attempting to “buy the dip.”  
 The market continues to rally as it looks toward the future – a future with a **receding** pandemic thanks to the vaccines, and a future where life starts getting back to normal  
 
 ## Week 1 
@@ -257,7 +255,7 @@ For President Donald Trump’, the Twitter ban was yet another **inglorious** pa
 Trump routinely **boasted** of the social media **bullhorn** he possessed  
 He credited it with launching his political trajectory. And he used it as a tool to **lacerate** his **foes**  
 Don Jr. offered up a URL to those hoping to keep tabs of his father’s **whereabouts**  
-Over the past two days, he's been **admonished** by his own aides, **chastised** by Republicans, and threatened once more with impeachment. -  
+Over the past two days, he's been **admonished** by his own aides, **chastised** by Republicans, and threatened once more with impeachment.  
 I'm sure we're going to go through a **doozy** correction this year at some point.  
 
 we're probably going to go through some **wobbles** here because of the resurgence in the **coronavirus**  

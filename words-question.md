@@ -1,4 +1,4 @@
-
+* amenable
 * reprimand vs punish 
 * trope vs metaphor 
 * grumpy vs grouchy vs crabby vs cantankerous  

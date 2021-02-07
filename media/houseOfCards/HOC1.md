@@ -1,3 +1,16 @@
+
+## E 13  
+**Absolute discretion**. Can I count on that?  
+if he does, I've got a **fighting chance**.  
+there is no files, no **mug shot**, nothing.  
+This town is way too **incestuous**. -  
+If you're serious about Tusk, you should **wine and dine** him. Make him feel very special.   
+Of all the things I **hold in high regard**, rules are not in one of them.  
+**briefing**  
+I thought Remy **filled you in**.  
+He will not accept the nomination if his assets are in a **blind trust** and he can't fight off the threat.  
+This is **ludicrous**. -  
+
 ## E 12 
 Should I prepared to press? - If he's **amenable**.  
 He wants to **tap** Raymond Tusk.  
@@ -89,7 +102,7 @@ I think it's **over the hump**
 you want me to be your **lapdog**, after I lost my fucking job?  
 **moral support**  
 They're going to **lay into** me **big time**.  
-I saw you **cuss out** the **drill** **sergeant** when we were **knobs**.  
+I saw you **cuss out** the **drill** **sergeant** when we were **knobs**. -  
 The library is a **sham**.  
 Most of you **cadets** probably don't know who I am.  
 
@@ -109,9 +122,7 @@ You don't have to **mince words**
 this is not a **Hail Mary**, Mr. President. This is a **well-thought-out** game plan.   
 You want me to **pull up** now, sir?  
 
-
 ## E 6  
-
 So you've been wrong twice about this. Why should I believe you're right about **holding out**?  
 If I **water down** the bill, the president will still see me as a failure.  
 I can't **abide** falling back to **square one**  

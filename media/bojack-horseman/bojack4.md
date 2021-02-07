@@ -15,7 +15,7 @@ But sometimes, if you **squint** at it just right, everything **lines up**, and 
 You're a reminder of **disparity** of wealth in this county. Poor people find that dreadfully **gauche**. -  
 I bet your thank-you letters are **perfunctory**, your flower arrangement are **uninspired**, and your courtesy is an embarrassment. -  
 Can I pay her 5 years **in a lump sum** now, so I don't have to think about her again?  
-It'll **dispense** with the need for goodbyes, **thus** eliminating my **transgression**.  
+It'll **dispense** with the need for goodbyes, **thus** **eliminating** my **transgression**. -  
 If a beautiful creature like herself could ever love an **oaf** like him.  
 Why won't you just take that **corner office** job at Sugerman West, instead of breaking your back all day at the **cannery**, and then maybe you could afford me some decent help around here?  
 It would only depress me to watch you **bumble** around like that.  
@@ -54,7 +54,7 @@ I'm not waiting around to be rescued like some **chump**.
 **woodchuck**, **beaver**  
 Asking for points is **conceited**. That's more points for me. -  
 For my crimes, I will be fed to its **ravenous** flames. -  
-He's got **moxie** and a soft **thorax**. -  
+He's got **moxie** and a soft **thorax**.  
 what an **eyesore**.  
 
 ## E 6  
