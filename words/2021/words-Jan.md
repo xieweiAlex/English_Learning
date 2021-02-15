@@ -22,12 +22,12 @@ The people investing today are driven by **righteous anger**, about **generation
 But there's **bound to be** some job losses and displacement **in the interim**.  
 
 They’re trying to stop the **attrition** of their rights -  
-I can't find a **plausible** motive for anyone -  
+I can't find a **plausible** motive for anyone  
 
 A top post on the subreddit this morning calls the decision “market manipulation,” with angry comments calling for users to “dump robinhood for good” and **lamenting** the ensuring fall in stock prices that shortly followed the announcement.  
 However, Apple's apps do not track users or share data for advertising purposes, so this seems to be a **bemusing** foundation for the lawsuit. -   
 in December, Facebook paid for a series of full-page advertisements in national newspapers to **berate**  iOS 14 App Tracking Transparency, saying that it harms small businesses.   
-Hedge funds are **reeling** and amateurs are **touting** their new power. -  
+Hedge funds are **reeling** and amateurs are **touting** their new power.  
 When you look at long-term historical returns on companies of different sizes, the results **bear out** this framework  
 no need for resumes, recruiter calls, or **haranguing** your friends for referrals. -  
 Rand Paul **spars** with ABC host over election integrity  
@@ -40,17 +40,17 @@ Because of his **erratic** approach to policymaking and his embrace of far-right
 Any remaining **goodwill** was extinguished with the storming of the Capitol on January 6  
 ODP Chairman Joseph Vassalluzzo said similar competition concerns that might invite regulatory attention made a **tie-up** **untenable**  
 
-Jone felt she could only **confide in** her mother. -  
+Jone felt she could only **confide in** her mother.  
 It took him years to **confide in** me  
 Let me know if you **run into** any **snags**.  
 
-It's like tinder but for **spinsters** elderly women looking for sex -  
+It's like tinder but for **spinsters** elderly women looking for sex  
 His wife is here, **grow a pair** and talk to her, find out for sure.  
 Because she'd have to be crazy to tell him and I asked her **point blank** if she was crazy and she **swore** to me no, she's not crazy  
 
-**solemn** ceremony -  
+**solemn** ceremony  
 The stars **spangled** banner  
-that flag way up on the **rampart** -  
+that flag way up on the **rampart**  
 if they will lower that flag, the **shelling** will stop immediately.  
 the rampart was tall enough there stood flag completely **nondescript** in **shreds**  
 at the **twilight**'s last **gleaming**  
@@ -59,7 +59,7 @@ through the **perilous** flight
 
 Not many people can **upstage** Lady Gaga, J.Lo, or a new president.  
 President Biden is facing so many challenges on the **homefront**, it’s easy to forget the one that lies 7,000 miles away.  
-One of a series of moves the Trump administration made in its last few days to **rankle** Beijing. -   
+One of a series of moves the Trump administration made in its last few days to **rankle** Beijing.  
 Biden’s team will also take a **hard line** on China  
 Many QAnon conspiracy theorists were **dejected** after the inauguration failed to **materialize** into the “Great Awakening” that had been **prophesied**.  
 If you made it through the pandemic **unscathed**, like many in the higher-income brackets did, you tried to **level up your crib**.   
@@ -81,10 +81,10 @@ The screen is **encroaching** on the eye, from TVs to computer monitors to phone
 > Just as **life-saving** antibiotics also strengthen bacteria and weaken the **collective immune system**, or as **steroids** improve short-term performance **at the expense** of long-term health, there are trade-offs  
 
 turning a human-centered medium into a platform for manipulation, surveillance, and **extraction**  
-participation in the ever-changing economy requires some **acquiescence** to technology, from **streetcars** and eyeglasses to elevators and computers -  
+participation in the ever-changing economy requires some **acquiescence** to technology, from **streetcars** and eyeglasses to elevators and computers  
 But our technological investments **come with strings**  
 Testosterone deficiency has a **prevalence** of 10%-40% among adult males, and 20% among AYA men aged 15-39 years  
-This is especially worrisome in this young adult age group, as many men feel **stigma** and are less likely to seek care for these **low libido** and **erectile** dysfunction -  
+This is especially worrisome in this young adult age group, as many men feel **stigma** and are less likely to seek care for these **low libido** and **erectile** dysfunction  
 Robinhood seemed a new **prodigal** son of 21st-century capitalism, an awesome hybrid of Wall Street and Silicon Valley -  
 with the **cheery**, **youth-friendly** user-engagement strategies of Instagram or TikTok  
 These **harmless-looking** **eggheads** sounded genuinely excited to bring their product to the world, explaining they had a mission to “democratize finance for all.”  
@@ -97,7 +97,7 @@ The greasy food made her stomach **heave**
 The town is **in uproar** over the **dispute**  
 the tweet is **disputed**  
 The book gives a **yardstick** for measuring assets.  
-Under 71 **decibels** is considered quiet. -  
+Under 71 **decibels** is considered quiet.  
 **undies**  
 **hives**  
 She's a total **airhead**!  
@@ -114,11 +114,11 @@ She's a total **airhead**!
 **shoestring**  
 As some sort of **prude** who just lays there like a **cold fish**?  
 
-Whether you're looking for a room in a home or a **villa** to yourself, for budget accommodations or a unique **slice of luxury**, you can probably find it at your preferred destination -  
+Whether you're looking for a room in a home or a **villa** to yourself, for budget accommodations or a unique **slice of luxury**, you can probably find it at your preferred destination  
 The company has already been on **a heck of a journey**, but I see it as a **disruptor** that will continue to change how we travel for many years to come  
 
 The recession is finally beginning to show signs of **bottoming out**  
-Company guidance, which disappeared last year as executives were **reticent** to provide profit and revenue forecasts, has actually come back with some **gusto** so far leading into this earnings season -  
+Company guidance, which disappeared last year as executives were **reticent** to provide profit and revenue forecasts, has actually come back with some **gusto** so far leading into this earnings season  
 When possible, try not to use more than 10% of your asset value as margin and **draw a line** at 30%.  
 "This is one **unfettered** presidential power the president enjoys using", one former administration official was quoted as saying by Reuters  
 
@@ -308,7 +308,7 @@ A **general** comes before a **colonel**.
 A woman protester was killed by a **ricochet** (bullet).  
 the sound **ricocheted** around the hall.  
 **mugger**  
-eagle's **talons** -  
+eagle's **talons**  
 **incest** was punishable by death  
 
 A little bird was **bobbing** its head up and down  

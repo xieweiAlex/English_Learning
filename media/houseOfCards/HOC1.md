@@ -8,8 +8,25 @@ If you're serious about Tusk, you should **wine and dine** him. Make him feel ve
 Of all the things I **hold in high regard**, rules are not in one of them.  
 **briefing**  
 I thought Remy **filled you in**.  
-He will not accept the nomination if his assets are in a **blind trust** and he can't fight off the threat.  
-This is **ludicrous**. -  
+He will not accept the nomination if his assets are in a **blind trust** and he can't **fight off** the threat.  
+This is **ludicrous**.  
+So he can give him his **two cents** about who he will nominate.  
+I'm sure I can **squeeze it in**.  
+this has to stay **off the books**, just like the dinner with Tusk.  
+If you make me pull out my **badge**, I have to **take you in**.  
+Let's not **make a scene**  
+**go to town**, bitch!  
+Sorry Frank, I had to **trade up**. Sancorp is a big fish, but Raymond Tusk is a **whale**.  
+A **valiant** effort, though, I respect that.  
+I'm in no mood for **puzzles**.  - **humor me a moment**  
+I would not do a **blank check**  
+You've a reputation for **pragmatism** - and I also have avoided a reputation for **indentured** **servitude**. -   
+You're not offering cooperation, you're demanding **tutelage**. -  
+
+It also has the **added benefits** of **knocking on wood**  
+My father believes that success is **a mixture of preparation and luck**.  
+We do like to run a **tight ship**  
+
 
 ## E 12 
 Should I prepared to press? - If he's **amenable**.  

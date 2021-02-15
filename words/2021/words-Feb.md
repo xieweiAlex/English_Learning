@@ -1,6 +1,97 @@
 
+## Week 2 
+
+The booking is only **provisional**.  
+
+That there are not much that we can worry about, and the stock just kind of **petering** along, that can be a great opportunity to buy option  
+
+
+increasing their **ideation** capability  
+And life design will help you live into whatever version of you is now playing at the **Cineplex**  
+Radical collaboration works on the principle that people with very different backgrounds will bring their **idiosyncratic** technical and human experiences to the team  
+A well-designed life is not a life of **drudgery**  
+That may sound a bit **melodramatic**, but many people tell us that this is a good description of their lives  
+A painter can create an **artistic** masterpiece alone on a **windswept coast**, but a designer cannot create the iPhone alone, windswept beach or not  
+Most people do not have that one thing they are passionate about—that **singular** motivator that drives all of their life decisions and **infuses** every waking moment with a sense of purpose and meaning.
+Let’s face it, you’re not reading this book because you have all the answers, are in your dream job, and have a life **imbued** with more meaning and purpose than you can imagine
+You have a **wicked problem**. -  
+he’s had a lot of problems, and would say that this whole book comes out of his astonishing **ineptitude**  
+So the **unholy** union of Jacques Cousteau and Mrs. Strauss caused Dave to work on the wrong problem for over two years  
+The **premeds** were killing it in class. -  
+Academically, he was getting crushed, as were his dreams of someday getting paid to **frolic** with the seals while speaking in a French accent  
+Someday, however, he still hopes to **frolic** with seals.  
+We also tend to get **mired** in what we call **gravity problems**.  
+They fight it **tooth and nail**, with everything they've got.  
+
+And we’ll let you in on a secret—no one has ever failed our class. In fact, it’s impossible to **flunk**.  
+**doctoral** **dissertation**  
+
+After Tesla's **cannonball** into bitcoin on Monday, more established parts of the **biz** world are **wading into** the crypto waters.   
+All the while, rich **gringos** are walking around the island and paying no or very little tax -  
+
+> Any time a new tax reduction strategy comes along, you can bet the sharks will start circling, looking for weaknesses and ways to make things easier
+
+That’s happening in **Puerto Rico** **in spades**.
+Yet Mr. Mori suggested that he did not agree with the criticism **levied** against him, saying he had been misinterpreted  
+After Mr. Mori made his sexist **remarks** last week, a **backlash** **swiftly** followed, and he apologized the next day at a news conference  
+Many investors may **fall prey to** emotional decision making and trying to time or predict the market  
+If you miss opportunities like these in the months and years ahead, you may never **live it down**.  
+
+**wicked** problems 
+Chinese consumers are **fickle**  
+The weather here is notoriously **fickle**  
+**Fickle lover**  
+birthday **flan**  
+The snake has very sharp **fangs**  
+I will **earmark** this money for your research  
+Correct speech is an **earmark** of the educated man.  
+The volcano threw new showers of **magma** and **ash** into the air -  
+Her voice had a soft Welsh **lilt** to it. -  
+**Confetti** showered down on the newly-**weds**. -  
+**Anaconda** sunning on a tree -  
+Or even more **tersely** -  
+
+Now I'm not one to get **mushy**, but I have to tell you that if love was measured in gold, I'd be a billionaire!  
+When you see an industry dominated by companies that are decades old, some approaching their **centennial**, you might wonder if that industry is **ripe** for disruption  
+time to **ideate** alternative futures -  
+
+The world of trading is being flipped on its head by the once **innocuous** retail investors  
+Wall Street has been **shell-shocked** by a band of 'Reddit traders' who squeezed $10s of billions from short-selling hedge funds, bringing some major firms to their knees  
+That sector has been on fire since November, but today's action was **head-spinning**, **to say the least**. We'll see how long the enthusiasm lasts.  
+
+Rifles and cannons **volleyed** on all sides.  
+He played a backhand **volley**.  
+Lisa was **rankled** by his assertion  
+The police **vigorously** denied that **excessive** force had been used.  
+
+**sizable**
+this very **sizable** fiscal policy package.  
+it's on the **cusp**  
+we're evolving towards the **metaverse**  
+the market is **discerning**, it's a sign we're not in a bubble 
+**parle**  
+**bub**  
+**zine**  
+**out of whack**  
+He gave the ball a good **whack**. 
+**wack**  
+I always took you for a nickel and **diming** cheapskate, Fran  
+Pigs on the farm go **oink**, oink.  
+**parkway**  
+**skywalk**  
+**overpass** 
+**goldie**  
+**goldilocks economy** -  
+**alphabetize**  
+**bumblebee**  
+This report seemed to **hit all the right notes**: it clearly shows we're back **on the mend** from November's job losses  
+Cries for help were heard coming from the **mangled** concrete. -  
 
 ## Week 1 
+
+**Tepid** jobs recover  
+As for Jassy, he's been at Amazon since 1997 and built AWS from a minor **offshoot** of Amazon's e-comm operations to a cloud computing leader. -   
+
 Keep your **head down** and your **nose clean**.  
 However, the investor **forfeits** stock gains if the price moves above the option's strike price.  
 

@@ -170,7 +170,7 @@ There was a **solitary** sheep in the field.
    
 The village **straddles** the frontier  
 **straddle** on the tariff issue.  
-The **syndicate** appears to be organized like a typical corporation, with descending levels of power. -  
+The **syndicate** appears to be organized like a typical corporation, with descending levels of power.  
 He runs his own little crime **syndicate**.  
 The stairs **creaked** as she went up them.  
 a **shadowy** path through the woods.  
@@ -269,7 +269,7 @@ The meeting **deadlocked over** the wage issue
 My **gorge** rose at the **sight**.  
 The children **gorged** on potato chips  
 East of the **gorge** **leveled out**.  
-The reporter described it as **sombre**. That means dark and serious. -  
+The reporter described it as **sombre**. That means dark and serious.  
 The fever was a **sombre** **presage** of his final illness. --  
 **An apple of discord**  
 A note of **discord** **crept** into their relationship.  
