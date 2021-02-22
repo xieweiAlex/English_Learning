@@ -24,11 +24,11 @@ The scheme is still **on the anvil** -
 He was **cooped up** in a tiny room.  
 My personal opinion is that we just **ought to** settle back and **take our lumps** and start fresh  
 No matter how many things are going on around you, or how **on edge** you feel  
-I was **hoisted** by my own **petard**, the one petard I thought would never hoist me. -  
+I was **hoisted** by my own **petard**, the one petard I thought would never hoist me.   
 Police surrounded Twitter HQ this week in preparation of Pro-Trump Rally that **fizzled out**.   
 
 You can't just **spout off** a bunch of terms you don't understand  
-The people who **glom onto** you, because of who they think you are, and think they can sleep on your couch and eat your food. -  
+The people who **glom onto** you, because of who they think you are, and think they can sleep on your couch and eat your food.   
 you care about people more than just yourself. And **for what it's worth**, you will be a wonderful mother.  
 Skate shoes are purposely designed to handle a lot of stress as well as **wear and tear**  
 We need to take this **portrait** before you and I both **take a powder**.  

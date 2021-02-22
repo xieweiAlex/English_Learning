@@ -23,7 +23,6 @@ But there's **bound to be** some job losses and displacement **in the interim**.
 
 They’re trying to stop the **attrition** of their rights -  
 I can't find a **plausible** motive for anyone  
-
 A top post on the subreddit this morning calls the decision “market manipulation,” with angry comments calling for users to “dump robinhood for good” and **lamenting** the ensuring fall in stock prices that shortly followed the announcement.  
 However, Apple's apps do not track users or share data for advertising purposes, so this seems to be a **bemusing** foundation for the lawsuit. -   
 in December, Facebook paid for a series of full-page advertisements in national newspapers to **berate**  iOS 14 App Tracking Transparency, saying that it harms small businesses.   

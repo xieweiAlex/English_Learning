@@ -1,3 +1,8 @@
+Everything I **pitch**, he **shoots down**.  
+Just another dumb teenage girl, so **liquored up**, she forgot to make sure her boyfriend **wrapped** his **tweedle**.  
+if an investor is very bearish, they may be **better off** simply selling the stock, since the premium received for writing a call option will do little to **offset** the loss on the stock if the stock **plummets**.  
+I wasn't paying them enough money to **put up with** my crap  
+
 I've prepared our agreement, **look it over** and sign it **at your leisure**  
 Jesus Christ, Judah. Do you ever **read a room**?  
 If things don't **perk up** the first quarter, we might be looking at **broader** layoffs.  
@@ -10,7 +15,6 @@ They fight it **tooth and nail**, with everything they've got.
 Many investors may **fall prey to** emotional decision making and trying to time or predict the market  
 If you miss opportunities like these in the months and years ahead, you may never **live it down**.  
 That sector has been on fire since November, but today's action was **head-spinning**, **to say the least**. We'll see how long the enthusiasm lasts.  
-
 This report seemed to **hit all the right notes**: it clearly shows we're back **on the mend** from November's job losses  
 
 we do like to run a **tight ship**  

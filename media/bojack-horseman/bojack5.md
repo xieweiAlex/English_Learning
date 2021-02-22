@@ -1,3 +1,18 @@
+## E 5 
+
+Just another dumb teenage girl, so **liquored up**, she forgot to make sure her boyfriend **wrapped** his **tweedle**.  
+Well, that's all true, but I'm not some **backwoods** **hick**.  
+Why aren't they just **skidding** towards the side of the building, and then they **roll off** just as their bikes go **careening** over the edge?   
+Everything I **pitch**, he **shoots down**.  
+Hey, I got a **nutty** idea, what if you deferred for a year?  
+
+
+
+## E 4  
+
+Go to the award show, take down that **skeevy** **so-and-so**, and then during commercial breaks, get in some Hollywoo **hobnobbing**.  
+hobnobbing sexual violence, protracted, **lascivious** nude scenes. -  
+**culpable** for that **complicit**  
 
 ## E 1  
 

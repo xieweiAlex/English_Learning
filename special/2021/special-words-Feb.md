@@ -1,4 +1,23 @@
 
+**discernible**
+
+**outweigh**
+
+**devious**
+
+**offshoot**
+
+**tortuous**
+
+**strenuous**
+
+**malleable**, **malleability**  
+
+**meticulous**
+
+## Week 1 & 2 
+**avalanche**
+
 **mushy**  
 
 **pernicious** 
