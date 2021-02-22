@@ -77,7 +77,7 @@ That may sound a bit **melodramatic**, but many people tell us that this is a go
 A painter can create an **artistic** masterpiece alone on a **windswept coast**, but a designer cannot create the iPhone alone, windswept beach or not  
 Most people do not have that one thing they are passionate about—that **singular** motivator that drives all of their life decisions and **infuses** every waking moment with a sense of purpose and meaning.
 Let’s face it, you’re not reading this book because you have all the answers, are in your dream job, and have a life **imbued** with more meaning and purpose than you can imagine
-You have a **wicked problem**. -  
+You have a **wicked problem**.  
 he’s had a lot of problems, and would say that this whole book comes out of his astonishing **ineptitude**  
 So the **unholy** union of Jacques Cousteau and Mrs. Strauss caused Dave to work on the wrong problem for over two years  
 The **premeds** were killing it in class. -  
@@ -112,7 +112,7 @@ The volcano threw new showers of **magma** and **ash** into the air -
 Her voice had a soft Welsh **lilt** to it. -  
 **Confetti** showered down on the newly-**weds**. -  
 **Anaconda** sunning on a tree -  
-Or even more **tersely** -  
+Or even more **tersely**  
 
 Now I'm not one to get **mushy**, but I have to tell you that if love was measured in gold, I'd be a billionaire!  
 When you see an industry dominated by companies that are decades old, some approaching their **centennial**, you might wonder if that industry is **ripe** for disruption  
@@ -153,7 +153,7 @@ Cries for help were heard coming from the **mangled** concrete. -
 ## Week 1 
 
 **Tepid** jobs recover  
-As for Jassy, he's been at Amazon since 1997 and built AWS from a minor **offshoot** of Amazon's e-comm operations to a cloud computing leader. -   
+As for Jassy, he's been at Amazon since 1997 and built AWS from a minor **offshoot** of Amazon's e-comm operations to a cloud computing leader.  
 
 Keep your **head down** and your **nose clean**.  
 However, the investor **forfeits** stock gains if the price moves above the option's strike price.  
@@ -170,12 +170,12 @@ You can **squelch** this message by running one of the following commands someti
 Simply put, if an investor intends to hold the underlying stock for a long time but does not expect an appreciable price increase in the near term then they can generate income (premiums) for their account while they wait out the **lull**  
 if an investor is very bearish, they may be **better off** simply selling the stock, since the premium received for writing a call option will do little to **offset** the loss on the stock if the stock **plummets**.  
 
-The **amygdala**, is the part of brain that has the fight-or-flight that produces anxiety -  
+The **amygdala**, is the part of brain that has the fight-or-flight that produces anxiety  
 the **prefrontal** **cortex** is the part of brain which we call for executive functioning, or reflecting  
 **equanimity**  
 
 **zoonotic** virus  
-That's what make this coronavirus so **devious**. -  
+That's what make this coronavirus so **devious**.  
 **antigen**, **antibody**  
 Its venture capital backers have stood firm and **re-upped** their support, **pouring** $3.4 billion into the broker since last week to help it weather the storm  
 Robinhood's **vague** statement Thursday morning and a CNBC interview with CEO Vlad Tenev that evening did nothing to **douse** the fire.  

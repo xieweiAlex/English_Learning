@@ -84,14 +84,14 @@ participation in the ever-changing economy requires some **acquiescence** to tec
 But our technological investments **come with strings**  
 Testosterone deficiency has a **prevalence** of 10%-40% among adult males, and 20% among AYA men aged 15-39 years  
 This is especially worrisome in this young adult age group, as many men feel **stigma** and are less likely to seek care for these **low libido** and **erectile** dysfunction  
-Robinhood seemed a new **prodigal** son of 21st-century capitalism, an awesome hybrid of Wall Street and Silicon Valley -  
+Robinhood seemed a new **prodigal** son of 21st-century capitalism, an awesome hybrid of Wall Street and Silicon Valley  
 with the **cheery**, **youth-friendly** user-engagement strategies of Instagram or TikTok  
 These **harmless-looking** **eggheads** sounded genuinely excited to bring their product to the world, explaining they had a mission to “democratize finance for all.”  
 **Small-time** customers who can’t afford a whole share of, say, Amazon stock can buy fractional stocks  
 
 **parkway**  
 The greasy food made her stomach **heave**  
-**Heave** the box onto the top shelf. -  
+**Heave** the box onto the top shelf.  
 **lovebird**  
 The town is **in uproar** over the **dispute**  
 the tweet is **disputed**  
@@ -155,7 +155,7 @@ Business leaders are publicly **recoiling** from the GOP after party officials t
 My personal opinion is that we just **ought to** settle back and **take our lumps** and start fresh  
 The car is in **pristine** condition.  
 **commonweal** activities/organize
-A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**. -  
+A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**.  
 I don't like **flips of the coin**.  
 He looked suddenly **sombre**, **pensive** 😔. -   
 > The issue appears to be an example of convenience **trumping** security  
@@ -169,7 +169,7 @@ I've bought my **fair share** of tickets, so I'll wear the **dunce cap**, too. B
 A pimple occurs when a **pore** gets **clogged**. The end result depends on the materials that **plug up** the **pore**  
 Please **plug up** the hole for me.  
 
-He was treated with **penicillin** injections -  
+He was treated with **penicillin** injections  
 **gonad**  
 an anti-**tetanus** injection -  
 **continuum**  

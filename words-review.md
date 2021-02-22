@@ -5,11 +5,12 @@ You've a reputation for **pragmatism** - and I also have avoided a reputation fo
 You're not offering cooperation, you're demanding **tutelage**. -  
 I saw you **cuss out** the **drill** **sergeant** when we were **knobs**. -  
 
+## bojack5.md ## 
+media/bojack-horseman/bojack5.md
+hobnobbing sexual violence, protracted, **lascivious** nude scenes. -  
+
 ## bojack4.md ## 
 media/bojack-horseman/bojack4.md
-You're a reminder of **disparity** of wealth in this county. Poor people find that dreadfully **gauche**.   
-I bet your thank-you letters are **perfunctory**, your flower arrangement are **uninspired**, and your courtesy is an embarrassment.   
-It'll **dispense** with the need for goodbyes, **thus** **eliminating** my **transgression**.   
 A treasure from the past and a symbol of the **tenacity**. -  
 Your booty's been **adjudicated**! -  
 Asking for points is **conceited**. That's more points for me. -  
@@ -18,22 +19,22 @@ It's not like you to be so **testy**. -
 
 ## words-Feb.md ## 
 words/2021/words-Feb.md
-You have a **wicked problem**.   
+You want to use **waxy** potatoes with thin skin rather than **starchy** potatoes like **russets** -  
+North America’s first Bitcoin ETF got off to a **stellar** start in its debut, with investors exchanging $165 million worth of shares -  
+"New Car Smell" Is the **Scent** of **Carcinogens**. Even Short Trips May **Overexpose** Us -  
+She is **meticulous** in her presentation of facts. -  
 The **premeds** were killing it in class. -  
 All the while, rich **gringos** are walking around the island and paying no or very little tax -  
 The volcano threw new showers of **magma** and **ash** into the air -  
 Her voice had a soft Welsh **lilt** to it. -  
 **Confetti** showered down on the newly-**weds**. -  
 **Anaconda** sunning on a tree -  
-Or even more **tersely**   
 time to **ideate** alternative futures -  
+I always took you for a nickel and **diming** cheapskate, Frank -  
 **goldilocks economy** -  
 Cries for help were heard coming from the **mangled** concrete. -  
-As for Jassy, he's been at Amazon since 1997 and built AWS from a minor **offshoot** of Amazon's e-comm operations to a cloud computing leader.    
 That, like creating the existing credit-based monetary system, is of course a type of **alchemy**—i.e., making money out of little or nothing -  
 a difficult but free life, or blissful **subjugation**? -  
-The **amygdala**, is the part of brain that has the fight-or-flight that produces anxiety   
-That's what make this coronavirus so **devious**.   
 
 ## words-Jan.md ## 
 words/2021/words-Jan.md
@@ -43,12 +44,8 @@ They’re trying to stop the **attrition** of their rights -
 However, Apple's apps do not track users or share data for advertising purposes, so this seems to be a **bemusing** foundation for the lawsuit. -   
 no need for resumes, recruiter calls, or **haranguing** your friends for referrals. -  
 Colourful **psychedelic** journey through the dark night of the soul. -  
-Robinhood seemed a new **prodigal** son of 21st-century capitalism, an awesome hybrid of Wall Street and Silicon Valley   
-**Heave** the box onto the top shelf.   
 The koala is a sluggish, tailless, furry **arboreal** **marsupial** -  
-A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**.  
 He looked suddenly **sombre**, **pensive** 😔. -   
-He was treated with **penicillin** injections   
 an anti-**tetanus** injection -  
 **diamond sutra** -  
 Each passenger slept on the **berth** allotted to him -   
