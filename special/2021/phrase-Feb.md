@@ -1,3 +1,9 @@
+We know some stocks just won’t **make the cut**. But we also know they don’t have to.  
+I would **chalk this up** to typical profit taking after a spectacular run-up.  
+That's a matter for you to **take up with** your boss  
+You got a **head start** on most kids, you're actually very lucky.  
+
+You might think risk and investing **go hand-in-hand**, John.  
 Everything I **pitch**, he **shoots down**.  
 Just another dumb teenage girl, so **liquored up**, she forgot to make sure her boyfriend **wrapped** his **tweedle**.  
 if an investor is very bearish, they may be **better off** simply selling the stock, since the premium received for writing a call option will do little to **offset** the loss on the stock if the stock **plummets**.  

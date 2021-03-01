@@ -1,4 +1,14 @@
 
+**uptake** 
+
+**liberty**
+
+**preliminary**
+
+**thrash**
+
+**ideate**, **ideation** 
+
 **discernible**
 
 **outweigh**
@@ -9,7 +19,7 @@
 
 **tortuous**
 
-**strenuous**
+**arduous**, **strenuous**
 
 **malleable**, **malleability**  
 

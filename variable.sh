@@ -2,6 +2,7 @@
 export WORDS_REVIEW="words-review.md"
 
 export files=(
+  "./media/houseOfCards/HOC2.md"
   "./media/houseOfCards/HOC1.md"
   "./media/bojack-horseman/bojack5.md"
   "./media/bojack-horseman/bojack4.md"

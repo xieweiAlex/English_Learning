@@ -22,6 +22,7 @@ I'm in no mood for **puzzles**.  - **humor me a moment**
 I would not do a **blank check**  
 You've a reputation for **pragmatism** - and I also have avoided a reputation for **indentured** **servitude**. -   
 You're not offering cooperation, you're demanding **tutelage**. -  
+You don't **kiss and tell** in that business  
 
 It also has the **added benefits** of **knocking on wood**  
 My father believes that success is **a mixture of preparation and luck**.  
@@ -40,7 +41,9 @@ The assumption is you **strong-armed** him into closing the shipyard.
 **free-for-all**  
 She **blindsided** me, now she knows my eyes are **wide open**.  
 **hang in there**, Okay?  
-
+I have a **distaste** for **hypotheticals** as just you have a distaste for speculation   
+I don't **shackle** myself to people I don't know.  
+World Well isn't your **vassal**. - Yes, it is, entirely. -  
 
 ## E 11 
 Has he been **bad-mouthing** about me?  
