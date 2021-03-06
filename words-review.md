@@ -1,12 +1,20 @@
+
+
+## HOC2.md ## 
+media/houseOfCards/HOC2.md
+If he's not too busy trying to **sodomize** me. -  
+
 ## HOC1.md ## 
 media/houseOfCards/HOC1.md
 This town is way too **incestuous**. -  
 You've a reputation for **pragmatism** - and I also have avoided a reputation for **indentured** **servitude**. -   
 You're not offering cooperation, you're demanding **tutelage**. -  
+World Well isn't your **vassal**. - Yes, it is, entirely. -  
 I saw you **cuss out** the **drill** **sergeant** when we were **knobs**. -  
 
 ## bojack5.md ## 
 media/bojack-horseman/bojack5.md
+I was sure that she would get in one final **zinger**, about how I **let her down**, and about how I was fat and stupid. -  
 hobnobbing sexual violence, protracted, **lascivious** nude scenes. -  
 
 ## bojack4.md ## 
@@ -17,23 +25,39 @@ Asking for points is **conceited**. That's more points for me. -
 For my crimes, I will be fed to its **ravenous** flames. -  
 It's not like you to be so **testy**. -  
 
+## words-Mar.md ## 
+words/2021/words-Mar.md
+Lemonade (NYSE:LMND), which went public in July, is bringing modern technology to the **venerable** insurance industry -  
+U.S. stocks surge as treasury yields **pare** gains -  
+
 ## words-Feb.md ## 
 words/2021/words-Feb.md
+Investor's **skittish** attitude toward tech companies. -  
+Your suggestion has been **duly** noted. -  
+We can not **dilly-dally** at this point. -  
+He **buttoned up** his remarks on a positive note by adding, "while we should not underestimate the challenges we currently face, developments point to an improved outlook for later this year." -  
+It was a **backhanded** compliment. -  
+**skedaddle** before I call the cops -  
+Can you **waggle** your ears? -  
+he was left alone and **agape**. -  
+Naked, she stepped **gingerly** into the water. -  
+I can **aft** and **luffed** her to the open sea -  
+The classics have been looking good since they started preaching the electric **gospel**. -  
+Their **ire** was **directed** mainly at the government. -  
+He had a good **rummage** inside the sofa. -  
+**cantaloupe melon** -  
+Bruce is a **spaz**, but he's one of the best doctors I know. -  
 You want to use **waxy** potatoes with thin skin rather than **starchy** potatoes like **russets** -  
 North America’s first Bitcoin ETF got off to a **stellar** start in its debut, with investors exchanging $165 million worth of shares -  
+He breathed in the **frosty** air. -  
 "New Car Smell" Is the **Scent** of **Carcinogens**. Even Short Trips May **Overexpose** Us -  
-She is **meticulous** in her presentation of facts. -  
-The **premeds** were killing it in class. -  
-All the while, rich **gringos** are walking around the island and paying no or very little tax -  
 The volcano threw new showers of **magma** and **ash** into the air -  
 Her voice had a soft Welsh **lilt** to it. -  
 **Confetti** showered down on the newly-**weds**. -  
 **Anaconda** sunning on a tree -  
-time to **ideate** alternative futures -  
-I always took you for a nickel and **diming** cheapskate, Frank -  
+I always took you for a nickel and **diming** **cheapskate**, Frank -  
 **goldilocks economy** -  
 Cries for help were heard coming from the **mangled** concrete. -  
-That, like creating the existing credit-based monetary system, is of course a type of **alchemy**—i.e., making money out of little or nothing -  
 a difficult but free life, or blissful **subjugation**? -  
 
 ## words-Jan.md ## 

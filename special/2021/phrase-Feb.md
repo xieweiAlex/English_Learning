@@ -1,3 +1,5 @@
+
+## Week 3, 4 
 We know some stocks just won’t **make the cut**. But we also know they don’t have to.  
 I would **chalk this up** to typical profit taking after a spectacular run-up.  
 That's a matter for you to **take up with** your boss  
