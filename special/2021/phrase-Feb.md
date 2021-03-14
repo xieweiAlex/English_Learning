@@ -1,4 +1,3 @@
-
 ## Week 3, 4 
 We know some stocks just won’t **make the cut**. But we also know they don’t have to.  
 I would **chalk this up** to typical profit taking after a spectacular run-up.  
@@ -19,7 +18,6 @@ If things don't **perk up** the first quarter, we might be looking at **broader*
 
 That’s happening in **Puerto Rico** **in spades**.
 They fight it **tooth and nail**, with everything they've got.  
-
 Many investors may **fall prey to** emotional decision making and trying to time or predict the market  
 If you miss opportunities like these in the months and years ahead, you may never **live it down**.  
 That sector has been on fire since November, but today's action was **head-spinning**, **to say the least**. We'll see how long the enthusiasm lasts.  

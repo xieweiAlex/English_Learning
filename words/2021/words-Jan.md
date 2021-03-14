@@ -12,7 +12,7 @@ Believe it or not, 2021 is now in **full swing**
 We haven't heard the end of this **outcry**  
 The U.S. economy is still clearly **ailing** with unemployment at **elevated** levels.   
 
-Fintech **behemoth** Robinhood **drew the ire** of Reddit this week when it restricted trades of GameStop amid an epic short squeeze that’s causing **havoc** from Wall Street to the White House. -  
+Fintech **behemoth** Robinhood **drew the ire** of Reddit this week when it restricted trades of GameStop amid an epic short squeeze that’s causing **havoc** from Wall Street to the White House.  
 Regulatory reforms instituted after the global financial crisis ensured that the U.S. banking sector was in **rude health** as the pandemic arrived.  
 the **preceding** quarter's record growth rebound was likely a **one-off** reflecting a flood of fiscal and monetary stimulus that will be hard to sustain given the administration's **razor thin** Senate majority.  
 Bitcoin is **off to the races** again. Thank Tesla CEO Elon Musk  
@@ -21,14 +21,14 @@ This theory suggests that these traders are motivated **primarily** by their **d
 The people investing today are driven by **righteous anger**, about **generational** injustice  
 But there's **bound to be** some job losses and displacement **in the interim**.  
 
-They’re trying to stop the **attrition** of their rights -  
+They’re trying to stop the **attrition** of their rights  
 I can't find a **plausible** motive for anyone  
 A top post on the subreddit this morning calls the decision “market manipulation,” with angry comments calling for users to “dump robinhood for good” and **lamenting** the ensuring fall in stock prices that shortly followed the announcement.  
 However, Apple's apps do not track users or share data for advertising purposes, so this seems to be a **bemusing** foundation for the lawsuit. -   
 in December, Facebook paid for a series of full-page advertisements in national newspapers to **berate**  iOS 14 App Tracking Transparency, saying that it harms small businesses.   
 Hedge funds are **reeling** and amateurs are **touting** their new power.  
 When you look at long-term historical returns on companies of different sizes, the results **bear out** this framework  
-no need for resumes, recruiter calls, or **haranguing** your friends for referrals. -  
+no need for resumes, recruiter calls, or **haranguing** your friends for referrals.  
 Rand Paul **spars** with ABC host over election integrity  
 
 ### Week 3 
@@ -71,7 +71,7 @@ Sorting the array takes \mathcal{O}(n\log{n})O(nlogn), so overall complexity is 
 **Penicillin** was sold over the counter until the 1950s  
 There have been repeated calls to **reinstate** the death penalty  
 technically I can't refer to myself as an attorney until I'm **reinstated** and make **restitution** to my victims family. I'm a lawyer, and I'm a good one.  
-Colourful **psychedelic** journey through the dark night of the soul. -  
+Colourful **psychedelic** journey through the dark night of the soul.  
 
 Bitcoin is a **mirage**.  
 As the shutdown **drags on**, some businesses are also **taking a hit**  
@@ -157,7 +157,7 @@ The car is in **pristine** condition.
 **commonweal** activities/organize
 A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**.  
 I don't like **flips of the coin**.  
-He looked suddenly **sombre**, **pensive** 😔. -   
+He looked suddenly **sombre**, **pensive** 😔.  
 > The issue appears to be an example of convenience **trumping** security  
 
 But winning over this market will also pit Coupa against smaller rivals that may have more **piecemeal** solutions  
@@ -342,7 +342,7 @@ a fatty oil from **halibut** **livers**
 **wingman**  
 **footlocker**  
 **Ouija** helps me make all my big decisions  
-Each passenger slept on the **berth** allotted to him -   
+Each passenger slept on the **berth** allotted to him  
 **beanbag** chair   
 a mischievous **goblin**  
 **roper**  

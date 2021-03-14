@@ -1,7 +1,6 @@
-
-
 ## Week 4 
-Investor's **skittish** attitude toward tech companies. -  
+
+Investor's **skittish** attitude toward tech companies.  
 We know some stocks just won’t **make the cut**. But we also know they don’t have to.  
 
 That's a **monumental** movement in the bond market  
@@ -21,17 +20,17 @@ I spend an **inordinate** amount of my time in Vim. I do all my development in V
 there are no plans to **taper** their asset purchases; and that he would clearly communicate a change in policy before taking any action  
 these are the **very times** when owning a diversified portfolio of stocks makes the most sense  
 There is an intelligent, active, **malign** force working against us  
-We can not **dilly-dally** at this point. -  
+We can not **dilly-dally** at this point.  
 
-He **buttoned up** his remarks on a positive note by adding, "while we should not underestimate the challenges we currently face, developments point to an improved outlook for later this year." -  
-It was a **backhanded** compliment. -  
+He **buttoned up** his remarks on a positive note by adding, "while we should not underestimate the challenges we currently face, developments point to an improved outlook for later this year."  
+It was a **backhanded** compliment.  
 We all **stank** and nobody minded  
 **aimlessly**  
 **prettily**  
 The wind **whiffled** through the trees.  
 **gloatingly**  
 **skedaddle** before I call the cops -  
-Can you **waggle** your ears? -  
+Can you **waggle** your ears?  
 **crossly**  
 **bathe**  
 I had the most **supremely** awful day.  
@@ -42,11 +41,11 @@ I had the most **supremely** awful day.
 **emphatically**  
 he was left alone and **agape**. -  
 The bus had to **deviate** from its usual route because of a road closure  
-Naked, she stepped **gingerly** into the water. -  
+Naked, she stepped **gingerly** into the water.  
 these houses were **strung along** the thoroughfare.  
 He is highly **strung** for the game  
 **grotesquely** 
-the soldiers made a **headlong** rush for cover  
+the soldiers made a **headlong** rush for cover -  
 **anatomically**  
 I can **aft** and **luffed** her to the open sea -  
 Big Tech stocks have been the **laggards** so far this year and today was no different  
@@ -68,7 +67,7 @@ Nobody wants fights. Let's **call it quits**
 your hands are softer than **veal**  
 **christen**  
 The air was filled with the sweetness of **mimosa**  
-He had a good **rummage** inside the sofa. -  
+He had a good **rummage** inside the sofa.  
 A **taboo** against sex before marriage.  
 I belong to a **guild** of wine butlers.  
 **yuk**  
@@ -86,14 +85,14 @@ Values and **mores** and practices are changing all the time.
 **Loch Ness** monster  
 outreach  
 The boxers **slugged** it out to the finish.   
-Bruce is a **spaz**, but he's one of the best doctors I know. -  
+Bruce is a **spaz**, but he's one of the best doctors I know.  
 **sagittarius**  
 **creme**, **cream**  
 **crumble**  
 **eek**, **yikes**  
 what are you **jabbering** about, shipmate?    
 You want to use **waxy** potatoes with thin skin rather than **starchy** potatoes like **russets** -  
-North America’s first Bitcoin ETF got off to a **stellar** start in its debut, with investors exchanging $165 million worth of shares -  
+North America’s first Bitcoin ETF got off to a **stellar** start in its debut, with investors exchanging $165 million worth of shares  
 We think the benefits will far **outweigh** the costs in the longer run  
 You might think risk and investing **go hand-in-hand**, John.  
 Time is pressing. Mr Biden and his successors may not get a second chance to **recast** policy on such a scale.  
@@ -102,7 +101,7 @@ Since then, the stock is up well over 700%, **thrashing** the performance of the
 Many things are **cyclical**, but our love of animals is **ever-present** — and growing  
 People will tighten their own belt buckles long before they let the **kibble** **run out**   
 2020 may have been a **banner year** for pets, but we think spending on our furry friends will keep rising in 2021 and well beyond  
-He breathed in the **frosty** air. -  
+He breathed in the **frosty** air.  
 "New Car Smell" Is the **Scent** of **Carcinogens**. Even Short Trips May **Overexpose** Us -  
 However, the truth is that the president's ability to impact the economy and markets is generally **indirect** and **marginal**  
 **Relatively speaking**, presidential salaries are pretty **tame**.   
@@ -154,8 +153,8 @@ The snake has very sharp **fangs**
 I will **earmark** this money for your research  
 Correct speech is an **earmark** of the educated man.  
 The volcano threw new showers of **magma** and **ash** into the air -  
-Her voice had a soft Welsh **lilt** to it. -  
-**Confetti** showered down on the newly-**weds**. -  
+Her voice had a soft Welsh **lilt** to it.  
+**Confetti** showered down on the newly-**weds**.  
 **Anaconda** sunning on a tree -  
 Or even more **tersely**  
 
@@ -189,11 +188,11 @@ Pigs on the farm go **oink**, oink.
 **skywalk**  
 **overpass** 
 **goldie**  
-**goldilocks economy** -  
+**goldilocks economy**  
 **alphabetize**  
 **bumblebee**  
 This report seemed to **hit all the right notes**: it clearly shows we're back **on the mend** from November's job losses  
-Cries for help were heard coming from the **mangled** concrete. -  
+Cries for help were heard coming from the **mangled** concrete.  
 
 ## Week 1 
 

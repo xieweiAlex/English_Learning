@@ -111,7 +111,7 @@ songs that **evoke** old memories.
 a **defunct** political organization.  
 **spice of life**  
 healthy rivalry adds **spice** to the game.  
-**Reprieve** a condemned prisoner. -  
+**Reprieve** a condemned prisoner.  
 Sales have slowed down quite **markedly**  
 **rugby** football  
 **restoration** ecology  
@@ -275,7 +275,7 @@ The fever was a **sombre** **presage** of his final illness. --
 A note of **discord** **crept** into their relationship.  
 There are many **discords** in this family.  
 A **therapeutic** silence  
-**articles of confederation**. -  
+**articles of confederation**.  
 **autonomous confederation**  
 a wild **sequestered** spot.  
 Being **grouchy**.  

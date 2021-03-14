@@ -1,3 +1,22 @@
+## E 9 
+Blunt? - Well, she is a little **curt**. -  
+**no dice**  
+
+## E 8 
+I deserve to be adored by a man, yet here my dreams lie **dormant**! -  
+I like that you're **razzing** me. -  
+**full of life**  
+Why do all these idealistic, **vivacious** women eventually turn bitter and cruel after being with me? -   
+What's the common **denominator**?  
+I'm gonna go **dry off**, you two **chat it up**.  
+So you can **wean** yourself **off** of having fears!  
+It was, like, a very **formative** part of my childhood.  
+
+## E 7 
+Wow. How long was I talking? - I hope that's **cathartic** for you. -  
+I feel like I was **hogging** whole conversation. -  
+**whiney baby**  
+You literal **knucklehead**. -  
 
 ## E 6 
 You got a **head start** on most kids, you're actually very lucky.  

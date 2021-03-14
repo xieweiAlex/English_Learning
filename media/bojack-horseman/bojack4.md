@@ -34,7 +34,7 @@ This is a really **head-scratcher** for me
 ## E 9   
 I was not trying to engage in **punnery** during business hours.  
 This is a priceless family **heirloom**.  
-A treasure from the past and a symbol of the **tenacity**. -  
+A treasure from the past and a symbol of the **tenacity**.  
 Judah, you'll never guess who I just **ran into**.  
 So? What's the **prognosis**?  
 I wouldn't **beat yourself up**. **Miscarriages** happen for so many reasons.  
@@ -52,13 +52,13 @@ That's so **degrading**
 ## E 7 
 I'm not waiting around to be rescued like some **chump**.  
 **woodchuck**, **beaver**  
-Asking for points is **conceited**. That's more points for me. -  
-For my crimes, I will be fed to its **ravenous** flames. -  
+Asking for points is **conceited**. That's more points for me.  
+For my crimes, I will be fed to its **ravenous** flames.  
 He's got **moxie** and a soft **thorax**.  
 what an **eyesore**.  
 
 ## E 6  
-It's not like you to be so **testy**. -  
+It's not like you to be so **testy**.  
 that doll actually belongs to my mom, she is very sick, very **frail**.  
 I guess it's a **bad analogy**.  
 you care about people more than just yourself. And **for what it's worth**, you will be a wonderful mother.  

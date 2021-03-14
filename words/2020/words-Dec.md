@@ -81,7 +81,7 @@ a long and **winding** road.
 > The mind needs books like a sword needs a **whetstone** 
 
 No **minerals** have yet been exploited in **Antarctica**.  
-The thieves hid their **plunder** in the cave. -   
+The thieves hid their **plunder** in the cave.  
 
 you **sass** me like a toddler  
 The Internet company stock took a **nosedive**.  
@@ -119,7 +119,7 @@ Financial stocks also joined the party as real interest rates **crept** higher, 
 That put a serious **schism** in the 15-year relationship between the two companies, in addition to a massive dent in Intel's stock price and future growth  
 I made him **hold off** for another forty-five minutes.  
 
-Her fellow teachers greeted her proposal with **scorn** -  
+Her fellow teachers greeted her proposal with **scorn**  
 He **made no attempt** to conceal his **smirk**.  
 He replied with **haughty** **disdain**.  
 Bipartisan lawmakers **rebuked** President Trump for **downplaying** the breach. VOX
