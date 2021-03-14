@@ -28,9 +28,16 @@ Your booty's been **adjudicated**! -
 
 ## words-Mar.md ## 
 words/2021/words-Mar.md
+It looked as though the college would have to shut, but this week it was given a **reprieve**. -  
 You're not wanted here, so **scram**! -  
+to be cleverly cynical, to be superficially brilliant, to be **conspicuously** virtuous, to be cool, to be sophisticated, to be orthodox, to be a **snob**, to bully, to **pander**, to be **on the make** -  
+For the same reason, **presumably**, that others cling so **tenaciously** to the idea that Obama was born outside the US: because they so want to believe it -  
+Billy started to **snivel**. His mother smacked his hand -  
+a **sultry** weather -  
 **gauze** -  
 her skin had stayed soft and **supple** -  
+With over $195.57 billion in its **coffers**, a $1.5 billion investment in bitcoin would represent a 0.76% allocation. -   
+"Tim Apple," as Trump once called him, charmed and **cajoled** his way into the former president’s good graces, while keeping Beijing happy and finding ways to squeeze more revenue from the iPhone -  
 Unlike Jobs, he had no **pretensions** to being an artist -  
 2 Top SPAC Stocks to Buy Amid the Market **Carnage** -  
 They are essential if you want to unleash Vim’s **latent** power. Even if you don’t use Vim, these techniques have many benefits for any developer -  
