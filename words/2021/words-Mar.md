@@ -1,6 +1,33 @@
 
 ## Week 3 
 
+The reference is actually to investors who become too greedy at the trough and abandon their risk   
+
+I'm **fed up**  
+that's **the last straw**  
+I'm **at the end of my rope**  
+I want **sleep like a log**  
+Workers in a factory must **clock out** when they leave.  
+word of mouth  
+take a leak  
+
+purebred  
+hectic  
+painterly  
+auld  
+fetal  
+fixate  
+devoid  
+wench  
+festive  
+hearty  
+
+
+
+Americans are Itching to Travel Again – U.S. airports are now seeing travel activity on par with activity in March 2020, before restrictions went into place  
+Lumber has never been more expensive than in the current environment, and crude oil – which is used in paint, drain pipes, roof shingles, and flooring – has rallied over the past several months  
+
+
 Best Ever Instant Pot Beef Stew - This **mouthwatering** and easy to make Instant Pot Beef Stew is sure to become one of your favorite ever Instant Pot recipes!   
 
 China is a critical market for the company, so it wants to avoid any political controversies as it makes **inroads**  

@@ -1,3 +1,11 @@
+
+### Week 3 
+
+I'm **fed up**  
+that's **the last straw**  
+I'm **at the end of my rope**  
+I want **sleep like a log**  
+
 Either I **turn my back on** Cathy or I **stand behind** her.  
 While they are still ridiculously low by historical standards, the sudden rise threatens to **trip up** the pandemic housing rally  
 
