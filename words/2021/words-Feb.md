@@ -10,7 +10,7 @@ figure out the **illicit** activity
 **unleash**  
 **foreshadow**  
 The movie had a really **tacky** ending  
-Your suggestion has been **duly** noted. -  
+Your suggestion has been **duly** noted.  
 **floral**  
 **tush**  
 **gerbil** invasion   
@@ -53,7 +53,7 @@ The classics have been looking good since they started preaching the electric **
 The Federal Reserve remains **vexed** about the lack of inflation that has been a feature of the U.S. economy for the better part of the past decade  
 That's a matter for you to **take up with** your boss  
 As she is such a pretty woman, many men would like to **take up with** her  
-Their **ire** was **directed** mainly at the government. -  
+Their **ire** was **directed** mainly at the government.  
 Nobody wants fights. Let's **call it quits**  
 
 ## Week 3 
@@ -152,7 +152,7 @@ birthday **flan**
 The snake has very sharp **fangs**  
 I will **earmark** this money for your research  
 Correct speech is an **earmark** of the educated man.  
-The volcano threw new showers of **magma** and **ash** into the air -  
+The volcano threw new showers of **magma** and **ash** into the air  
 Her voice had a soft Welsh **lilt** to it.  
 **Confetti** showered down on the newly-**weds**.  
 **Anaconda** sunning on a tree -  

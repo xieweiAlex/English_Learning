@@ -1,4 +1,45 @@
 
+## Week 3 
+
+**duly** 
+
+**tenacious**
+**grit** 
+**perseverance**
+
+**stodgy** 
+**groggy**
+
+**existential**
+
+**setback**
+
+**abrasive**
+
+**offhanded**
+
+**heuristic**
+
+**pathetic**
+
+**dicey**
+
+**vibe**
+
+**latent**
+
+**cagey** 
+
+**spectacular**
+
+**corrosive**
+
+**cognizant**
+
+**grainy**
+
+## Week 2
+
 **boorish**
 
 **tidbit**

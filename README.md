@@ -5,11 +5,11 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 ### General Review 
 |  Review 🐗   |    File Marks       |  file   	|
 | ------------- |-------------  | ------- |
-| Monthly Word  |  A  | [current-month](./words/2021/words-Mar.md)   |
-| Monthly Word **Review**   |  I  |  [words-review](./words-review.md)       |
-| Monthly **Phrase** |  J  | [special-phrase][phrase-2021-Mar]
-| Monthly **Special Words** |  K  | [special-words][special-2021-Mar]
-| Monthly **Verb Words** |  V  | [special-Verb][verb-2021-Jan]       |
+| Monthly Word  |  A  | [Current Month](./words/2021/words-Mar.md)   |
+| Monthly Word **Review**   |  I  |  [Words Review](./words-review.md)       |
+| Monthly **Phrase** |  J  | [Special Phrase][phrase-2021-Mar]
+| Monthly **Special Words** |  K  | [Special Words][special-2021-Mar]
+| Monthly **Verb Words** |  V  | [Special Verb][verb-2021-Jan]       |
 | **Movie** Record |  L | [movie-record](./media/movie.md)       |
 
 ### Special Review
@@ -50,7 +50,7 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 ### TV Show 
 |  TV Show      |     S1     |  S2 	| S3   | S4 | S5 | S6   | S7   | S8   |
 | ------------ |--------  | ------- | ---- | ---| -- | ---  | ---  | ---  |
-|    House of Card  🐺  |    [S1](./media/houseOfCards/HOC1.md) 
+|    House of Card  🐺  |    [S1](./media/houseOfCards/HOC1.md) | [S2](./media/houseOfCards/HOC2.md)
 |    Bojack Horseman 🐴 | [S1][bojack1] | [S2][bojack2] |[S3][bojack3] |[S4][bojack4] | [S5][bojack5]
 |    West World 🤖   |  [S1](./media/westWorld/ww1.md) | [S2](./media/westWorld/ww2.md) | [S3](./media/westWorld/ww3.md)  
 | Silicon Valley 🐨 | NA| NA | [S3](./media/siliconValley/sv3.md) | [S4](./media/siliconValley/sv4.md)| [S5](./media/siliconValley/sv5.md) 

@@ -213,7 +213,7 @@ Build results are cached “in the cloud”. This includes **intermediate** resu
 The fact that the code author chooses their reviewers helps avoid such problems, allowing engineers to avoid reviewers that might be **overly possessive** about their code  
 **idiomatic** code in a particular language  
 **Post-mortems**  
-The focus is on the problems, and how to avoid them in future, not on the people or **apportioning** blame. -  
+The focus is on the problems, and how to avoid them in future, not on the people or **apportioning** blame.  
    
 > "Marry or do not marry, you will regret it either way. ...Laugh at the stupidities of the world or weep over them, you will regret it either way. ...Trust a girl or do not trust her, you will regret it either way. ...Hang yourself or do not hang yourself, you will regret it either way. ...This, gentlemen, is the **quintessence** of all the wisdom of life.".  Kierkegaard, Either/Or  
 the **quintessence** of evil.  

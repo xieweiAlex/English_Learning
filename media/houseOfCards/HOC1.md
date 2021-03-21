@@ -20,8 +20,8 @@ Sorry Frank, I had to **trade up**. Sancorp is a big fish, but Raymond Tusk is a
 A **valiant** effort, though, I respect that.  
 I'm in no mood for **puzzles**.  - **humor me a moment**  
 I would not do a **blank check**  
-You've a reputation for **pragmatism** - and I also have avoided a reputation for **indentured** **servitude**. -   
-You're not offering cooperation, you're demanding **tutelage**. -  
+You've a reputation for **pragmatism** - and I also have avoided a reputation for **indentured** **servitude**.  
+You're not offering cooperation, you're demanding **tutelage**.  
 You don't **kiss and tell** in that business  
 
 It also has the **added benefits** of **knocking on wood**  

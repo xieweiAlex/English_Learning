@@ -1,4 +1,10 @@
 
+**surface**
+
+**pare**
+
+**pummel**
+
 **wring** 
 
 **churn**  

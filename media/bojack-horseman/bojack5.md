@@ -14,13 +14,13 @@ It was, like, a very **formative** part of my childhood.
 
 ## E 7 
 Wow. How long was I talking? - I hope that's **cathartic** for you. -  
-I feel like I was **hogging** whole conversation. -  
+I feel like I was **hogging** whole conversation.  
 **whiney baby**  
 You literal **knucklehead**. -  
 
 ## E 6 
 You got a **head start** on most kids, you're actually very lucky.  
-I was sure that she would get in one final **zinger**, about how I **let her down**, and about how I was fat and stupid. -  
+I was sure that she would get in one final **zinger**, about how I **let her down**, and about how I was fat and stupid.  
  
 ## E 5 
 

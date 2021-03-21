@@ -1,7 +1,7 @@
 
 ## Week 4 
 
-Meanwhile, most Republicans are **coalescing** around the argument that impeaching a former president is **unconstitutiona** -  
+Meanwhile, most Republicans are **coalescing** around the argument that impeaching a former president is **unconstitutiona**  
 
 The GameStop **saga** will **ripple** far into the future.  
 Tying it all together: J&J’s vaccine won’t need to land many of the logistical **somersaults** required by the other two approved vaccines, which means it could supercharge the vaccination rollout in the coming months.   
@@ -171,7 +171,7 @@ Please **plug up** the hole for me.
 
 He was treated with **penicillin** injections  
 **gonad**  
-an anti-**tetanus** injection -  
+an anti-**tetanus** injection  
 **continuum**  
 **hermaphrodite**: **Hermie**, a pejorative term for an **intersex** person  
 **theorem**  

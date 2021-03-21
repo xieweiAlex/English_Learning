@@ -46,7 +46,7 @@ She is **poised** and funny, and tells people about me.
 
 
 ## E 8 
-Your booty's been **adjudicated**! -  
+Your booty's been **adjudicated**!  
 That's so **degrading**  
 
 ## E 7 
