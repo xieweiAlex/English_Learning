@@ -122,7 +122,7 @@ I think it's **over the hump**
 you want me to be your **lapdog**, after I lost my fucking job?  
 **moral support**  
 They're going to **lay into** me **big time**.  
-I saw you **cuss out** the **drill** **sergeant** when we were **knobs**. -  
+I saw you **cuss out** the **drill** **sergeant** when we were **knobs**.  
 The library is a **sham**.  
 Most of you **cadets** probably don't know who I am.  
 

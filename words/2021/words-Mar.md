@@ -1,41 +1,100 @@
 
+These doubts had been gnawing at him for some time.  
+Grief gnaws my heart  
+
+While many still deliberate about cryptocurrencies’ mass adoption, the market has spoken, and its message is clear. Investors  
+Home prices have jumped over the past year as demand for houses rocketed when many Americans left cities for suburbia amid pandemic lockdowns  
+
+
+Have you ever jumped on a **trampoline**?  
+The idea that women consumers need your product more than you need them is Neanderthal thinking  
+This is Gilfoyle. **Dazzle** me  
+Clear expression is the **hallmark** of good writing.  
+We've made extraordinary progress as a society **in that regard**.  
+He had an **open-and-shut** case against a guy who committed terrible crimes but he didn't prosecute him.  
+
+
+**purebred**  
+**hectic world**  
+**painterly**  
+**auld lang syne**  
+**fetal** position  
+**fixate**  
+**devoid**  
+**wench**  
+**festive**  
+**hearty**  
+**unorthodox**  
+**breathtaking**  
+**pubic**  
+**moisturize**  
+**stuffy**  
+**sympathize**  
+**blunt**  
+economic **slump**  
+**gesticulate**  
+**bifocal**  
+**nubbin**  
+**gauze** -  
+**Armageddon**  
+Arya screwed up her face in a **scowl** - 
+her skin had stayed soft and **supple**  
+**disembodied**  
+**conversely**  
+**giddy**  
+
+**unattainable**  
+**urinate**  
+**ornate**  
+**vanish**  
+**enclosed**  
+**expressive**  
+
+A copy of the report is available for you to **peruse** at your leisure.  
+How a Taiwanese chipmaker became a **linchpin** of the global economy -  
+Big Tech and consumer giants led the gains from the **nadir** and then cyclical and value stocks took over in the fourth quarter of 2020  
+
+The dictionary is **not half bad**.  
+35 thousand visitors **traipse** through each year. -  
+Everybody on the Manny just looked **pasty** and sad  
+The bird missed the **pasty** but took a chunk out of her hand.  
+
+**baggy** jeans  
+Should we **rejoice** in the death of another human being?  
+So instead of a burst of flavor, you just get that **mealy** texture. -  
+The hand-writing is **smudgy**.  
+But this conflict is really a family **squabble**.  
+Neandertal vertebrae were not **simian** at all  
+**clamber** 
+
+Every time I'm **going on a diet**, he **sabotages** me.  
+I wanted to buy the blouse , but I **balked** at the high price. -  
+It would be the first instance of a US city issuing **reparations** for decades of racist government policies. -  
+Proponents say it’s a good start for **grappling** with systemic racism, and could serve as a model for other cities, including neighboring Chicago  
+The Tokyo Olympics will bar international **spectators** from attending the event, which is set to start on July 23. -  
+
 ## Week 3 
 
-The reference is actually to investors who become too greedy at the trough and abandon their risk   
-
+let's get out of the **rat race**.  
+The reference is actually to investors who become too greedy at the **trough** and abandon their risk -   
 I'm **fed up**  
 that's **the last straw**  
 I'm **at the end of my rope**  
 I want **sleep like a log**  
 Workers in a factory must **clock out** when they leave.  
-word of mouth  
-take a leak  
+**word of mouth**  
+**take a leak**  
 
-purebred  
-hectic  
-painterly  
-auld  
-fetal  
-fixate  
-devoid  
-wench  
-festive  
-hearty  
-
-
-
-Americans are Itching to Travel Again – U.S. airports are now seeing travel activity on par with activity in March 2020, before restrictions went into place  
-Lumber has never been more expensive than in the current environment, and crude oil – which is used in paint, drain pipes, roof shingles, and flooring – has rallied over the past several months  
-
-
+Americans are **Itching** to Travel Again – U.S. airports are now seeing travel activity **on par with** activity in March 2020, before restrictions went into place  
+Lumber has never been more expensive than in the current environment, and **crude** oil – which is used in paint, **drain pipes**, roof **shingles**, and **flooring** – has rallied over the past several months  
 Best Ever Instant Pot Beef Stew - This **mouthwatering** and easy to make Instant Pot Beef Stew is sure to become one of your favorite ever Instant Pot recipes!   
 
-China is a critical market for the company, so it wants to avoid any political controversies as it makes **inroads**  
+China is a critical market for the company, so it wants to avoid any political controversies as it **makes inroads**  
 De Wit is 39, **genial**, **bespectacled**, a little **disheveled**, a chemist by training -  
 Volatility **mellowed** after yesterday's tantrum, even though there was a lot of volume across markets -  
 Motorbikes and trucks **hurtle** along the roads.   
-Some parents seem to live **vicariously** through their children. -  
-**officious**  
+Some parents seem to live **vicariously** through their children.  
+He is an **officious** leader  
 This is a smart, yet soft and **feminine** look.  
 Am I too **masculine**? Am I too **feminine**?  
 
@@ -52,13 +111,13 @@ Going from wet to dry batteries has the potential to put EV adoption into **hype
 In fact, one year ago, as the market dropped **precipitously** and began its rotation, I called an emergency briefing for Motley Fool investors where I revealed my tested “moneymakers” strategy for investing through volatile markets. -  
 
 Don't be **coy** with me.  
-I hear people are **raving** about your league.  
+I hear people are **raving** about your league. -  
 clean clothes and good manners are **prepossessing** -   
 Bankers will **cower**, afraid to lend.  
 
 A **raunchy** new novel  
 The boy looks pretty **raunchy** after a night of drinking -  
-Children **romped** on the playground.  
+Children **romped** on the playground. -  
 He’s still **groggy** from the **anaesthetic**  
 Those dark clouds **foreshadow** a storm.  
 There is another point to be **borne** in mind.  
@@ -66,27 +125,21 @@ Stop **glowering** at me, I've done nothing wrong.
 I can offer you a very **enticing** compensation package.  
 **grinning** **cheekily** 
 They provided only **skimpy** details   
-Emily got into the car wearing jeans and a **skimpy** **tanktop** -  
+Emily got into the car wearing jeans and a **skimpy** **tanktop**  
 
 She **babbled** a few words to him  
 **Henceforth** I will be a very different Toad  
-He insulted her, **whereupon** she slapped him. -  
+He insulted her, **whereupon** she slapped him.  
 that hot spring was **effervescing** with bubbles. -   
 The **sniffles** is an informal way of saying a cold or flu  
 I'm putting tape on the soles so they don't **scuff**. -  
-**unattainable**  
-**urinate**  
 The **madcap** can be saved; the self-contemptuous is beyond rescue -  
 **deluxe**  
-I grew to dislike the people from my background – they were uptight and **prissy**  
-**ornate**  
-**vanish**  
-**enclosed**  
-**expressive**  
-I've got a **complimentary ticket** -  
+I grew to dislike the people from my background – they were **uptight** and **prissy**  
+I've got a **complimentary ticket**  
 It is too **presumptuous** of him to do so  
 **spinal** nerve  
-When cats are preparing to **pounce** they **creep over** the ground very slowly -  
+When cats are preparing to **pounce** they **creep over** the ground very slowly  
 
 I was **flailing** about in the water -  
 A **feral** cat  
@@ -124,18 +177,10 @@ I thought she's want to go out with me, but **no dice**.
 You're not wanted here, so **scram**!  
 to be cleverly cynical, to be superficially brilliant, to be **conspicuously** virtuous, to be cool, to be sophisticated, to be orthodox, to be a **snob**, to bully, to **pander**, to be **on the make**  
 He was a man **on the make**, trying to build his fortune.  
-For the same reason, **presumably**, that others cling so **tenaciously** to the idea that Obama was born outside the US: because they so want to believe it -  
+For the same reason, **presumably**, that others cling so **tenaciously** to the idea that Obama was born outside the US: because they so want to believe it  
 
 He was **dogged** by his misfortune  
 **dodgy** 
-pasty  
-**unorthodox**  
-**breathtaking**  
-**pubic**  
-**moisturize**  
-**stuffy**  
-**sympathize**  
-**blunt**  
 Billy started to **snivel**. His mother **smacked** his hand -  
 **Boil**, **broil**, **poach**, steam or roast your foods -  
 **plummet**  
@@ -143,24 +188,10 @@ Billy started to **snivel**. His mother **smacked** his hand -
 Don't **gloat** over your rival's misfortune.  
 He gave a loud **belch**.  
 He is deeply **scornful** of politicians  
-
 When I write a sentence that seems too complicated, or that uses unnecessarily intellectual words, it doesn't seem fancy to me. It seems **clumsy**.  
 **To wit**, India's stock market is the best performer of all major countries so far this year  
 
-a **sultry** weather -  
-economic **slump**  
-**gesticulate**  
-**bifocal**  
-**nubbin**  
-**gauze** -  
-**Armageddon**  
-Arya screwed up her face in a **scowl**  
-her skin had stayed soft and **supple** -  
-**disembodied**  
-**conversely**  
-**giddy**  
-**skimpy**  
-
+A **sultry** weather -  
 As I write, Zoom Video Communications (NASDAQ: ZM) is in the midst of a **fall from grace**  
 Work began immediately and was carried on with tireless **tenacity**.  
 But **prior to** that, the government actively encouraged its citizens to invest in the stock market. Too much of a good thing, perhaps?  
@@ -181,7 +212,7 @@ To be a good CEO, to get things accomplished, you have to be **personable**, you
 ## Week 1 
 
 Investors haven’t fully **grasped** inflation is '**dead ahead**,’ economist Mark Zandi warns  
-2 Top SPAC Stocks to Buy Amid the Market **Carnage** -  
+2 Top SPAC Stocks to Buy Amid the Market **Carnage**  
 It was a **vantage** point for her “try stuff out” exploration project, so she reached out to the organization
 And **in no time** she was miserable. 
 

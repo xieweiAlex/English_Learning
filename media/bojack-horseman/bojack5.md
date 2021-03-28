@@ -1,9 +1,16 @@
+
+## E 10 
+Just be charmingly **effusive**. Be yourself. -  
+**barf me a river**. fartbag  
+**have a fling**  
+**moral high ground**.  
+
 ## E 9 
 Blunt? - Well, she is a little **curt**. -  
 **no dice**  
 
 ## E 8 
-I deserve to be adored by a man, yet here my dreams lie **dormant**! -  
+I deserve to be adored by a man, yet here my dreams lie **dormant**!  
 I like that you're **razzing** me. -  
 **full of life**  
 Why do all these idealistic, **vivacious** women eventually turn bitter and cruel after being with me? -   
@@ -16,7 +23,7 @@ It was, like, a very **formative** part of my childhood.
 Wow. How long was I talking? - I hope that's **cathartic** for you. -  
 I feel like I was **hogging** whole conversation.  
 **whiney baby**  
-You literal **knucklehead**. -  
+You literal **knucklehead**.  
 
 ## E 6 
 You got a **head start** on most kids, you're actually very lucky.  

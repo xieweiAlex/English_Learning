@@ -297,9 +297,9 @@ Do anyone want to sing a **duet** with me?
 Would you care for some **butterscotch** pudding?  
 It's on the north bank of the **Thames**  
 The **obstetrician** delivered the child  
-**diamond sutra** -  
 
 it was an **afterthought**  
+**diamond sutra**  
 the **gremlin**  
 We spent a **sedate** evening at home  
 Deep **Sedation**  

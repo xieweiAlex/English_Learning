@@ -1,3 +1,12 @@
+Did you? I don't blame you for being **two-faced**, Raymond.  
+I said don't worry, Frank would **pull this out**.  
+Maybe we shouldn't **point fingers** until there's a problem.  
+You want somebody to hold your hand and say it's OK to go on this fucking **goose chase**.  
+What's the **holdup**?  
+I want you to find him and **put him away**.  
+
+The dictionary is **not half bad**.  
+I just mentioned **offhanded**. -  
 
 ### Week 3 
 
@@ -14,8 +23,6 @@ The last thing we want to do is **rock the boat**.
 I want more than **ways and means**.  
 Let's **put this to bed**, Wes.  
 Mortgage companies posted record profits in 2020 as homeowners rushed to refinance and homebuyers **scooped up** inventory amid super-low rates and **an exodus** into the suburbs for some city dwellers.  
-We like to **make light of** any situation here in the U.K.  
-I thought she's want to go out with me, but **no dice**.  
 You're a **straight arrow**  
 We like to **make light of** any situation here in the U.K.  
 He was a man **on the make**, trying to build his fortune.  

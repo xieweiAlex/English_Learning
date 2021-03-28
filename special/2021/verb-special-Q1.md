@@ -1,4 +1,8 @@
 
+**gnaw**
+
+**pounce**  
+
 **surface**
 
 **pare**

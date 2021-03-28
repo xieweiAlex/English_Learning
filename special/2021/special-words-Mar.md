@@ -1,4 +1,12 @@
 
+**soggy** 
+**saggy** 
+**sappy**  
+
+**derisive**
+
+**flinch** 
+
 ## Week 3 
 
 **duly** 
