@@ -3,7 +3,7 @@
 **Absolute discretion**. Can I count on that?  
 if he does, I've got a **fighting chance**.  
 there is no files, no **mug shot**, nothing.  
-This town is way too **incestuous**. -  
+This town is way too **incestuous**.  
 If you're serious about Tusk, you should **wine and dine** him. Make him feel very special.   
 Of all the things I **hold in high regard**, rules are not in one of them.  
 **briefing**  

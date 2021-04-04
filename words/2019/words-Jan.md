@@ -270,7 +270,7 @@ My **gorge** rose at the **sight**.
 The children **gorged** on potato chips  
 East of the **gorge** **leveled out**.  
 The reporter described it as **sombre**. That means dark and serious.  
-The fever was a **sombre** **presage** of his final illness. --  
+The fever was a **sombre** **presage** of his final illness.  
 **An apple of discord**  
 A note of **discord** **crept** into their relationship.  
 There are many **discords** in this family.  

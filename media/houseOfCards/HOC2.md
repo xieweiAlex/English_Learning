@@ -8,7 +8,7 @@ You want somebody to hold your hand and say it's OK to go on this fucking **goos
 The tea party is a strong voice, and you're its **bullhorn**. -  
 Maybe we shouldn't **point fingers** until there's a problem.  
 **Quorum** call -  
-The president wanted to go **ballistic**, but I calmed him down. -  
+The president wanted to go **ballistic**, but I calmed him down.  
 I said don't worry, Frank would **pull this out**.  
 Did you? I don't blame you for being **two-faced**, Raymond.  
 
@@ -27,9 +27,9 @@ And that walker doesn't **flinch** at the lack of respect it implies?
 Let's **put this to bed**, Wes.  
 I'm guessing **Appropriations**. There is no way I can top that.  
 I want more than **ways and means**.  
-I've given you all I can. Whatever you decide is your **prerogative**. -  
-The People's Republic of China will not be threatened by **derisive** and **unsubstantiated** claims. -  
-I thought he might **balk** at talking a **handout** from me. -  
+I've given you all I can. Whatever you decide is your **prerogative**.  
+The People's Republic of China will not be threatened by **derisive** and **unsubstantiated** claims.  
+I thought he might **balk** at talking a **handout** from me.  
 
 
 ## E 1 

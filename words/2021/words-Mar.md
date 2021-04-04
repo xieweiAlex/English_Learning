@@ -1,18 +1,18 @@
+## Week 4  
 
-These doubts had been gnawing at him for some time.  
-Grief gnaws my heart  
-
-While many still deliberate about cryptocurrencies’ mass adoption, the market has spoken, and its message is clear. Investors  
-Home prices have jumped over the past year as demand for houses rocketed when many Americans left cities for suburbia amid pandemic lockdowns  
-
-
+Dust **mites**, including their **carcasses** and **fecal matter** -  
+**Hold out** longer than that, and all those **microorganisms** will make your towel **grungy** -  
+He also added that the Fed, for now, remains strongly committed to the **accommodative** policy given that the economic recovery still has plenty of **runway**.  
+These doubts had been **gnawing** at him for some time.  
+Grief **gnaws** my heart -  
+While many still **deliberate** about cryptocurrencies’ mass adoption, the market has spoken, and its message is clear. 
+Home prices have jumped over the past year as demand for houses **rocketed** when many Americans left cities for suburbia amid pandemic lockdowns  
 Have you ever jumped on a **trampoline**?  
-The idea that women consumers need your product more than you need them is Neanderthal thinking  
+The idea that women consumers need your product more than you need them is **Neanderthal thinking**  
 This is Gilfoyle. **Dazzle** me  
 Clear expression is the **hallmark** of good writing.  
 We've made extraordinary progress as a society **in that regard**.  
 He had an **open-and-shut** case against a guy who committed terrible crimes but he didn't prosecute him.  
-
 
 **purebred**  
 **hectic world**  
@@ -51,7 +51,7 @@ her skin had stayed soft and **supple**
 **expressive**  
 
 A copy of the report is available for you to **peruse** at your leisure.  
-How a Taiwanese chipmaker became a **linchpin** of the global economy -  
+How a Taiwanese chipmaker became a **linchpin** of the global economy  
 Big Tech and consumer giants led the gains from the **nadir** and then cyclical and value stocks took over in the fourth quarter of 2020  
 
 The dictionary is **not half bad**.  
@@ -63,7 +63,7 @@ The bird missed the **pasty** but took a chunk out of her hand.
 Should we **rejoice** in the death of another human being?  
 So instead of a burst of flavor, you just get that **mealy** texture. -  
 The hand-writing is **smudgy**.  
-But this conflict is really a family **squabble**.  
+But this conflict is really a family **squabble**. -  
 Neandertal vertebrae were not **simian** at all  
 **clamber** 
 
@@ -75,7 +75,7 @@ The Tokyo Olympics will bar international **spectators** from attending the even
 
 ## Week 3 
 
-let's get out of the **rat race**.  
+Let's get out of the **rat race**.  
 The reference is actually to investors who become too greedy at the **trough** and abandon their risk -   
 I'm **fed up**  
 that's **the last straw**  
@@ -108,7 +108,7 @@ This presents the free world with an **epoch-defining** question: how should it 
 
 **Dethrone** Elon Musk and become the #1 electric car company by 2025  
 Going from wet to dry batteries has the potential to put EV adoption into **hyperdrive**  
-In fact, one year ago, as the market dropped **precipitously** and began its rotation, I called an emergency briefing for Motley Fool investors where I revealed my tested “moneymakers” strategy for investing through volatile markets. -  
+In fact, one year ago, as the market dropped **precipitously** and began its rotation, I called an emergency briefing for Motley Fool investors where I revealed my tested “moneymakers” strategy for investing through volatile markets.  
 
 Don't be **coy** with me.  
 I hear people are **raving** about your league. -  
@@ -149,8 +149,8 @@ He said it remains “one of the most destructive, **corrosive** attributes of a
 Palantir’s stock set an all-time high of $45 per share on Jan. 27, which **coincided** with the trading **frenzy** sparked by Reddit traders in heavily bet against companies like GameStop.   
 I can't hear **properly**.  
 You're a **straight arrow**  
-Guests should **vacate** their rooms by 10.30 a.m -  
-Dow Jones **Reverses Off** New High As Stock Market **Falters** -  
+Guests should **vacate** their rooms by 10.30 a.m  
+Dow Jones **Reverses Off** New High As Stock Market **Falters**  
 It starts to **rain gold**  
 it's not time to go out with **thimble**, it's time to go out with a bucket. -  
 > when it happens, I'm **poised**, I'm ready, I'm not ready with a bucket, I'm ready with a **washtub**.  
@@ -161,7 +161,7 @@ A dangerous winter storm **pummeled** Colorado, Wyoming, Nebraska, and Utah, dum
 ## Week 2
 
 Individuals who use the passive communication style often act **indifferently**, **yielding** to others  
-**Thought to be** the most effective form of communication, the assertive communication style features an open communication link while not being **overbearing** -  
+**Thought to be** the most effective form of communication, the assertive communication style features an open communication link while not being **overbearing**  
 
 If the skin is **wrinkled** and the texture **grainy**, but otherwise everything is okay, the apple is still okay to eat  
 I am **cognizant** of the many different organizational styles used to present information to audiences.  
@@ -169,7 +169,7 @@ I am **cognizant** of the many different organizational styles used to present i
 Microsoft and Google are **duking it out** in public over their relationship with the news media, cybersecurity, and more.  
 But **bun in the unmarried oven**  
 
-It looked as though the college would have to shut, but this week it was given a **reprieve**. -  
+It looked as though the college would have to shut, but this week it was given a **reprieve**.  
 For me, coming here is a **reprieve**  
 She seemed invigorated, **full of life** and energy  
 He's a real **hunk**.
@@ -178,7 +178,6 @@ You're not wanted here, so **scram**!
 to be cleverly cynical, to be superficially brilliant, to be **conspicuously** virtuous, to be cool, to be sophisticated, to be orthodox, to be a **snob**, to bully, to **pander**, to be **on the make**  
 He was a man **on the make**, trying to build his fortune.  
 For the same reason, **presumably**, that others cling so **tenaciously** to the idea that Obama was born outside the US: because they so want to believe it  
-
 He was **dogged** by his misfortune  
 **dodgy** 
 Billy started to **snivel**. His mother **smacked** his hand -  
@@ -190,14 +189,13 @@ He gave a loud **belch**.
 He is deeply **scornful** of politicians  
 When I write a sentence that seems too complicated, or that uses unnecessarily intellectual words, it doesn't seem fancy to me. It seems **clumsy**.  
 **To wit**, India's stock market is the best performer of all major countries so far this year  
-
-A **sultry** weather -  
+A **sultry** weather  
 As I write, Zoom Video Communications (NASDAQ: ZM) is in the midst of a **fall from grace**  
 Work began immediately and was carried on with tireless **tenacity**.  
 But **prior to** that, the government actively encouraged its citizens to invest in the stock market. Too much of a good thing, perhaps?  
 They prefer a nice **simmering** barbecue that reflects strong organic economic growth with some pricing power.  
 The bottom line is that this was an **all-around** great earnings report from Lemonade, but it didn't blow the market away  
-With over $195.57 billion in its **coffers**, a $1.5 billion investment in bitcoin would represent a 0.76% allocation. -   
+With over $195.57 billion in its **coffers**, a $1.5 billion investment in bitcoin would represent a 0.76% allocation.  
 I’m not sure, short of **dictatorial** practices, that you could ever make that work  
 **shrewd** **politicking**  
 "Tim Apple," as Trump once called him, charmed and **cajoled** his way into the former president’s good graces, while keeping Beijing happy and finding ways to squeeze more revenue from the iPhone  
@@ -216,7 +214,7 @@ Investors haven’t fully **grasped** inflation is '**dead ahead**,’ economist
 It was a **vantage** point for her “try stuff out” exploration project, so she reached out to the organization
 And **in no time** she was miserable. 
 
-her colleagues, sick of the Melanie money **lament**, had begun avoiding her  
+Her colleagues, sick of the Melanie money **lament**, had begun avoiding her  
 his one solution, though not impossible, was taking too long to achieve and had a **lousy chance** of success  
 You are **legion**, Each of us is many. 
 then see what you have to say to yourself and **jot down** your ideas.  
@@ -224,7 +222,7 @@ then see what you have to say to yourself and **jot down** your ideas.
 A meal that is large. It’s also **untethered** from linear time  
 They are essential if you want to unleash Vim’s **latent** power. Even if you don’t use Vim, these techniques have many benefits for any developer   
 
-Here at The Motley Fool, we believe in Warren Buffett’s **credo** to be “greedy when others are fearful.”  
+Here at The Motley Fool, we believe in Warren Buffett’s **credo** to be “greedy when others are fearful.” -  
 I stay **abreast of new technology  
 My first impressions of “world-class” is that its a saying and that feels a bit **slippery**  
 Tidal, which was bought by rapper Jay-Z (and a few other artists) in 2015, aimed to compete with Spotify and Apple Music by offering exclusive music and videos. But those big competitors have mostly **edged it out**.  

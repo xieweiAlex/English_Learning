@@ -39,7 +39,7 @@ I had the most **supremely** awful day.
 **defecate**  
 **indignantly**  
 **emphatically**  
-he was left alone and **agape**. -  
+he was left alone and **agape**.  
 The bus had to **deviate** from its usual route because of a road closure  
 Naked, she stepped **gingerly** into the water.  
 these houses were **strung along** the thoroughfare.  
@@ -47,7 +47,7 @@ He is highly **strung** for the game
 **grotesquely** 
 the soldiers made a **headlong** rush for cover -  
 **anatomically**  
-I can **aft** and **luffed** her to the open sea -  
+I can **aft** and **luffed** her to the open sea  
 Big Tech stocks have been the **laggards** so far this year and today was no different  
 The classics have been looking good since they started preaching the electric **gospel**. -  
 The Federal Reserve remains **vexed** about the lack of inflation that has been a feature of the U.S. economy for the better part of the past decade  
@@ -91,7 +91,7 @@ Bruce is a **spaz**, but he's one of the best doctors I know.
 **crumble**  
 **eek**, **yikes**  
 what are you **jabbering** about, shipmate?    
-You want to use **waxy** potatoes with thin skin rather than **starchy** potatoes like **russets** -  
+You want to use **waxy** potatoes with thin skin rather than **starchy** potatoes like **russets**  
 North America’s first Bitcoin ETF got off to a **stellar** start in its debut, with investors exchanging $165 million worth of shares  
 We think the benefits will far **outweigh** the costs in the longer run  
 You might think risk and investing **go hand-in-hand**, John.  
@@ -182,7 +182,7 @@ the market is **discerning**, it's a sign we're not in a bubble
 **out of whack**  
 He gave the ball a good **whack**. 
 **wack**  
-I always took you for a nickel and **diming** **cheapskate**, Frank -  
+I always took you for a nickel and **diming** **cheapskate**, Frank  
 Pigs on the farm go **oink**, oink.  
 **parkway**  
 **skywalk**  

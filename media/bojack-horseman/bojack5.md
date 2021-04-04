@@ -1,6 +1,6 @@
 
 ## E 10 
-Just be charmingly **effusive**. Be yourself. -  
+Just be charmingly **effusive**. Be yourself.  
 **barf me a river**. fartbag  
 **have a fling**  
 **moral high ground**.  
@@ -20,7 +20,7 @@ So you can **wean** yourself **off** of having fears!
 It was, like, a very **formative** part of my childhood.  
 
 ## E 7 
-Wow. How long was I talking? - I hope that's **cathartic** for you. -  
+Wow. How long was I talking? - I hope that's **cathartic** for you.  
 I feel like I was **hogging** whole conversation.  
 **whiney baby**  
 You literal **knucklehead**.  
