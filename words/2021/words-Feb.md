@@ -102,7 +102,7 @@ Many things are **cyclical**, but our love of animals is **ever-present** — an
 People will tighten their own belt buckles long before they let the **kibble** **run out**   
 2020 may have been a **banner year** for pets, but we think spending on our furry friends will keep rising in 2021 and well beyond  
 He breathed in the **frosty** air.  
-"New Car Smell" Is the **Scent** of **Carcinogens**. Even Short Trips May **Overexpose** Us -  
+"New Car Smell" Is the **Scent** of **Carcinogens**. Even Short Trips May **Overexpose** Us  
 However, the truth is that the president's ability to impact the economy and markets is generally **indirect** and **marginal**  
 **Relatively speaking**, presidential salaries are pretty **tame**.   
 capital **outlay**, initial **outlay**  
@@ -205,7 +205,7 @@ However, the investor **forfeits** stock gains if the price moves above the opti
 The only thing I ask of you is that you read what I wrote here rather than pay attention to the **sound bites** in the media  
 That, like creating the existing credit-based monetary system, is of course a type of **alchemy**—i.e., making money out of little or nothing  
 **pre-liberated** Neo **caves** to his fear.  
-a difficult but free life, or blissful **subjugation**? -  
+a difficult but free life, or blissful **subjugation**?  
 many of them are so **inert** so hopelessly depend on the system  
 he **flatlines**  
 You can **squelch** this message by running one of the following commands sometime before your next pull  

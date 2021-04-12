@@ -1,5 +1,55 @@
+
+The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also **bass**, **crappie**, and other fish  
+
+On its current trajectory, South Asia, home to a quarter of humanity, will soon **eclipse** the European Union as the center of the pandemic.  
+Pressure has mounted for the government to open the **spigot** further by licensing new vaccines -  
+It does not help that the current wave appears to be powered by more **virulent** strains of covid-19  
+It has since **limped** back to life, but the government is wary of making any moves that could delay recovery  
+heave 
+
+What's the opposite of **fattening**? **Skinnying**, like in a negative way  
+Going to **emaciate** your portfolio  
+Coinbase’s **blistering** growth is thanks to price increases that have driven **insatiable** investor demand.  
+Initially, the phrase cryptocurrency appeared to be a **misnomer** as bulls focused on bitcoin as a store-of-value investment (similar to gold) due to the scarcity value of the limited number of tokens.  
+Dont' be **daunted**.  
+
+She chewed; she **whimpered**; she **howled**. She **tangled** herself in my feet when I walked; she contracted a **parasite** and shit in every corner of the house  
+Eve, however, wants to get their garden **tidy**, and she remains **insistent** that their pruning and **tending** can be more efficiently accomplished if they split up  
+Luckily, I’d grown up as a **WASP**-y New England kid, so keeping my emotions **in check** was no big deal  
+We walked to school through **blizzards** and **hail**, and I moved to California convinced that “self-care” was **merely** a West Coast rationalization for **sloth**  
+I knew that, like an **omniscient** god, he’d be able to tell if I did not. -  
+she’d be one step closer to the **statuesque** Shepherd who demonstrates obedience by willfully ignoring the temptations that **encompass** him round.  
+If she did **bolt**, had I failed in my job since her reaction proved that she wasn’t yet fit to govern herself? -  
+“it sets. The dog can get rusty, but the skills are **ingrained**.” He’s been right: over a decade later, she’ll periodically ignore me, but when I go back to our basic routines, she proves that all her training habits remain **intact**. -  
+it was windy, wet, and cold, and my little dog became **bedraggled** as she marched through her tasks. -  
+Her anticipation was **palpable**, the moment of connection, rich. I felt that “invisible string” I **conjure** up for my children; I felt her eyes fixed on me from across the field.  
+
+Remember the **totem** in the movie, Inception? It’s an item that reminded people they weren't in a dream when they touched it, and it was able to keep them **grounded** in reality. -  
+Ocasio-Cortez became involved in a lengthy **probate** battle to settle his estate -  
+
+The workers are **dishing** a gutter.  
+He had **reddish** brown hair.   
+A **briny** wind blew, rustled the trees. -   
+I am not allowed to cross the **transom**. -  
+Garcia is well known for his **impish** sense of humor.   
+There was a dark **smudge** on his forehead.  
+She'll **blab** it all over the school. -  
+The letter was **devoid** of warmth and feeling.  
+The poor lamb **bleated** very sadly.  
+He was a **meek**, **mild-mannered** fellow - 
+He is a very **shrewd** operator with an **incisive** mind.  
+It is important to **touch base** with your kids.  
+**fine-grain**  
+
+E-commerce Retail Sales Have **Peaked** as a Result of the Pandemic  
+A **Landmark** Win for Google and Big Tech  
+Yellen is hoping to keep U.S. companies from **uprooting** and moving overseas to save money on taxes and from holding massive amounts of cash abroad, depleting funds from federal and local jurisdictions.  
+In a blog post on Friday, Amazon admitted to **scoring an** “**own-goal**” on itself and apologized to US Rep. Mark Pocan after initially denying that the company’s delivery drivers had to pee in bottles due to being overworked.   
+**Enough said** about that. Let's move on to error number four.  
+
 ## Week 1 
 
+She claims she had a brief **fling** with him 30 years ago  
 tentative
 attentive  
 wringer  
@@ -12,7 +62,6 @@ When I first came here, I had a **crummy** apartment. -
 Holman **thumped** the desk with his hand.  
 You could see a same facial feature, on one person it's a **knockout**, for on another, it does nothing for you.  
 Beauty is The **Eye of the Beholder**.  
-
 A **boxy** jacket  
 She was **radiant** with health.   
 
@@ -21,16 +70,16 @@ I'm **green**.
 The 2008 financial crisis, which **cleaved** the market in half.
 I will be **better off** without you.  
 Nubile, young **temptress** **traipsing** around your house. -  
-Microsoft CEO Satya Nadella has warned it causes burnout, and incoming Amazon CEO Andy Jassy said that with WFH, “You just don’t **riff** the same way,” which hurts innovation. -  
-The book **delineates** rational and non-rational motivations/triggers associated with each type of thinking process, and how they complement each other  
+Microsoft CEO Satya Nadella has warned it causes burnout, and incoming Amazon CEO Andy Jassy said that with WFH, “You just don’t **riff** the same way,” which hurts innovation.  
+The book **delineates** rational and non-rational motivations/triggers associated with each type of thinking process, and how they complement each other -   
 Good advice comes from people who have **indisputable** expertise.
 A good mentor will do this with some care, and even some **trepidation**.  
-this whole father thing scares the heck **outta** me.   
+This whole father thing scares the heck **outta** me.   
 If he **veers** into advice, just listen respectfully and come back to the request  
 **kindred purpose**  
 By the way, that exercise in class went pretty well, and then we decided to **jettison** it anyway and keep the prior version of the exercise because it was more effective. -  
 
-Being or doing? The real inner me, or the busy, successful outer me? Which is it? Life design thinks that’s a false **dichotomy**  
+Being or doing? The real inner me, or the busy, successful outer me? Which is it? Life design thinks that’s a false **dichotomy** -  
 This isn’t just our own **rehash** of positive thinking; it’s a design tool that’s imperative to life design.  
 After four or five losses, they would **wince** every time Reed announced, “I’m going to run again!”  
 When his cancer treatment was over and his cancer was in **remission**, Reed had no idea what to do next.  
@@ -45,15 +94,15 @@ First you gather and create some options, then you **narrow down** your list to 
 Now, once you've got a **hefty** list of options, chances are that you’re struggling with all the possibilities.  
 One week, the researchers set up a table in the store showing off six different specialty jams (with **snazzy** flavors like kiwi- orange, strawberry-lavender...you get the idea).  
 
-You didn't know that you had a preference until an unwanted decision occurred as a **fait accompli**. -  
+You didn't know that you had a preference until an unwanted decision occurred as a **fait accompli**.  
 It turns out that the part of the brain that is working to help us make our best choices is in the **basal** **ganglia** -  
 She didn't know why it was her left knee, but over years of **attentive** practice she came to trust what her knee had to tell her  
 to be sure you make space so your emotional and intuitive ways of knowing can **surface** in the process.  
 It turns out that **reversibility** is not **conducive** to establishing reliable happiness with a decision  
 Keep your **reframed** understanding of decision making **handy**, and be sure to win the internal argument with yourself when you’re tempted to rehash and **ruminate**.  
 
-Though it was **out of vogue** among his friends to consider getting involved in government and the public sector -  
-It’s more of an inaction than an action, and your brain just hates that, the same way nature **abhors** a vacuum -  
+Though it was **out of vogue** among his friends to consider getting involved in government and the public sector  
+It’s more of an inaction than an action, and your brain just hates that, the same way nature **abhors** a vacuum  
 Andy was a star **pupil**.  
 **churn**, 
 **wring** 
@@ -69,7 +118,7 @@ If you have those specific skills, great; add them to your résumé, **word for 
 In our experience, if more than eight people have been through the **wringer** and no decisions have been made, the hiring process is probably broken.  
 post the “**phantom**” job description, wait the required two weeks, do a few **cursory** interviews, and then hire the person they wanted all along.  
 Networking is just **hustling** people—it’s **slimy**. -  
-This isn’t favoritism—it’s just **communal** behavior -  
+This isn’t favoritism—it’s just **communal** behavior  
 a lot of people have an instant **aversion** to the term “networking.” -  
 Nature of the work. Salary and the friendliness of co-workers come in second and third, to complete this completely dysfunctional job-seeker **trifecta**. -  
 You can’t know it from a **faulty** job description
@@ -89,6 +138,5 @@ Various reports this morning indicate that Archegos Capital Management is the fi
 7.5% growth is still a **raging** **bonfire** of economic activity, which will hopefully translate to robust hiring and wage growth.  
 Alex was too **jumpy**, too **neurotic**. -  
 Nothing is more distracting than a **neurotic** boss.  
-
 
 

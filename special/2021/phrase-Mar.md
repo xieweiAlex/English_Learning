@@ -1,4 +1,3 @@
-
 ### Week 4 
 
 Did you? I don't blame you for being **two-faced**, Raymond.  
@@ -7,7 +6,6 @@ Maybe we shouldn't **point fingers** until there's a problem.
 You want somebody to hold your hand and say it's OK to go on this fucking **goose chase**.  
 What's the **holdup**?  
 I want you to find him and **put him away**.  
-
 The dictionary is **not half bad**.  
 I just mentioned **offhanded**. -  
 
@@ -20,7 +18,6 @@ I want **sleep like a log**
 
 Either I **turn my back on** Cathy or I **stand behind** her.  
 While they are still ridiculously low by historical standards, the sudden rise threatens to **trip up** the pandemic housing rally  
-
 I promised the president a **soft touch**. I can't intentionally break my promise.  
 The last thing we want to do is **rock the boat**.  
 I want more than **ways and means**.  

@@ -1,3 +1,5 @@
+* romp vs frolic 
+* broil vs roast 
 * amenable
 * reprimand vs punish 
 * trope vs metaphor 

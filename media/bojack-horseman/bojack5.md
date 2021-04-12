@@ -6,12 +6,12 @@ Just be charmingly **effusive**. Be yourself.
 **moral high ground**.  
 
 ## E 9 
-Blunt? - Well, she is a little **curt**. -  
+Blunt? - Well, she is a little **curt**.  
 **no dice**  
 
 ## E 8 
 I deserve to be adored by a man, yet here my dreams lie **dormant**!  
-I like that you're **razzing** me. -  
+I like that you're **razzing** me.  
 **full of life**  
 Why do all these idealistic, **vivacious** women eventually turn bitter and cruel after being with me? -   
 What's the common **denominator**?  
@@ -40,7 +40,7 @@ Hey, I got a **nutty** idea, what if you deferred for a year?
 ## E 4  
 
 Go to the award show, take down that **skeevy** **so-and-so**, and then during commercial breaks, get in some Hollywoo **hobnobbing**.  
-hobnobbing sexual violence, protracted, **lascivious** nude scenes. -  
+hobnobbing sexual violence, protracted, **lascivious** nude scenes.  
 **culpable** for that **complicit**  
 
 ## E 1  

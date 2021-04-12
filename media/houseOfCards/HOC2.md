@@ -1,11 +1,11 @@
 
 ## E 3  
-There are two types of vice presidents: **doormats** and **matadors**. -  
+There are two types of vice presidents: **doormats** and **matadors**.  
 I want you to find him and **put him away**.  
 What's the **holdup**?  
 I'd stay away with **specifics**.  
 You want somebody to hold your hand and say it's OK to go on this fucking **goose chase**.  
-The tea party is a strong voice, and you're its **bullhorn**. -  
+The tea party is a strong voice, and you're its **bullhorn**.  
 Maybe we shouldn't **point fingers** until there's a problem.  
 **Quorum** call -  
 The president wanted to go **ballistic**, but I calmed him down.  
@@ -18,7 +18,7 @@ If he's not too busy trying to **sodomize** me.
 The last thing we want to do is **rock the boat**.  
 I just mentioned **offhanded**.  
 I promised the president a **soft touch**. I can't intentionally break my promise.  
-We can't have an editor looking more **disheveled** than his reporters. -  
+We can't have an editor looking more **disheveled** than his reporters.  
 They know that I need **plausible** **deniability** for diplomatic purposes. - Why didn't you immediately **recant**? -    
 In my experience with Chinese, **backpedaling** makes us look weak.  
 My contacts in Beijing tell me the minister of commerce is in a **tizzy**.  

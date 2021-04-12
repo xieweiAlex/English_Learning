@@ -4,7 +4,7 @@ Dust **mites**, including their **carcasses** and **fecal matter** -
 **Hold out** longer than that, and all those **microorganisms** will make your towel **grungy** -  
 He also added that the Fed, for now, remains strongly committed to the **accommodative** policy given that the economic recovery still has plenty of **runway**.  
 These doubts had been **gnawing** at him for some time.  
-Grief **gnaws** my heart -  
+Grief **gnaws** my heart  
 While many still **deliberate** about cryptocurrencies’ mass adoption, the market has spoken, and its message is clear. 
 Home prices have jumped over the past year as demand for houses **rocketed** when many Americans left cities for suburbia amid pandemic lockdowns  
 Have you ever jumped on a **trampoline**?  
@@ -35,7 +35,7 @@ economic **slump**
 **gesticulate**  
 **bifocal**  
 **nubbin**  
-**gauze** -  
+**gauze**  
 **Armageddon**  
 Arya screwed up her face in a **scowl** - 
 her skin had stayed soft and **supple**  
@@ -63,15 +63,15 @@ The bird missed the **pasty** but took a chunk out of her hand.
 Should we **rejoice** in the death of another human being?  
 So instead of a burst of flavor, you just get that **mealy** texture. -  
 The hand-writing is **smudgy**.  
-But this conflict is really a family **squabble**. -  
+But this conflict is really a family **squabble**.  
 Neandertal vertebrae were not **simian** at all  
 **clamber** 
 
 Every time I'm **going on a diet**, he **sabotages** me.  
-I wanted to buy the blouse , but I **balked** at the high price. -  
-It would be the first instance of a US city issuing **reparations** for decades of racist government policies. -  
+I wanted to buy the blouse , but I **balked** at the high price.  
+It would be the first instance of a US city issuing **reparations** for decades of racist government policies.  
 Proponents say it’s a good start for **grappling** with systemic racism, and could serve as a model for other cities, including neighboring Chicago  
-The Tokyo Olympics will bar international **spectators** from attending the event, which is set to start on July 23. -  
+The Tokyo Olympics will bar international **spectators** from attending the event, which is set to start on July 23.  
 
 ## Week 3 
 
@@ -90,8 +90,8 @@ Lumber has never been more expensive than in the current environment, and **crud
 Best Ever Instant Pot Beef Stew - This **mouthwatering** and easy to make Instant Pot Beef Stew is sure to become one of your favorite ever Instant Pot recipes!   
 
 China is a critical market for the company, so it wants to avoid any political controversies as it **makes inroads**  
-De Wit is 39, **genial**, **bespectacled**, a little **disheveled**, a chemist by training -  
-Volatility **mellowed** after yesterday's tantrum, even though there was a lot of volume across markets -  
+De Wit is 39, **genial**, **bespectacled**, a little **disheveled**, a chemist by training  
+Volatility **mellowed** after yesterday's tantrum, even though there was a lot of volume across markets  
 Motorbikes and trucks **hurtle** along the roads.   
 Some parents seem to live **vicariously** through their children.  
 He is an **officious** leader  
@@ -99,7 +99,7 @@ This is a smart, yet soft and **feminine** look.
 Am I too **masculine**? Am I too **feminine**?  
 
 US mortgage applications **tumble**  
-As economies rebound and consumers and businesses **fire up** their spending engines, demand is **outstripping** supply and global ports are backed up from Singapore to San Diego -  
+As economies rebound and consumers and businesses **fire up** their spending engines, demand is **outstripping** supply and global ports are backed up from Singapore to San Diego  
 While they are still ridiculously low by historical standards, the sudden rise threatens to **trip up** the pandemic housing rally  
 Mortgage companies posted record profits in 2020 as homeowners rushed to refinance and homebuyers **scooped up** inventory amid super-low rates and **an exodus** into the suburbs for some city dwellers.  
 HAVING BEEN born into the most **prosperous** period in human history, today’s youngsters have much to hope for  
@@ -117,7 +117,7 @@ Bankers will **cower**, afraid to lend.
 
 A **raunchy** new novel  
 The boy looks pretty **raunchy** after a night of drinking -  
-Children **romped** on the playground. -  
+Children **romped** on the playground.  
 He’s still **groggy** from the **anaesthetic**  
 Those dark clouds **foreshadow** a storm.  
 There is another point to be **borne** in mind.  
@@ -130,10 +130,10 @@ Emily got into the car wearing jeans and a **skimpy** **tanktop**
 She **babbled** a few words to him  
 **Henceforth** I will be a very different Toad  
 He insulted her, **whereupon** she slapped him.  
-that hot spring was **effervescing** with bubbles. -   
+that hot spring was **effervescing** with bubbles.  
 The **sniffles** is an informal way of saying a cold or flu  
-I'm putting tape on the soles so they don't **scuff**. -  
-The **madcap** can be saved; the self-contemptuous is beyond rescue -  
+I'm putting tape on the soles so they don't **scuff**.  
+The **madcap** can be saved; the self-contemptuous is beyond rescue  
 **deluxe**  
 I grew to dislike the people from my background – they were **uptight** and **prissy**  
 I've got a **complimentary ticket**  
@@ -141,7 +141,7 @@ It is too **presumptuous** of him to do so
 **spinal** nerve  
 When cats are preparing to **pounce** they **creep over** the ground very slowly  
 
-I was **flailing** about in the water -  
+I was **flailing** about in the water  
 A **feral** cat  
 We like to **make light of** any situation here in the U.K.  
 Through this system, **gone are the days** of concrete  
@@ -152,7 +152,7 @@ You're a **straight arrow**
 Guests should **vacate** their rooms by 10.30 a.m  
 Dow Jones **Reverses Off** New High As Stock Market **Falters**  
 It starts to **rain gold**  
-it's not time to go out with **thimble**, it's time to go out with a bucket. -  
+it's not time to go out with **thimble**, it's time to go out with a bucket.  
 > when it happens, I'm **poised**, I'm ready, I'm not ready with a bucket, I'm ready with a **washtub**.  
 
 **off the beaten path**  
@@ -181,7 +181,7 @@ For the same reason, **presumably**, that others cling so **tenaciously** to the
 He was **dogged** by his misfortune  
 **dodgy** 
 Billy started to **snivel**. His mother **smacked** his hand -  
-**Boil**, **broil**, **poach**, steam or roast your foods -  
+**Boil**, **broil**, **poach**, steam or roast your foods  
 **plummet**  
 **upwind**, **headwind**, tailwind  
 Don't **gloat** over your rival's misfortune.  
@@ -222,7 +222,7 @@ then see what you have to say to yourself and **jot down** your ideas.
 A meal that is large. It’s also **untethered** from linear time  
 They are essential if you want to unleash Vim’s **latent** power. Even if you don’t use Vim, these techniques have many benefits for any developer   
 
-Here at The Motley Fool, we believe in Warren Buffett’s **credo** to be “greedy when others are fearful.” -  
+Here at The Motley Fool, we believe in Warren Buffett’s **credo** to be “greedy when others are fearful.”  
 I stay **abreast of new technology  
 My first impressions of “world-class” is that its a saying and that feels a bit **slippery**  
 Tidal, which was bought by rapper Jay-Z (and a few other artists) in 2015, aimed to compete with Spotify and Apple Music by offering exclusive music and videos. But those big competitors have mostly **edged it out**.  

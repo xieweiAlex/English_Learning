@@ -24,7 +24,7 @@ But there's **bound to be** some job losses and displacement **in the interim**.
 They’re trying to stop the **attrition** of their rights  
 I can't find a **plausible** motive for anyone  
 A top post on the subreddit this morning calls the decision “market manipulation,” with angry comments calling for users to “dump robinhood for good” and **lamenting** the ensuring fall in stock prices that shortly followed the announcement.  
-However, Apple's apps do not track users or share data for advertising purposes, so this seems to be a **bemusing** foundation for the lawsuit. -   
+However, Apple's apps do not track users or share data for advertising purposes, so this seems to be a **bemusing** foundation for the lawsuit.  
 in December, Facebook paid for a series of full-page advertisements in national newspapers to **berate**  iOS 14 App Tracking Transparency, saying that it harms small businesses.   
 Hedge funds are **reeling** and amateurs are **touting** their new power.  
 When you look at long-term historical returns on companies of different sizes, the results **bear out** this framework  
@@ -121,7 +121,7 @@ Company guidance, which disappeared last year as executives were **reticent** to
 When possible, try not to use more than 10% of your asset value as margin and **draw a line** at 30%.  
 "This is one **unfettered** presidential power the president enjoys using", one former administration official was quoted as saying by Reuters  
 
-The koala is a sluggish, tailless, furry **arboreal** **marsupial** -  
+The koala is a sluggish, tailless, furry **arboreal** **marsupial**  
 Squirrels are **arboreal** creatures.  
 As is usually the case in economics, it’s complicated — and everyone has a **pet theory**  
 You're new here, so I'll forgive the **patronizing** tone.  

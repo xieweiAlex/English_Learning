@@ -1,8 +1,9 @@
-Using the Internet as your only job-finding method is **nothing short of** **masochistic**   
+
+It is important to **touch base** with your kids.  
+**Enough said** about that. Let's move on to error number four.  
 
 ## Week 1
 
-I will be **better off** without you.  
 I'm **green**.  
 I **have a thing** for you.  
 Beauty is The **Eye of the Beholder**.  

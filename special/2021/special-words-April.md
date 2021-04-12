@@ -1,4 +1,12 @@
 
+**daunted**
+
+**intact**
+
+**credo** 
+
+**modest**
+
 ## Week 1 
 
 **overture**
