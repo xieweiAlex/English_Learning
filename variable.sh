@@ -55,6 +55,8 @@ export files=(
 )
 
 test_files=(
+  "./words/2018/words-Dec.md"
+  "./words/2018/words-Nov.md"
   "./media/houseOfCards/HOC2.md"
   "./media/houseOfCards/HOC1.md"
   "./media/bojack-horseman/bojack5.md"

@@ -5,9 +5,7 @@ source "./variable.sh"
 # 2+ * & 1+ letter & .* & ends either 0 to 5 white space or line change  
 PATTERN="\*{2,}[a-zA-Z]+.*-{1,3}(\s{0,5} | \n )$"
 
-# test_file="./media/houseOfCards/HOC1.md"
 function countWords {
-
   total_count=0
   for file_path in "${files[@]}"; do 
     echo "File path: $file_path"
@@ -30,19 +28,22 @@ function getNewWords {
   do 
     echo -e "Checking file: ${YELLOW} $file_path ${NC}"
     file_name=$(basename "$file_path")
-    file_content=$(ag "$PATTERN" -G "$file_path" --group --nonumbers | sed '/^[[:space:]]*$/d') 
+    file_content=$(ag "$PATTERN" -G "$file_path" --group --nonumbers --nofilename | sed '/^[[:space:]]*$/d') 
 
     if [ -n "$file_content" ]; then 
-      # firstLine=$(echo "$file_content" | head -1 ) 
-      # sed -i '' "1s/.*/##Test" "$file_content"
-      echo "" >> "$WORDS_REVIEW"
+      if [ -s "$WORDS_REVIEW" ]; then 
+        echo "" >> "$WORDS_REVIEW"
+      fi
+
       echo "## ${file_name} ## " >> "$WORDS_REVIEW"
       echo "$file_content" >> "$WORDS_REVIEW"
     fi
   done 
 
-  length=$(cat $WORDS_REVIEW | wc -l)
-  echo -e "File length: ${YELLOW} $length ${NC}, cut off lines beyond 110!"
+  lines=$(cat $WORDS_REVIEW | wc -l)
+  echo -e "File lines: ${YELLOW} $lines ${NC}, cut off lines beyond 110!"
+  # TODO: only sed for lines over 110 
+
   # Delete lines (111,$) let's keep the review file short & lean  
   sed -i '' '111, 500d' "$WORDS_REVIEW"
 }
@@ -120,9 +121,9 @@ then
   pushBack
 
   echo -e "${GREEN}Clean up the WORDS_REVIEW file.${NC}"
-  echo "" > "$WORDS_REVIEW"
+  cat /dev/null > "$WORDS_REVIEW"
 
-  echo -e "${GREEN}Get new words for various resources to WORDS_REVIEW file.${NC}"
+  # echo -e "${GREEN}Get new words for various resources to WORDS_REVIEW file.${NC}"
   getNewWords
 elif [[ "$action" == 'countWords' ]]; then
   countWords

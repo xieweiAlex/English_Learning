@@ -1,5 +1,4 @@
 ## bojack5.md ## 
-media/bojack-horseman/bojack5.md
 I'm clearing my **docket**, this is my only priority. -  
 I still have this little **rancid** **itch** saying something isn't right. -  
 Look at you, **skulking** behind doors with a **malevolent** **aura**. -  
@@ -8,7 +7,6 @@ Gina, Bojack was concerned the old scene was **gratuitous** and male-gazey. -
 I know you're excited, but we're still in a very **precarious** position. -  
 
 ## words-April.md ## 
-words/2021/words-April.md
 Some people have mobility challenges that make walking an **ordeal**, or even impossible -  
 A search mission is **underway** after a boat **capsized** off the Louisiana coast. At least six people were rescued but several remain missing. -   
 Bitcoin only has **imputed** value -  
@@ -36,7 +34,6 @@ Blinken said the Biden administration would “**repudiate**” such "unbalanced
 Alex was too **jumpy**, too **neurotic**. -  
 
 ## words-Mar.md ## 
-words/2021/words-Mar.md
 Dust **mites**, including their **carcasses** and **fecal matter** -  
 **Hold out** longer than that, and all those **microorganisms** will make your towel **grungy** -  
 Arya screwed up her face in a **scowl** - 
@@ -46,13 +43,11 @@ The boy looks pretty **raunchy** after a night of drinking -
 Billy started to **snivel**. His mother **smacked** his hand -  
 
 ## words-Feb.md ## 
-words/2021/words-Feb.md
 **skedaddle** before I call the cops -  
 The classics have been looking good since they started preaching the electric **gospel**. -  
 **Anaconda** sunning on a tree -  
 
 ## words-Jan.md ## 
-words/2019/words-Jan.md
 the **stodgy** **three-storey** building -  
 **Splurge** millions on the wedding. -  
 schoolchildren **wreaking havoc** in the classroom. -  
