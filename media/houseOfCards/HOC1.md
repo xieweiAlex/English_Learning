@@ -43,7 +43,7 @@ She **blindsided** me, now she knows my eyes are **wide open**.
 **hang in there**, Okay?  
 I have a **distaste** for **hypotheticals** as just you have a distaste for speculation   
 I don't **shackle** myself to people I don't know.  
-World Well isn't your **vassal**. - Yes, it is, entirely. -  
+World Well isn't your **vassal**. - Yes, it is, entirely.  
 
 ## E 11 
 Has he been **bad-mouthing** about me?  

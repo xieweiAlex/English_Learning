@@ -1,4 +1,26 @@
 
+**courageous**
+
+**incisive** 
+**decisive** 
+**indecisive**
+
+**tentative**
+**attentive**
+
+**bedraggled**
+
+**neurotic**
+
+**wringer**
+
+**trifecta**
+
+**vivacious**
+**lascivious**
+
+## Week 2 
+
 **daunted**
 
 **intact**

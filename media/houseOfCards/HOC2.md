@@ -7,7 +7,7 @@ I'd stay away with **specifics**.
 You want somebody to hold your hand and say it's OK to go on this fucking **goose chase**.  
 The tea party is a strong voice, and you're its **bullhorn**.  
 Maybe we shouldn't **point fingers** until there's a problem.  
-**Quorum** call -  
+**Quorum** call  
 The president wanted to go **ballistic**, but I calmed him down.  
 I said don't worry, Frank would **pull this out**.  
 Did you? I don't blame you for being **two-faced**, Raymond.  
@@ -19,7 +19,7 @@ The last thing we want to do is **rock the boat**.
 I just mentioned **offhanded**.  
 I promised the president a **soft touch**. I can't intentionally break my promise.  
 We can't have an editor looking more **disheveled** than his reporters.  
-They know that I need **plausible** **deniability** for diplomatic purposes. - Why didn't you immediately **recant**? -    
+They know that I need **plausible** **deniability** for diplomatic purposes. - Why didn't you immediately **recant**?  
 In my experience with Chinese, **backpedaling** makes us look weak.  
 My contacts in Beijing tell me the minister of commerce is in a **tizzy**.  
 Either I **turn my back on** Cathy or I **stand behind** her.  

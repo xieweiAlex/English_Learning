@@ -55,13 +55,13 @@ How a Taiwanese chipmaker became a **linchpin** of the global economy
 Big Tech and consumer giants led the gains from the **nadir** and then cyclical and value stocks took over in the fourth quarter of 2020  
 
 The dictionary is **not half bad**.  
-35 thousand visitors **traipse** through each year. -  
+35 thousand visitors **traipse** through each year.  
 Everybody on the Manny just looked **pasty** and sad  
 The bird missed the **pasty** but took a chunk out of her hand.  
 
 **baggy** jeans  
 Should we **rejoice** in the death of another human being?  
-So instead of a burst of flavor, you just get that **mealy** texture. -  
+So instead of a burst of flavor, you just get that **mealy** texture.  
 The hand-writing is **smudgy**.  
 But this conflict is really a family **squabble**.  
 Neandertal vertebrae were not **simian** at all  
@@ -112,7 +112,7 @@ In fact, one year ago, as the market dropped **precipitously** and began its rot
 
 Don't be **coy** with me.  
 I hear people are **raving** about your league. -  
-clean clothes and good manners are **prepossessing** -   
+clean clothes and good manners are **prepossessing**  
 Bankers will **cower**, afraid to lend.  
 
 A **raunchy** new novel  

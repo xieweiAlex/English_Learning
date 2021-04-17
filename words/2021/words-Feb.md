@@ -45,7 +45,7 @@ Naked, she stepped **gingerly** into the water.
 these houses were **strung along** the thoroughfare.  
 He is highly **strung** for the game  
 **grotesquely** 
-the soldiers made a **headlong** rush for cover -  
+the soldiers made a **headlong** rush for cover  
 **anatomically**  
 I can **aft** and **luffed** her to the open sea  
 Big Tech stocks have been the **laggards** so far this year and today was no different  
@@ -74,7 +74,7 @@ I belong to a **guild** of wine butlers.
 **auntie**  
 This new benefit has come as a **godsend** for low-income families  
 **nympho**  
-**cantaloupe melon** -  
+**cantaloupe melon**  
 A truck traveling south had a **blowout** and crashed  
 **armadillo**  
 **hazel**  

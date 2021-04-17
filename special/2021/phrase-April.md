@@ -1,4 +1,7 @@
-
+What's the **common denominator**?  
+**fine-grain**  
+He was a **meek**, **mild-mannered** fellow - 
+I guess some of this detective stuff is starting to **rub off on** me, because I figured out what's been going on with you. -  
 It is important to **touch base** with your kids.  
 **Enough said** about that. Let's move on to error number four.  
 

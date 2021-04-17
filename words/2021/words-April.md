@@ -1,5 +1,73 @@
 
-The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also **bass**, **crappie**, and other fish  
+
+Correlation does not equal causation, but this specific correlation is particularly stimulating  
+If you’ve been paying attention, you don’t need to have this data to tell you home prices are bonkers  
+
+Most doctors erred on the side of caution.  
+To date, Redfin has been cautious but persistent in these efforts showing a commitment to err on the side of caution.  
+
+You see thee power in social media to move people to do something **en mass**.  
+
+They **wrung** the truth out of her.  
+The sad story **wrung** my heart.  
+Some people have mobility challenges that make walking an **ordeal**, or even impossible -  
+
+threadbare  
+posterior  
+raunchy  
+ornate  
+wan  
+blab  
+irate  
+swill  
+sly  
+berserk  
+apoplectic  
+drippy  
+tangly  
+immaculate  
+downhearted  
+sedimentary  
+petit  
+platonic  
+fruity  
+spotless 
+singe  
+footloose  
+depressant  
+ballsy  
+amiss  
+etch  
+methodical  
+spotted  
+The batter rises as it bakes  
+yonder  
+befall  
+pucker  
+dazed  
+crumbly  
+mositen  
+crusty  
+gullible  
+sightless  
+cog  
+terroriose 
+
+
+Throughout all of this, I recall Brian’s calm focus and dedication in every one of our conversations, despite operating in a very noisy and **excitable** market.  
+US markets recover from early losses, S&P **notches** new record  
+Bitcoin rallied to a new all-time high, topping $63,000 as investors and HODL'ers are **salivating** about tomorrow's direct listing of Coinbase, the largest cryptocurrency exchange in the U.S  
+Last month, many European countries paused the use of AstraZeneca’s coronavirus vaccine because of concerns about **blood clots**.   
+A search mission is **underway** after a boat **capsized** off the Louisiana coast. At least six people were rescued but several remain missing. -   
+
+Bitcoin only has **imputed** value -  
+**connoisseur** of sushi -  
+She has a **cybernetic** body, but she's kept her human emotions -  
+He was using the principles of **Psycho Cybernetics** to become one of the greatest body builders of all time.  
+
+## Week 2 
+
+The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also **bass**, **crappie**, and other fish -  
 
 On its current trajectory, South Asia, home to a quarter of humanity, will soon **eclipse** the European Union as the center of the pandemic.  
 Pressure has mounted for the government to open the **spigot** further by licensing new vaccines -  
@@ -16,15 +84,15 @@ Dont' be **daunted**.
 She chewed; she **whimpered**; she **howled**. She **tangled** herself in my feet when I walked; she contracted a **parasite** and shit in every corner of the house  
 Eve, however, wants to get their garden **tidy**, and she remains **insistent** that their pruning and **tending** can be more efficiently accomplished if they split up  
 Luckily, I’d grown up as a **WASP**-y New England kid, so keeping my emotions **in check** was no big deal  
-We walked to school through **blizzards** and **hail**, and I moved to California convinced that “self-care” was **merely** a West Coast rationalization for **sloth**  
+We walked to school through **blizzards** and **hail**, and I moved to California convinced that “self-care” was **merely** a West Coast **rationalization** for **sloth**  
 I knew that, like an **omniscient** god, he’d be able to tell if I did not. -  
 she’d be one step closer to the **statuesque** Shepherd who demonstrates obedience by willfully ignoring the temptations that **encompass** him round.  
 If she did **bolt**, had I failed in my job since her reaction proved that she wasn’t yet fit to govern herself? -  
-“it sets. The dog can get rusty, but the skills are **ingrained**.” He’s been right: over a decade later, she’ll periodically ignore me, but when I go back to our basic routines, she proves that all her training habits remain **intact**. -  
+“it sets. The dog can get rusty, but the skills are **ingrained**.” He’s been right: over a decade later, she’ll periodically ignore me, but when I go back to our basic routines, she proves that all her training habits remain **intact**.  
 it was windy, wet, and cold, and my little dog became **bedraggled** as she marched through her tasks. -  
 Her anticipation was **palpable**, the moment of connection, rich. I felt that “invisible string” I **conjure** up for my children; I felt her eyes fixed on me from across the field.  
 
-Remember the **totem** in the movie, Inception? It’s an item that reminded people they weren't in a dream when they touched it, and it was able to keep them **grounded** in reality. -  
+Remember the **totem** in the movie, Inception? It’s an item that reminded people they weren't in a dream when they touched it, and it was able to keep them **grounded** in reality.  
 Ocasio-Cortez became involved in a lengthy **probate** battle to settle his estate -  
 
 The workers are **dishing** a gutter.  
@@ -50,9 +118,9 @@ In a blog post on Friday, Amazon admitted to **scoring an** “**own-goal**” o
 ## Week 1 
 
 She claims she had a brief **fling** with him 30 years ago  
-tentative
-attentive  
-wringer  
+We made a **tentative** arrangement to meet on Friday.  
+The hotel staff are friendly and **attentive**.  
+**wringer**  
 
 Vim and Emacs are always there for you, cozy, calm and **willing**  
 It’s the kind of **dismissal** you can only do when there’s nobody you respect on “**the other side**”.  
@@ -77,7 +145,7 @@ A good mentor will do this with some care, and even some **trepidation**.
 This whole father thing scares the heck **outta** me.   
 If he **veers** into advice, just listen respectfully and come back to the request  
 **kindred purpose**  
-By the way, that exercise in class went pretty well, and then we decided to **jettison** it anyway and keep the prior version of the exercise because it was more effective. -  
+By the way, that exercise in class went pretty well, and then we decided to **jettison** it anyway and keep the prior version of the exercise because it was more effective.  
 
 Being or doing? The real inner me, or the busy, successful outer me? Which is it? Life design thinks that’s a false **dichotomy** -  
 This isn’t just our own **rehash** of positive thinking; it’s a design tool that’s imperative to life design.  
@@ -119,8 +187,8 @@ In our experience, if more than eight people have been through the **wringer** a
 post the “**phantom**” job description, wait the required two weeks, do a few **cursory** interviews, and then hire the person they wanted all along.  
 Networking is just **hustling** people—it’s **slimy**. -  
 This isn’t favoritism—it’s just **communal** behavior  
-a lot of people have an instant **aversion** to the term “networking.” -  
-Nature of the work. Salary and the friendliness of co-workers come in second and third, to complete this completely dysfunctional job-seeker **trifecta**. -  
+a lot of people have an instant **aversion** to the term “networking.”  
+Nature of the work. Salary and the friendliness of co-workers come in second and third, to complete this completely dysfunctional job-seeker **trifecta**.  
 You can’t know it from a **faulty** job description
 
 To some degree, it’s also a **numbers game**—the more connections you make, the more prototypes you run, the more opportunities will turn into offers.

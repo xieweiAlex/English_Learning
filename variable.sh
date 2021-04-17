@@ -54,3 +54,12 @@ export files=(
   "./words/2019/words-Jan.md"
 )
 
+test_files=(
+  "./media/houseOfCards/HOC2.md"
+  "./media/houseOfCards/HOC1.md"
+  "./media/bojack-horseman/bojack5.md"
+  "./media/bojack-horseman/bojack4.md"
+  "./words/2021/words-April.md"
+  "./words/2021/words-Mar.md"
+)
+
