@@ -1,4 +1,11 @@
 
+## Week 3 
+
+**achy**
+**sore**
+
+**rancid**
+
 **courageous**
 
 **incisive** 

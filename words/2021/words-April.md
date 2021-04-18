@@ -1,13 +1,16 @@
 
 
-Correlation does not equal causation, but this specific correlation is particularly stimulating  
-If you’ve been paying attention, you don’t need to have this data to tell you home prices are bonkers  
+Missing your favorite Peloton class might suck, but forcing yourself to **break a sweat** when you're not feeling good is counterproductive  
+For instance, if your arm is **achy** but the rest of your body feels fine, you may modify your full-body strength workout to be just a leg and core-focused routine  
+Or if you're feeling a little **lethargic**, but still want to get some movement in, you might go on a long walk **in lieu** of your typical HIIT workout  
 
-Most doctors erred on the side of caution.  
-To date, Redfin has been cautious but persistent in these efforts showing a commitment to err on the side of caution.  
+Correlation does not equal **causation**, but this specific correlation is particularly stimulating  
+If you’ve been paying attention, you don’t need to have this data to tell you home prices are **bonkers** -  
+
+Most doctors **erred on** the side of caution. -  
+To date, Redfin has been cautious but persistent in these efforts showing a commitment to **err on the side of caution**.  
 
 You see thee power in social media to move people to do something **en mass**.  
-
 They **wrung** the truth out of her.  
 The sad story **wrung** my heart.  
 Some people have mobility challenges that make walking an **ordeal**, or even impossible -  

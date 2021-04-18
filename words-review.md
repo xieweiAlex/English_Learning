@@ -7,6 +7,8 @@ Gina, Bojack was concerned the old scene was **gratuitous** and male-gazey. -
 I know you're excited, but we're still in a very **precarious** position. -  
 
 ## words-April.md ## 
+If you’ve been paying attention, you don’t need to have this data to tell you home prices are **bonkers** -  
+Most doctors **erred on** the side of caution. -  
 Some people have mobility challenges that make walking an **ordeal**, or even impossible -  
 A search mission is **underway** after a boat **capsized** off the Louisiana coast. At least six people were rescued but several remain missing. -   
 Bitcoin only has **imputed** value -  

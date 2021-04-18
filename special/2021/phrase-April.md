@@ -1,3 +1,5 @@
+You see thee power in social media to move people to do something **en mass**.  
+Missing your favorite Peloton class might suck, but forcing yourself to **break a sweat** when you're not feeling good is counterproductive  
 What's the **common denominator**?  
 **fine-grain**  
 He was a **meek**, **mild-mannered** fellow - 
