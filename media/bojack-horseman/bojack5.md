@@ -1,10 +1,8 @@
-
 ## E 12 
 It's a minor injury issue, a stunt went slightly **awry**.  
 I'm clearing my **docket**, this is my only priority. -  
 I still think it's pretty **nutty** we both have the left half of a **medallion**.  
 You physically **overpowered** me.  
-
 
 ## E 11 
 I still have this little **rancid** **itch** saying something isn't right. -  

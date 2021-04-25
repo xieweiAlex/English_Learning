@@ -1,4 +1,20 @@
 
+## Week 4 
+
+**therapeutic**
+
+**cybernetic**
+
+**holistic**
+
+**cog**
+
+**bedraggled**
+
+**false dichotomy**
+
+**palpable**
+
 ## Week 3 
 
 **achy**

@@ -1,60 +1,82 @@
 
+Not in the front office. Who's in the **boiler room**?  
+**Cadillac** goes electric  
+Cooperman has labeled the idea of a wealth tax foolish, and in interviews he has used a string of **expletives** to accuse Warren of ruining the American dream and called her a political charlatan. -  
 
+Instead, they rely on the market as their primary **gauge** of the company's true value.   
+That makes them question their entire investing thesis, not only **dissuading** them from buying additional shares but also putting pressure on them to sell off their existing position.  
+
+New York, Illinois, and Vermont are automatically **expunging** criminal records of some marijuana-related charges, and other states will prioritize awarding licenses to entrepreneurs from impacted communities.  
+But the pot industry isn't a **sure bet.  
+A **lightning bolt** split the night sky.  
+Her dismissal came as a **bolt from the blue**.  
+Their friendship remained purely **platonic**.  
+**fruity**  
+She keeps the house **spotless**  
+The iron's too hot, you'll **singe** the dress. -  
+In the eyes of the public, a divorced man is **footloose** and **fancy-free**. -  
+**Nicotine** is both a **stimulant** and a **depressant**.  
+Your love for me is a natural **anti-depressant**.  
+She is one **ballsy** lady!   
+Their instincts warned them something was **amiss**.   
+His face is **etched** onto his brain.  
+A scientist is usually a **methodical** person.  
+His shirt was **spotted** with oil.  
+Her drama teacher **spotted** her ability  
+
+The **batter** rises as it bakes  
+Let's rest under **yonder** tree.  
+Whose is that farm **over yonder**? -  
+They were unaware of the fate that was to **befall** them  
+His face **puckered**, the tears leapt from his eyes  
+I still felt a little **dazed**.  
+The punch left him **dazed** and bleeding.  
+Remove the fat from cheese and it becomes **crumbly**.  
+**mositen**  
+**Crusty** French bread  
+they were rash and **gullible**.  
+**sightless**  
+The front **cog** has 44 teeth  
+They truly think of their lives as one **cog** in a machine. -  
+I've **terrorized** the city countless times  
+
+
+## Week 3 
+
+If your company's PTO rules don't have a **probationary** period, then I don't see a problem.  
+There is a lot of money **sloshing around** in capital markets right now, and a lot of investors are diving **headlong** into cryptocurrencies  
 Missing your favorite Peloton class might suck, but forcing yourself to **break a sweat** when you're not feeling good is counterproductive  
 For instance, if your arm is **achy** but the rest of your body feels fine, you may modify your full-body strength workout to be just a leg and core-focused routine  
 Or if you're feeling a little **lethargic**, but still want to get some movement in, you might go on a long walk **in lieu** of your typical HIIT workout  
 
 Correlation does not equal **causation**, but this specific correlation is particularly stimulating  
-If you’ve been paying attention, you don’t need to have this data to tell you home prices are **bonkers** -  
+If you've been paying attention, you don’t need to have this data to tell you home prices are **bonkers** -  
 
 Most doctors **erred on** the side of caution. -  
 To date, Redfin has been cautious but persistent in these efforts showing a commitment to **err on the side of caution**.  
-
-You see thee power in social media to move people to do something **en mass**.  
+You see the power in social media to move people to do something **en mass**.  
 They **wrung** the truth out of her.  
 The sad story **wrung** my heart.  
 Some people have mobility challenges that make walking an **ordeal**, or even impossible -  
 
-threadbare  
-posterior  
-raunchy  
-ornate  
-wan  
-blab  
-irate  
-swill  
-sly  
-berserk  
-apoplectic  
-drippy  
-tangly  
-immaculate  
-downhearted  
-sedimentary  
-petit  
-platonic  
-fruity  
-spotless 
-singe  
-footloose  
-depressant  
-ballsy  
-amiss  
-etch  
-methodical  
-spotted  
-The batter rises as it bakes  
-yonder  
-befall  
-pucker  
-dazed  
-crumbly  
-mositen  
-crusty  
-gullible  
-sightless  
-cog  
-terroriose 
+The coat is worn **threadbare**. -  
+**threadbare** subject   
+Head **bent** over, Yeah, raised up **posterior**.  
+Instead, the walls are alive with the most **ornate** patterns.  
+His judgment seems to have **waned**.  
+The speech was designed to **pacify** the **irate** crowd.  
+He had a quick **swill** of wine.  
+**Swill** the car with clear water. -  
+He looked **sly** and **furtive**. -  
+He went **berserk** and attacked a man in court.  
+He was **apoplectic** with rage at the decision. -  
+**drippy** climate   
+These men look a bit **drippy** -  
+**tangly**  
+Her kitchen was kept **immaculate**.   
+Max **sighed**, sounding even more **downhearted**.  
+**sedimentary** rock  
+**petit** **bourgeois**  
 
 
 Throughout all of this, I recall Brian’s calm focus and dedication in every one of our conversations, despite operating in a very noisy and **excitable** market.  
@@ -62,13 +84,14 @@ US markets recover from early losses, S&P **notches** new record
 Bitcoin rallied to a new all-time high, topping $63,000 as investors and HODL'ers are **salivating** about tomorrow's direct listing of Coinbase, the largest cryptocurrency exchange in the U.S  
 Last month, many European countries paused the use of AstraZeneca’s coronavirus vaccine because of concerns about **blood clots**.   
 A search mission is **underway** after a boat **capsized** off the Louisiana coast. At least six people were rescued but several remain missing. -   
-
 Bitcoin only has **imputed** value -  
-**connoisseur** of sushi -  
+**connoisseur** of sushi   
 She has a **cybernetic** body, but she's kept her human emotions -  
 He was using the principles of **Psycho Cybernetics** to become one of the greatest body builders of all time.  
 
 ## Week 2 
+
+Many Eastern Asians prefer to **hold their emotions in check** and instead express themselves with great politeness
 
 The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also **bass**, **crappie**, and other fish -  
 
@@ -76,23 +99,23 @@ On its current trajectory, South Asia, home to a quarter of humanity, will soon 
 Pressure has mounted for the government to open the **spigot** further by licensing new vaccines -  
 It does not help that the current wave appears to be powered by more **virulent** strains of covid-19  
 It has since **limped** back to life, but the government is wary of making any moves that could delay recovery  
-heave 
+**heave** 
 
 What's the opposite of **fattening**? **Skinnying**, like in a negative way  
 Going to **emaciate** your portfolio  
 Coinbase’s **blistering** growth is thanks to price increases that have driven **insatiable** investor demand.  
 Initially, the phrase cryptocurrency appeared to be a **misnomer** as bulls focused on bitcoin as a store-of-value investment (similar to gold) due to the scarcity value of the limited number of tokens.  
-Dont' be **daunted**.  
+Don't be **daunted**.  
 
 She chewed; she **whimpered**; she **howled**. She **tangled** herself in my feet when I walked; she contracted a **parasite** and shit in every corner of the house  
-Eve, however, wants to get their garden **tidy**, and she remains **insistent** that their pruning and **tending** can be more efficiently accomplished if they split up  
+Eve, however, wants to get their garden **tidy**, and she remains **insistent** that their **pruning** and **tending** can be more efficiently accomplished if they split up  
 Luckily, I’d grown up as a **WASP**-y New England kid, so keeping my emotions **in check** was no big deal  
 We walked to school through **blizzards** and **hail**, and I moved to California convinced that “self-care” was **merely** a West Coast **rationalization** for **sloth**  
 I knew that, like an **omniscient** god, he’d be able to tell if I did not. -  
 she’d be one step closer to the **statuesque** Shepherd who demonstrates obedience by willfully ignoring the temptations that **encompass** him round.  
 If she did **bolt**, had I failed in my job since her reaction proved that she wasn’t yet fit to govern herself? -  
 “it sets. The dog can get rusty, but the skills are **ingrained**.” He’s been right: over a decade later, she’ll periodically ignore me, but when I go back to our basic routines, she proves that all her training habits remain **intact**.  
-it was windy, wet, and cold, and my little dog became **bedraggled** as she marched through her tasks. -  
+It was windy, wet, and cold, and my little dog became **bedraggled** as she marched through her tasks. -  
 Her anticipation was **palpable**, the moment of connection, rich. I felt that “invisible string” I **conjure** up for my children; I felt her eyes fixed on me from across the field.  
 
 Remember the **totem** in the movie, Inception? It’s an item that reminded people they weren't in a dream when they touched it, and it was able to keep them **grounded** in reality.  
@@ -115,7 +138,7 @@ It is important to **touch base** with your kids.
 E-commerce Retail Sales Have **Peaked** as a Result of the Pandemic  
 A **Landmark** Win for Google and Big Tech  
 Yellen is hoping to keep U.S. companies from **uprooting** and moving overseas to save money on taxes and from holding massive amounts of cash abroad, depleting funds from federal and local jurisdictions.  
-In a blog post on Friday, Amazon admitted to **scoring an** “**own-goal**” on itself and apologized to US Rep. Mark Pocan after initially denying that the company’s delivery drivers had to pee in bottles due to being overworked.   
+In a blog post on Friday, Amazon admitted to **scoring** an "**own-goal**" on itself and apologized to US Rep. Mark Pocan after initially denying that the company’s delivery drivers had to pee in bottles due to being overworked.   
 **Enough said** about that. Let's move on to error number four.  
 
 ## Week 1 

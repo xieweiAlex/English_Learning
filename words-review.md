@@ -1,3 +1,7 @@
+## bojack6.md ## 
+I guess letter writing is **therapeutic**. -  
+local **cameraman** has a pretty good thing going, where he gets travel all over the country, and **fool around** in hotel rooms with his beautiful, smart, **feisty** producer.... -  
+
 ## bojack5.md ## 
 I'm clearing my **docket**, this is my only priority. -  
 I still have this little **rancid** **itch** saying something isn't right. -  
@@ -7,18 +11,27 @@ Gina, Bojack was concerned the old scene was **gratuitous** and male-gazey. -
 I know you're excited, but we're still in a very **precarious** position. -  
 
 ## words-April.md ## 
-If you’ve been paying attention, you don’t need to have this data to tell you home prices are **bonkers** -  
+Cooperman has labeled the idea of a wealth tax foolish, and in interviews he has used a string of **expletives** to accuse Warren of ruining the American dream and called her a political charlatan. -  
+The iron's too hot, you'll **singe** the dress. -  
+In the eyes of the public, a divorced man is **footloose** and **fancy-free**. -  
+Whose is that farm **over yonder**? -  
+They truly think of their lives as one **cog** in a machine. -  
+If you've been paying attention, you don’t need to have this data to tell you home prices are **bonkers** -  
 Most doctors **erred on** the side of caution. -  
 Some people have mobility challenges that make walking an **ordeal**, or even impossible -  
+The coat is worn **threadbare**. -  
+**Swill** the car with clear water. -  
+He looked **sly** and **furtive**. -  
+He was **apoplectic** with rage at the decision. -  
+These men look a bit **drippy** -  
 A search mission is **underway** after a boat **capsized** off the Louisiana coast. At least six people were rescued but several remain missing. -   
 Bitcoin only has **imputed** value -  
-**connoisseur** of sushi -  
 She has a **cybernetic** body, but she's kept her human emotions -  
 The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also **bass**, **crappie**, and other fish -  
 Pressure has mounted for the government to open the **spigot** further by licensing new vaccines -  
 I knew that, like an **omniscient** god, he’d be able to tell if I did not. -  
 If she did **bolt**, had I failed in my job since her reaction proved that she wasn’t yet fit to govern herself? -  
-it was windy, wet, and cold, and my little dog became **bedraggled** as she marched through her tasks. -  
+It was windy, wet, and cold, and my little dog became **bedraggled** as she marched through her tasks. -  
 Ocasio-Cortez became involved in a lengthy **probate** battle to settle his estate -  
 A **briny** wind blew, rustled the trees. -   
 I am not allowed to cross the **transom**. -  

@@ -3,25 +3,25 @@
 Expanding vocabulary for a non native-speaker is very tedious and time-consuming, how do you think about it 🤔? I try to record the **words or phrases** I encounter everyday with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and if it can inspire someone else, that's even better 💖.  
 
 ### General Review 
-|  Review 🐗   |    File Marks       |  file   	|
-| ------------- |-------------  | ------- |
-| Monthly Word  |  A  | [Current Month](./words/2021/words-April.md)   |
+|  Review 🐗        |    File Marks       |  file   	|
+| -------------     |-------------  | ------- |
+| Monthly Word              |  A  | [Current Month](./words/2021/words-April.md)   |
 | Monthly Word **Review**   |  I  |  [Words Review](./words-review.md)       |
-| Monthly **Phrase** |  J  | [Special Phrase][phrase-2021-April]
+| Monthly **Phrase**        |  J  | [Special Phrase][phrase-2021-April]
 | Monthly **Special Words** |  K  | [Special Words][special-2021-April]
-| Monthly **Verb Words** |  V  | [Special Verb][verb-2021-Q2]       |
-| **Movie** Record |  L | [movie-record](./media/movie.md)       |
+| Monthly **Verb Words**    |  V  | [Special Verb][verb-2021-Q2]       |
+| **Movie** Record          |  L | [movie-record](./media/movie.md)       |
 
 ### Special Review
 |  Special      |   A       |  B   	| C   |   D   | E | 
 | ------------- |---------  | ------- | --|  ---- | --- | 
 | Special words 2021 | [word-Jan][special-2021-Jan] | [word-Feb][special-2021-Feb] | [word-Mar][special-2021-Mar]
-| Special words |  [words-Aug][Special-Aug] | [words-Sep][Special-Sep] | [words-Oct][Special-Oct] | [words-Nov][Special-Nov] | [words-Dev][Special-Dec]
-| Special Verb 2021 | [Verb Q1][verb-2021-Q1] |  
-| Special Verb | [verb-Nov][verb-Nov] | [verb-Dec][verb-Dec] 
-| Phrase 2021 | [phrase-Jan][phrase-2021-Jan]| [phrase-Feb][phrase-2021-Feb]
-| Phrase |  [phrase-Oct](./special/phrase-Oct.md) | [phrase-Nov][phrase-Nov]| [phrase-Dec][phrase-Dec]
-| Question | [questions](./words-question.md) | 
+| Special words      |  [words-Aug][Special-Aug] | [words-Sep][Special-Sep] | [words-Oct][Special-Oct] | [words-Nov][Special-Nov] | [words-Dev][Special-Dec]
+| Special Verb 2021  | [Verb Q1][verb-2021-Q1] |  
+| Special Verb       | [verb-Nov][verb-Nov] | [verb-Dec][verb-Dec] 
+| Phrase 2021        | [phrase-Jan][phrase-2021-Jan]| [phrase-Feb][phrase-2021-Feb]
+| Phrase             |  [phrase-Oct](./special/phrase-Oct.md) | [phrase-Nov][phrase-Nov]| [phrase-Dec][phrase-Dec]
+| Question           | [questions](./words-question.md) | 
 
 <!-- General Review -->
 [phrase-2021-Jan]: ./special/2021/phrase-Jan.md

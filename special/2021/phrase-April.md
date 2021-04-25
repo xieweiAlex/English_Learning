@@ -1,4 +1,10 @@
-You see thee power in social media to move people to do something **en mass**.  
+
+## Week 2,3
+
+Her dismissal came as a **bolt from the blue**.  
+But the pot industry isn't a **sure bet**.  
+Many Eastern Asians prefer to **hold their emotions in check** and instead express themselves with great politeness
+You see the power in social media to move people to do something **en mass**.  
 Missing your favorite Peloton class might suck, but forcing yourself to **break a sweat** when you're not feeling good is counterproductive  
 What's the **common denominator**?  
 **fine-grain**  
