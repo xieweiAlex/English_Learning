@@ -28,7 +28,8 @@ function getNewWords {
   do 
     echo -e "Checking file: ${YELLOW} $file_path ${NC}"
     file_name=$(basename "$file_path")
-    file_content=$(ag "$PATTERN" -G "$file_path" --group --nonumbers --nofilename | sed '/^[[:space:]]*$/d') 
+    # file_content=$(ag "$PATTERN" -G "$file_path" --group --nonumbers --nofilename | sed '/^[[:space:]]*$/d') 
+    file_content=$(ag "$PATTERN" -G "$file_path" --group --nonumbers | sed '/^[[:space:]]*$/d') 
 
     if [ -n "$file_content" ]; then 
       if [ -s "$WORDS_REVIEW" ]; then 

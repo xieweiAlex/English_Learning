@@ -1,5 +1,4 @@
-Her dismissal came as a **bolt from the blue**.  
-I guess some of this detective stuff is starting to **rub off on** me, because I figured out what's been going on with you. -  
+
 ### Week 4 
 
 Did you? I don't blame you for being **two-faced**, Raymond.  

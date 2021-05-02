@@ -1,6 +1,6 @@
 ## E 12 
 It's a minor injury issue, a stunt went slightly **awry**.  
-I'm clearing my **docket**, this is my only priority. -  
+I'm clearing my **docket**, this is my only priority.  
 I still think it's pretty **nutty** we both have the left half of a **medallion**.  
 You physically **overpowered** me.  
 
@@ -9,7 +9,7 @@ I still have this little **rancid** **itch** saying something isn't right. -
 Your concern is very **touching** by the way.   
 Look at you, **skulking** behind doors with a **malevolent** **aura**. -  
 someone is trying to **take me down**, take the show down.  
-I guess some of this detective stuff is starting to **rub off on** me, because I figured out what's been going on with you. -  
+I guess some of this detective stuff is starting to **rub off on** me, because I figured out what's been going on with you.  
 
 ## E 10 
 Just be charmingly **effusive**. Be yourself.  
@@ -64,7 +64,7 @@ do you feel weird that you don't have **discernible** life direction?
 **pointless** - I guess most of dates are  
 I've prepared our agreement, **look it over** and sign it **at your leisure**  
 I've a **stack** of holiday cards for the staff. I took the **liberty** of writing little personal things on your behalf.   
-I know you're excited, but we're still in a very **precarious** position. -  
+I know you're excited, but we're still in a very **precarious** position.  
 Jesus Christ, Judah. Do you ever **read a room**?  
 I also feel an **ambivalence** about the strike ending.  
 The negotiations have been quite **invigorating**.  

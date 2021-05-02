@@ -1,3 +1,20 @@
+She was holding on to the rope **for dear life**.   
+The only one who keep coming back even when I **chase them away**. 
+What's the **holdup**?  
+I want you to find him and **put him away**.  
+I won't **shed a tear**.  
+I think that's a **mentality**. I work my **tail off** every day.  
+That's a meeting they couldn't **sweep under the rug**.  
+I won't **shed a tear**.  
+That's a meeting they couldn't **sweep under the rug**.  
+
+
+She was holding on to the rope **for dear life**.   
+
+## Week 4 
+Still, the popular digital currency is the best-performing "asset" so far this year, and big dips are **par for the course** when it comes to Bitcoin  
+Falling, after all, is **par for the course**.  
+Earnings season is **at full tilt**, and we'll get results next week from Tesla, Amazon, Alphabet, and Ford, to name a few of the headliners  
 
 ## Week 2,3
 

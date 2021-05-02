@@ -1,7 +1,7 @@
 ## Week 4  
 
 Dust **mites**, including their **carcasses** and **fecal matter** -  
-**Hold out** longer than that, and all those **microorganisms** will make your towel **grungy** -  
+**Hold out** longer than that, and all those **microorganisms** will make your towel **grungy**  
 He also added that the Fed, for now, remains strongly committed to the **accommodative** policy given that the economic recovery still has plenty of **runway**.  
 These doubts had been **gnawing** at him for some time.  
 Grief **gnaws** my heart  
@@ -180,7 +180,7 @@ He was a man **on the make**, trying to build his fortune.
 For the same reason, **presumably**, that others cling so **tenaciously** to the idea that Obama was born outside the US: because they so want to believe it  
 He was **dogged** by his misfortune  
 **dodgy** 
-Billy started to **snivel**. His mother **smacked** his hand -  
+Billy started to **snivel**. His mother **smacked** his hand  
 **Boil**, **broil**, **poach**, steam or roast your foods  
 **plummet**  
 **upwind**, **headwind**, tailwind  

@@ -1,5 +1,17 @@
 
+**misconstrue**
+
+**inquisitive**
+
+**precarious**
+
+**feisty**
+
 ## Week 4 
+
+**palatable**
+
+**audacity**
 
 **therapeutic**
 
@@ -18,6 +30,7 @@
 ## Week 3 
 
 **achy**
+**itchy**
 **sore**
 
 **rancid**

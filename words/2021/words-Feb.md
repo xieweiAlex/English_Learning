@@ -49,7 +49,7 @@ the soldiers made a **headlong** rush for cover
 **anatomically**  
 I can **aft** and **luffed** her to the open sea  
 Big Tech stocks have been the **laggards** so far this year and today was no different  
-The classics have been looking good since they started preaching the electric **gospel**. -  
+The classics have been looking good since they started preaching the electric **gospel**.  
 The Federal Reserve remains **vexed** about the lack of inflation that has been a feature of the U.S. economy for the better part of the past decade  
 That's a matter for you to **take up with** your boss  
 As she is such a pretty woman, many men would like to **take up with** her  

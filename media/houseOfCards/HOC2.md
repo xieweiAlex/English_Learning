@@ -1,4 +1,26 @@
 
+## E 5 
+I'm totally **blanked**.  
+You won't need a **restraining order**.  
+I need to disrupt the **nuptials** and prevent a second marriage. -  
+You don't think that's a little, I don't know, **brash**? 
+**Ward** isn't making things any easier. She wants a **notch in her belt**.  
+You can **conjure up** little gray men in 51 Area if you really want to.  
+I did my part, now **put it to bed**, Doug.  
+
+## E 4 
+
+Let's let this **grow on its own**.  
+I'm not big on **favors**.  
+That's a meeting they couldn't **sweep under the rug**.  
+Don't **inflate** your status, Mr. Stamper. You're nothing but a **errand boy**.  
+I don't want any more **back-channeling**.  
+You're using them for your own **personal ends**.  
+I won't **shed a tear**.  
+Your president will **ascribe** the failure to you. - I will take the risk.    
+I'm in the frontline and I can tell you **firsthand** that we're dealing with regime that is not being **forthright** and will seize upon the **faintest whiff of trepidation**.  
+
+
 ## E 3  
 There are two types of vice presidents: **doormats** and **matadors**.  
 I want you to find him and **put him away**.  
