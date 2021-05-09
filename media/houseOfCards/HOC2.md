@@ -1,4 +1,27 @@
 
+## E 8 
+She and I don't talk, we had a **falling out**.  
+You seem **fixated** on this bridge, is something else going on here?  
+A bridge, that's a **drop in the bucket**.  
+I have no **ulterior** motive here.  
+We'll find time when the tension **subside**.  
+
+## E 7  
+You are **out of line**, Frank.  
+He's got **an axe to grind with me** and with the president.   
+You think he's **funneling** the money somehow?  
+I'm sorry I **lashed out** at you, Frank.  
+No, I was disrespectful and that was **uncalled** for. -  
+My temper's **gotten away from me** these days.  
+The White House. All day long it's **buzzing**. And at this hour it's so... **desolate**. -  
+You're such a **flirt**.  
+Arrange a **cushy** job offer for him somewhere.  
+He **stacked** congress. The majority I **whipped**.  
+there was **in black and white**.  
+what exactly **are you up to**?  
+when he was governor, it wasn't a **cakewalk**, but it was nothing like this.  
+
+
 ## E 5 
 I'm totally **blanked**.  
 You won't need a **restraining order**.  
@@ -43,7 +66,7 @@ I promised the president a **soft touch**. I can't intentionally break my promis
 We can't have an editor looking more **disheveled** than his reporters.  
 They know that I need **plausible** **deniability** for diplomatic purposes. - Why didn't you immediately **recant**?  
 In my experience with Chinese, **backpedaling** makes us look weak.  
-My contacts in Beijing tell me the minister of commerce is in a **tizzy**.  
+My contacts in Beijing tell me the minister of commerce is in a **tizzy**. -  
 Either I **turn my back on** Cathy or I **stand behind** her.  
 And that walker doesn't **flinch** at the lack of respect it implies?  
 Let's **put this to bed**, Wes.  

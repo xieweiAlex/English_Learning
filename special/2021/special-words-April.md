@@ -1,3 +1,4 @@
+## Week 5 
 
 **misconstrue**
 
@@ -20,8 +21,6 @@
 **holistic**
 
 **cog**
-
-**bedraggled**
 
 **false dichotomy**
 

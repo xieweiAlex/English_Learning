@@ -29,7 +29,7 @@ We all **stank** and nobody minded
 **prettily**  
 The wind **whiffled** through the trees.  
 **gloatingly**  
-**skedaddle** before I call the cops -  
+**skedaddle** before I call the cops  
 Can you **waggle** your ears?  
 **crossly**  
 **bathe**  

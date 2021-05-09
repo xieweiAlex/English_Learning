@@ -1,10 +1,4 @@
 
-The only one who keep coming back even when I **chase them away**. 
-
-stout 
-homey
-envelop  
-
 ## Week 5 
 
 The snail left a trail of **slime** along the floor.  
@@ -21,19 +15,19 @@ He gave an **ostentatious** yawn
 The French are **discreet** about money and flinch at **ostentatious** displays of wealth. -  
 
 It is easy to **misconstrue** confidence as arrogance.   
-They **construed** her silence as meaning that she ag  
+They **construed** her silence as meaning that she agree  
 **corned beef**  
 She watched them through a **slit** in the curtains.  
 Harry looked to his left. Hermione was gazing **transfixed** at Hagrid's.  
 **transfix** an enemy with a sword  
 
-He's a smart, **inquisitive**, bright little boy. -  
+He's a smart, **inquisitive**, bright little boy.  
 He does see inflation rising a bit, but sees it as **transitory**  
 Stocks weren't **fazed** by anything the Fed said -  
 This is significant because the severe cases are those that **put a strain** on hospital systems and lead to an increased number of deaths.  
 
 **All too often**, risk ends up looking like the ancient myth of the **Hydra**.  
-It **overshoots** on the way up, corrects, stabilizes, and then **chops** around for a few months before usually heading higher. It happened in 1982–83, 2003–04, and 2009–11. -  
+It **overshoots** on the way up, corrects, stabilizes, and then **chops** around for a few months before usually heading higher. It happened in 1982–83, 2003–04, and 2009–11.  
 Looks like they **overshot** their destination by 10 years  
 There is no known **antidote** to the poison.  
 She was holding on to the rope **for dear life**.   
@@ -47,8 +41,8 @@ The crisis helped to **weld** the party together.
 **electrocute**  
 He's happy to **mooch** around the house all day. -  
 **unbound** hair  
-It all seemed useless and **inane** -  
-she'll be coming soon, don't **fash** yourself.  
+It all seemed useless and **inane**  
+she'll be coming soon, don't **fash** yourself. -  
 Trying not to get **mauled** to death by our friend. - 
 People were **awestruck** by the pictures the satellite sent back to earth.   
 Everyone at court was **enchanted** by me!  
@@ -128,16 +122,16 @@ For instance, if your arm is **achy** but the rest of your body feels fine, you 
 Or if you're feeling a little **lethargic**, but still want to get some movement in, you might go on a long walk **in lieu** of your typical HIIT workout  
 
 Correlation does not equal **causation**, but this specific correlation is particularly stimulating  
-If you've been paying attention, you don’t need to have this data to tell you home prices are **bonkers** -  
+If you've been paying attention, you don’t need to have this data to tell you home prices are **bonkers**  
 
-Most doctors **erred on** the side of caution. -  
+Most doctors **erred on** the side of caution.  
 To date, Redfin has been cautious but persistent in these efforts showing a commitment to **err on the side of caution**.  
 You see the power in social media to move people to do something **en mass**.  
 They **wrung** the truth out of her.  
 The sad story **wrung** my heart.  
 Some people have mobility challenges that make walking an **ordeal**, or even impossible -  
 
-The coat is worn **threadbare**. -  
+The coat is worn **threadbare**.  
 **threadbare** subject   
 Head **bent** over, Yeah, raised up **posterior**.  
 Instead, the walls are alive with the most **ornate** patterns.  
@@ -149,7 +143,7 @@ He looked **sly** and **furtive**. -
 He went **berserk** and attacked a man in court.  
 He was **apoplectic** with rage at the decision. -  
 **drippy** climate   
-These men look a bit **drippy** -  
+These men look a bit **drippy**  
 **tangly**  
 Her kitchen was kept **immaculate**.   
 Max **sighed**, sounding even more **downhearted**.  
@@ -191,7 +185,7 @@ Luckily, I’d grown up as a **WASP**-y New England kid, so keeping my emotions 
 We walked to school through **blizzards** and **hail**, and I moved to California convinced that “self-care” was **merely** a West Coast **rationalization** for **sloth**  
 I knew that, like an **omniscient** god, he’d be able to tell if I did not.  
 she’d be one step closer to the **statuesque** Shepherd who demonstrates obedience by willfully ignoring the temptations that **encompass** him round.  
-If she did **bolt**, had I failed in my job since her reaction proved that she wasn’t yet fit to govern herself? -  
+If she did **bolt**, had I failed in my job since her reaction proved that she wasn’t yet fit to govern herself?  
 “it sets. The dog can get rusty, but the skills are **ingrained**.” He’s been right: over a decade later, she’ll periodically ignore me, but when I go back to our basic routines, she proves that all her training habits remain **intact**.  
 It was windy, wet, and cold, and my little dog became **bedraggled** as she marched through her tasks.  
 Her anticipation was **palpable**, the moment of connection, rich. I felt that “invisible string” I **conjure** up for my children; I felt her eyes fixed on me from across the field.  
@@ -267,7 +261,7 @@ Now, once you've got a **hefty** list of options, chances are that you’re stru
 One week, the researchers set up a table in the store showing off six different specialty jams (with **snazzy** flavors like kiwi- orange, strawberry-lavender...you get the idea).  
 
 You didn't know that you had a preference until an unwanted decision occurred as a **fait accompli**.  
-It turns out that the part of the brain that is working to help us make our best choices is in the **basal** **ganglia** -  
+It turns out that the part of the brain that is working to help us make our best choices is in the **basal** **ganglia**  
 She didn't know why it was her left knee, but over years of **attentive** practice she came to trust what her knee had to tell her  
 to be sure you make space so your emotional and intuitive ways of knowing can **surface** in the process.  
 It turns out that **reversibility** is not **conducive** to establishing reliable happiness with a decision  
@@ -289,7 +283,7 @@ This role is not for the **faint of heart**, and only those with a proven and su
 If you have those specific skills, great; add them to your résumé, **word for word**. If you don’t, list very specific skills that are similar.  
 In our experience, if more than eight people have been through the **wringer** and no decisions have been made, the hiring process is probably broken.  
 post the “**phantom**” job description, wait the required two weeks, do a few **cursory** interviews, and then hire the person they wanted all along.  
-Networking is just **hustling** people—it’s **slimy**. -  
+Networking is just **hustling** people—it’s **slimy**.  
 This isn’t favoritism—it’s just **communal** behavior  
 a lot of people have an instant **aversion** to the term “networking.”  
 Nature of the work. Salary and the friendliness of co-workers come in second and third, to complete this completely dysfunctional job-seeker **trifecta**.  

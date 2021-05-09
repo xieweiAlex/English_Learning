@@ -5,7 +5,7 @@ I still think it's pretty **nutty** we both have the left half of a **medallion*
 You physically **overpowered** me.  
 
 ## E 11 
-I still have this little **rancid** **itch** saying something isn't right. -  
+I still have this little **rancid** **itch** saying something isn't right.  
 Your concern is very **touching** by the way.   
 Look at you, **skulking** behind doors with a **malevolent** **aura**. -  
 someone is trying to **take me down**, take the show down.  
@@ -56,7 +56,7 @@ hobnobbing sexual violence, protracted, **lascivious** nude scenes.
 **culpable** for that **complicit**  
 
 ## E 1  
-Gina, Bojack was concerned the old scene was **gratuitous** and male-gazey. -  
+Gina, Bojack was concerned the old scene was **gratuitous** and male-gazey.  
 do you feel weird that you don't have **discernible** life direction?  
 
 ## Judah 

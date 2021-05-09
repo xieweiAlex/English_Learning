@@ -1,14 +1,12 @@
-She was holding on to the rope **for dear life**.   
+
+## Week 5 
+
 The only one who keep coming back even when I **chase them away**. 
 What's the **holdup**?  
 I want you to find him and **put him away**.  
-I won't **shed a tear**.  
 I think that's a **mentality**. I work my **tail off** every day.  
-That's a meeting they couldn't **sweep under the rug**.  
 I won't **shed a tear**.  
 That's a meeting they couldn't **sweep under the rug**.  
-
-
 She was holding on to the rope **for dear life**.   
 
 ## Week 4 
@@ -38,3 +36,4 @@ Beauty is The **Eye of the Beholder**.
 I will be **better off** without you.  
 This role is not for the **faint of heart**, and only those with a proven and successful track record should apply.  
 Using the Internet as your only job-finding method is **nothing short of** **masochistic**  
+
