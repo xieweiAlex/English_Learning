@@ -6,7 +6,11 @@ set -e
 printf "\033[0;32mDeploying updates to GitHub...\033[0m\n"
 
 # Commit changes.
-msg="Committing changes at: $(date)"
+date=$(date +'%m/%d/%Y %r')
+msg="Changes at: $date"
+
+echo "$msg \n\n"
+
 if [ -n "$*" ]; then
 	msg="$*"
 fi
