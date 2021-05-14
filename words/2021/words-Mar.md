@@ -1,6 +1,6 @@
 ## Week 4  
 
-Dust **mites**, including their **carcasses** and **fecal matter** -  
+Dust **mites**, including their **carcasses** and **fecal matter**  
 **Hold out** longer than that, and all those **microorganisms** will make your towel **grungy**  
 He also added that the Fed, for now, remains strongly committed to the **accommodative** policy given that the economic recovery still has plenty of **runway**.  
 These doubts had been **gnawing** at him for some time.  
@@ -76,7 +76,7 @@ The Tokyo Olympics will bar international **spectators** from attending the even
 ## Week 3 
 
 Let's get out of the **rat race**.  
-The reference is actually to investors who become too greedy at the **trough** and abandon their risk -   
+The reference is actually to investors who become too greedy at the **trough** and abandon their risk  
 I'm **fed up**  
 that's **the last straw**  
 I'm **at the end of my rope**  

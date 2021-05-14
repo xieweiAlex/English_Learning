@@ -1,8 +1,67 @@
 
+
+exhume  
+grim  
+disinterested  
+distasteful  
+tutti  
+glazed tile, glazed pottery  
+snaky  
+intersperse  
+efface  
+deformed  
+musty  
+bittersweet  
+sprain  
+coverall  
+
+
+
+Even if you are an **intrepid** type that will walk into your manager's office and ask for a raise, they may inadvertently put you through many more hoops than your peers  
+Teeth become loose and may **fall out**.
+
+They can **retrofit** old plants: plenty have done that, too  
+That’s not **foolproof**, and not a prediction that the next five years will be all smiles and giggles  
+
+The business cycle is a series of peaks and **troughs**. -  
+James was extremely **susceptible** to flattery.  
+Just over a decade ago, digital assets were a theoretical concept. Coinbase’s direct listing represents a **watershed moment**.  
+I've always loved the **hustle and bustle** of big cities  
+
+She was **enchanted** by the flowers you sent her  
+Deliberate practice **entails** more than simply repeating a task.  
+What is that **rattling** in your pocket?  
+Her bowel will **engorge** quite often, I'm afraid.   
+It was a **tempting** offer.   
+installing more **acoustic** absorbing **tiles**.  
+He shook his head and gave me a **rueful** smile. -  
+His father **exerted** a lot of pressure on him to succeed.  
+He was **incorporated** a member of the college.  
+
+**datable**  
+His vulnerability makes him even more **lovable**  
+He could not **efface** the impression from his mind. -  
+People are **awed** by its water color and clarity. -  
+It was **reassuring** to hear John's familiar voice.   
+
+she got her first **bionic** arm.   
+He was a big **strapping** guy but short on brains. -   
+I can **aver** that he is telling the truth. -  
+I didn't even have the chance to **proofread** my own report.  
+I'm just **collating** the results now. -  
+
+**anthropological**  
+I hate his **smarmy** compliments. -  
+We **delude** ourselves that we are in control.  
+The village has a certain **rustic** charm  
+She supports her theory with **copious** evidence  
+**rigid** frame, **rigid** plastic 
+**guttural** sounds
+He looked **mournful**, even near to tears.  
+
 ## Week 1 
 
 She definitely had an **ulterior** **motive** in offering to help
-
 Then you **came along**. **Just in time**  
 We watched the cow **suckling** her **calves**  
 These changes will require the **sanction** of the court.  
@@ -22,7 +81,6 @@ If someone I knew to be both a domain expert and a reasonable person proposed an
 
 **weeny** hand 
 When the pandemic **ravaged** the economy last year, **sawmills** let workers go and slowed production **down to a trickle**  
-
 **telepathic** power  
 **nifty** 50
 **leathery** 
@@ -39,12 +97,10 @@ The town itself was **full of life** and character.
 **negate** instruction  
 This old man shaved his **shaggy** black beard.  
 **braky**  
-multiplex  
+**multiplex**  
 I'm just very cold, hard, **unyielding**.  
 There's no **earthly** reason for me to feel so blue.   
 The **plumbline** is always **perpendicular** to the horizontal plane  
-guttural  
-mournful  
 He is **up for grabs** 
 The spacecraft **touched down** on schedule.  
 A **stellar** earnings season has helped lift stocks. We have another 1,755 companies set to report this week, and another 1,037 companies **on deck** for next week.  
@@ -56,5 +112,4 @@ Jacobs was a **stout**, **florid** man.
 Being at the barn is very like **homey**.  
 **homie** 
 **envelop**  
-
 

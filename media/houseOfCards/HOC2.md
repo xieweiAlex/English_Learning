@@ -8,7 +8,7 @@ We'll find time when the tension **subside**.
 
 ## E 7  
 You are **out of line**, Frank.  
-He's got **an axe to grind with me** and with the president.   
+He's **got an axe to grind with me** and with the president.   
 You think he's **funneling** the money somehow?  
 I'm sorry I **lashed out** at you, Frank.  
 No, I was disrespectful and that was **uncalled** for. -  
@@ -41,7 +41,7 @@ I don't want any more **back-channeling**.
 You're using them for your own **personal ends**.  
 I won't **shed a tear**.  
 Your president will **ascribe** the failure to you. - I will take the risk.    
-I'm in the frontline and I can tell you **firsthand** that we're dealing with regime that is not being **forthright** and will seize upon the **faintest whiff of trepidation**.  
+I'm in the frontline and I can tell you **firsthand** that we're dealing with regime that is not being **forthright** and will **seize upon** the **faintest whiff of trepidation**.  
 
 
 ## E 3  

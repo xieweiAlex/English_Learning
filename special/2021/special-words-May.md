@@ -1,4 +1,8 @@
 
+**preposterous**
+
+**susceptible**
+
 ## Week 1
 
 **fixated**

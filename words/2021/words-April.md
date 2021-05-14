@@ -35,14 +35,14 @@ She was holding on to the rope **for dear life**.
 It’s been a **whirlwind** for investors and despite it all, the market is at an all-time high.  
 Technology does not need **vast troves** of personal data, stitched together across dozens of websites and apps, in order to succeed  
 Whether Facebook’s ad biz will be **dinged** as much as it says it will is unclear, but other apps like Snap and Bumble have warned that Apple’s moves could be harmful.  
-The late Chadwick Boseman was the **odds-on favorite** to win the award, in which case the event would close on a **poignant** note. But he didn't win—Anthony Hopkins did—and Hopkins wasn’t even in attendance. So the entire show ended as **abruptly** as a Zoom meeting. -  
+The late Chadwick Boseman was the **odds-on favorite** to win the award, in which case the event would close on a **poignant** note. But he didn't win—Anthony Hopkins did—and Hopkins wasn’t even in attendance. So the entire show ended as **abruptly** as a Zoom meeting.  
 
 The crisis helped to **weld** the party together.  
 **electrocute**  
 He's happy to **mooch** around the house all day. -  
 **unbound** hair  
 It all seemed useless and **inane**  
-she'll be coming soon, don't **fash** yourself. -  
+she'll be coming soon, don't **fash** yourself.  
 Trying not to get **mauled** to death by our friend. - 
 People were **awestruck** by the pictures the satellite sent back to earth.   
 Everyone at court was **enchanted** by me!  
@@ -141,7 +141,7 @@ He had a quick **swill** of wine.
 **Swill** the car with clear water.  
 He looked **sly** and **furtive**. -  
 He went **berserk** and attacked a man in court.  
-He was **apoplectic** with rage at the decision. -  
+He was **apoplectic** with rage at the decision.  
 **drippy** climate   
 These men look a bit **drippy**  
 **tangly**  
@@ -168,7 +168,7 @@ Many Eastern Asians prefer to **hold their emotions in check** and instead expre
 The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also **bass**, **crappie**, and other fish -  
 
 On its current trajectory, South Asia, home to a quarter of humanity, will soon **eclipse** the European Union as the center of the pandemic.  
-Pressure has mounted for the government to open the **spigot** further by licensing new vaccines -  
+Pressure has mounted for the government to open the **spigot** further by licensing new vaccines  
 It does not help that the current wave appears to be powered by more **virulent** strains of covid-19  
 It has since **limped** back to life, but the government is wary of making any moves that could delay recovery  
 **heave** 
@@ -222,7 +222,7 @@ The hotel staff are friendly and **attentive**.
 
 Vim and Emacs are always there for you, cozy, calm and **willing**  
 It’s the kind of **dismissal** you can only do when there’s nobody you respect on “**the other side**”.  
-I could tell you all of the reasons I prefer Vim, and such observations are **eye-rollingly** **trite**. Modal editing! Composibility! Keyboard macros! -  
+I could tell you all of the reasons I prefer Vim, and such observations are **eye-rollingly** **trite**. Modal editing! Composibility! Keyboard macros!  
 Unlike the original authors, I don’t have a **contempt** for other tools  
 When I first came here, I had a **crummy** apartment. -   
 Holman **thumped** the desk with his hand.  

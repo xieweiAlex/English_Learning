@@ -1,3 +1,4 @@
+I'm in the frontline and I can tell you **firsthand** that we're dealing with regime that is not being **forthright** and will **seize upon** the **faintest whiff of trepidation**.  
 
 ## Week 5 
 

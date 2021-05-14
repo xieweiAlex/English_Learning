@@ -187,7 +187,7 @@ This is a blatantly **implausible** claim.
 The Chief **Constable** came along in **civvies**.  
 The pond **teemed** with **tadpoles**.  
 There are signs of **rapprochement** between George and his son.  
-**Splurge** millions on the wedding. -  
+**Splurge** millions on the wedding.  
 **imposition** of surcharge.  
 They **threatened** to **baton** him to death.  
 A **shroud** of **mist**  
@@ -196,7 +196,7 @@ Apply a **plaster** on a wound.
    
 There are other contexts in which smaller numbers have **run afoul of** laws or regulations, or drawn the attention of authorities.  
    
-schoolchildren **wreaking havoc** in the classroom. -  
+schoolchildren **wreaking havoc** in the classroom.  
 **salvation** from alcoholism -  
 that great **barrack** of a house  
    
