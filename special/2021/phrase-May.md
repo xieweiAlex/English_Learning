@@ -1,5 +1,4 @@
-
-
+So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**. -  
 
 There is something I feel I must **get off my chest**.  
 You could give me some real therapy last 6 months instead of just **plying** me with **folksy** **aphorisms**. - 

@@ -4,7 +4,15 @@ She and I don't talk, we had a **falling out**.
 You seem **fixated** on this bridge, is something else going on here?  
 A bridge, that's a **drop in the bucket**.  
 I have no **ulterior** motive here.  
-We'll find time when the tension **subside**.  
+We'll find time when the tension **subside**. -  
+**square one**.  
+The **backstabbing** **vomit-inducing** bitch.  
+I want to **insulate** you from this. -  
+You have people who are **looking out for** you: me, Linda,  your wife.  
+He wants to meet, but on his **turf** this time. -  
+Come on, **live a little**, Frank.  
+**keep your ear to the ground**.  
+
 
 ## E 7  
 You are **out of line**, Frank.  

@@ -15,7 +15,7 @@ She is **circling around**, **portending** my **doom**? -
 Is she gonna **swoop in** and **peck out** my chances?  
 
 ## E 6  
-It appears we're in an **impasse**. -  
+It appears we're in an **impasse**.  
 You know, like how we **satiate** TV creators.  
 You could give me some real therapy last 6 months instead of just **plying** me with **folksy** **aphorisms**. - 
 

@@ -7,7 +7,7 @@ You physically **overpowered** me.
 ## E 11 
 I still have this little **rancid** **itch** saying something isn't right.  
 Your concern is very **touching** by the way.   
-Look at you, **skulking** behind doors with a **malevolent** **aura**. -  
+Look at you, **skulking** behind doors with a **malevolent** **aura**.  
 someone is trying to **take me down**, take the show down.  
 I guess some of this detective stuff is starting to **rub off on** me, because I figured out what's been going on with you.  
 

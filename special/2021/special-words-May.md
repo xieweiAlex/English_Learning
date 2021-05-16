@@ -1,4 +1,14 @@
 
+**impasse**
+
+**fazed**
+
+**ulterior motive**
+
+**intrepid**  
+
+**liberating**
+
 **preposterous**
 
 **susceptible**

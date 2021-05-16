@@ -1,5 +1,8 @@
 ## HOC2.md ## 
 media/houseOfCards/HOC2.md
+We'll find time when the tension **subside**. -  
+I want to **insulate** you from this. -  
+He wants to meet, but on his **turf** this time. -  
 No, I was disrespectful and that was **uncalled** for. -  
 The White House. All day long it's **buzzing**. And at this hour it's so... **desolate**. -  
 I need to disrupt the **nuptials** and prevent a second marriage. -  
@@ -13,33 +16,31 @@ There was someone else with her while she was **blotto**. -
 I meant fun energy. I didn't mean change the **choreography**. -  
 In our **undervalued** overworked existence, we're desperate for any **morsel** of satisfaction. -  
 She is **circling around**, **portending** my **doom**? -  
-It appears we're in an **impasse**. -  
 You could give me some real therapy last 6 months instead of just **plying** me with **folksy** **aphorisms**. - 
-
-## bojack5.md ## 
-media/bojack-horseman/bojack5.md
-Look at you, **skulking** behind doors with a **malevolent** **aura**. -  
 
 ## words-May.md ## 
 words/2021/words-May.md
+So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**. -  
+Bushes were **interspersed** among trees. -  
+The room smelled **musty** and **stale** -  
 The business cycle is a series of peaks and **troughs**. -  
+She was **enchanted** by the flowers you sent her. -  
 He shook his head and gave me a **rueful** smile. -  
 He could not **efface** the impression from his mind. -  
 People are **awed** by its water color and clarity. -  
 He was a big **strapping** guy but short on brains. -   
-I can **aver** that he is telling the truth. -  
 I'm just **collating** the results now. -  
 I hate his **smarmy** compliments. -  
+We **delude** ourselves that we are in control. -  
+She supports her theory with **copious** evidence. -  
+He looked **mournful**, even near to tears. -  
 But we live in a world of **entitlement**. With that entitlement comes a **litany** of emotional **pleading** and **flimsy** justification for why a multi-billion dollar product should be given for free and consequence free -  
-If someone I knew to be both a domain expert and a reasonable person proposed an idea that sounded **preposterous**, I'd be very reluctant to say "That will never work." -  
 The figures were puzzling as well as **perturbing**. -  
 You and I both know that power is the greatest **aphrodisiac**. -  
 
 ## words-April.md ## 
 words/2021/words-April.md
 I just prefer to be **suave**, do it with **panache** and **finesse** -  
-The French are **discreet** about money and flinch at **ostentatious** displays of wealth. -  
-Stocks weren't **fazed** by anything the Fed said -  
 He's happy to **mooch** around the house all day. -  
 Trying not to get **mauled** to death by our friend. - 
 so we invented a serious of **ingenious** ways of answering the question that were designed to give the impression that Erlang was (sort of) OO -   

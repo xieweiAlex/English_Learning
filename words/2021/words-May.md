@@ -1,20 +1,30 @@
 
+## Week 2 
 
-exhume  
-grim  
-disinterested  
-distasteful  
-tutti  
-glazed tile, glazed pottery  
-snaky  
-intersperse  
-efface  
-deformed  
-musty  
-bittersweet  
-sprain  
-coverall  
+deflate
 
+His style of **choreography** is **flamboyant**.  
+
+Nowadays, crypto is not a **pie-in-the-sky** idea, it’s a major financial asset which poses a significant threat to traditional payments businesses.  
+**tough luck**  
+
+The tulips have bloomed and warmer temperatures are here, which means it’s time for the “Sell in May and go away” **punditry** to flood the financial news media. Don’t buy into it.  
+So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**. -  
+
+**Exhume** **Corpses**  
+**grim** reaper
+The outlook is pretty **grim**.
+We had both become **jaded**, **disinterested**, and **disillusioned**  
+The very idea of cheating him is **distasteful** to me.  
+**tutti**  
+**glazed** tile, **glazed** pottery  
+a **snaky** **rod**  
+Bushes were **interspersed** among trees. -  
+His face was **hideously** **deformed**.  
+The room smelled **musty** and **stale** -  
+**bittersweet**  
+He **sprained** his ankle when he fell.  
+fire resistant **coverall**  
 
 
 Even if you are an **intrepid** type that will walk into your manager's office and ask for a raise, they may inadvertently put you through many more hoops than your peers  
@@ -28,8 +38,9 @@ James was extremely **susceptible** to flattery.
 Just over a decade ago, digital assets were a theoretical concept. Coinbase’s direct listing represents a **watershed moment**.  
 I've always loved the **hustle and bustle** of big cities  
 
-She was **enchanted** by the flowers you sent her  
+She was **enchanted** by the flowers you sent her. -  
 Deliberate practice **entails** more than simply repeating a task.  
+This job **entails** a lot of hard work.  
 What is that **rattling** in your pocket?  
 Her bowel will **engorge** quite often, I'm afraid.   
 It was a **tempting** offer.   
@@ -46,18 +57,18 @@ It was **reassuring** to hear John's familiar voice.
 
 she got her first **bionic** arm.   
 He was a big **strapping** guy but short on brains. -   
-I can **aver** that he is telling the truth. -  
+I can **aver** that he is telling the truth.  
 I didn't even have the chance to **proofread** my own report.  
 I'm just **collating** the results now. -  
 
 **anthropological**  
 I hate his **smarmy** compliments. -  
-We **delude** ourselves that we are in control.  
+We **delude** ourselves that we are in control. -  
 The village has a certain **rustic** charm  
-She supports her theory with **copious** evidence  
+She supports her theory with **copious** evidence. -  
 **rigid** frame, **rigid** plastic 
 **guttural** sounds
-He looked **mournful**, even near to tears.  
+He looked **mournful**, even near to tears. -  
 
 ## Week 1 
 
@@ -72,7 +83,7 @@ Sales there **slumped** last year as that country was being overwhelmed by the c
 But we live in a world of **entitlement**. With that entitlement comes a **litany** of emotional **pleading** and **flimsy** justification for why a multi-billion dollar product should be given for free and consequence free -  
 
 Without pursuing dreams, life is **mundane**.  
-If someone I knew to be both a domain expert and a reasonable person proposed an idea that sounded **preposterous**, I'd be very reluctant to say "That will never work." -  
+If someone I knew to be both a domain expert and a reasonable person proposed an idea that sounded **preposterous**, I'd be very reluctant to say "That will never work."  
 
 **apocalypse** vs **apoplectic**  
 

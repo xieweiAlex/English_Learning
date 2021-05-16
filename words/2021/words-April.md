@@ -12,7 +12,7 @@ I just prefer to be **suave**, do it with **panache** and **finesse** -
 She endured the **monstrous** behavior for years.  
 The cruel landlord would **bate** him no rent.  
 He gave an **ostentatious** yawn  
-The French are **discreet** about money and flinch at **ostentatious** displays of wealth. -  
+The French are **discreet** about money and flinch at **ostentatious** displays of wealth.  
 
 It is easy to **misconstrue** confidence as arrogance.   
 They **construed** her silence as meaning that she agree  
@@ -23,7 +23,7 @@ Harry looked to his left. Hermione was gazing **transfixed** at Hagrid's.
 
 He's a smart, **inquisitive**, bright little boy.  
 He does see inflation rising a bit, but sees it as **transitory**  
-Stocks weren't **fazed** by anything the Fed said -  
+Stocks weren't **fazed** by anything the Fed said  
 This is significant because the severe cases are those that **put a strain** on hospital systems and lead to an increased number of deaths.  
 
 **All too often**, risk ends up looking like the ancient myth of the **Hydra**.  
