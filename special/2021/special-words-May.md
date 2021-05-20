@@ -1,4 +1,20 @@
 
+**demanding**
+
+**fierce**
+**ferocious**, **ferocity**
+
+**pressing**
+
+## Week 2 
+
+**melodramatic**
+**dramatic**
+
+**competitive**  
+
+**bogus**
+
 **impasse**
 
 **fazed**

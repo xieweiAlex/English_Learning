@@ -1,10 +1,29 @@
 
+## E 10 
+They're upping the **ante**. - 
+Probably the one that's **call all the shots**.  - No, I can **hold out** a little while longer. -  
+What you're **insinuating** is not only wrong, it's **libelous**. -  
+I neither have the time **nor** the **inclination** to negotiate with you!  
+
+## E 9 
+This hurt us both, but this is not my wound to **suture**. -  
+We'll **put this behind us**, like we always done.  
+**defamation** & **slander**  
+Got a extra **apron** in the back.  
+If you're going to threaten me, you don't have to go to the trouble of **veiling** it.  
+**glock** pistol  
+I don't know anything about professional photography, I'm just a **flack**. -  
+> dark was the night, gets me every night.  
+
+I'm your lobbyist, not your **henchman**. -  
+Is there anything you wanna take? A **memento** or something? -  
+
 ## E 8 
 She and I don't talk, we had a **falling out**.  
 You seem **fixated** on this bridge, is something else going on here?  
 A bridge, that's a **drop in the bucket**.  
 I have no **ulterior** motive here.  
-We'll find time when the tension **subside**. -  
+We'll find time when the tension **subside**.  
 **square one**.  
 The **backstabbing** **vomit-inducing** bitch.  
 I want to **insulate** you from this. -  
@@ -19,7 +38,7 @@ You are **out of line**, Frank.
 He's **got an axe to grind with me** and with the president.   
 You think he's **funneling** the money somehow?  
 I'm sorry I **lashed out** at you, Frank.  
-No, I was disrespectful and that was **uncalled** for. -  
+No, I was disrespectful and that was **uncalled** for.  
 My temper's **gotten away from me** these days.  
 The White House. All day long it's **buzzing**. And at this hour it's so... **desolate**. -  
 You're such a **flirt**.  
@@ -27,8 +46,7 @@ Arrange a **cushy** job offer for him somewhere.
 He **stacked** congress. The majority I **whipped**.  
 there was **in black and white**.  
 what exactly **are you up to**?  
-when he was governor, it wasn't a **cakewalk**, but it was nothing like this.  
-
+When he was governor, it wasn't a **cakewalk**, but it was nothing like this.  
 
 ## E 5 
 I'm totally **blanked**.  
@@ -40,7 +58,6 @@ You can **conjure up** little gray men in 51 Area if you really want to.
 I did my part, now **put it to bed**, Doug.  
 
 ## E 4 
-
 Let's let this **grow on its own**.  
 I'm not big on **favors**.  
 That's a meeting they couldn't **sweep under the rug**.  

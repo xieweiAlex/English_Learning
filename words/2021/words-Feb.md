@@ -155,7 +155,7 @@ Correct speech is an **earmark** of the educated man.
 The volcano threw new showers of **magma** and **ash** into the air  
 Her voice had a soft Welsh **lilt** to it.  
 **Confetti** showered down on the newly-**weds**.  
-**Anaconda** sunning on a tree -  
+**Anaconda** sunning on a tree  
 Or even more **tersely**  
 
 Now I'm not one to get **mushy**, but I have to tell you that if love was measured in gold, I'd be a billionaire!  

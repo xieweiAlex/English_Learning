@@ -1,7 +1,12 @@
+
+
+We'll **put this behind us**, like we always done.  
+Probably the one that's **call all the shots**.  - No, I can **hold out** a little while longer. -  
+I'm in the frontline and I can tell you **firsthand** that we're dealing with regime that is not being **forthright** and will **seize upon** the **faintest whiff of trepidation**.  
 So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**. -  
 
 There is something I feel I must **get off my chest**.  
-You could give me some real therapy last 6 months instead of just **plying** me with **folksy** **aphorisms**. - 
+You could give me some real therapy last 6 months instead of just **plying** me with **folksy** **aphorisms**.  
 A bridge, that's a **drop in the bucket**.  
 I'm sorry I **lashed out** at you, Frank.  
 You are **out of line**, Frank.  
@@ -13,6 +18,6 @@ Teeth become loose and may **fall out**.
 Then you **came along**. **Just in time**  
 > I'm not **going down** without a fight  
 
-Most doctors **erred on** the side of caution. -  
+Most doctors **erred on** the side of caution.   
 The spacecraft **touched down** on schedule.  
 

@@ -37,7 +37,7 @@ economic **slump**
 **nubbin**  
 **gauze**  
 **Armageddon**  
-Arya screwed up her face in a **scowl** - 
+Arya screwed up her face in a **scowl**  
 her skin had stayed soft and **supple**  
 **disembodied**  
 **conversely**  
@@ -111,12 +111,12 @@ Going from wet to dry batteries has the potential to put EV adoption into **hype
 In fact, one year ago, as the market dropped **precipitously** and began its rotation, I called an emergency briefing for Motley Fool investors where I revealed my tested “moneymakers” strategy for investing through volatile markets.  
 
 Don't be **coy** with me.  
-I hear people are **raving** about your league. -  
+I hear people are **raving** about your league.  
 clean clothes and good manners are **prepossessing**  
 Bankers will **cower**, afraid to lend.  
 
 A **raunchy** new novel  
-The boy looks pretty **raunchy** after a night of drinking -  
+The boy looks pretty **raunchy** after a night of drinking  
 Children **romped** on the playground.  
 He’s still **groggy** from the **anaesthetic**  
 Those dark clouds **foreshadow** a storm.  

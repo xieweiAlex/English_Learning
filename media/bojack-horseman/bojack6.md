@@ -1,7 +1,7 @@
 
 ## E 8 
 Perhaps one could argue **cloistering** oneself from the world itself is a form of **solipsism** -  
-Can you wait until you're out of **earshot** to make your **exasperated** **sighs**, please? -  
+Can you wait until you're out of **earshot** to make your **exasperated** **sighs**, please?  
 we're **making amends**.  
 There was someone else with her while she was **blotto**. -  
 I meant fun energy. I didn't mean change the **choreography**. -  
