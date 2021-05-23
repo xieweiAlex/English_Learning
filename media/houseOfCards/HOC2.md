@@ -1,7 +1,7 @@
 
 ## E 10 
 They're upping the **ante**. - 
-Probably the one that's **call all the shots**.  - No, I can **hold out** a little while longer. -  
+Probably the one that's **call all the shots**.  - No, I can **hold out** a little while longer.  
 What you're **insinuating** is not only wrong, it's **libelous**. -  
 I neither have the time **nor** the **inclination** to negotiate with you!  
 
@@ -28,7 +28,7 @@ We'll find time when the tension **subside**.
 The **backstabbing** **vomit-inducing** bitch.  
 I want to **insulate** you from this. -  
 You have people who are **looking out for** you: me, Linda,  your wife.  
-He wants to meet, but on his **turf** this time. -  
+He wants to meet, but on his **turf** this time.  
 Come on, **live a little**, Frank.  
 **keep your ear to the ground**.  
 
@@ -40,7 +40,7 @@ You think he's **funneling** the money somehow?
 I'm sorry I **lashed out** at you, Frank.  
 No, I was disrespectful and that was **uncalled** for.  
 My temper's **gotten away from me** these days.  
-The White House. All day long it's **buzzing**. And at this hour it's so... **desolate**. -  
+The White House. All day long it's **buzzing**. And at this hour it's so... **desolate**.  
 You're such a **flirt**.  
 Arrange a **cushy** job offer for him somewhere.  
 He **stacked** congress. The majority I **whipped**.  
@@ -51,7 +51,7 @@ When he was governor, it wasn't a **cakewalk**, but it was nothing like this.
 ## E 5 
 I'm totally **blanked**.  
 You won't need a **restraining order**.  
-I need to disrupt the **nuptials** and prevent a second marriage. -  
+I need to disrupt the **nuptials** and prevent a second marriage.  
 You don't think that's a little, I don't know, **brash**? 
 **Ward** isn't making things any easier. She wants a **notch in her belt**.  
 You can **conjure up** little gray men in 51 Area if you really want to.  

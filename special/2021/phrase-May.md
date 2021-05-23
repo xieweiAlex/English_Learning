@@ -1,3 +1,4 @@
+Note that prices can move, even if the story is incorrect or misleading, although in such cases the prices will tend to **snap back**  
 
 
 We'll **put this behind us**, like we always done.  

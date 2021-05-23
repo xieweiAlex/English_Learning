@@ -197,7 +197,7 @@ Apply a **plaster** on a wound.
 There are other contexts in which smaller numbers have **run afoul of** laws or regulations, or drawn the attention of authorities.  
    
 schoolchildren **wreaking havoc** in the classroom.  
-**salvation** from alcoholism -  
+**salvation** from alcoholism  
 that great **barrack** of a house  
    
 Traditionally, the **kimono** was made of silk  

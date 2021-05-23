@@ -1,6 +1,29 @@
 
+## Week 3
+
+Your car will **bog down** in the mud  
+**Colorado**  
+I hate to **stir it up**.  
+The paper gave all the **lurid** details of the murder. -   
+You're ruled by your **nether** region. - 
+
+**singular** form  
+I'll speak to him. A **singularly** bad idea.  
+When he doesn't know the answer, he gets **huffy**. -  
+My mother has some **uterine** issues  
+Her cheeks were **puffy** with crying -  
+He tried to kiss her and **fondle** her.  
+**immodest**  
+The pain was **indescribable**.  
+logic of **modality**  
+Water will easily **permeate** a cotton dress  
+**funest**  
+
+The weather was consistently **vile**. -   
+When she refused I felt **deflated**.  
+He is a **domineering** sort of fellow.  
 Major **foodborne** diseases from microorganisms.  
-**salvation** from alcoholism -  
+**salvation** from alcoholism - 
 **thoughtout**  
 
 Taxes are a **drag** on the economy. But if not too **onerous**, the economy should be just fine.  
@@ -10,25 +33,9 @@ Note that prices can move, even if the story is incorrect or misleading, althoug
 
 ## Week 2 
 
-chic  
-shapely
-unravel  
-singular  
-huffy  
-uterine  
-**puffy**  
-fondle  
-immodest  
-**indescribable**  
-
-modality  
-permeate  
-**funest**  
-slump  
-The weather was consistently **vile**.   
-deflate
-domineering  
-
+Her gown was very French and very **chic**. -   
+a **shapely** **bosom**  
+**unraveling** the complex chain of events  
 keep the **edge**  
 safety **precaution**  
 Traditions **die hard** in China.  
@@ -83,7 +90,7 @@ He was **incorporated** a member of the college.
 **datable**  
 His vulnerability makes him even more **lovable**  
 He could not **efface** the impression from his mind. -  
-People are **awed** by its water color and clarity. -  
+People are **awed** by its water color and clarity.  
 It was **reassuring** to hear John's familiar voice.   
 she got her first **bionic** arm.   
 He was a big **strapping** guy but short on brains. -   
@@ -98,7 +105,7 @@ The village has a certain **rustic** charm
 She supports her theory with **copious** evidence. -  
 **rigid** frame, **rigid** plastic 
 **guttural** sounds
-He looked **mournful**, even near to tears. -  
+He looked **mournful**, even near to tears.  
 
 ## Week 1 
 
@@ -109,7 +116,7 @@ These changes will require the **sanction** of the court.
 it is an informal name for a complicated but IRS-**sanctioned** method for high-income taxpayers to fund a Roth  
 The organization is calling for a 45% cut in **methane** emissions by 2030.  
 The report also said **slashing** the release of methane would have public health benefits by reducing pollution that causes illness and crop loss  
-Sales there **slumped** last year as that country was being overwhelmed by the coronavirus, but they made a big **comeback** in 2021, rising 61.4%. -  
+Sales there **slumped** last year as that country was being overwhelmed by the coronavirus, but they made a big **comeback** in 2021, rising 61.4%.  
 But we live in a world of **entitlement**. With that entitlement comes a **litany** of emotional **pleading** and **flimsy** justification for why a multi-billion dollar product should be given for free and consequence free -  
 
 Without pursuing dreams, life is **mundane**.  
@@ -127,7 +134,7 @@ When the pandemic **ravaged** the economy last year, **sawmills** let workers go
 **leathery** 
 The figures were puzzling as well as **perturbing**. -  
 **weeny** hands  
-You and I both know that power is the greatest **aphrodisiac**. -  
+You and I both know that power is the greatest **aphrodisiac**.  
 Toyota Prius: **upscale** **yuppie** environmentalist.   
 **misshapen** skulls  
 **cranial** cavity, **cranial** nerve  

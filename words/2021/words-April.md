@@ -55,7 +55,7 @@ I wouldn't **demean** myself by asking for charity.
 I should **demote** you from senior minister to elder  
 
 ## Week 4  
-so we invented a serious of **ingenious** ways of answering the question that were designed to give the impression that Erlang was (sort of) OO -   
+so we invented a serious of **ingenious** ways of answering the question that were designed to give the impression that Erlang was (sort of) OO  
 I remember thinking “how simple, **no qualms** of conscience, no soul-searching, no asking "Is this the right thing to do”  
 He gets quite a **snug** income in his job.  
 The jacket was a **snug** fit.  
@@ -196,7 +196,7 @@ Ocasio-Cortez became involved in a lengthy **probate** battle to settle his esta
 The workers are **dishing** a gutter.  
 He had **reddish** brown hair.   
 A **briny** wind blew, rustled the trees.  
-I am not allowed to cross the **transom**. -  
+I am not allowed to cross the **transom**.  
 Garcia is well known for his **impish** sense of humor.   
 There was a dark **smudge** on his forehead.  
 She'll **blab** it all over the school.  

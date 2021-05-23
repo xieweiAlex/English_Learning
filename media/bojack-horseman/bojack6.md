@@ -4,7 +4,7 @@ Perhaps one could argue **cloistering** oneself from the world itself is a form 
 Can you wait until you're out of **earshot** to make your **exasperated** **sighs**, please?  
 we're **making amends**.  
 There was someone else with her while she was **blotto**. -  
-I meant fun energy. I didn't mean change the **choreography**. -  
+I meant fun energy. I didn't mean change the **choreography**.  
 
 
 ## E 7  
@@ -17,7 +17,7 @@ Is she gonna **swoop in** and **peck out** my chances?
 ## E 6  
 It appears we're in an **impasse**.  
 You know, like how we **satiate** TV creators.  
-You could give me some real therapy last 6 months instead of just **plying** me with **folksy** **aphorisms**. - 
+You could give me some real therapy last 6 months instead of just **plying** me with **folksy** **aphorisms**.  
 
 ## E 5 
 Unless somebody can **slurp** up all that ice cream!  
