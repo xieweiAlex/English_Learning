@@ -1,4 +1,53 @@
 
+I'm not sure that I'm **psyched** for the release. 
+He is on **pins and needles**.  
+other process get shut down **unceremoniously**. -  
+
+jumble  
+freudian  
+exorcise  
+correspondence  
+
+So, what should I do with my arms? Like **akimbo** -  
+**scold**  
+**retrain**  
+My family and my community **shunned** me.  
+**Non-disparagement** agreement  
+
+Those birds are **browned**, **basted** and ready to be carved. -  
+His lecture was so **pedantic** and uninteresting. -  
+
+His encouragement gave me a hot sense of **uplift**.  
+She was **flaunting** her new fur coat. -  
+Flags are **flaunting** in the breeze  
+Let us **sully** the air for the oppressor.  
+The price tag for all this is **unknowable**  
+They might be out to **strafe** this bridge. We'd better get off. -   
+She was the **unwitting** tool of the swindlers  
+I'm not ready to **plunk** my money into any of these. -   
+He **plunked** into the lake.  
+The lettering is fuzzy and **indistinct**.  
+**undying**  
+a stylish **offbeat** thriller which occasionally **meanders** -  
+**splatter**  
+Women tend to **impart** their secrets to their **intimate** friends. -  
+Paris is often **characterized** as a romantic city.  
+
+**menstrual** cycle  
+I’m completely **whacked**.  
+**rectangular**, **triangle**  
+Come, come, come. You must be **famished**.  
+**nutsy**  
+**phony**  
+**narrate**  
+Done. But you have to wear **poofy** pink. -  
+I can put myself in any **repellent** situation I want.  
+insect **repellent**  
+
+**cycle through**  
+**distinct**  
+And when the music **gets under your skin**, there’s no **telling** how far you may take this new love affair  
+
 ## Week 3
 
 Your car will **bog down** in the mud  
@@ -6,7 +55,6 @@ Your car will **bog down** in the mud
 I hate to **stir it up**.  
 The paper gave all the **lurid** details of the murder. -   
 You're ruled by your **nether** region. - 
-
 **singular** form  
 I'll speak to him. A **singularly** bad idea.  
 When he doesn't know the answer, he gets **huffy**. -  

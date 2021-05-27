@@ -585,9 +585,9 @@ Microsoft is backing the program with $20 million in **grants** for nonprofits, 
 After **grinding** investigation, Luckin Coffee confirms $300 million revenue fraud  
    
 10 little **elves** are making toys  
-He **slumped** over the barbed wire. -  
+He **slumped** over the barbed wire.  
 economy **slump**  
-she is in a **slump** in her career. -  
+she is in a **slump** in her career.  
 **prompt** deliver  
 I don't know your **pager** number  
 **Pantomime** (informally **panto**) is a type of musical comedy **stage production**, designed for family entertainment.  

@@ -129,7 +129,7 @@ To date, Redfin has been cautious but persistent in these efforts showing a comm
 You see the power in social media to move people to do something **en mass**.  
 They **wrung** the truth out of her.  
 The sad story **wrung** my heart.  
-Some people have mobility challenges that make walking an **ordeal**, or even impossible -  
+Some people have mobility challenges that make walking an **ordeal**, or even impossible  
 
 The coat is worn **threadbare**.  
 **threadbare** subject   

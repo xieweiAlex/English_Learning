@@ -1,4 +1,16 @@
 
+**ordeal**
+
+**empirical**
+
+**stodgy**
+
+**offbeat**
+
+## Week 3
+
+**latent**
+
 **demanding**
 
 **fierce**

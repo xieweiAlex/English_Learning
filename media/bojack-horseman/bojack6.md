@@ -1,4 +1,19 @@
 
+## E 11 
+Thank you Mr. Peanutbutter for taking the time to **quench** our queries.  
+I have my own **superlative** to announce, I, um...  
+That part, I can **take or leave**  
+everything **falls apart** and I end up alone.  
+
+
+##  E 10  
+With Todd watching the baby, my work-life balance is **on point**.  
+I'm **parched**.  
+I do feel lighter, and clearer, but also so **foggy**.  
+When you **even out**, we can talk about trying something else, okay?  
+I'm clever and **free-spirited**, and a little bit **sardonic**, but not so much that's off-putting. -   
+
+
 ## E 8 
 Perhaps one could argue **cloistering** oneself from the world itself is a form of **solipsism** -  
 Can you wait until you're out of **earshot** to make your **exasperated** **sighs**, please?  

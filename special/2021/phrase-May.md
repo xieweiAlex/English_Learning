@@ -1,10 +1,17 @@
+
+
+That part, I can **take or leave**  
+everything **falls apart** and I end up alone.  
+
 Note that prices can move, even if the story is incorrect or misleading, although in such cases the prices will tend to **snap back**  
+And when the music **gets under your skin**, there’s no **telling** how far you may take this new love affair  
+I hate to **stir it up**.   
 
-
-We'll **put this behind us**, like we always done.  
+## Week 2,3 
+We'll **put this behind us**, like we've always done.  
 Probably the one that's **call all the shots**.  - No, I can **hold out** a little while longer. -  
 I'm in the frontline and I can tell you **firsthand** that we're dealing with regime that is not being **forthright** and will **seize upon** the **faintest whiff of trepidation**.  
-So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**. -  
+So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**.   
 
 There is something I feel I must **get off my chest**.  
 You could give me some real therapy last 6 months instead of just **plying** me with **folksy** **aphorisms**.  
