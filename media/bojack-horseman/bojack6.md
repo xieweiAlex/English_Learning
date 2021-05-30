@@ -1,4 +1,7 @@
 
+## E 12  
+As a recovering addict myself, I was **spellbound**!  
+
 ## E 11 
 Thank you Mr. Peanutbutter for taking the time to **quench** our queries.  
 I have my own **superlative** to announce, I, um...  

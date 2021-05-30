@@ -1,3 +1,7 @@
+Not bad for a man **on the run**.  
+I'm not trying to **pull strings**, but you could show a little gratitude.  
+Should I find a way to **tip off** Dunbar?   
+He is on **pins and needles**.  
 
 
 That part, I can **take or leave**  

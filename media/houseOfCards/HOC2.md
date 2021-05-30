@@ -1,9 +1,27 @@
 
+## E 12  
+Frank found himself **shut out**.  
+**Exile**. I've managed to isolate the president to anyone, including myself. 
+**Counterterrorism** Director, that's a big **step up** from White House **Liaison**. -  
+Not bad for a man **on the run**.  
+> why fight a losing battle.  
+
+## E 11 
+Underwood's **roadkill**, not you.  
+You're **fidgeting**. -  
+To create some **ruckus** if nothing was going on? -  
+**perjure** myself?  
+Should I find a way to **tip off** Dunbar? -
+
 ## E 10 
 They're upping the **ante**. - 
 Probably the one that's **call all the shots**.  - No, I can **hold out** a little while longer.  
 What you're **insinuating** is not only wrong, it's **libelous**. -  
 I neither have the time **nor** the **inclination** to negotiate with you!  
+I'm not trying to **pull strings**, but you could show a little gratitude.  
+I'm your **failsafe**, sir, but I can't be if you don't let me.  
+I'm not even here, long **layover** on my way to California.  
+
 
 ## E 9 
 This hurt us both, but this is not my wound to **suture**. -  

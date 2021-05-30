@@ -1,5 +1,8 @@
 ## HOC2.md ## 
 media/houseOfCards/HOC2.md
+**Counterterrorism** Director, that's a big **step up** from White House **Liaison**. -  
+You're **fidgeting**. -  
+To create some **ruckus** if nothing was going on? -  
 They're upping the **ante**. - 
 What you're **insinuating** is not only wrong, it's **libelous**. -  
 This hurt us both, but this is not my wound to **suture**. -  
@@ -19,15 +22,18 @@ She is **circling around**, **portending** my **doom**? -
 
 ## words-May.md ## 
 words/2021/words-May.md
+My family and my community **shunned** me -  
+other process get shut down **unceremoniously**. -  
 So, what should I do with my arms? Like **akimbo** -  
 Those birds are **browned**, **basted** and ready to be carved. -  
 His lecture was so **pedantic** and uninteresting. -  
 She was **flaunting** her new fur coat. -  
 They might be out to **strafe** this bridge. We'd better get off. -   
+She was the **unwitting** tool of the **swindlers** -  
 I'm not ready to **plunk** my money into any of these. -   
 a stylish **offbeat** thriller which occasionally **meanders** -  
 Women tend to **impart** their secrets to their **intimate** friends. -  
-Done.  But you have to wear **poofy** pink. -  
+Done. But you have to wear **poofy** pink. -  
 The paper gave all the **lurid** details of the murder. -   
 You're ruled by your **nether** region. - 
 When he doesn't know the answer, he gets **huffy**. -  
@@ -61,7 +67,3 @@ The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also *
 When I first came here, I had a **crummy** apartment. -   
 Nubile, young **temptress** **traipsing** around your house. -  
 The book **delineates** rational and non-rational motivations/triggers associated with each type of thinking process, and how they complement each other -   
-
-## words-Jan.md ## 
-words/2019/words-Jan.md
-the **stodgy** **three-storey** building   
