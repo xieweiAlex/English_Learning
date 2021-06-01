@@ -1,4 +1,15 @@
 
+## E 13  
+Because I lack **scruples** and some would even say **compassion**. -  
+But that's just the image that I present to the world, because it **elicits** fear and respect, but it's not who I am. -   
+Who cares about each **inning**, it's the final score that counts. -  
+You you just want me to **leap off** a cliff and hope for a soft landing beneath?  
+> nobody except us.  
+
+It's **retribution**.  
+I stay awake at night thinking how much it would crush them, seeing their father **hauled off**.  
+
+
 ## E 12  
 Frank found himself **shut out**.  
 **Exile**. I've managed to isolate the president to anyone, including myself. 
@@ -30,11 +41,11 @@ We'll **put this behind us**, like we always done.
 Got a extra **apron** in the back.  
 If you're going to threaten me, you don't have to go to the trouble of **veiling** it.  
 **glock** pistol  
-I don't know anything about professional photography, I'm just a **flack**. -  
+I don't know anything about professional photography, I'm just a **flack**.  
 > dark was the night, gets me every night.  
 
-I'm your lobbyist, not your **henchman**. -  
-Is there anything you wanna take? A **memento** or something? -  
+I'm your lobbyist, not your **henchman**.  
+Is there anything you wanna take? A **memento** or something?  
 
 ## E 8 
 She and I don't talk, we had a **falling out**.  
@@ -44,7 +55,7 @@ I have no **ulterior** motive here.
 We'll find time when the tension **subside**.  
 **square one**.  
 The **backstabbing** **vomit-inducing** bitch.  
-I want to **insulate** you from this. -  
+I want to **insulate** you from this.  
 You have people who are **looking out for** you: me, Linda,  your wife.  
 He wants to meet, but on his **turf** this time.  
 Come on, **live a little**, Frank.  

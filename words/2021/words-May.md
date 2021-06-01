@@ -1,6 +1,18 @@
 
-compassionate  
 
+
+
+## Week 4 
+
+This is the message of figure 5: the sense of ease or **strain** has multiple causes, and it is difficult to **tease them apart**.  
+I was now less happy with and less confident in my grades than I had been earlier, but I recognized that this was a good sign, an indication that the new procedure was **superior**. The consistency I had enjoyed earlier was **spurious** -   
+  
+She **outstayed** her opponents and won the race.  
+uncomprehending  
+posh 
+woozy 
+She even gave a **shout-out** to one of her former teachers on Twitter, and encouraged others to do the same.
+compassionate  
 city **ordinance**.  
 My family and my community **shunned** me -  
 His comments cast a **slur** on the integrity of his employees.  
@@ -27,10 +39,10 @@ So, what should I do with my arms? Like **akimbo** -
 My family and my community **shunned** me.  
 **Non-disparagement** agreement  
 
-Those birds are **browned**, **basted** and ready to be carved. -  
+Those birds are **browned**, **basted** and ready to be carved.  
 His lecture was so **pedantic** and uninteresting. -  
 His encouragement gave me a hot sense of **uplift**.  
-She was **flaunting** her new fur coat. -  
+She was **flaunting** her new fur coat.  
 Flags are **flaunting** in the breeze  
 Let us **sully** the air for the **oppressor**.  
 The price tag for all this is **unknowable**  
@@ -89,7 +101,7 @@ Note that prices can move, even if the story is incorrect or misleading, althoug
 
 ## Week 2 
 
-Her gown was very French and very **chic**. -   
+Her gown was very French and very **chic**.  
 a **shapely** **bosom**  
 **unraveling** the complex chain of events  
 keep the **edge**  
@@ -106,7 +118,7 @@ Nowadays, crypto is not a **pie-in-the-sky** idea, it’s a major financial asse
 **tough luck**  
 
 The tulips have bloomed and warmer temperatures are here, which means it’s time for the “Sell in May and go away” **punditry** to flood the financial news media. Don’t buy into it.  
-So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**. -  
+So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**.  
 
 **Exhume** **Corpses**  
 **grim** reaper
@@ -133,7 +145,7 @@ Just over a decade ago, digital assets were a theoretical concept. Coinbase’s 
 I've always loved the **hustle and bustle** of big cities  
 
 She was **enchanted** by the flowers you sent her. -  
-Deliberate practice **entails** more than simply repeating a task. -  
+Deliberate practice **entails** more than simply repeating a task.  
 This job **entails** a lot of hard work.  
 What is that **rattling** in your pocket?  
 Her bowel will **engorge** quite often, I'm afraid.   
@@ -149,7 +161,7 @@ He could not **efface** the impression from his mind. -
 People are **awed** by its water color and clarity.  
 It was **reassuring** to hear John's familiar voice.   
 she got her first **bionic** arm.   
-He was a big **strapping** guy but short on brains. -   
+He was a big **strapping** guy but short on brains.  
 I can **aver** that he is telling the truth.  
 I didn't even have the chance to **proofread** my own report.  
 I'm just **collating** the results now. -  
@@ -158,7 +170,7 @@ I'm just **collating** the results now. -
 I hate his **smarmy** compliments. -  
 We **delude** ourselves that we are in control. -  
 The village has a certain **rustic** charm  
-She supports her theory with **copious** evidence. -  
+She supports her theory with **copious** evidence.  
 **rigid** frame, **rigid** plastic 
 **guttural** sounds
 He looked **mournful**, even near to tears.  

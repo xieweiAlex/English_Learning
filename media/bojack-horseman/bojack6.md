@@ -1,4 +1,7 @@
 
+## E 13  
+Is it a secret admirer or the snowman killer still **at large**?  
+
 ## E 12  
 As a recovering addict myself, I was **spellbound**!  
 
@@ -18,7 +21,7 @@ I'm clever and **free-spirited**, and a little bit **sardonic**, but not so much
 
 
 ## E 8 
-Perhaps one could argue **cloistering** oneself from the world itself is a form of **solipsism** -  
+Perhaps one could argue **cloistering** oneself from the world itself is a form of **solipsism**  
 Can you wait until you're out of **earshot** to make your **exasperated** **sighs**, please?  
 we're **making amends**.  
 There was someone else with her while she was **blotto**. -  
@@ -26,7 +29,7 @@ I meant fun energy. I didn't mean change the **choreography**.
 
 
 ## E 7  
-In our **undervalued** overworked existence, we're desperate for any **morsel** of satisfaction. -  
+In our **undervalued** overworked existence, we're desperate for any **morsel** of satisfaction.  
 we're **amenable** to these terms.  
 There is something I feel I must **get off my chest**.  
 She is **circling around**, **portending** my **doom**? -  
