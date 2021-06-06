@@ -1,4 +1,11 @@
 
+**likability**
+
+**laborious**
+
+**humongous**
+
+**irreversible**
 
 **personable**
 
@@ -48,6 +55,7 @@
 **preposterous**
 
 **susceptible**
+**impervious**
 
 ## Week 1
 

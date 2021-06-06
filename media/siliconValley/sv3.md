@@ -20,7 +20,7 @@ You and I have never really had much of a **rapport**, have we?
 It... **wanting**  
 Gilfoyle, you **crack me up**  
 to do **outreach**, tutorials, user meetups, create a **guerrilla marketing** **campaign** that explains how cool the platform is  
-You **tepid** response to our **intrepid** boss makes me ill.  
+Your **tepid** response to our **intrepid** boss makes me ill.  
 I'm the **possum** to which I refer. Playing dead to **outwit** those who wish me harm, but it's time to end the **charade**.  
 are you **indisposed**?  
 we still have few weeks of **runway**  

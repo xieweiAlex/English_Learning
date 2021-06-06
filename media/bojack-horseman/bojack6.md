@@ -17,7 +17,7 @@ With Todd watching the baby, my work-life balance is **on point**.
 I'm **parched**.  
 I do feel lighter, and clearer, but also so **foggy**.  
 When you **even out**, we can talk about trying something else, okay?  
-I'm clever and **free-spirited**, and a little bit **sardonic**, but not so much that's off-putting. -   
+I'm clever and **free-spirited**, and a little bit **sardonic**, but not so much that's off-putting.  
 
 
 ## E 8 

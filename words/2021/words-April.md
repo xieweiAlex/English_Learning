@@ -43,7 +43,7 @@ He's happy to **mooch** around the house all day. -
 **unbound** hair  
 It all seemed useless and **inane**  
 she'll be coming soon, don't **fash** yourself.  
-Trying not to get **mauled** to death by our friend. - 
+Trying not to get **mauled** to death by our friend.  
 People were **awestruck** by the pictures the satellite sent back to earth.   
 Everyone at court was **enchanted** by me!  
 He was **dismayed** by the sight of the burning house.  
@@ -237,7 +237,7 @@ The 2008 financial crisis, which **cleaved** the market in half.
 I will be **better off** without you.  
 Nubile, young **temptress** **traipsing** around your house. -  
 Microsoft CEO Satya Nadella has warned it causes burnout, and incoming Amazon CEO Andy Jassy said that with WFH, “You just don’t **riff** the same way,” which hurts innovation.  
-The book **delineates** rational and non-rational motivations/triggers associated with each type of thinking process, and how they complement each other -   
+The book **delineates** rational and non-rational motivations/triggers associated with each type of thinking process, and how they complement each other    
 Good advice comes from people who have **indisputable** expertise.
 A good mentor will do this with some care, and even some **trepidation**.  
 This whole father thing scares the heck **outta** me.   

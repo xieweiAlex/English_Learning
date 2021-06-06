@@ -1,4 +1,5 @@
 
+* sardonic, sarcastic 
 * besides vs except 
 * sly vs furtive vs skulk 
 * inane vs insane 
