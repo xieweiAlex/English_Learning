@@ -1,6 +1,22 @@
 
+## E 15  
+
+When we **valorize** the idea of sacrifice, of loss, of suffering... -  
+when I wasn't hiding behind some **facade**, I could **at peace**.  
+I was just **spitballing**  
+
+## E 14 
+It's **the least I can do**.  
+**ruinous** path  
+If I can make things right by you, maybe there is hope yet for this **wretched** soul.  
+Because I **bluffed** good.  
+
+
 ## E 13  
 Is it a secret admirer or the snowman killer still **at large**?  
+I think you got a real **bum deal**!  
+You got massive **sandbagged** in that interview, bro.  
+
 
 ## E 12  
 As a recovering addict myself, I was **spellbound**!  

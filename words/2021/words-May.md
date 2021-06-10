@@ -1,28 +1,6 @@
-
-
-> How tall is a man who is as tall as Julie was **precocious**?
-
-Furthermore, you can be assured that your matches will be quite close to those of other people in your cultural **milieu**.
-
-It is impossible to aim at a single point with a **shotgun** because it shoots **pellets** that **scatter**, and it seems almost equally difficult for System 1 not to do more than System 2 charges it to do.
-The reason for the difference is that the two difficult sentences can be **metaphorically** true.
-
-Individuals who, through merit, kindness, and tenure, have been **exalted** to an **honorary** position in the **priesthood**. -  
-
-I'm just **not cut out to be** a scientist.
-I'm **hard-wired** to be **kinky**.  
-The company has consistently **demolished** analyst estimates, solidifying its place as a high-growth, software-as-a-service cash cow  
-
-**Sebum** is that oily, waxy stuff that comes out of your **pores**  
-Follow A Skincare **Regimen**  
-
-Being **blindsided** by a **humongous** tax bill is one thing, but Robinhood’s gamified approach has also led to tragic outcomes  
-
-He was not able to **slough off** the memories of the past  
-Our bodies **slough off** dead cells -  
-
-## Week 4  
   
+## Week 4  
+   
 This is the message of figure 5: the sense of ease or **strain** has multiple causes, and it is difficult to **tease them apart**.  
 I was now less happy with and less confident in my grades than I had been earlier, but I recognized that this was a good sign, an indication that the new procedure was **superior**. The consistency I had enjoyed earlier was **spurious** -  
    
@@ -32,20 +10,20 @@ You look very **posh** in your new suit
 The fumes made them **woozy** -  
 She even gave a **shout-out** to one of her former teachers on Twitter, and encouraged others to do the same.  
 She is a **compassionate** person  
-  
+   
 city **ordinance**.  
 My family and my community **shunned** me  
 His comments cast a **slur** on the integrity of his employees.  
 They mumble, break all the rules of grammar, **slur** words and so on.  
 All I see here is jealousy run **amok**. -  
-  
+   
 I'm not sure that I'm **psyched** for the release.  
 He is on **pins and needles**.  
 other process get shut down **unceremoniously**.  
-  
+   
 It's an **irredeemable** **jumble** of shit.  
 Make sure you don’t **jumble** everything up.  
-  
+   
 **freudian**  
 A priest was called in to **exorcise** the ghost.  
 **correspondence**  
@@ -58,7 +36,7 @@ So, what should I do with my arms? Like **akimbo**
 **retrain**  
 My family and my community **shunned** me  
 **Non-disparagement** agreement  
-  
+   
 Those birds are **browned**, **basted** and ready to be carved.  
 His lecture was so **pedantic** and uninteresting. -  
 His encouragement gave me a hot sense of **uplift**. -  
@@ -72,10 +50,10 @@ I'm not ready to **plunk** my money into any of these.
 He **plunked** into the lake.  
 The lettering is fuzzy and **indistinct**.  
 **undying**  
-a stylish **offbeat** thriller which occasionally **meanders** -  
+a stylish **offbeat** thriller which occasionally **meanders**  
 Women tend to **impart** their secrets to their **intimate** friends. -  
 Paris is often **characterized** as a romantic city.  
-  
+   
 **menstrual** cycle  
 I’m completely **whacked**.  
 **rectangular**, **triangle**  
@@ -83,17 +61,17 @@ Come, come, come. You must be **famished**.
 Done. But you have to wear **poofy** pink. -  
 I can put myself in any **repellent** situation I want.  
 insect **repellent**  
-  
+   
 Continuing the search will **cycle through** each matching item  
 **distinct**  
 And when the music **gets under your skin**, there’s no **telling** how far you may take this new love affair  
-  
+   
 ## Week 3  
-  
+   
 Your car will **bog down** in the mud  
 **Colorado**  
 I hate to **stir it up**.  
-The paper gave all the **lurid** details of the murder. -  
+The paper gave all the **lurid** details of the murder.  
 You're ruled by your **nether** region.  
 **singular** form  
 I'll speak to him. A **singularly** bad idea.  
@@ -106,20 +84,20 @@ The pain was **indescribable**.
 logic of **modality**  
 Water will easily **permeate** a cotton dress  
 **funest**  
-  
+   
 The weather was consistently **vile**. -  
 When she refused I felt **deflated**.  
 He is a **domineering** sort of fellow.  
 Major **foodborne** diseases from microorganisms.  
 **salvation** from alcoholism  
 **thoughtout**  
-  
+   
 Taxes are a **drag** on the economy. But if not too **onerous**, the economy should be just fine.  
 What we are looking at is history **in the making**, both for the economy and the market.  
 And historic times typically **usher** in historic price moves.  
 Note that prices can move, even if the story is incorrect or misleading, although in such cases the prices will tend to **snap back**  
-
-## Week 2 
+  
+## Week 2  
 
 Her gown was very French and very **chic**.  
 a **shapely** **bosom**  
@@ -164,7 +142,7 @@ James was extremely **susceptible** to flattery.
 Just over a decade ago, digital assets were a theoretical concept. Coinbase’s direct listing represents a **watershed moment**.  
 I've always loved the **hustle and bustle** of big cities  
 
-She was **enchanted** by the flowers you sent her. -  
+She was **enchanted** by the flowers you sent her.  
 Deliberate practice **entails** more than simply repeating a task.  
 This job **entails** a lot of hard work.  
 What is that **rattling** in your pocket?  

@@ -11,16 +11,16 @@ Yes, a man was **maimed**, his family members were killed. -
 ## E 1 
 He is **at his wit's end**, the republicans won't send him a single bill he can sign.  
 Your work so far and... it's **toothless**.  
-Let's keep it quiet, let's keep it **cordial**. Thanks for your work. -  
+Let's keep it quiet, let's keep it **cordial**. Thanks for your work.  
 It hasn't **impaired** my judgement on the bench.  
 That's a **ways off**.  
 You think I'm a **dilettante** - No, but plenty of people will. -  
 
 
 ## E 13  
-Because I lack **scruples** and some would even say **compassion**. -  
+Because I lack **scruples** and some would even say **compassion**.  
 But that's just the image that I present to the world, because it **elicits** fear and respect, but it's not who I am. -   
-Who cares about each **inning**, it's the final score that counts. -  
+Who cares about each **inning**, it's the final score that counts.  
 You you just want me to **leap off** a cliff and hope for a soft landing beneath?  
 > nobody except us.  
 

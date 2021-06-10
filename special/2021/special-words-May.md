@@ -1,14 +1,4 @@
 
-**likability**
-
-**laborious**
-
-**humongous**
-
-**irreversible**
-
-**personable**
-
 ## Week 4 
 
 **farfetched** 
