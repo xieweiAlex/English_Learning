@@ -1,4 +1,9 @@
 
+**baffle**
+**perplex**
+
+**reconcile**
+
 **scruple**
 
 **frivolous**
@@ -14,6 +19,7 @@
 **humongous**
 
 **irreversible**
+**irredeemable**
 
 **personable**
 

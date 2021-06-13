@@ -39,7 +39,7 @@ My family and my community **shunned** me
    
 Those birds are **browned**, **basted** and ready to be carved.  
 His lecture was so **pedantic** and uninteresting. -  
-His encouragement gave me a hot sense of **uplift**. -  
+His encouragement gave me a hot sense of **uplift**.  
 She was **flaunting** her new fur coat.  
 Flags are **flaunting** in the breeze  
 Let us **sully** the air for the **oppressor**.  
@@ -85,7 +85,7 @@ logic of **modality**
 Water will easily **permeate** a cotton dress  
 **funest**  
    
-The weather was consistently **vile**. -  
+The weather was consistently **vile**.  
 When she refused I felt **deflated**.  
 He is a **domineering** sort of fellow.  
 Major **foodborne** diseases from microorganisms.  
@@ -137,7 +137,7 @@ Even if you are an **intrepid** type that will walk into your manager's office a
 Teeth become loose and may **fall out**.
 They can **retrofit** old plants: plenty have done that, too  
 That’s not **foolproof**, and not a prediction that the next five years will be all smiles and giggles  
-The business cycle is a series of peaks and **troughs**. -  
+The business cycle is a series of peaks and **troughs**.  
 James was extremely **susceptible** to flattery.  
 Just over a decade ago, digital assets were a theoretical concept. Coinbase’s direct listing represents a **watershed moment**.  
 I've always loved the **hustle and bustle** of big cities  

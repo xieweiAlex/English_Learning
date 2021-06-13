@@ -48,7 +48,7 @@ I meant fun energy. I didn't mean change the **choreography**.
 In our **undervalued** overworked existence, we're desperate for any **morsel** of satisfaction.  
 we're **amenable** to these terms.  
 There is something I feel I must **get off my chest**.  
-She is **circling around**, **portending** my **doom**? -  
+She is **circling around**, **portending** my **doom**?  
 Is she gonna **swoop in** and **peck out** my chances?  
 
 ## E 6  
