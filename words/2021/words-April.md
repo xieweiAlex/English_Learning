@@ -8,7 +8,7 @@ I think that's a **mentality**. I work my **tail off** every day.
 **lop** his head off. 
 Worn rugs increase the danger of **tripping**.  
 She is **tripping** along with her little steps.  
-I just prefer to be **suave**, do it with **panache** and **finesse** -  
+I just prefer to be **suave**, do it with **panache** and **finesse**  
 She endured the **monstrous** behavior for years.  
 The cruel landlord would **bate** him no rent.  
 He gave an **ostentatious** yawn  
@@ -39,7 +39,7 @@ The late Chadwick Boseman was the **odds-on favorite** to win the award, in whic
 
 The crisis helped to **weld** the party together.  
 **electrocute**  
-He's happy to **mooch** around the house all day. -  
+He's happy to **mooch** around the house all day.  
 **unbound** hair  
 It all seemed useless and **inane**  
 she'll be coming soon, don't **fash** yourself.  
@@ -73,7 +73,7 @@ Still, the popular digital currency is the best-performing "asset" so far this y
 
 Not in the front office. Who's in the **boiler room**?  
 **Cadillac** goes electric  
-Cooperman has labeled the idea of a wealth tax foolish, and in interviews he has used a string of **expletives** to accuse Warren of ruining the American dream and called her a political charlatan. -  
+Cooperman has labeled the idea of a wealth tax foolish, and in interviews he has used a string of **expletives** to accuse Warren of ruining the American dream and called her a political charlatan.  
 
 Instead, they rely on the market as their primary **gauge** of the company's true value.   
 That makes them question their entire investing thesis, not only **dissuading** them from buying additional shares but also putting pressure on them to sell off their existing position.  
@@ -235,7 +235,7 @@ I **have a thing** for you.
 I'm **green**.  
 The 2008 financial crisis, which **cleaved** the market in half.
 I will be **better off** without you.  
-Nubile, young **temptress** **traipsing** around your house. -  
+Nubile, young **temptress** **traipsing** around your house.  
 Microsoft CEO Satya Nadella has warned it causes burnout, and incoming Amazon CEO Andy Jassy said that with WFH, “You just don’t **riff** the same way,” which hurts innovation.  
 The book **delineates** rational and non-rational motivations/triggers associated with each type of thinking process, and how they complement each other    
 Good advice comes from people who have **indisputable** expertise.

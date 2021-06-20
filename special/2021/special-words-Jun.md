@@ -1,4 +1,16 @@
 
+**devious**
+
+**arguably**
+
+**threshold**
+
+**indispensable**
+
+**unwitting**
+
+## Week 2 
+
 **baffle**
 **perplex**
 

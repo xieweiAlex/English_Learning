@@ -1,3 +1,11 @@
+You **dust off** some 60-year-old precedent and think you're justified?   
+When you asked me for a job, you said you wanted to **turn over a new leaf**.  
+In addition, China announced this week it would begin selling industrial metals out of government reserves in an effort to **tamp down** the rising cost of materials.   
+He'd got his revenge now, and **in spades**   
+
+
+It's the labels. We must **rip them off**.  
+Once again, he completely **ripped me off**.  
 
 As I **backed away**, he came at me with a knife.  
 Let's just **run over** who is doing what.  

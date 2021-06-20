@@ -1,4 +1,8 @@
 
+## E 16 
+How did you get out of the **supermax**.  
+> I can't tell you're being smart or stupid.  
+
 ## E 15  
 
 When we **valorize** the idea of sacrifice, of loss, of suffering... -  
@@ -40,7 +44,7 @@ I'm clever and **free-spirited**, and a little bit **sardonic**, but not so much
 Perhaps one could argue **cloistering** oneself from the world itself is a form of **solipsism**  
 Can you wait until you're out of **earshot** to make your **exasperated** **sighs**, please?  
 we're **making amends**.  
-There was someone else with her while she was **blotto**. -  
+There was someone else with her while she was **blotto**.  
 I meant fun energy. I didn't mean change the **choreography**.  
 
 

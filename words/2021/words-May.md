@@ -7,7 +7,7 @@ I was now less happy with and less confident in my grades than I had been earlie
 She **outstayed** her opponents and won the race.  
 His **uncomprehending** eyes swept over her time and again  
 You look very **posh** in your new suit  
-The fumes made them **woozy** -  
+The fumes made them **woozy**  
 She even gave a **shout-out** to one of her former teachers on Twitter, and encouraged others to do the same.  
 She is a **compassionate** person  
    
@@ -38,7 +38,7 @@ My family and my community **shunned** me
 **Non-disparagement** agreement  
    
 Those birds are **browned**, **basted** and ready to be carved.  
-His lecture was so **pedantic** and uninteresting. -  
+His lecture was so **pedantic** and uninteresting.  
 His encouragement gave me a hot sense of **uplift**.  
 She was **flaunting** her new fur coat.  
 Flags are **flaunting** in the breeze  
@@ -58,7 +58,7 @@ Paris is often **characterized** as a romantic city.
 I’m completely **whacked**.  
 **rectangular**, **triangle**  
 Come, come, come. You must be **famished**.  
-Done. But you have to wear **poofy** pink. -  
+Done. But you have to wear **poofy** pink.  
 I can put myself in any **repellent** situation I want.  
 insect **repellent**  
    
@@ -75,9 +75,9 @@ The paper gave all the **lurid** details of the murder.
 You're ruled by your **nether** region.  
 **singular** form  
 I'll speak to him. A **singularly** bad idea.  
-When he doesn't know the answer, he gets **huffy**. -  
+When he doesn't know the answer, he gets **huffy**.  
 My mother has some **uterine** issues  
-Her cheeks were **puffy** with crying -  
+Her cheeks were **puffy** with crying  
 He tried to kiss her and **fondle** her.  
 **immodest**  
 The pain was **indescribable**.  
@@ -198,7 +198,7 @@ When the pandemic **ravaged** the economy last year, **sawmills** let workers go
 **telepathic** power  
 **nifty** 50
 **leathery** 
-The figures were puzzling as well as **perturbing**. -  
+The figures were puzzling as well as **perturbing**.  
 **weeny** hands  
 You and I both know that power is the greatest **aphrodisiac**.  
 Toyota Prius: **upscale** **yuppie** environmentalist.   

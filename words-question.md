@@ -1,4 +1,7 @@
 
+
+* Buckle up vs Buckle down 
+* disdain, scorn, despise, spurn
 * sardonic, sarcastic 
 * besides vs except 
 * sly vs furtive vs skulk 

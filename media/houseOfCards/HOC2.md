@@ -1,7 +1,7 @@
 
 ## E 13  
 Because I lack **scruples** and some would even say **compassion**.  
-But that's just the image that I present to the world, because it **elicits** fear and respect, but it's not who I am. -   
+But that's just the image that I present to the world, because it **elicits** fear and respect, but it's not who I am.  
 Who cares about each **inning**, it's the final score that counts.  
 You you just want me to **leap off** a cliff and hope for a soft landing beneath?  
 > nobody except us.  
@@ -27,7 +27,7 @@ Should I find a way to **tip off** Dunbar? -
 ## E 10 
 They're upping the **ante**.  
 Probably the one that's **call all the shots**.  - No, I can **hold out** a little while longer.  
-What you're **insinuating** is not only wrong, it's **libelous**. -  
+What you're **insinuating** is not only wrong, it's **libelous**.  
 I neither have the time **nor** the **inclination** to negotiate with you!  
 I'm not trying to **pull strings**, but you could show a little gratitude.  
 I'm your **failsafe**, sir, but I can't be if you don't let me.  
