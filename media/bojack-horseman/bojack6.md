@@ -11,7 +11,7 @@ I was just **spitballing**
 
 ## E 14 
 It's **the least I can do**.  
-**ruinous** path  
+**ruinous** path.  
 If I can make things right by you, maybe there is hope yet for this **wretched** soul.  
 Because I **bluffed** good.  
 

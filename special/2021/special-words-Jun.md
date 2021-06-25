@@ -1,4 +1,12 @@
 
+**ruinous**
+
+**exhilarating**
+
+## Week 3 
+
+**insidious**
+
 **devious**
 
 **arguably**

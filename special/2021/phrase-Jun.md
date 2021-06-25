@@ -1,21 +1,21 @@
-You **dust off** some 60-year-old precedent and think you're justified?   
+I know this put you on a **ledge**.  
+
+## Week 3 
+
 When you asked me for a job, you said you wanted to **turn over a new leaf**.  
 In addition, China announced this week it would begin selling industrial metals out of government reserves in an effort to **tamp down** the rising cost of materials.   
 He'd got his revenge now, and **in spades**   
-
-
 It's the labels. We must **rip them off**.  
 Once again, he completely **ripped me off**.  
 
+## Week 2 
 As I **backed away**, he came at me with a knife.  
 Let's just **run over** who is doing what.  
 Can you tell me how the accident **came about**?  
 Careful, he will **go for** your throat!  
 Watch Ricky. He sometimes likes to **act up** in class.  
-
 **keep up** the good work.  
 Don't **flatter** yourself  
-
 You **dust off** some 60-year-old precedent and think you're justified?   
 The business cycle is a series of peaks and **troughs**.   
 Isn't that 3/4 marriage **go down the drain** now?  

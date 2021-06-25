@@ -24,7 +24,7 @@ Their eyes were full of friendliness and **bonhomie**. -
 This **precept** has guided U.S. government policy for 30 years. -  
 He grew lazy and **slovenly** in his habits. -  
 Remember that you must die. **Memento Mori**. -  
-He'd got his revenge now, and **in spades** -  
+He'd got his revenge now, and **in spades**   
 A bull market can be as **exhilarating** as a bear market is terrifying (ask any investor who went through 2008). -  
 I have had enough **obloquy** for one lifetime. -  
 You **mulish** guy, what the hell are you seeking? -  
@@ -34,7 +34,7 @@ He was brought up in **penury**, without education. -
 I **eschewed** **upbraiding**, I curtailed **remonstrance**. -  
 California is **hemorrhaging** people. -  
 Their **rambunctious** son always got into trouble -  
-Individuals who, through merit, kindness, and tenure, have been **exalted** to an **honorary** position in the **priesthood**. -  
+Individuals who, through merit, kindness, and tenure, have been **exalted** to an **honorary** position in the **priesthood**.   
   
 ## words-May.md ##  
 words/2021/words-May.md  

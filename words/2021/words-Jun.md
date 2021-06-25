@@ -1,19 +1,48 @@
 
+A poky apartment  
+
+
+**expurgated** edition  
+He remained **steadfast** in his determination to bring the killers to justice.  
+She **blazed** with **impotent** rage. -  
+He drank himself **insensible**.  
+
+Treasury bond yields remained **muted** as investors continue to buy government debt hoping that the recovery will be long-lasting.  
+The heartbeat was **feeble** and irregular.
+She now directs a large **choir**.  
+**teeming** city  
+I mean isn't **Lucifer** a **synonym** for **Satan**?  
+
+The video will **dispel** some common developer myths about using secure protocols.  
+Nothing could **dispel** the **torpidity** of the indifferent audience. -  
+Cross-Site Request **Forgery** (CSRF)
+A TV show about **wacky** characters and an alcoholic horse  
+He wouldn't have accepted such an **inglorious** outcome.  
+The killing was cold-blooded, and those who committed this **atrocity** should be **tried** and punished.  
+The discovery was **incidental** to their main research.  
+**Euphoria** turns into **hysteria**.  
+that's gonna destablize the market and **accentuate** the crash when it does happen.  
+**dilapidated** house  
+Our fathers can be an **enigma**.  
+they may not share their feeling **readily**. -  
+
+
+## Week 3  
+
 stop being a **simp**. -  
 He was as **devious** as his adversary was ruthless.  
 For one thing, Lemonade had been one of the most **beaten-down** stocks in the market for the first few months of the year  
-
 **Brass** is an alloy of **copper** and **zinc**. -  
 Hers was a minor part, but she played it with **gusto**  
-**mixologist** 
-For 17 years, the United States and the European Union have been **embroiled** in a trade dispute, though much of the tension has been masked by an overall good economic relationship.   
-Yesterday, the Affordable Care Act (ACA) **nabbed** its third "You may pass Go" card from the Supreme Court
-With their 6–3 majority on the court, some conservatives hoped this case might finally find the fatal **chink** in the ACA's legal armor.   
+**mixologist**  
+For 17 years, the United States and the European Union have been **embroiled** in a trade dispute, though much of the tension has been masked by an overall good economic relationship.  
+Yesterday, the Affordable Care Act (ACA) **nabbed** its third "You may pass Go" card from the Supreme Court  
+With their 6–3 majority on the court, some conservatives hoped this case might finally find the fatal **chink** in the ACA's legal armor.  
 > I have always done this job without any **unscrupulous** acts. (perfect present)  
 
 **mutual exclusive**  
 **mutual dependent**  
-
+  
 Immigrants who **repined** for their homeland -  
 Some mass media tend to please people of **plebeian** tastes. -  
 insurance **indemnity**  
@@ -21,31 +50,31 @@ The declining dollar gave heart to **skittish** investors.
 **coma**, **colon**, **semicolon**, **quotes**  
 ByteDance, the Chinese company behind the **smash-hit** video app TikTok, saw its earnings double last year.  
 The net loss was attributed to a **one-off** accounting adjustment and not related to the company's operations.  
-In addition, China announced this week it would begin selling industrial metals out of government reserves in an effort to **tamp down** the rising cost of materials.   
-
+In addition, China announced this week it would begin selling industrial metals out of government reserves in an effort to **tamp down** the rising cost of materials.  
+  
 They **spurn** all our offers of help -  
 Their eyes were full of friendliness and **bonhomie**. -  
-This **precept** has guided U.S. government policy for 30 years. -   
-**preceptor** 
-
+This **precept** has guided U.S. government policy for 30 years. -  
+**preceptor**  
+  
 **synergy** effect  
 He grew lazy and **slovenly** in his habits. -  
-
-**huffy**, **puffy**, **fluffy**, **poofy**
+  
+**huffy**, **puffy**, **fluffy**, **poofy**  
 an **intricate** fraud  
 **Tehran** and Washington **ratcheted up** the rhetoric  
 The US is **ratcheting up** pressure on China's 5G ambitions, offering financial incentives to countries willing to **pass on** Chinese-made tech  
-
+  
 Remember that you must die. **Memento Mori**. -  
-Among other requirements, bourbon must be distilled from a **mash** that’s at least 51% corn (hence the sweet flavor).   
+Among other requirements, bourbon must be distilled from a **mash** that’s at least 51% corn (hence the sweet flavor).  
 Danish soccer star Christian Eriksen suffered **cardiac arrest** when he collapsed on the field during the team's Euro 2020 match on Saturday  
-You will not be **stumped**, you will not have to work very hard, and you may not even notice that you did not answer the question you were asked.
+You will not be **stumped**, you will not have to work very hard, and you may not even notice that you did not answer the question you were asked.  
 the rising confidence of the consumer (the Consumer Sentiment report on Friday increased by 3.5 points to 86.4 vs. views for 84.0), continues to **underpin** stocks.  
 Netflix launches an online **merch** shop  
-
+  
 He'd got his revenge now, and **in spades** -  
 The **telltale** smell of cigarettes told her that he had been in the room.  
-The last question may seem dumb or even **callous**. -
+The last question may seem dumb or even **callous**. -  
 Everything about the affair was **repugnant** to her.  
 Once again, he completely **ripped me off**.  
 It's the labels. We must **rip them off**.  
@@ -53,36 +82,36 @@ A bull market can be as **exhilarating** as a bear market is terrifying (ask any
 > A great example of the old adage that success **is anything but** a straight line.  
 
 The FBI was in **cahoots** with the developer of the device, called "Anom," the whole time, and yesterday announced a series of successful busts and 800+ arrests under the code name Operation Trojan Shield.  
-
-
+  
+  
 ## Week 2  
 This isn’t welcome news for prospective homebuyers, but current homeowners and governments that rely on real estate taxes are **elated**  
 **Buckle up**. Home prices could continue to rise as labor and product shortages persist and investors like pension funds continue to compete with traditional homebuyers.  
 the path to President Biden’s desk is long and **winding**—first the bills will need to get past the House Judiciary Committee, then the full House, then the Senate before they become actual law  
 The FDA ordered Johnson & Johson to **scrap** 60 million vaccine doses that were made at a contractor’s troubled Baltimore plant.  
-**Buckle up** vs **Buckle down** 
-
+**Buckle up** vs **Buckle down**  
+  
 **as tough as two dollar steak**.  
 As I **backed away**, he came at me with a knife.  
 Let's just **run over** who is doing what.  
 Can you tell me how the accident **came about**?  
 Careful, he will **go for** your throat!  
 Watch Ricky. He sometimes likes to **act up** in class.  
-
+  
 I have had enough **obloquy** for one lifetime. -  
-Few words carry stronger **obloquy** than **slumlord**   
+Few words carry stronger **obloquy** than **slumlord**  
 You **mulish** guy, what the hell are you seeking? -  
-**crater** 
+**crater**  
 She is such a **gregarious** and outgoing person.  
 He made a **wisecrack** about my ability.  
 **tortuous** mountain route.  
-
-**Amygdala** vs **PFC** 
-**Holograms** could be the **second coming** of Zoom... and companies could pay big bucks for them.   
+  
+**Amygdala** vs **PFC**  
+**Holograms** could be the **second coming** of Zoom... and companies could pay big bucks for them.  
 As much as half of the US unemployment money **doled out** over the past year may have been stolen, according to some experts.  
 Isn't that 3/4 marriage **go down the drain** now?  
-
-Crash on a friend's **futon** instead of getting a hotel room.   
+  
+Crash on a friend's **futon** instead of getting a hotel room.  
 It ships with a **dizzying** array of options and features, most of which you will not need on a daily basis  
 The more verbose –dump-header flag is a **mnemonic** synonym for -D.  
 Hopefully this chapter has given you the **building blocks** for using cURL on a daily basis  
