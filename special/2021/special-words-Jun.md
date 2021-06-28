@@ -23,6 +23,7 @@
 **perplex**
 
 **reconcile**
+**consolidate** 
 
 **scruple**
 

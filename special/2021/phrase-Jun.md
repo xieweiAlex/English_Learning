@@ -1,3 +1,8 @@
+Todd have been **living off** Bojack for years and that Bojack couldn't let him go.  
+
+She's **dead set on** convincing this guy for your benefit.  
+**no stone left unturned** when the first day in town.  
+The entire deal **hinges on** this.  
 I know this put you on a **ledge**.  
 
 ## Week 3 

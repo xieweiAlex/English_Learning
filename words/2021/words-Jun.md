@@ -1,6 +1,28 @@
 
-A poky apartment  
+## Week 4 
 
+He seems to **live off** junk food  
+Todd have been **living off** Bojack for years and that Bojack couldn't let him go.  
+Diane goes on **antidepressants**, which lead her to gain weight, but **nonetheless** do make her happier, less **irritable**, and in general more **content**. -  
+It is important that we **dovetail** our respective interests. -   
+It makes you look **moronic**  
+he’s **bankrolled** a group that promotes building floating nations that would impose no **compulsory** income taxes -  
+Thiel has quietly turned his Roth IRA — a **humdrum** retirement vehicle intended to **spur** Americans to save for their golden years — into a **gargantuan** tax-exempt piggy bank -  
+an inside look at the financial lives of the richest Americans, those whose **stratospheric** fortunes put them among history’s wealthiest individuals  
+
+Most of the stories about him are **apocryphal**. -  
+No **vestige** of sunlight can penetrate as far as this. -  
+**deracinate** plant  
+No wonder parents **agonise** over what names to give their babies.  
+the **mouthwatering** **aroma** of a baking pie.  
+**chiropractic**  
+He stated **unequivocally** that the forces were ready to go to war.  
+**Decibel** values correspond to various sounds.   
+**busboy**, **busybody** 
+I want a **tuxedo** on the statue. -   
+The **ruckus** **belies** a simple fact. -   
+**scummy**, **crummy** 
+A **poky** apartment  
 
 **expurgated** edition  
 He remained **steadfast** in his determination to bring the killers to justice.  
@@ -21,10 +43,10 @@ He wouldn't have accepted such an **inglorious** outcome.
 The killing was cold-blooded, and those who committed this **atrocity** should be **tried** and punished.  
 The discovery was **incidental** to their main research.  
 **Euphoria** turns into **hysteria**.  
-that's gonna destablize the market and **accentuate** the crash when it does happen.  
+that's gonna destabilize the market and **accentuate** the crash when it does happen. -  
 **dilapidated** house  
 Our fathers can be an **enigma**.  
-they may not share their feeling **readily**. -  
+They may not share their feeling **readily**. -  
 
 
 ## Week 3  
@@ -53,7 +75,7 @@ The net loss was attributed to a **one-off** accounting adjustment and not relat
 In addition, China announced this week it would begin selling industrial metals out of government reserves in an effort to **tamp down** the rising cost of materials.  
   
 They **spurn** all our offers of help -  
-Their eyes were full of friendliness and **bonhomie**. -  
+Their eyes were full of friendliness and **bonhomie**.  
 This **precept** has guided U.S. government policy for 30 years. -  
 **preceptor**  
   
@@ -72,13 +94,13 @@ You will not be **stumped**, you will not have to work very hard, and you may no
 the rising confidence of the consumer (the Consumer Sentiment report on Friday increased by 3.5 points to 86.4 vs. views for 84.0), continues to **underpin** stocks.  
 Netflix launches an online **merch** shop  
   
-He'd got his revenge now, and **in spades** -  
+He'd got his revenge now, and **in spades**  
 The **telltale** smell of cigarettes told her that he had been in the room.  
 The last question may seem dumb or even **callous**. -  
 Everything about the affair was **repugnant** to her.  
 Once again, he completely **ripped me off**.  
 It's the labels. We must **rip them off**.  
-A bull market can be as **exhilarating** as a bear market is terrifying (ask any investor who went through 2008). -  
+A bull market can be as **exhilarating** as a bear market is terrifying (ask any investor who went through 2008).  
 > A great example of the old adage that success **is anything but** a straight line.  
 
 The FBI was in **cahoots** with the developer of the device, called "Anom," the whole time, and yesterday announced a series of successful busts and 800+ arrests under the code name Operation Trojan Shield.  
@@ -119,7 +141,7 @@ Hopefully this chapter has given you the **building blocks** for using cURL on a
 I was an awkward child. Tall, **gangly**, and, like everyone else in my family, severely **myopic**.  
 He was exposed as a **charlatan**.  
 **capybara**  
-The life of the troops was still comparatively **austere**. -  
+The life of the troops was still comparatively **austere**.  
 
 **Desiccant**, **desiccative**  
 Please help me, I **entreat** you.  
@@ -148,7 +170,7 @@ Furthermore, you can be assured that your matches will be quite close to those o
 
 It is impossible to aim at a single point with a **shotgun** because it shoots **pellets** that **scatter**, and it seems almost equally difficult for System 1 not to do more than System 2 charges it to do.
 The reason for the difference is that the two difficult sentences can be **metaphorically** true.
-Individuals who, through merit, kindness, and tenure, have been **exalted** to an **honorary** position in the **priesthood**. -  
+Individuals who, through merit, kindness, and tenure, have been **exalted** to an **honorary** position in the **priesthood**.  
 I'm just **not cut out to be** a scientist.
 I'm **hard-wired** to be **kinky**.  
 The company has consistently **demolished** analyst estimates, solidifying its place as a high-growth, software-as-a-service cash cow  

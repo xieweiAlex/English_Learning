@@ -45,7 +45,7 @@ Flags are **flaunting** in the breeze
 Let us **sully** the air for the **oppressor**.  
 The price tag for all this is **unknowable**  
 They might be out to **strafe** this bridge. We'd better get off.  
-She was the **unwitting** tool of the **swindlers** -  
+She was the **unwitting** tool of the **swindlers**  
 I'm not ready to **plunk** my money into any of these.  
 He **plunked** into the lake.  
 The lettering is fuzzy and **indistinct**.  

@@ -20,7 +20,7 @@ Not bad for a man **on the run**.
 ## E 11 
 Underwood's **roadkill**, not you.  
 You're **fidgeting**.  
-To create some **ruckus** if nothing was going on? -  
+To create some **ruckus** if nothing was going on?  
 **perjure** myself?  
 Should I find a way to **tip off** Dunbar? -
 
@@ -35,7 +35,7 @@ I'm not even here, long **layover** on my way to California.
 
 
 ## E 9 
-This hurt us both, but this is not my wound to **suture**. -  
+This hurt us both, but this is not my wound to **suture**.  
 We'll **put this behind us**, like we always done.  
 **defamation** & **slander**  
 Got a extra **apron** in the back.  

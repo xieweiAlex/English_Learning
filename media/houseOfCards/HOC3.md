@@ -1,9 +1,19 @@
 
 ## E 6 
 Did you **partake** of the product?  
+**As though** we meet the first time.  
+His stands on carbon emissions is **deplorable**.  
+The entire deal **hinges on** this.  
+I'm trying to **salvage** the situation.  
+If they don't like the job I'm doing, they **topple** statues. -  
+Is the gay propaganda law **barbaric**? Yes. -  
+**no stone left unturned** when the first lady in town.  
+It was so **endearing**  
+She's **dead set on** convincing this guy for your benefit.  
+
 
 ## E 5 
-I know this put you on a **ledge**.  
+I know this put you **on a ledge**.  
 It's my reputation **at stake**, I don't want to look **foolhardy**.  
 getting **hitched**.  
 **hand holding**  
@@ -16,12 +26,12 @@ They're like a **broken record**.
 I can **caucuses** for you.  
 When you asked me for a job, you said you wanted to **turn over a new leaf**.  
 I think we replaced a **dud** with an **atom bomb**.  
-**Northern light**  
+Enjoy the **Northern light**  
 
 
 ## E 4  
 You **dust off** some 60-year-old precedent and think you're justified?   
-Just an **unlikely** choice, give how **vociferous** she... -  
+Just an **unlikely** choice, give how **vociferous** she...  
 Of course it's a **slugfest**, that's doesn't mean we're losing.  
 I'm gonna take **flak** everyday that Corrigan remains in jail. -  
 There is protocol, there's basic **decorum**.  

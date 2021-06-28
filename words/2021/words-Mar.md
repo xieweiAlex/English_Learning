@@ -94,7 +94,7 @@ De Wit is 39, **genial**, **bespectacled**, a little **disheveled**, a chemist b
 Volatility **mellowed** after yesterday's tantrum, even though there was a lot of volume across markets  
 Motorbikes and trucks **hurtle** along the roads.   
 Some parents seem to live **vicariously** through their children.  
-He is an **officious** leader -  
+He is an **officious** leader  
 This is a smart, yet soft and **feminine** look.  
 Am I too **masculine**? Am I too **feminine**?  
 
