@@ -224,7 +224,7 @@ Vim and Emacs are always there for you, cozy, calm and **willing**
 It’s the kind of **dismissal** you can only do when there’s nobody you respect on “**the other side**”.  
 I could tell you all of the reasons I prefer Vim, and such observations are **eye-rollingly** **trite**. Modal editing! Composibility! Keyboard macros!  
 Unlike the original authors, I don’t have a **contempt** for other tools  
-When I first came here, I had a **crummy** apartment. -   
+When I first came here, I had a **crummy** apartment.  
 Holman **thumped** the desk with his hand.  
 You could see a same facial feature, on one person it's a **knockout**, for on another, it does nothing for you.  
 Beauty is The **Eye of the Beholder**.  

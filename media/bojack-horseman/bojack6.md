@@ -5,7 +5,7 @@ How did you get out of the **supermax**.
 
 ## E 15  
 
-When we **valorize** the idea of sacrifice, of loss, of suffering... -  
+When we **valorize** the idea of sacrifice, of loss, of suffering...  
 when I wasn't hiding behind some **facade**, I could **at peace**.  
 I was just **spitballing**  
 

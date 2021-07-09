@@ -1,12 +1,72 @@
 
+## Week 5 
+
+**bipolar depression**  
+I knew that helped **stave off** depressive episodes  
+My relationship was **fraying** or failing.  
+I was able to **extricate** myself from the business  
+He is a **terse** dude. 
+
+What's your view on China's **accession** to WTO?  
+The warning was **prescient**.  
+**chassis frame**  
+But all my efforts appeared **unavailing**. -  
+Defi didn't **skip a beat**.  
+Before exiting the plane a baggage **carousel** was announced. -  
+> It would be a misread to say that Stoicism encourages emotional suppression, but it is focused on emotional regulation—an appealing skill for those who view emotions as irrational, weak, or **unmasculine**
+
+like Stoicism, can both be a **boon** for individual and **collective** mental wellbeing, and also a **stand-in** for more meaningful measures or activism  
+it both incredibly useful as a strategy of resilience, and highly **commercializable** and **pliant** to varying interpretations  
+When you wake up in the morning, tell yourself: The people I deal with today will be **meddling**, **ungrateful**, arrogant, dishonest, jealous, and **surly** -  
+> Any **distress** that comes from such events comes from your reactions to them, which you can modify for the better  
+
+The Greek world was upturned by Alexander the Great and his **Macedonian** armies, and there was a pandemic to contend with, too  
+"My friends thought I was incredibly **eccentric** to go to California to hang out with some Stoics on Marcus Aurelius’s birthday" Evans said  
+It **zeroes in** only on the skills needed to build start-up companies, or having grit while taking ice baths and sleeping on the floor  
+
+> The metaphysical side of ancient Stoicism contains an explanation as to why we shouldn't worry about external events but simply our reactions to them
+
+The Stoics were **monists**, and thought that the universe was all connected, made of a **divine** rational substance called **logos**  
+Being committed to social change and progress and believing in **Providence** can be compatible -  
+
+> And the major thing for a Stoic is to be **ethical**  
+
+As a scientist, Pigliucci said, he can't accept the idea that the **cosmos** is a living organism, so he leaves that bit of Stoicism in the past  
+Pigliucci thinks of the world not as **imbued** with a substance called **logos**, but as a web of **cause and effect**, where things don't happen without causes -  
+The Stoics thought that all rational beings were part of the same **cosmopolis**, or community  
+
+The show was licensed to Spotify last year in an estimated $100 million deal, boosted by a **conceit** that can **at times** seem self-fulfilling -  
+And if the establishment had its way, Mr. Rogan would surely be **chastened**, “canceled,” reeled in. -  
+Some associations can be very **restrictive** about what members can do with their properties -  
+An HOA will typically describe its rules in a document called a Declaration of **Covenants**, Conditions, and Restrictions (CC&Rs) - 
+Managed **amateurishly** or **ineptly**  
+
+We checked the **morgue** security logs.  
+He is **repulsed**.  
+The nation's **coffers** are empty.   
+The movie makes no **pretension** to reproduce life. -  
+The **werewolf** and vampire are similar in many ways.  
+Her throat **constricted** and she swallowed hard  
+Can web vulnerability scanners help you **remediate** the vulnerability?  
+
+I've waited for you to **flip out**  
+financially **solvent**.  
+auto-**didactic** learning.  
+She turned up the radio to **drown out** the noise from next door.   
+His name is **expunged** from the list.  
+The U.S. and U.K. have usually been in **lockstep** in their attitudes toward Russia. -  
+The American **contingent** will stay overnight in London.  
+He is **bedeviled** by his mistaken ideas.  
+Hundreds of people packed into the **mosque**.  
+
 ## Week 4 
 
 He seems to **live off** junk food  
 Todd have been **living off** Bojack for years and that Bojack couldn't let him go.  
-Diane goes on **antidepressants**, which lead her to gain weight, but **nonetheless** do make her happier, less **irritable**, and in general more **content**. -  
+Diane goes on **antidepressants**, which lead her to gain weight, but **nonetheless** do make her happier, less **irritable**, and in general more **content**.  
 It is important that we **dovetail** our respective interests. -   
 It makes you look **moronic**  
-he’s **bankrolled** a group that promotes building floating nations that would impose no **compulsory** income taxes -  
+he’s **bankrolled** a group that promotes building floating nations that would impose no **compulsory** income taxes  
 Thiel has quietly turned his Roth IRA — a **humdrum** retirement vehicle intended to **spur** Americans to save for their golden years — into a **gargantuan** tax-exempt piggy bank -  
 an inside look at the financial lives of the richest Americans, those whose **stratospheric** fortunes put them among history’s wealthiest individuals  
 
@@ -26,7 +86,7 @@ A **poky** apartment
 
 **expurgated** edition  
 He remained **steadfast** in his determination to bring the killers to justice.  
-She **blazed** with **impotent** rage. -  
+She **blazed** with **impotent** rage.  
 He drank himself **insensible**.  
 
 Treasury bond yields remained **muted** as investors continue to buy government debt hoping that the recovery will be long-lasting.  
@@ -43,10 +103,10 @@ He wouldn't have accepted such an **inglorious** outcome.
 The killing was cold-blooded, and those who committed this **atrocity** should be **tried** and punished.  
 The discovery was **incidental** to their main research.  
 **Euphoria** turns into **hysteria**.  
-that's gonna destabilize the market and **accentuate** the crash when it does happen. -  
+that's gonna destabilize the market and **accentuate** the crash when it does happen.  
 **dilapidated** house  
 Our fathers can be an **enigma**.  
-They may not share their feeling **readily**. -  
+They may not share their feeling **readily**.  
 
 
 ## Week 3  
@@ -54,7 +114,7 @@ They may not share their feeling **readily**. -
 stop being a **simp**. -  
 He was as **devious** as his adversary was ruthless.  
 For one thing, Lemonade had been one of the most **beaten-down** stocks in the market for the first few months of the year  
-**Brass** is an alloy of **copper** and **zinc**. -  
+**Brass** is an alloy of **copper** and **zinc**.  
 Hers was a minor part, but she played it with **gusto**  
 **mixologist**  
 For 17 years, the United States and the European Union have been **embroiled** in a trade dispute, though much of the tension has been masked by an overall good economic relationship.  
@@ -65,8 +125,8 @@ With their 6–3 majority on the court, some conservatives hoped this case might
 **mutual exclusive**  
 **mutual dependent**  
   
-Immigrants who **repined** for their homeland -  
-Some mass media tend to please people of **plebeian** tastes. -  
+Immigrants who **repined** for their homeland  
+Some mass media tend to please people of **plebeian** tastes.  
 insurance **indemnity**  
 The declining dollar gave heart to **skittish** investors.  
 **coma**, **colon**, **semicolon**, **quotes**  
@@ -76,7 +136,7 @@ In addition, China announced this week it would begin selling industrial metals 
   
 They **spurn** all our offers of help -  
 Their eyes were full of friendliness and **bonhomie**.  
-This **precept** has guided U.S. government policy for 30 years. -  
+This **precept** has guided U.S. government policy for 30 years.  
 **preceptor**  
   
 **synergy** effect  
@@ -96,7 +156,7 @@ Netflix launches an online **merch** shop
   
 He'd got his revenge now, and **in spades**  
 The **telltale** smell of cigarettes told her that he had been in the room.  
-The last question may seem dumb or even **callous**. -  
+The last question may seem dumb or even **callous**.  
 Everything about the affair was **repugnant** to her.  
 Once again, he completely **ripped me off**.  
 It's the labels. We must **rip them off**.  
@@ -147,7 +207,7 @@ The life of the troops was still comparatively **austere**.
 Please help me, I **entreat** you.  
 we have an urgent **entreaty**  
 They find it unpleasant and they **recoil** from it.  
-The man has **sinewy** muscles -  
+The man has **sinewy** muscles  
 **dry hump**  
 He was brought up in **penury**, without education. -   
 The priest **absolved** him of his sins.  
@@ -163,7 +223,7 @@ algorithm-amplified **megaphone**
 there is likely to be a **deluge** of investment opportunities as a new crop of surprisingly sophisticated new companies seek to raise capital on major exchanges.  
 
 ## Week 1  
-Their **rambunctious** son always got into trouble -  
+Their **rambunctious** son always got into trouble  
 > How tall is a man who is as tall as Julie was **precocious**?
 
 Furthermore, you can be assured that your matches will be quite close to those of other people in your cultural **milieu**.

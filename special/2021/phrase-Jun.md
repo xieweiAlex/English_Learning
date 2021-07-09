@@ -1,9 +1,16 @@
+
+
+
+She intends to **buckle down** and write a musical.   
+MEPs insisted on a package without **wiggle room**. 
+I knew that helped **stave off** depressive episodes  
+I've waited for you to **flip out**  
 Todd have been **living off** Bojack for years and that Bojack couldn't let him go.  
 
 She's **dead set on** convincing this guy for your benefit.  
 **no stone left unturned** when the first day in town.  
 The entire deal **hinges on** this.  
-I know this put you on a **ledge**.  
+I know this put you **on a ledge**.  
 
 ## Week 3 
 

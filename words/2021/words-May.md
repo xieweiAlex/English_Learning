@@ -128,7 +128,7 @@ The very idea of cheating him is **distasteful** to me.
 a **snaky** **rod**  
 Bushes were **interspersed** among trees.  
 His face was **hideously** **deformed**.  
-The room smelled **musty** and **stale** -  
+The room smelled **musty** and **stale**  
 **bittersweet**  
 He **sprained** his ankle when he fell.  
 fire resistant **coverall**  

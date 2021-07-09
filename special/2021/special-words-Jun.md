@@ -1,4 +1,19 @@
 
+**forefront**
+
+**unequivocal**
+
+**flimsy**
+
+**readily**  
+
+**nefarious**  
+
+**finicky**
+**fickle**
+
+## Week 4 
+
 **ruinous**
 
 **exhilarating**
@@ -26,6 +41,7 @@
 **consolidate** 
 
 **scruple**
+**unscrupulous**
 
 **frivolous**
 

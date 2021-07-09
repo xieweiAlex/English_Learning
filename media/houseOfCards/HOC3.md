@@ -5,8 +5,8 @@ Did you **partake** of the product?
 His stands on carbon emissions is **deplorable**.  
 The entire deal **hinges on** this.  
 I'm trying to **salvage** the situation.  
-If they don't like the job I'm doing, they **topple** statues. -  
-Is the gay propaganda law **barbaric**? Yes. -  
+If they don't like the job I'm doing, they **topple** statues.  
+Is the gay propaganda law **barbaric**? Yes.  
 **no stone left unturned** when the first lady in town.  
 It was so **endearing**  
 She's **dead set on** convincing this guy for your benefit.  
@@ -25,7 +25,7 @@ Do you think they like me? - No, they **adore** you.
 They're like a **broken record**.  
 I can **caucuses** for you.  
 When you asked me for a job, you said you wanted to **turn over a new leaf**.  
-I think we replaced a **dud** with an **atom bomb**.  
+I think we replaced a **dud** with an **atom bomb**. -  
 Enjoy the **Northern light**  
 
 
@@ -33,7 +33,7 @@ Enjoy the **Northern light**
 You **dust off** some 60-year-old precedent and think you're justified?   
 Just an **unlikely** choice, give how **vociferous** she...  
 Of course it's a **slugfest**, that's doesn't mean we're losing.  
-I'm gonna take **flak** everyday that Corrigan remains in jail. -  
+I'm gonna take **flak** everyday that Corrigan remains in jail.  
 There is protocol, there's basic **decorum**.  
 You wanted to **sideline** me.  
 Don't **flatter** yourself  
