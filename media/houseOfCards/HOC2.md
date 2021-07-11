@@ -120,7 +120,7 @@ I promised the president a **soft touch**. I can't intentionally break my promis
 We can't have an editor looking more **disheveled** than his reporters.  
 They know that I need **plausible** **deniability** for diplomatic purposes. - Why didn't you immediately **recant**?  
 In my experience with Chinese, **backpedaling** makes us look weak.  
-My contacts in Beijing tell me the minister of commerce is in a **tizzy**. -  
+My contacts in Beijing tell me the minister of commerce is in a **tizzy**.  
 Either I **turn my back on** Cathy or I **stand behind** her.  
 And that walker doesn't **flinch** at the lack of respect it implies?  
 Let's **put this to bed**, Wes.  

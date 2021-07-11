@@ -200,7 +200,7 @@ sit in a comfy chair, relax, and read, this will be on the **longish** side
 the great coder accepts that they are going to be REAAAALLY frustrated with their past **selves**  
 (Eat up your fish and don’t be so **finicky**)
 A great coder has learned that compiling is a **finicky** process especially if you are a member of a team  
-A good coder might feel **flabbergasted** by such **occurrences** - 
+A good coder might feel **flabbergasted** by such **occurrences**  
 The reason is that the great-coder/best-programmer has accepted and made peace with the **truism** that theory and reality do not always agree  
 They do not **ruminate** on it because they know that quite often it is natural for a coder to find themselves in this position  
 I agree with it **in principle** but I doubt if it will happen in practice

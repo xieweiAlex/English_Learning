@@ -1,10 +1,25 @@
 
+## Week 1 
+
+BoJack, these people **feed off** controversy.  
+He is a possessive, **duplicitous**, and **unreasonable** man. -  
+Stones **whet** a sword, difficulties strengthen willpower.  
+that is the **ineluctable** **modality** of the audible. -   
+To receive a compliment, in many cultures, is to **demur** -  
+He enjoyed drinking and **jesting** with his **cronies**. -  
+Tim could barely **conceal** his disappointment.  
+**Nile** river  
+
+the humidity level is highest in the mornings, dropping later in the day, but because the temperatures rise in late morning and the afternoon, the **dew point** is such that it feels more humid and **muggy** than in the (relative) cool of the early morning  
+New Orleans or Houston, where you literally cannot walk more than a block or two in summer without your **suit** becoming wet with **perspiration**  
+The most extensive approach is a full **thesaurus**. -   
+He is **reputed** to be the best heart surgeon in the country  
+
 Amazon basically **turned commerce on its head**, and **turned deliver on its head**.  
 technology could be about to **turn that on its head**    
 Owning a home does **confer** real benefits, if you're married, you have kids. -  
 The more people that own their home, the more the society becomes **sclerotic**. -  
 America's success has made it **sclerotic**.  
-
 For those reasons, the stock became **au courant** to own, as many traders considered it only a "stay-at-home" stock -  
 Even Warren Buffett once **fell prey to** his frugal nature, initially intending to invest billions of dollars in Walmart(NYSE: WMT) stock but then stopping when his buying pushed the share price just pennies above the level he'd arbitrarily chosen as what he wanted to pay  
 venture capitalists are **shelling** out cash like they just got a stimulus check  

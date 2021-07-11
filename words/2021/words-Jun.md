@@ -12,7 +12,7 @@ The warning was **prescient**.
 **chassis frame**  
 But all my efforts appeared **unavailing**. -  
 Defi didn't **skip a beat**.  
-Before exiting the plane a baggage **carousel** was announced. -  
+Before exiting the plane a baggage **carousel** was announced.  
 > It would be a misread to say that Stoicism encourages emotional suppression, but it is focused on emotional regulation—an appealing skill for those who view emotions as irrational, weak, or **unmasculine**
 
 like Stoicism, can both be a **boon** for individual and **collective** mental wellbeing, and also a **stand-in** for more meaningful measures or activism  
@@ -37,8 +37,8 @@ The Stoics thought that all rational beings were part of the same **cosmopolis**
 
 The show was licensed to Spotify last year in an estimated $100 million deal, boosted by a **conceit** that can **at times** seem self-fulfilling -  
 And if the establishment had its way, Mr. Rogan would surely be **chastened**, “canceled,” reeled in. -  
-Some associations can be very **restrictive** about what members can do with their properties -  
-An HOA will typically describe its rules in a document called a Declaration of **Covenants**, Conditions, and Restrictions (CC&Rs) - 
+Some associations can be very **restrictive** about what members can do with their properties  
+An HOA will typically describe its rules in a document called a Declaration of **Covenants**, Conditions, and Restrictions (CCAn HOA will typically describe its rules in a document called a Declaration of **Covenants**, Conditions, and Restrictions (CC&Rs) - Rs)  
 Managed **amateurishly** or **ineptly**  
 
 We checked the **morgue** security logs.  
@@ -67,7 +67,7 @@ Diane goes on **antidepressants**, which lead her to gain weight, but **nonethel
 It is important that we **dovetail** our respective interests. -   
 It makes you look **moronic**  
 he’s **bankrolled** a group that promotes building floating nations that would impose no **compulsory** income taxes  
-Thiel has quietly turned his Roth IRA — a **humdrum** retirement vehicle intended to **spur** Americans to save for their golden years — into a **gargantuan** tax-exempt piggy bank -  
+Thiel has quietly turned his Roth IRA — a **humdrum** retirement vehicle intended to **spur** Americans to save for their golden years — into a **gargantuan** tax-exempt piggy bank  
 an inside look at the financial lives of the richest Americans, those whose **stratospheric** fortunes put them among history’s wealthiest individuals  
 
 Most of the stories about him are **apocryphal**. -  

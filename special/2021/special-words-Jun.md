@@ -1,9 +1,5 @@
 
-**forefront**
-
-**unequivocal**
-
-**flimsy**
+## Week 5 
 
 **readily**  
 

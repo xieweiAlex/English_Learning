@@ -25,7 +25,7 @@ Do you think they like me? - No, they **adore** you.
 They're like a **broken record**.  
 I can **caucuses** for you.  
 When you asked me for a job, you said you wanted to **turn over a new leaf**.  
-I think we replaced a **dud** with an **atom bomb**. -  
+I think we replaced a **dud** with an **atom bomb**.  
 Enjoy the **Northern light**  
 
 

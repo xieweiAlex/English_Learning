@@ -165,7 +165,7 @@ He was using the principles of **Psycho Cybernetics** to become one of the great
 
 Many Eastern Asians prefer to **hold their emotions in check** and instead express themselves with great politeness
 
-The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also **bass**, **crappie**, and other fish -  
+The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also **bass**, **crappie**, and other fish  
 
 On its current trajectory, South Asia, home to a quarter of humanity, will soon **eclipse** the European Union as the center of the pandemic.  
 Pressure has mounted for the government to open the **spigot** further by licensing new vaccines  
