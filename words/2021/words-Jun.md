@@ -54,7 +54,7 @@ financially **solvent**.
 auto-**didactic** learning.  
 She turned up the radio to **drown out** the noise from next door.   
 His name is **expunged** from the list.  
-The U.S. and U.K. have usually been in **lockstep** in their attitudes toward Russia. -  
+The U.S. and U.K. have usually been in **lockstep** in their attitudes toward Russia.  
 The American **contingent** will stay overnight in London.  
 He is **bedeviled** by his mistaken ideas.  
 Hundreds of people packed into the **mosque**.  
@@ -64,7 +64,7 @@ Hundreds of people packed into the **mosque**.
 He seems to **live off** junk food  
 Todd have been **living off** Bojack for years and that Bojack couldn't let him go.  
 Diane goes on **antidepressants**, which lead her to gain weight, but **nonetheless** do make her happier, less **irritable**, and in general more **content**.  
-It is important that we **dovetail** our respective interests. -   
+It is important that we **dovetail** our respective interests.  
 It makes you look **moronic**  
 he’s **bankrolled** a group that promotes building floating nations that would impose no **compulsory** income taxes  
 Thiel has quietly turned his Roth IRA — a **humdrum** retirement vehicle intended to **spur** Americans to save for their golden years — into a **gargantuan** tax-exempt piggy bank  
@@ -111,7 +111,7 @@ They may not share their feeling **readily**.
 
 ## Week 3  
 
-stop being a **simp**. -  
+stop being a **simp**.  
 He was as **devious** as his adversary was ruthless.  
 For one thing, Lemonade had been one of the most **beaten-down** stocks in the market for the first few months of the year  
 **Brass** is an alloy of **copper** and **zinc**.  
@@ -180,7 +180,7 @@ Can you tell me how the accident **came about**?
 Careful, he will **go for** your throat!  
 Watch Ricky. He sometimes likes to **act up** in class.  
   
-I have had enough **obloquy** for one lifetime. -  
+I have had enough **obloquy** for one lifetime.  
 Few words carry stronger **obloquy** than **slumlord**  
 You **mulish** guy, what the hell are you seeking? -  
 **crater**  
@@ -209,7 +209,7 @@ we have an urgent **entreaty**
 They find it unpleasant and they **recoil** from it.  
 The man has **sinewy** muscles  
 **dry hump**  
-He was brought up in **penury**, without education. -   
+He was brought up in **penury**, without education.  
 The priest **absolved** him of his sins.  
 I **eschewed** **upbraiding**, I curtailed **remonstrance**. -  
 **Tundra** is flat land with very little **vegetation**.  
