@@ -36,7 +36,7 @@ Pigliucci thinks of the world not as **imbued** with a substance called **logos*
 The Stoics thought that all rational beings were part of the same **cosmopolis**, or community  
 
 The show was licensed to Spotify last year in an estimated $100 million deal, boosted by a **conceit** that can **at times** seem self-fulfilling -  
-And if the establishment had its way, Mr. Rogan would surely be **chastened**, “canceled,” reeled in. -  
+And if the establishment had its way, Mr. Rogan would surely be **chastened**, “canceled,” reeled in.  
 Some associations can be very **restrictive** about what members can do with their properties  
 An HOA will typically describe its rules in a document called a Declaration of **Covenants**, Conditions, and Restrictions (CCAn HOA will typically describe its rules in a document called a Declaration of **Covenants**, Conditions, and Restrictions (CC&Rs) - Rs)  
 Managed **amateurishly** or **ineptly**  
@@ -44,7 +44,7 @@ Managed **amateurishly** or **ineptly**
 We checked the **morgue** security logs.  
 He is **repulsed**.  
 The nation's **coffers** are empty.   
-The movie makes no **pretension** to reproduce life. -  
+The movie makes no **pretension** to reproduce life.  
 The **werewolf** and vampire are similar in many ways.  
 Her throat **constricted** and she swallowed hard  
 Can web vulnerability scanners help you **remediate** the vulnerability?  
@@ -71,7 +71,7 @@ Thiel has quietly turned his Roth IRA — a **humdrum** retirement vehicle inten
 an inside look at the financial lives of the richest Americans, those whose **stratospheric** fortunes put them among history’s wealthiest individuals  
 
 Most of the stories about him are **apocryphal**. -  
-No **vestige** of sunlight can penetrate as far as this. -  
+No **vestige** of sunlight can penetrate as far as this.  
 **deracinate** plant  
 No wonder parents **agonise** over what names to give their babies.  
 the **mouthwatering** **aroma** of a baking pie.  

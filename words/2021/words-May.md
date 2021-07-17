@@ -15,7 +15,7 @@ city **ordinance**.
 My family and my community **shunned** me  
 His comments cast a **slur** on the integrity of his employees.  
 They mumble, break all the rules of grammar, **slur** words and so on.  
-All I see here is jealousy run **amok**. -  
+All I see here is jealousy run **amok**.  
    
 I'm not sure that I'm **psyched** for the release.  
 He is on **pins and needles**.  
@@ -51,7 +51,7 @@ He **plunked** into the lake.
 The lettering is fuzzy and **indistinct**.  
 **undying**  
 a stylish **offbeat** thriller which occasionally **meanders**  
-Women tend to **impart** their secrets to their **intimate** friends. -  
+Women tend to **impart** their secrets to their **intimate** friends.  
 Paris is often **characterized** as a romantic city.  
    
 **menstrual** cycle  
@@ -165,7 +165,7 @@ I didn't even have the chance to **proofread** my own report.
 I'm just **collating** the results now.  
 
 **anthropological**  
-I hate his **smarmy** compliments. -  
+I hate his **smarmy** compliments.  
 We **delude** ourselves that we are in control.  
 The village has a certain **rustic** charm  
 She supports her theory with **copious** evidence.  

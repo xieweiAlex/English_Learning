@@ -17,7 +17,7 @@ I hate to **stir it up**.
 
 ## Week 2,3 
 We'll **put this behind us**, like we've always done.  
-Probably the one that's **call all the shots**.  - No, I can **hold out** a little while longer. -  
+Probably the one that's **call all the shots**.  - No, I can **hold out** a little while longer.   
 I'm in the frontline and I can tell you **firsthand** that we're dealing with regime that is not being **forthright** and will **seize upon** the **faintest whiff of trepidation**.  
 So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**.   
 There is something I feel I must **get off my chest**.  

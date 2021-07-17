@@ -8,8 +8,10 @@
 **contrived**
 
 **forefront**
+**forehead**
 
 **unequivocal**
+**unambiguous**
 
 **flimsy**
 

@@ -1,4 +1,19 @@
 
+## Week 2 
+
+The movie makes no **pretension** to reproduce life.  
+I **desiderate** the resources of a family.  
+
+Who wants to **put up with** the toughness if you don't love it. 
+**live up to one's words**.  
+
+**FOIA**: Freedom of Information Act  
+
+The **dapple** of the deer is yellow. -   
+His tone was **curt** and unfriendly. -  
+He spoke with **curt** **finality**.  
+We **condole** with you on your **misfortune**.  
+**reminiscent**, **nostalgia**  
 
 Crucian **carp**, **grass carp**.   
 **Gerbils** are pets in many American homes.  
@@ -10,7 +25,8 @@ Roses grew in **profusion** against the old wall.
 **fall short**  
 The show is a **spinoff** of the British show Pop Idol.  
 Ginny was **irrepressibly** rebellious. -  
-Her stare was **malevolent**, her mouth a thin line.  
+Her stare was **malevolent**, her mouth a thin line. -  
+**malevolent** vs **malicious** 
 His article is stuffed with **shibboleth**.   
 BBQ'ing may be the **epitome** of American summer, but it's also a hallmark of pandemic socializing. -  
 The best storytellers always define a clear purpose **prior to** **crafting** their story.  
@@ -34,7 +50,6 @@ TikTok focuses on **serendipitous** discovery powered by its AI recommendation e
 
 About $6 trillion in stimulus money is **swishing** around, and more appears to be on the way. -  
 buying shares of Chinese companies might simply be **fool's gold** for investors  
-
 BoJack, these people **feed off** controversy.  
 He is a possessive, **duplicitous**, and **unreasonable** man. -  
 > Stones **whet** a sword, difficulties strengthen willpower.  
@@ -47,13 +62,13 @@ Tim could barely **conceal** his disappointment.
 
 the humidity level is highest in the mornings, dropping later in the day, but because the temperatures rise in late morning and the afternoon, the **dew point** is such that it feels more humid and **muggy** than in the (relative) cool of the early morning  
 New Orleans or Houston, where you literally cannot walk more than a block or two in summer without your **suit** becoming wet with **perspiration**  
-The most extensive approach is a full **thesaurus**. -   
+The most extensive approach is a full **thesaurus**.  
 He is **reputed** to be the best heart surgeon in the country  
 
 Amazon basically **turned commerce on its head**, and **turned deliver on its head**.  
 technology could be about to **turn that on its head**    
-Owning a home does **confer** real benefits, if you're married, you have kids. -  
-The more people that own their home, the more the society becomes **sclerotic**. -  
+Owning a home does **confer** real benefits, if you're married, you have kids.  
+The more people that own their home, the more the society becomes **sclerotic**.  
 America's success has made it **sclerotic**.  
 For those reasons, the stock became **au courant** to own, as many traders considered it only a "stay-at-home" stock -  
 Even Warren Buffett once **fell prey to** his frugal nature, initially intending to invest billions of dollars in Walmart(NYSE: WMT) stock but then stopping when his buying pushed the share price just pennies above the level he'd arbitrarily chosen as what he wanted to pay  

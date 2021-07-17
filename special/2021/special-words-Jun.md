@@ -53,6 +53,8 @@
 
 **irreversible**
 **irredeemable**
+**irresistible**
+**irrepressible**
 
 **personable**
 
