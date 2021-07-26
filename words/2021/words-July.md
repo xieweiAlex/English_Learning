@@ -1,21 +1,87 @@
 
+If you’re **paring down** your accounts, don’t close your oldest credit card — it’s what gives you a long credit history  
+
+They’d often be just as happy with a front end that home users would **balk at** for its ugliness as a front end that typical home users would love  
+It's taken a lot of **ingenuity** and salesmanship to make it happen.  
+We often talk about the Federal Reserve using a **bazooka** to tackle markets and economy. This is bazooka, cannons and tanks all **at once**. -  
+**punchy** pills... have perverse side effect.     
+The Federal Reserve is literally a banking **cartel**. Plain and simple as that.  
+
+
+I made him **hold off** for another forty-five minutes.  
+After a six-month **probationary** period, her position was confirmed.  
+She is a **conspicuous** figure.  
+The battlefield was a scene of utter **carnage**.  
+**jughead**  
+
+Hereafter, we must be cautious how we **vex** her.  
+When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying washtubs, not teaspoons. -  
+**nautical** mile, **nautical** chart.  
+the **peripatetic** nature of military life. -  
+Those individual decisions to drop out collectively amount to society-wide **stratification**.  
+Many of the papers **muse** on the fate of the president.  
+All his **imperious** orders were obeyed -  
+**dillydally**  
+Japanese **sumo**.  
+
+Do your ankles **swell** at night?  
+Their purpose is to **adjudicate** disputes between employers and employees.  
+And some Allies said any **blowback** would not matter long anyway.  
+He had been taught to **abhor** people who did this **wicked** thing. -  
+The old man's a real **cold fish**. I've never seen him laugh.  
+
+The kitchen was **clean as a whistle**.   
+We don’t try to time the market, and we don’t **fret** when the stocks go up and down.  
+You will find the **clay** perfectly **pliable** as long as it stays fairly **moist**  
+
+Google employees say they're unsure which products will **make the cut**.
+The hostages **emerged** from their **ordeal** **unscathed**. -  
+**paralegal**  
+Something was **niggling** her. -  
+He just flied into rage at such a **peccadillo**!  
+He always makes **inapt** remarks. -  
+Extra police were called in to **quell** the disturbances.  
+
+I realized I had to **surmount** the language barrier. -  
+Mummy, are you going to the **optician**  
+the volatility was an **eerie** reminder of how quickly investor sentiment can turn, especially with the unpredictability of the spread of this new COVID-19 variant. -   
+Job growth is probably the most important **prognosticator** for real estate demand in home price. -  
+Careful you don't **tread** in that **puddle**  
+
 ## Week 2 
 
-The movie makes no **pretension** to reproduce life.  
-I **desiderate** the resources of a family.  
+Disney is **chipping away at** Netflix's dominance.  
+Beijing has **chipped away at** Hong Kong’s reputation of accountable, transparent governance and respect for individual freedoms  
 
+Their **plight** reminds me of an experience from a summer in my youth when I worked at a warehouse  
+Alexander is in a miserable **plight**.  
+The smile was not fake, he actually **spoke at length** about how much he liked his job  
+**busting** their ass to get orders white collar workers, with high pay sitting comfortable in **swanky** offices, ordered. -  
+Instead of **pestering** people to work harder, perhaps one should instead realize the importance of investing in people  
+The thing that obviously aligns incentives is to look at education as a **hard-nosed** business **proposition** -  
+The university has 18 million things that it does for you, and we cut cut off a tiny **sliver** of that, which is: we're going to help you get a better job, we're going to help you improve your state in life  
+You've got all this **latent** human potential, and it's just kind of bouncing around  
+
+it both incredibly useful as a strategy of resilience, and highly commercializable and **pliant** to varying interpretations -  
+This came in handy because the years during which Stoicism was developed were full of political **upheaval**  
+There wasn’t a large sense of the scale of what humans can do in **antiquity** -  
+There's **scarcely** a business in the world that isn't a potential customer of DocuSign, and even though the company recently passed its one millionth client, there's no end in sight for its growth  
+Three prisoners are still **on the loose**.   
+**tournament** competition. 
+
+The movie makes no **pretension** to reproduce life.  
+I **desiderate** the resources of a family. -  
 Who wants to **put up with** the toughness if you don't love it. 
 **live up to one's words**.  
 
 **FOIA**: Freedom of Information Act  
-
 The **dapple** of the deer is yellow. -   
 His tone was **curt** and unfriendly. -  
 He spoke with **curt** **finality**.  
 We **condole** with you on your **misfortune**.  
 **reminiscent**, **nostalgia**  
 
-Crucian **carp**, **grass carp**.   
+**Crucian** **carp**, **grass carp**.   
 **Gerbils** are pets in many American homes.  
 He knew that he might soon **lapse** into unconsciousness. -  
 colored **glaze**   
@@ -30,7 +96,7 @@ Her stare was **malevolent**, her mouth a thin line. -
 His article is stuffed with **shibboleth**.   
 BBQ'ing may be the **epitome** of American summer, but it's also a hallmark of pandemic socializing. -  
 The best storytellers always define a clear purpose **prior to** **crafting** their story.  
-> Do you have a burning desire to tell this story? If so, why?  
+> Do you have a **burning desire** to tell this story? If so, why?  
 
 **endowment** effect  
 Paffrath **extols** the virtues of the FHA 203k loan which enabled him to purchase a home with 3.5% down and borrow the fix up. -  
@@ -92,8 +158,8 @@ The reply was an **unequivocal** 'no'.
 It's easy to **marvel** at the enormous wealth of the Warren Buffets and Benjamin Grahams of the world.  
 Markdown has become a **maze** of different implementations, termed “flavors”, which make a universal definition **evasive**.  
 Frank was very **evasive** about the matter. -  
-She is as **timorous** as a rabbit. -  
-And tenderness, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
+She is as **timorous** as a rabbit.  
+And tenderness, too-but does that appear a **mawkish** thing to **desiderate** in life?  
 Statistics produce many observations that appear to beg for **causal** explanations but do not lend themselves to such explanations.
 **cutting corners**  
 **chemotherapy**

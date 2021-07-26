@@ -1,3 +1,11 @@
+It's serious ma'am, I can **fill you in** on the way.  
+https://7esl.com/phrasal-verbs/
+
+**As though** we meet the first time.  
+
+Disney is **chipping away at** Netflix's dominance.  
+Things turned ugly when Frank, Jackie and Heather **square off** in the first debate.  
+Google employees say they're unsure which products will **make the cut**.  
 BoJack, these people **feed off** controversy.  
 
 ## Week 4, 5 
@@ -32,9 +40,6 @@ Don't **flatter** yourself
 You **dust off** some 60-year-old precedent and think you're justified?   
 The business cycle is a series of peaks and **troughs**.   
 Isn't that 3/4 marriage **go down the drain** now?  
-
-https://7esl.com/phrasal-verbs/
-
 
 ## Week 1 
 

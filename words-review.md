@@ -1,5 +1,26 @@
+## HOC3.md ##  
+media/houseOfCards/HOC3.md  
+I can direct you to the **bullpen**, but this area is **off-limits** to the press. -  
+I hope you don't **welsh** on your promise to me way you did with Oren. -  
+It was so **endearing**. -  
+  
 ## words-July.md ##  
 words/2021/words-July.md  
+When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying washtubs, not teaspoons. -  
+the **peripatetic** nature of military life. -  
+All his **imperious** orders were obeyed -  
+He had been taught to **abhor** people who did this **wicked** thing. -  
+The hostages **emerged** from their **ordeal** **unscathed**. -  
+Something was **niggling** her. -  
+He always makes **inapt** remarks. -  
+I realized I had to **surmount** the language barrier. -  
+the volatility was an **eerie** reminder of how quickly investor sentiment can turn, especially with the unpredictability of the spread of this new COVID-19 variant. -  
+Job growth is probably the most important **prognosticator** for real estate demand in home price. -  
+**busting** their ass to get orders white collar workers, with high pay sitting comfortable in **swanky** offices, ordered. -  
+The thing that obviously aligns incentives is to look at education as a **hard-nosed** business **proposition** -  
+it both incredibly useful as a strategy of resilience, and highly commercializable and **pliant** to varying interpretations -  
+There wasn’t a large sense of the scale of what humans can do in **antiquity** -  
+I **desiderate** the resources of a family. -  
 The **dapple** of the deer is yellow. -  
 His tone was **curt** and unfriendly. -  
 He knew that he might soon **lapse** into unconsciousness. -  
@@ -18,8 +39,6 @@ He enjoyed drinking and **jesting** with his **cronies**. -
 For those reasons, the stock became **au courant** to own, as many traders considered it only a "stay-at-home" stock -  
 As the Delta variant spreads and threatens to slow the economic recovery, the fall in yields means investors are **souring** on a mega **growth spurt** and **snapping up** safer assets rather than riskier stocks. -  
 Frank was very **evasive** about the matter. -  
-She is as **timorous** as a rabbit. -  
-And tenderness, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
   
 ## words-Jun.md ##  
 words/2021/words-Jun.md  

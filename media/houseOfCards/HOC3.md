@@ -1,4 +1,18 @@
 
+## E 3  
+He **loathes** Francis, but use your best judgement.  
+It's **as though** she never left.  
+I can direct you to the **bullpen**, but this area is **off-limits** to the press. -  
+Come on, be smarter than that. Oren, she'll sue you for **slander**.  
+I hope you don't **welsh** on your promise to me way you did with Oren. -  
+American Works is **falling flat**, you campaign manager is ten years behind ten years ago.  
+If a **sliver** of Goodwind's story **holds up**..  
+It's serious ma'am, I can **fill you in** on the way.  
+
+
+## E 11 
+Things turned ugly when Frank, Jackie and Heather **square off** in the first debate.  
+
 ## E 6 
 Did you **partake** of the product?  
 **As though** we meet the first time.  
@@ -8,7 +22,7 @@ I'm trying to **salvage** the situation.
 If they don't like the job I'm doing, they **topple** statues.  
 Is the gay propaganda law **barbaric**? Yes.  
 **no stone left unturned** when the first lady in town.  
-It was so **endearing**  
+It was so **endearing**. -  
 She's **dead set on** convincing this guy for your benefit.  
 
 
