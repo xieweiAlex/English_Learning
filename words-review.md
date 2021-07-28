@@ -6,39 +6,33 @@ It was so **endearing**. -
   
 ## words-July.md ##  
 words/2021/words-July.md  
+Believed in a God **immanent** in human beings. -  
+He **glanced** **furtively** at the **stolid** faces of the two detectives. -  
+That kind of **insouciant** attitude is what makes fur fit into modern life. -  
+Shares popped 11% yesterday as investors **ogled** over Lucid's sleek-looking EVs and battery stats. -  
+We often talk about the Federal Reserve using a **bazooka** to tackle markets and economy. This is bazooka, cannons and tanks all **at once**. -  
+The Federal Reserve is literally a banking **cartel**. Plain and simple as that. -  
 When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying washtubs, not teaspoons. -  
 the **peripatetic** nature of military life. -  
 All his **imperious** orders were obeyed -  
 He had been taught to **abhor** people who did this **wicked** thing. -  
 The hostages **emerged** from their **ordeal** **unscathed**. -  
-Something was **niggling** her. -  
-He always makes **inapt** remarks. -  
 I realized I had to **surmount** the language barrier. -  
-the volatility was an **eerie** reminder of how quickly investor sentiment can turn, especially with the unpredictability of the spread of this new COVID-19 variant. -  
 Job growth is probably the most important **prognosticator** for real estate demand in home price. -  
 **busting** their ass to get orders white collar workers, with high pay sitting comfortable in **swanky** offices, ordered. -  
-The thing that obviously aligns incentives is to look at education as a **hard-nosed** business **proposition** -  
 it both incredibly useful as a strategy of resilience, and highly commercializable and **pliant** to varying interpretations -  
-There wasn’t a large sense of the scale of what humans can do in **antiquity** -  
-I **desiderate** the resources of a family. -  
 The **dapple** of the deer is yellow. -  
 His tone was **curt** and unfriendly. -  
 He knew that he might soon **lapse** into unconsciousness. -  
-Ginny was **irrepressibly** rebellious. -  
-Her stare was **malevolent**, her mouth a thin line. -  
 BBQ'ing may be the **epitome** of American summer, but it's also a hallmark of pandemic socializing. -  
 Paffrath **extols** the virtues of the FHA 203k loan which enabled him to purchase a home with 3.5% down and borrow the fix up. -  
-Making **banal** **remarks** was one of his bad habits. -  
 In China, each couple is required to carry out a **eugenic** plan strictly -  
 He **dawdled** away his time. -  
 About $6 trillion in stimulus money is **swishing** around, and more appears to be on the way. -  
 He is a possessive, **duplicitous**, and **unreasonable** man. -  
 that is the **ineluctable** **modality** of the audible. -  
 To receive a compliment, in many cultures, is to **demur** -  
-He enjoyed drinking and **jesting** with his **cronies**. -  
 For those reasons, the stock became **au courant** to own, as many traders considered it only a "stay-at-home" stock -  
-As the Delta variant spreads and threatens to slow the economic recovery, the fall in yields means investors are **souring** on a mega **growth spurt** and **snapping up** safer assets rather than riskier stocks. -  
-Frank was very **evasive** about the matter. -  
   
 ## words-Jun.md ##  
 words/2021/words-Jun.md  
@@ -62,10 +56,14 @@ California is **hemorrhaging** people. -
 words/2021/words-May.md  
 I was now less happy with and less confident in my grades than I had been earlier, but I recognized that this was a good sign, an indication that the new procedure was **superior**. The consistency I had enjoyed earlier was **spurious** -  
   
-## words-April.md ##  
-words/2021/words-April.md  
-He looked **sly** and **furtive**. -  
-  
 ## words-Feb.md ##  
 words/2021/words-Feb.md  
 The volcano threw new showers of **magma** and **ash** into the air -  
+  
+## words-Jan.md ##  
+words/2021/words-Jan.md  
+Is it necessary to decide between **remunerative** work and meaningful work? -  
+  
+## words-Nov.md ##  
+words/2019/words-Nov.md  
+after a long hard **arduous** day of testing brand new motorcycles -  
