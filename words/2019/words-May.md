@@ -129,8 +129,7 @@ A **frugal** lunch
 
 The bones, **ligaments**, and muscles of your neck support your head and allow for motion   
 
-Nancy Pelosi was trying to get "under President Trump's **skin**" this week and "clearly **succeeded** to some degree" in her effort. ?  
-
+Nancy Pelosi was trying to **get under** President Trump's **skin** this week and clearly **succeeded** to some degree in her effort.   
 Pelosi **scrambles** to **tamp down** trump impeachment **frenzy** in **caucus**  
 He didn't have a **temper tantrum** when he ended the meeting  
 

@@ -1,21 +1,56 @@
 
+He was silenced by her **stinging** rebuke.  
+A carper will cavil at anything.   
+Let's **jettison** some historical baggage.  
+She will face a local magistrate on Tuesday.  
+My complexion remained pale and pasty.  
+The rain water drips from the eaves.  
+It would be futile to protest.  
+Both dogs looked grimy.  
+Yet discipline is poor, and the attrition rate high.  
+feral cat  
+
+
+
+mess hall, dinning hall.  
+You can only eat or drink in the canteen...  
+
+He **ogled** at all the attractive girls in the office. -  
+Shares popped 11% yesterday as investors **ogled** over Lucid's sleek-looking EVs and battery stats.  
+I can't have a conversation with you without it turning into a **full on** argument.  
+Sensationalism is **anathema** to the Foolish mindset.  
+**landmark**  
+
+The **dilapidated** barn **detracts** charm from the landscape  
+Ikea is an **old hand** at **herding** customers through a **labyrinthine** store layout.  
+On the whole it's a good plan and we shouldn't **nitpick**.  
+I **flunked** the exam and my dad's going to kill me.  
+**Self-directed** study  
+The **twilight** had turned to a deep **blackness**.  
+She was **radiant** with health.  
+the **sweet spot** is two to three days a week.  
+
+
+## Week 3
+
+We believe the tradeoffs associated with China’s new policies include the significant cost to existing investors in the AST space which seems to be **fomenting** more broad-based shareholder fears, and a loss of innovation in the education space  
 If you’re **paring down** your accounts, don’t close your oldest credit card — it’s what gives you a long credit history  
 
 They’d often be just as happy with a front end that home users would **balk at** for its ugliness as a front end that typical home users would love  
 It's taken a lot of **ingenuity** and salesmanship to make it happen.  
 We often talk about the Federal Reserve using a **bazooka** to tackle markets and economy. This is bazooka, cannons and tanks all **at once**. -  
 **punchy** pills... have perverse side effect.     
-The Federal Reserve is literally a banking **cartel**. Plain and simple as that.  
-
+The Federal Reserve is literally a banking **cartel**. Plain and simple as that. -  
 
 I made him **hold off** for another forty-five minutes.  
 After a six-month **probationary** period, her position was confirmed.  
 She is a **conspicuous** figure.  
 The battlefield was a scene of utter **carnage**.  
-**jughead**  
+**jughead**, **knucklehead**, **simple-minded**  
 
 Hereafter, we must be cautious how we **vex** her.  
-When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying washtubs, not teaspoons. -  
+> When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying **washtubs**, not **teaspoons**. -  
+
 **nautical** mile, **nautical** chart.  
 the **peripatetic** nature of military life. -  
 Those individual decisions to drop out collectively amount to society-wide **stratification**.  

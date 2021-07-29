@@ -1,3 +1,8 @@
+
+**go down the brass tacks**  
+Some may **balk at** the idea of limiting **dual** nationality.  
+the **sweet spot** is two to three days a week.  
+I made him **hold off** for another forty-five minutes.  
 It's serious ma'am, I can **fill you in** on the way.  
 https://7esl.com/phrasal-verbs/
 
@@ -38,7 +43,7 @@ Watch Ricky. He sometimes likes to **act up** in class.
 **keep up** the good work.  
 Don't **flatter** yourself  
 You **dust off** some 60-year-old precedent and think you're justified?   
-The business cycle is a series of peaks and **troughs**.   
+The business cycle is a series of **peaks and troughs**.   
 Isn't that 3/4 marriage **go down the drain** now?  
 
 ## Week 1 

@@ -1,4 +1,9 @@
 
+## E 4  
+My concern is him **railroading** me on the call.  
+Don't **equivocate**, be confident, you have the leverage.  
+> courtesy never got me anywhere.  
+
 ## E 3  
 He **loathes** Francis, but use your best judgement.  
 It's **as though** she never left.  

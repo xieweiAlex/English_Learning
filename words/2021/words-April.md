@@ -139,7 +139,7 @@ His judgment seems to have **waned**.
 The speech was designed to **pacify** the **irate** crowd.  
 He had a quick **swill** of wine.  
 **Swill** the car with clear water.  
-He looked **sly** and **furtive**. -  
+He looked **sly** and **furtive**.  
 He went **berserk** and attacked a man in court.  
 He was **apoplectic** with rage at the decision.  
 **drippy** climate   

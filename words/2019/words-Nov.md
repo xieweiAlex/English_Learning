@@ -243,7 +243,7 @@ shift **lever**
 **sequential** gearbox  
 **labor-intensive** and difficult morning riding  
 more experienced rider who is looking for a **zany** new motorcycle  
-after a long hard **arduous** day of testing brand new motorcycles  
+after a long hard **arduous** day of testing brand new motorcycles -  
 **turn your stomach**  
 **constant-mesh gearbox**:  
 
