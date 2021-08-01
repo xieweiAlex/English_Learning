@@ -1,20 +1,4 @@
 
-## E 4  
-My concern is him **railroading** me on the call.  
-Don't **equivocate**, be confident, you have the leverage.  
-> courtesy never got me anywhere.  
-
-## E 3  
-He **loathes** Francis, but use your best judgement.  
-It's **as though** she never left.  
-I can direct you to the **bullpen**, but this area is **off-limits** to the press. -  
-Come on, be smarter than that. Oren, she'll sue you for **slander**.  
-I hope you don't **welsh** on your promise to me way you did with Oren. -  
-American Works is **falling flat**, you campaign manager is ten years behind ten years ago.  
-If a **sliver** of Goodwind's story **holds up**..  
-It's serious ma'am, I can **fill you in** on the way.  
-
-
 ## E 11 
 Things turned ugly when Frank, Jackie and Heather **square off** in the first debate.  
 

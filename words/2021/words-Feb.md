@@ -152,7 +152,7 @@ birthday **flan**
 The snake has very sharp **fangs**  
 I will **earmark** this money for your research  
 Correct speech is an **earmark** of the educated man.  
-The volcano threw new showers of **magma** and **ash** into the air -  
+The volcano threw new showers of **magma** and **ash** into the air  
 Her voice had a soft Welsh **lilt** to it.  
 **Confetti** showered down on the newly-**weds**.  
 **Anaconda** sunning on a tree  

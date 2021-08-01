@@ -1,4 +1,11 @@
 
+**intriguing**
+
+**slavishly**  
+
+**forthright** 
+
+**anathema**
 
 **staggering**
 

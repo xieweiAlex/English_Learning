@@ -10,7 +10,7 @@ He is a **terse** dude.
 What's your view on China's **accession** to WTO?  
 The warning was **prescient**.  
 **chassis frame**  
-But all my efforts appeared **unavailing**. -  
+But all my efforts appeared **unavailing**.  
 Defi didn't **skip a beat**.  
 Before exiting the plane a baggage **carousel** was announced.  
 > It would be a misread to say that Stoicism encourages emotional suppression, but it is focused on emotional regulation—an appealing skill for those who view emotions as irrational, weak, or **unmasculine**
@@ -27,12 +27,12 @@ It **zeroes in** only on the skills needed to build start-up companies, or havin
 > The metaphysical side of ancient Stoicism contains an explanation as to why we shouldn't worry about external events but simply our reactions to them
 
 The Stoics were **monists**, and thought that the universe was all connected, made of a **divine** rational substance called **logos**  
-Being committed to social change and progress and believing in **Providence** can be compatible -  
+Being committed to social change and progress and believing in **Providence** can be compatible  
 
 > And the major thing for a Stoic is to be **ethical**  
 
 As a scientist, Pigliucci said, he can't accept the idea that the **cosmos** is a living organism, so he leaves that bit of Stoicism in the past  
-Pigliucci thinks of the world not as **imbued** with a substance called **logos**, but as a web of **cause and effect**, where things don't happen without causes -  
+Pigliucci thinks of the world not as **imbued** with a substance called **logos**, but as a web of **cause and effect**, where things don't happen without causes  
 The Stoics thought that all rational beings were part of the same **cosmopolis**, or community  
 
 The show was licensed to Spotify last year in an estimated $100 million deal, boosted by a **conceit** that can **at times** seem self-fulfilling -  
@@ -96,7 +96,7 @@ She now directs a large **choir**.
 I mean isn't **Lucifer** a **synonym** for **Satan**?  
 
 The video will **dispel** some common developer myths about using secure protocols.  
-Nothing could **dispel** the **torpidity** of the indifferent audience. -  
+Nothing could **dispel** the **torpidity** of the indifferent audience.  
 Cross-Site Request **Forgery** (CSRF)
 A TV show about **wacky** characters and an alcoholic horse  
 He wouldn't have accepted such an **inglorious** outcome.  
@@ -217,7 +217,7 @@ Bees were buzzing in the **clover**.
 What’s the bubble?” Fama added. “The up? The down? The **subsequent** up?  
 What **Ails** Palantir’s Commercial Business?  
 Who could have carried out such a **vile** attack?  
-California is **hemorrhaging** people. -   
+California is **hemorrhaging** people.  
 Toad **ceased** his **frivolous** **antics** **at once**  
 algorithm-amplified **megaphone**  
 there is likely to be a **deluge** of investment opportunities as a new crop of surprisingly sophisticated new companies seek to raise capital on major exchanges.  

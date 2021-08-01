@@ -1,19 +1,40 @@
 
+How do I **square** this?  
+The building **commences** once the down payment is received  
+A **salient** event that attracts your attention will be easily retrieved from memory.  
+He lives alone in a **suspiciously** **tidy** apartment.   
+that people who let themselves be guided by System 1 are more strongly **susceptible** to availability biases than others who are in a state of higher vigilance.  
+Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**. -
+
+Biden called on local governments to “take all possible steps” to **disburse** the funds. Evictions could begin as soon as Monday  
+after hours of **wrangling**, Democrats could not muster support to extend the ban  
+
+some **paprika** for extra flavor.  
+His parents went through an **acrimonious** divorce -  
+carefree **insouciant** **lighthearted** -  
+Modern capitalist economy follows its own **immanent** laws. -  
+The group **dissolved** in dissension.  
+They provided only **skimpy** details.  
+The rebels **besieged** the **fort**. -  
+How to Play **Razz**  
+
+> The table is **tilted**, the game is rigged.  
+
+**unbeatable** location  
 He was silenced by her **stinging** rebuke.  
-A carper will cavil at anything.   
+A **carper** will **cavil** at anything. -   
+Let us not **cavil** too much.  
 Let's **jettison** some historical baggage.  
-She will face a local magistrate on Tuesday.  
-My complexion remained pale and pasty.  
-The rain water drips from the eaves.  
-It would be futile to protest.  
-Both dogs looked grimy.  
-Yet discipline is poor, and the attrition rate high.  
-feral cat  
+She will face a local **magistrate** on Tuesday.  
+My **complexion** remained **pale** and **pasty**.  
+The rain water drips from the **eaves**.  
+It would be **futile** to protest.  
+Both dogs looked **grimy**.  
+Yet discipline is poor, and the **attrition rate** high.  
+**feral** cat  
 
-
-
-mess hall, dinning hall.  
-You can only eat or drink in the canteen...  
+**mess hall**, **dinning hall**, **eatery**  
+You can only eat or drink in the **canteen**... -  
 
 He **ogled** at all the attractive girls in the office. -  
 Shares popped 11% yesterday as investors **ogled** over Lucid's sleek-looking EVs and battery stats.  
@@ -80,7 +101,7 @@ Extra police were called in to **quell** the disturbances.
 I realized I had to **surmount** the language barrier. -  
 Mummy, are you going to the **optician**  
 the volatility was an **eerie** reminder of how quickly investor sentiment can turn, especially with the unpredictability of the spread of this new COVID-19 variant. -   
-Job growth is probably the most important **prognosticator** for real estate demand in home price. -  
+Job growth is probably the most important **prognosticator** for real estate demand in home price.  
 Careful you don't **tread** in that **puddle**  
 
 ## Week 2 
@@ -91,13 +112,13 @@ Beijing has **chipped away at** Hong Kong’s reputation of accountable, transpa
 Their **plight** reminds me of an experience from a summer in my youth when I worked at a warehouse  
 Alexander is in a miserable **plight**.  
 The smile was not fake, he actually **spoke at length** about how much he liked his job  
-**busting** their ass to get orders white collar workers, with high pay sitting comfortable in **swanky** offices, ordered. -  
+**busting** their ass to get orders white collar workers, with high pay sitting comfortable in **swanky** offices, ordered.  
 Instead of **pestering** people to work harder, perhaps one should instead realize the importance of investing in people  
 The thing that obviously aligns incentives is to look at education as a **hard-nosed** business **proposition** -  
 The university has 18 million things that it does for you, and we cut cut off a tiny **sliver** of that, which is: we're going to help you get a better job, we're going to help you improve your state in life  
 You've got all this **latent** human potential, and it's just kind of bouncing around  
 
-it both incredibly useful as a strategy of resilience, and highly commercializable and **pliant** to varying interpretations -  
+it both incredibly useful as a strategy of resilience, and highly commercializable and **pliant** to varying interpretations  
 This came in handy because the years during which Stoicism was developed were full of political **upheaval**  
 There wasn’t a large sense of the scale of what humans can do in **antiquity** -  
 There's **scarcely** a business in the world that isn't a potential customer of DocuSign, and even though the company recently passed its one millionth client, there's no end in sight for its growth  
@@ -116,9 +137,9 @@ He spoke with **curt** **finality**.
 We **condole** with you on your **misfortune**.  
 **reminiscent**, **nostalgia**  
 
-**Crucian** **carp**, **grass carp**.   
+**Crucian** **carp**, **grass carp**. -   
 **Gerbils** are pets in many American homes.  
-He knew that he might soon **lapse** into unconsciousness. -  
+He knew that he might soon **lapse** into unconsciousness.  
 colored **glaze**   
 That's **comforting**  
 Roses grew in **profusion** against the old wall.   
@@ -149,10 +170,10 @@ TikTok focuses on **serendipitous** discovery powered by its AI recommendation e
 
 ## Week 1 
 
-About $6 trillion in stimulus money is **swishing** around, and more appears to be on the way. -  
+About $6 trillion in stimulus money is **swishing** around, and more appears to be on the way.  
 buying shares of Chinese companies might simply be **fool's gold** for investors  
 BoJack, these people **feed off** controversy.  
-He is a possessive, **duplicitous**, and **unreasonable** man. -  
+He is a possessive, **duplicitous**, and **unreasonable** man.  
 > Stones **whet** a sword, difficulties strengthen willpower.  
 
 that is the **ineluctable** **modality** of the audible. -   
@@ -174,7 +195,7 @@ America's success has made it **sclerotic**.
 For those reasons, the stock became **au courant** to own, as many traders considered it only a "stay-at-home" stock -  
 Even Warren Buffett once **fell prey to** his frugal nature, initially intending to invest billions of dollars in Walmart(NYSE: WMT) stock but then stopping when his buying pushed the share price just pennies above the level he'd arbitrarily chosen as what he wanted to pay  
 venture capitalists are **shelling** out cash like they just got a stimulus check  
-As the Delta variant spreads and threatens to slow the economic recovery, the fall in yields means investors are **souring** on a mega **growth spurt** and **snapping up** safer assets rather than riskier stocks. -  
+As the Delta variant spreads and threatens to slow the economic recovery, the fall in yields means investors are **souring** on a mega **growth spurt** and **snapping up** safer assets rather than riskier stocks.  
 Chinese tech stocks **roiled** by worsening crackdown  
 He feels removed from the Starks not only because of his knowledge of his own family **lineage**, but because his personality differs from that of the northerners fairly significantly  
 They found him in a **gloomy**, downbeat mood.  
@@ -188,11 +209,10 @@ She intends to **buckle down** and write a musical.
 **affluent** society  
 She gave him a **contemptuous** look.  
 I just saw some **miscreants** throwing eggs at your house.  
-
 The reply was an **unequivocal** 'no'.  
 It's easy to **marvel** at the enormous wealth of the Warren Buffets and Benjamin Grahams of the world.  
 Markdown has become a **maze** of different implementations, termed “flavors”, which make a universal definition **evasive**.  
-Frank was very **evasive** about the matter. -  
+Frank was very **evasive** about the matter.  
 She is as **timorous** as a rabbit.  
 And tenderness, too-but does that appear a **mawkish** thing to **desiderate** in life?  
 Statistics produce many observations that appear to beg for **causal** explanations but do not lend themselves to such explanations.

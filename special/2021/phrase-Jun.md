@@ -1,3 +1,5 @@
+Really, Viktor? Are we gonna **dredge** that **up**? -  
+
 
 **go down the brass tacks**  
 Some may **balk at** the idea of limiting **dual** nationality.  
@@ -7,7 +9,6 @@ It's serious ma'am, I can **fill you in** on the way.
 https://7esl.com/phrasal-verbs/
 
 **As though** we meet the first time.  
-
 Disney is **chipping away at** Netflix's dominance.  
 Things turned ugly when Frank, Jackie and Heather **square off** in the first debate.  
 Google employees say they're unsure which products will **make the cut**.  
@@ -20,7 +21,6 @@ MEPs insisted on a package without **wiggle room**.
 I knew that helped **stave off** depressive episodes  
 I've waited for you to **flip out**  
 Todd have been **living off** Bojack for years and that Bojack couldn't let him go.  
-
 She's **dead set on** convincing this guy for your benefit.  
 **no stone left unturned** when the first day in town.  
 The entire deal **hinges on** this.  
