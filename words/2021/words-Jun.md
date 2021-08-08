@@ -79,8 +79,8 @@ the **mouthwatering** **aroma** of a baking pie.
 He stated **unequivocally** that the forces were ready to go to war.  
 **Decibel** values correspond to various sounds.   
 **busboy**, **busybody** 
-I want a **tuxedo** on the statue. -   
-The **ruckus** **belies** a simple fact. -   
+I want a **tuxedo** on the statue.  
+The **ruckus** **belies** a simple fact.  
 **scummy**, **crummy** 
 A **poky** apartment  
 
@@ -210,8 +210,8 @@ They find it unpleasant and they **recoil** from it.
 The man has **sinewy** muscles  
 **dry hump**  
 He was brought up in **penury**, without education.  
-The priest **absolved** him of his sins.  
-I **eschewed** **upbraiding**, I curtailed **remonstrance**. -  
+The priest **absolved** him of his sins. -  
+I **eschewed** **upbraiding**, I curtailed **remonstrance**.  
 **Tundra** is flat land with very little **vegetation**.  
 Bees were buzzing in the **clover**.  
 What’s the bubble?” Fama added. “The up? The down? The **subsequent** up?  

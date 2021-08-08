@@ -1,3 +1,19 @@
+## ww01.md ##  
+media/WWII/ww01.md  
+From the first **torpedo** **squadron**, only one man survives. -  
+This is America's last shot to kind of check the Japanese and prevent them from making their position **indomitable**. -  
+For the Japanese delegates, it's an **abomination**. -  
+but the Americans were not that **receptive**. -  
+They looked at Americans saw it as ultimate sort of **decadent** power, consumer culture, **materialism**. -  
+He issues an order that requires his air **fields** to put all of their aircraft on the center of the **tarmac**, where they can be guarded around the clock. -  
+It would have been just a **cacophony** of noise and a crush of men going in these narrow **passageways**. -  
+The Americans tend to **disparage** the technology prowess of the Japanese. -  
+Once the United States was in the war, with this **stupendous** economic and industrial power, and the allies must in the end, **prevail**. -  
+Roosevelt calls it **dastardly** and evil, he calls it a day of **infamy**. -  
+basically he just **concocts** a **crock** of lies, it is all based on the **flimsiest** of intelligence. -  
+But the planned **knockout** of the RAF on Eagle Day... turns into a **drubbing** for Luftwaffe. -  
+life for the average RAF pilot during August, it's sort of **schizophrenic** existence. -  
+  
 ## HOC4.md ##  
 media/houseOfCards/HOC4.md  
 I'm sure there's some **wariness** about us being here, but I think we have a good plan on how to handle Russia. -  
@@ -9,12 +25,30 @@ I hope you don't **welsh** on your promise to me way you did with Oren. -
 ## HOC3.md ##  
 media/houseOfCards/HOC3.md  
 It was so **endearing**. -  
+Of course it's a **slugfest**, that's doesn't mean we're losing. -  
   
 ## words-July.md ##  
 words/2021/words-July.md  
-His parents went through an **acrimonious** divorce -  
-carefree **insouciant** **lighthearted** -  
-Modern capitalist economy follows its own **immanent** laws. -  
+**prismatic** lens -  
+He is known for his **burning wit** and formidable **erudition**. -  
+I grew to dislike the people from my background – they were uptight and **prissy**. -  
+Littlefinger **hefted** the knife lightly in his hand, testing the grip. -  
+a rigid **dichotomy** between science and **mysticism**. -  
+a **comely** woman coach jogs alongside an **inmate** in the prison yard. -  
+**sewage** **sludge**, **sludge** treatment -  
+It makes me so mysterious, so **enigmatic** -  
+He had a chance to confess and **expiate** his guilt -  
+He is a **misanthropic** **villain**, although he differs from other villains. -  
+The definition of **sedulous** is someone who is **diligent**, hard working and persistent. -  
+She is **assiduous** in her efforts to learn French. -  
+You may imprison my body, actually could not **fetter** my soul. -  
+I start to cut the **cantaloupe** for my sons' breakfast. -  
+the changes must not be allowed to **stymie** new medical treatments. -  
+The actress forgot her lines and had to **extemporize**. -  
+The electricity supply here is quite **erratic**. -  
+Shall I **muster** the crew on the deck? -  
+A **salient** event that attracts your attention will be easily retrieved from memory.   
+some **paprika** for extra flavor. -  
 The rebels **besieged** the **fort**. -  
 A **carper** will **cavil** at anything. -  
 You can only eat or drink in the **canteen**... -  
@@ -26,23 +60,11 @@ The Federal Reserve is literally a banking **cartel**. Plain and simple as that.
 the **peripatetic** nature of military life. -  
 All his **imperious** orders were obeyed -  
 He had been taught to **abhor** people who did this **wicked** thing. -  
-The hostages **emerged** from their **ordeal** **unscathed**. -  
-Something was **niggling** her. -  
-He always makes **inapt** remarks. -  
 I realized I had to **surmount** the language barrier. -  
-the volatility was an **eerie** reminder of how quickly investor sentiment can turn, especially with the unpredictability of the spread of this new COVID-19 variant. -  
-The thing that obviously aligns incentives is to look at education as a **hard-nosed** business **proposition** -  
-There wasn’t a large sense of the scale of what humans can do in **antiquity** -  
-I **desiderate** the resources of a family. -  
 The **dapple** of the deer is yellow. -  
-His tone was **curt** and unfriendly. -  
 **Crucian** **carp**, **grass carp**. -  
-Ginny was **irrepressibly** rebellious. -  
-Her stare was **malevolent**, her mouth a thin line. -  
 BBQ'ing may be the **epitome** of American summer, but it's also a hallmark of pandemic socializing. -  
 Paffrath **extols** the virtues of the FHA 203k loan which enabled him to purchase a home with 3.5% down and borrow the fix up. -  
-Making **banal** **remarks** was one of his bad habits. -  
-In China, each couple is required to carry out a **eugenic** plan strictly -  
 He **dawdled** away his time. -  
 that is the **ineluctable** **modality** of the audible. -  
 To receive a compliment, in many cultures, is to **demur** -  
@@ -54,25 +76,11 @@ words/2021/words-Jun.md
 When you wake up in the morning, tell yourself: The people I deal with today will be **meddling**, **ungrateful**, arrogant, dishonest, jealous, and **surly** -  
 The show was licensed to Spotify last year in an estimated $100 million deal, boosted by a **conceit** that can **at times** seem self-fulfilling -  
 Most of the stories about him are **apocryphal**. -  
-I want a **tuxedo** on the statue. -  
-The **ruckus** **belies** a simple fact. -  
 They **spurn** all our offers of help -  
 He grew lazy and **slovenly** in his habits. -  
 Remember that you must die. **Memento Mori**. -  
 You **mulish** guy, what the hell are you seeking? -  
-I **eschewed** **upbraiding**, I curtailed **remonstrance**. -  
-  
-## words-May.md ##  
-words/2021/words-May.md  
-I was now less happy with and less confident in my grades than I had been earlier, but I recognized that this was a good sign, an indication that the new procedure was **superior**. The consistency I had enjoyed earlier was **spurious** -  
-  
-## words-Feb.md ##  
-words/2021/words-Feb.md  
-Lisa was **rankled** by his assertion -  
-  
-## words-Jan.md ##  
-words/2021/words-Jan.md  
-Is it necessary to decide between **remunerative** work and meaningful work? -  
+The priest **absolved** him of his sins. -  
   
 ## words-Nov.md ##  
 words/2019/words-Nov.md  

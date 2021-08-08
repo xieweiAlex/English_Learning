@@ -1,19 +1,114 @@
 
+Can you drive a car with a manual transmission up an **incline**?  
+Your only **recourse** is legal action  
+
+I'm **afraid for** you vs I'm afraid of you  
+I'm **mad about** you  
+
+**carpal** region.  
+rather than **perching** your palm in front of keyboard, ideally actually you put you weight back into the chair.   
+
+open-source intelligence proved that Russia **shot down** a Malaysian airline over Ukraine in 2014 and provided evidence of the scale of China’s **internment** of the Uyghurs  
+The **decentralized** and **egalitarian** nature of open-source intelligence **erodes** the power of traditional **arbiters** of truth and **falsehood**, in particular of governments and their spies and soldiers. -  
+Because my **assuredness** in **hindsight** is a **fabricated** memory. -   
+I want to believe that my success is the result of my hard work, preparation and **foresight**  
+I fell into the most common trap of a **juvenile** investor and focused exclusively on the outcome  
+I have yet to find a **blemish** in this jobs report. I've never before seen such a wonderful set of economic data.  
+While the US economy is steadily **clawing back** the jobs it lost during the pandemic, the country remains 5.7 million jobs short of where it was pre-Covid.  
+
+**prismatic** lens -  
+**machination**  
+He gave an **ostentatious** yawn.  
+He is known for his **burning wit** and formidable **erudition**. -  
+Here's another subtle yet important **factoid**.   
+I grew to dislike the people from my background – they were uptight and **prissy**. -   
+Littlefinger **hefted** the knife lightly in his hand, testing the grip. -  
+A **callous** indifference to the suffering of others.  
+**miten**  
+**zoonotic**  
+Lucy's **torrent** of **howls** weakened to a snivel.  
+**pejorative** 
+That answer set off an internet **firestorm**.
+He's gone into **detox**.  
+
+Critics argue that the aim is to make **divestiture** more difficult  
+All rescue measures proved **ineffectual**.  
+Hammer and **sickle**  
+He was so **meticulous** about everything.  
+
+**aberrance** **aberrancy**
+**slippy**  
+a rigid **dichotomy** between science and **mysticism**. -  
+She gives **showbiz** parties **a wide berth**.  
+**berth** ticket  
+a **comely** woman coach jogs alongside an **inmate** in the prison yard. - 
+**activism**  
+**sewage** **sludge**, **sludge** treatment -  
+
+It makes me so mysterious, so **enigmatic** -  
+Of these, dark is the most **sinister**, implying an imperfect or clouded revelation, often with ominous **overtones**  
+**Enigmatic** (which traces back to Greek ainissesthai, meaning "to **speak in riddles**") emphasizes a puzzling, mystifying quality, whereas **cryptic** implies a purposely **concealed** meaning  
+**Equivocal** is the best choice for language that is **left open to** differing interpretations with the intention of deceiving or **evading**  
+He had a chance to confess and **expiate** his guilt -  
+economically **feasible**  
+
+He is a **misanthropic** **villain**, although he differs from other villains. -  
+(He was **paranoid**, **self-obsessed** and **misanthropic**)
+Humans were the cause of the **hellscape** that was once planet earth and the matrix.  
+**Friedrich Nietzsche**  
+**Friedrich Engels**, **Friedrich Hegel**   
+The heartbeat was **feeble** and **irregular**.   
+
+I have only **scratched the surface** of their feature sets in keeping with the spirit of this book
+His book **commingles** sarcasm and sadness.  
+The definition of **sedulous** is someone who is **diligent**, hard working and persistent. -  
+She is **assiduous** in her efforts to learn French. -  
+He acted **out of expediency**, not principle.  
+toy **poodle**  
+She made **strenuous** efforts to **tame** her anger.  
+**induction coil**, wire **coil**  
+You may imprison my body, actually could not **fetter** my soul. -  
+I start to cut the **cantaloupe** for my sons' breakfast. -  
+
+the changes must not be allowed to **stymie** new medical treatments. -  
+The actress forgot her lines and had to **extemporize**. -  
+**viscous** fluid, **viscous** force  
+
+He regarded the new job as a distinct **comedown**.  
+He never allows work to **encroach** upon his family life.  
+Cook until the fruit is soft but not **mushy**.  
+The electricity supply here is quite **erratic**. -  
+She has been a **socialite**, actress, fashion designer and artist who married four times.  
+Shall I **muster** the crew on the deck? -  
+FSH **spurs** egg maturation in **ovary**.  
+In fact, he once took a **hiatus** from acting to study shoemaking.  
+I've always loved the **hustle** and **bustle** of big cities.  
+**hustler**.  
+**oligarch** capitalism   
+The next game will be a real test of their **mettle**.  
+In this week’s Millennial Money, we’re discussing the biggest shift in television since the **advent** of cable  
+
+## Week 4 
+> It's tough to feel more obvious than that.  
+
+They observed an **implausibly** high negative correlation between two estimates that their respondents made: the level of benefit and the level of risk that they attributed to the technologies. 
+a **nonevent** that is inflated by the media and the public until it fills our TV screens and becomes all anyone is talking about.
+So I encourage you to look at the trends and not misunderstand and **over-focus** on the **wiggles**  
+
 How do I **square** this?  
 The building **commences** once the down payment is received  
-A **salient** event that attracts your attention will be easily retrieved from memory.  
+A **salient** event that attracts your attention will be easily retrieved from memory. -  
 He lives alone in a **suspiciously** **tidy** apartment.   
 that people who let themselves be guided by System 1 are more strongly **susceptible** to availability biases than others who are in a state of higher vigilance.  
 Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**. -
 
 Biden called on local governments to “take all possible steps” to **disburse** the funds. Evictions could begin as soon as Monday  
 after hours of **wrangling**, Democrats could not muster support to extend the ban  
-
-some **paprika** for extra flavor.  
-His parents went through an **acrimonious** divorce -  
-carefree **insouciant** **lighthearted** -  
-Modern capitalist economy follows its own **immanent** laws. -  
-The group **dissolved** in dissension.  
+some **paprika** for extra flavor. -  
+His parents went through an **acrimonious** divorce  
+carefree **insouciant** **lighthearted**  
+Modern capitalist economy follows its own **immanent** laws.  
+The group **dissolved** in **dissension**.  
 They provided only **skimpy** details.  
 The rebels **besieged** the **fort**. -  
 How to Play **Razz**  
@@ -32,10 +127,8 @@ It would be **futile** to protest.
 Both dogs looked **grimy**.  
 Yet discipline is poor, and the **attrition rate** high.  
 **feral** cat  
-
 **mess hall**, **dinning hall**, **eatery**  
 You can only eat or drink in the **canteen**... -  
-
 He **ogled** at all the attractive girls in the office. -  
 Shares popped 11% yesterday as investors **ogled** over Lucid's sleek-looking EVs and battery stats.  
 I can't have a conversation with you without it turning into a **full on** argument.  
@@ -91,16 +184,16 @@ We don’t try to time the market, and we don’t **fret** when the stocks go up
 You will find the **clay** perfectly **pliable** as long as it stays fairly **moist**  
 
 Google employees say they're unsure which products will **make the cut**.
-The hostages **emerged** from their **ordeal** **unscathed**. -  
+The hostages **emerged** from their **ordeal** **unscathed**.  
 **paralegal**  
-Something was **niggling** her. -  
+Something was **niggling** her.  
 He just flied into rage at such a **peccadillo**!  
-He always makes **inapt** remarks. -  
+He always makes **inapt** remarks.  
 Extra police were called in to **quell** the disturbances.  
 
 I realized I had to **surmount** the language barrier. -  
 Mummy, are you going to the **optician**  
-the volatility was an **eerie** reminder of how quickly investor sentiment can turn, especially with the unpredictability of the spread of this new COVID-19 variant. -   
+the volatility was an **eerie** reminder of how quickly investor sentiment can turn, especially with the unpredictability of the spread of this new COVID-19 variant.  
 Job growth is probably the most important **prognosticator** for real estate demand in home price.  
 Careful you don't **tread** in that **puddle**  
 
@@ -114,25 +207,25 @@ Alexander is in a miserable **plight**.
 The smile was not fake, he actually **spoke at length** about how much he liked his job  
 **busting** their ass to get orders white collar workers, with high pay sitting comfortable in **swanky** offices, ordered.  
 Instead of **pestering** people to work harder, perhaps one should instead realize the importance of investing in people  
-The thing that obviously aligns incentives is to look at education as a **hard-nosed** business **proposition** -  
+The thing that obviously aligns incentives is to look at education as a **hard-nosed** business **proposition**  
 The university has 18 million things that it does for you, and we cut cut off a tiny **sliver** of that, which is: we're going to help you get a better job, we're going to help you improve your state in life  
 You've got all this **latent** human potential, and it's just kind of bouncing around  
 
 it both incredibly useful as a strategy of resilience, and highly commercializable and **pliant** to varying interpretations  
 This came in handy because the years during which Stoicism was developed were full of political **upheaval**  
-There wasn’t a large sense of the scale of what humans can do in **antiquity** -  
+There wasn’t a large sense of the scale of what humans can do in **antiquity**  
 There's **scarcely** a business in the world that isn't a potential customer of DocuSign, and even though the company recently passed its one millionth client, there's no end in sight for its growth  
 Three prisoners are still **on the loose**.   
 **tournament** competition. 
 
 The movie makes no **pretension** to reproduce life.  
-I **desiderate** the resources of a family. -  
+I **desiderate** the resources of a family.  
 Who wants to **put up with** the toughness if you don't love it. 
 **live up to one's words**.  
 
 **FOIA**: Freedom of Information Act  
 The **dapple** of the deer is yellow. -   
-His tone was **curt** and unfriendly. -  
+His tone was **curt** and unfriendly.  
 He spoke with **curt** **finality**.  
 We **condole** with you on your **misfortune**.  
 **reminiscent**, **nostalgia**  
@@ -146,8 +239,8 @@ Roses grew in **profusion** against the old wall.
 **cheat day**  
 **fall short**  
 The show is a **spinoff** of the British show Pop Idol.  
-Ginny was **irrepressibly** rebellious. -  
-Her stare was **malevolent**, her mouth a thin line. -  
+Ginny was **irrepressibly** rebellious.  
+Her stare was **malevolent**, her mouth a thin line.  
 **malevolent** vs **malicious** 
 His article is stuffed with **shibboleth**.   
 BBQ'ing may be the **epitome** of American summer, but it's also a hallmark of pandemic socializing. -  
@@ -159,8 +252,8 @@ Paffrath **extols** the virtues of the FHA 203k loan which enabled him to purcha
 I always get the **jitters** before exams.   
 Hi, guys. I'm sorry I went **bonkers**.  
 She was **dumbfounded** by the terrible news  
-Making **banal** **remarks** was one of his bad habits. -  
-In China, each couple is required to carry out a **eugenic** plan strictly -  
+Making **banal** **remarks** was one of his bad habits.  
+In China, each couple is required to carry out a **eugenic** plan strictly  
 The more you unsubscribe from marketing emails, the less junk you've got **cluttering** up your inbox, and the easier it will be to achieve Inbox Zero.  
 A **dew point** sensor measures air humidity and prevents the Windows from **misting**.  
 He **dawdled** away his time. -  

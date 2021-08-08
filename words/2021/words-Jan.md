@@ -188,7 +188,7 @@ She **grasped** hold of the **banister** to support herself.
 There is a **profusion** of flowers in the garden in summer  
 He acted **in accordance with** his beliefs  
 Police surrounded Twitter HQ this week in preparation of Pro-Trump Rally that **fizzled out**.   
-Is it necessary to decide between **remunerative** work and meaningful work? -  
+Is it necessary to decide between **remunerative** work and meaningful work?  
 inside the remarkable **rift** between Trump and Pence  
 **eggnog**  
 **pyjama**

@@ -168,7 +168,7 @@ That sector has been on fire since November, but today's action was **head-spinn
 
 Rifles and cannons **volleyed** on all sides.  
 He played a backhand **volley**.  
-Lisa was **rankled** by his assertion -  
+Lisa was **rankled** by his assertion  
 The police **vigorously** denied that **excessive** force had been used.  
 
 **sizable**

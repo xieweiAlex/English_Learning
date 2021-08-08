@@ -2,7 +2,7 @@
 ## Week 4  
    
 This is the message of figure 5: the sense of ease or **strain** has multiple causes, and it is difficult to **tease them apart**.  
-I was now less happy with and less confident in my grades than I had been earlier, but I recognized that this was a good sign, an indication that the new procedure was **superior**. The consistency I had enjoyed earlier was **spurious** -  
+I was now less happy with and less confident in my grades than I had been earlier, but I recognized that this was a good sign, an indication that the new procedure was **superior**. The consistency I had enjoyed earlier was **spurious**  
    
 She **outstayed** her opponents and won the race.  
 His **uncomprehending** eyes swept over her time and again  

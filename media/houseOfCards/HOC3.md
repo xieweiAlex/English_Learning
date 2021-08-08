@@ -35,7 +35,7 @@ Enjoy the **Northern light**
 ## E 4  
 You **dust off** some 60-year-old precedent and think you're justified?   
 Just an **unlikely** choice, give how **vociferous** she...  
-Of course it's a **slugfest**, that's doesn't mean we're losing.  
+Of course it's a **slugfest**, that's doesn't mean we're losing. -  
 I'm gonna take **flak** everyday that Corrigan remains in jail.  
 There is protocol, there's basic **decorum**.  
 You wanted to **sideline** me.  

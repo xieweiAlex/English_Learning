@@ -1,4 +1,22 @@
 
+**pejorative**
+
+**susceptible**
+
+**neglectable**
+
+**Equivocal**
+
+**receptive**
+
+**mild-mannered** 
+
+**salient**
+
+## Week 4 
+
+**brunt**
+
 **intriguing**
 
 **slavishly**  
