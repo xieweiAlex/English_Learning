@@ -1,4 +1,8 @@
 
+**encumber**
+
+## July  
+
 **balk**
 
 **pinpoint**

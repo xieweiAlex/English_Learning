@@ -35,7 +35,7 @@ As a scientist, Pigliucci said, he can't accept the idea that the **cosmos** is 
 Pigliucci thinks of the world not as **imbued** with a substance called **logos**, but as a web of **cause and effect**, where things don't happen without causes  
 The Stoics thought that all rational beings were part of the same **cosmopolis**, or community  
 
-The show was licensed to Spotify last year in an estimated $100 million deal, boosted by a **conceit** that can **at times** seem self-fulfilling -  
+The show was licensed to Spotify last year in an estimated $100 million deal, boosted by a **conceit** that can **at times** seem self-fulfilling  
 And if the establishment had its way, Mr. Rogan would surely be **chastened**, “canceled,” reeled in.  
 Some associations can be very **restrictive** about what members can do with their properties  
 An HOA will typically describe its rules in a document called a Declaration of **Covenants**, Conditions, and Restrictions (CCAn HOA will typically describe its rules in a document called a Declaration of **Covenants**, Conditions, and Restrictions (CC&Rs) - Rs)  

@@ -1,93 +1,4 @@
 
-Can you drive a car with a manual transmission up an **incline**?  
-Your only **recourse** is legal action  
-
-I'm **afraid for** you vs I'm afraid of you  
-I'm **mad about** you  
-
-**carpal** region.  
-rather than **perching** your palm in front of keyboard, ideally actually you put you weight back into the chair.   
-
-open-source intelligence proved that Russia **shot down** a Malaysian airline over Ukraine in 2014 and provided evidence of the scale of China’s **internment** of the Uyghurs  
-The **decentralized** and **egalitarian** nature of open-source intelligence **erodes** the power of traditional **arbiters** of truth and **falsehood**, in particular of governments and their spies and soldiers. -  
-Because my **assuredness** in **hindsight** is a **fabricated** memory. -   
-I want to believe that my success is the result of my hard work, preparation and **foresight**  
-I fell into the most common trap of a **juvenile** investor and focused exclusively on the outcome  
-I have yet to find a **blemish** in this jobs report. I've never before seen such a wonderful set of economic data.  
-While the US economy is steadily **clawing back** the jobs it lost during the pandemic, the country remains 5.7 million jobs short of where it was pre-Covid.  
-
-**prismatic** lens -  
-**machination**  
-He gave an **ostentatious** yawn.  
-He is known for his **burning wit** and formidable **erudition**. -  
-Here's another subtle yet important **factoid**.   
-I grew to dislike the people from my background – they were uptight and **prissy**. -   
-Littlefinger **hefted** the knife lightly in his hand, testing the grip. -  
-A **callous** indifference to the suffering of others.  
-**miten**  
-**zoonotic**  
-Lucy's **torrent** of **howls** weakened to a snivel.  
-**pejorative** 
-That answer set off an internet **firestorm**.
-He's gone into **detox**.  
-
-Critics argue that the aim is to make **divestiture** more difficult  
-All rescue measures proved **ineffectual**.  
-Hammer and **sickle**  
-He was so **meticulous** about everything.  
-
-**aberrance** **aberrancy**
-**slippy**  
-a rigid **dichotomy** between science and **mysticism**. -  
-She gives **showbiz** parties **a wide berth**.  
-**berth** ticket  
-a **comely** woman coach jogs alongside an **inmate** in the prison yard. - 
-**activism**  
-**sewage** **sludge**, **sludge** treatment -  
-
-It makes me so mysterious, so **enigmatic** -  
-Of these, dark is the most **sinister**, implying an imperfect or clouded revelation, often with ominous **overtones**  
-**Enigmatic** (which traces back to Greek ainissesthai, meaning "to **speak in riddles**") emphasizes a puzzling, mystifying quality, whereas **cryptic** implies a purposely **concealed** meaning  
-**Equivocal** is the best choice for language that is **left open to** differing interpretations with the intention of deceiving or **evading**  
-He had a chance to confess and **expiate** his guilt -  
-economically **feasible**  
-
-He is a **misanthropic** **villain**, although he differs from other villains. -  
-(He was **paranoid**, **self-obsessed** and **misanthropic**)
-Humans were the cause of the **hellscape** that was once planet earth and the matrix.  
-**Friedrich Nietzsche**  
-**Friedrich Engels**, **Friedrich Hegel**   
-The heartbeat was **feeble** and **irregular**.   
-
-I have only **scratched the surface** of their feature sets in keeping with the spirit of this book
-His book **commingles** sarcasm and sadness.  
-The definition of **sedulous** is someone who is **diligent**, hard working and persistent. -  
-She is **assiduous** in her efforts to learn French. -  
-He acted **out of expediency**, not principle.  
-toy **poodle**  
-She made **strenuous** efforts to **tame** her anger.  
-**induction coil**, wire **coil**  
-You may imprison my body, actually could not **fetter** my soul. -  
-I start to cut the **cantaloupe** for my sons' breakfast. -  
-
-the changes must not be allowed to **stymie** new medical treatments. -  
-The actress forgot her lines and had to **extemporize**. -  
-**viscous** fluid, **viscous** force  
-
-He regarded the new job as a distinct **comedown**.  
-He never allows work to **encroach** upon his family life.  
-Cook until the fruit is soft but not **mushy**.  
-The electricity supply here is quite **erratic**. -  
-She has been a **socialite**, actress, fashion designer and artist who married four times.  
-Shall I **muster** the crew on the deck? -  
-FSH **spurs** egg maturation in **ovary**.  
-In fact, he once took a **hiatus** from acting to study shoemaking.  
-I've always loved the **hustle** and **bustle** of big cities.  
-**hustler**.  
-**oligarch** capitalism   
-The next game will be a real test of their **mettle**.  
-In this week’s Millennial Money, we’re discussing the biggest shift in television since the **advent** of cable  
-
 ## Week 4 
 > It's tough to feel more obvious than that.  
 
@@ -97,7 +8,7 @@ So I encourage you to look at the trends and not misunderstand and **over-focus*
 
 How do I **square** this?  
 The building **commences** once the down payment is received  
-A **salient** event that attracts your attention will be easily retrieved from memory. -  
+A **salient** event that attracts your attention will be easily retrieved from memory.  
 He lives alone in a **suspiciously** **tidy** apartment.   
 that people who let themselves be guided by System 1 are more strongly **susceptible** to availability biases than others who are in a state of higher vigilance.  
 Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**. -

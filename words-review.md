@@ -3,7 +3,6 @@ media/WWII/ww01.md
 From the first **torpedo** **squadron**, only one man survives. -  
 This is America's last shot to kind of check the Japanese and prevent them from making their position **indomitable**. -  
 For the Japanese delegates, it's an **abomination**. -  
-but the Americans were not that **receptive**. -  
 They looked at Americans saw it as ultimate sort of **decadent** power, consumer culture, **materialism**. -  
 He issues an order that requires his air **fields** to put all of their aircraft on the center of the **tarmac**, where they can be guarded around the clock. -  
 It would have been just a **cacophony** of noise and a crush of men going in these narrow **passageways**. -  
@@ -25,17 +24,13 @@ I hope you don't **welsh** on your promise to me way you did with Oren. -
 ## HOC3.md ##  
 media/houseOfCards/HOC3.md  
 It was so **endearing**. -  
-Of course it's a **slugfest**, that's doesn't mean we're losing. -  
   
 ## words-July.md ##  
 words/2021/words-July.md  
 **prismatic** lens -  
 He is known for his **burning wit** and formidable **erudition**. -  
-I grew to dislike the people from my background – they were uptight and **prissy**. -  
 Littlefinger **hefted** the knife lightly in his hand, testing the grip. -  
-a rigid **dichotomy** between science and **mysticism**. -  
 a **comely** woman coach jogs alongside an **inmate** in the prison yard. -  
-**sewage** **sludge**, **sludge** treatment -  
 It makes me so mysterious, so **enigmatic** -  
 He had a chance to confess and **expiate** his guilt -  
 He is a **misanthropic** **villain**, although he differs from other villains. -  
@@ -43,11 +38,8 @@ The definition of **sedulous** is someone who is **diligent**, hard working and 
 She is **assiduous** in her efforts to learn French. -  
 You may imprison my body, actually could not **fetter** my soul. -  
 I start to cut the **cantaloupe** for my sons' breakfast. -  
-the changes must not be allowed to **stymie** new medical treatments. -  
 The actress forgot her lines and had to **extemporize**. -  
 The electricity supply here is quite **erratic**. -  
-Shall I **muster** the crew on the deck? -  
-A **salient** event that attracts your attention will be easily retrieved from memory.   
 some **paprika** for extra flavor. -  
 The rebels **besieged** the **fort**. -  
 A **carper** will **cavil** at anything. -  
@@ -55,12 +47,12 @@ You can only eat or drink in the **canteen**... -
 He **ogled** at all the attractive girls in the office. -  
 We often talk about the Federal Reserve using a **bazooka** to tackle markets and economy. This is bazooka, cannons and tanks all **at once**. -  
 The Federal Reserve is literally a banking **cartel**. Plain and simple as that. -  
-> When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying **washtubs**, not **teaspoons**. -  
+> When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying **washtubs**, not **teaspoons**.   
 
 the **peripatetic** nature of military life. -  
 All his **imperious** orders were obeyed -  
 He had been taught to **abhor** people who did this **wicked** thing. -  
-I realized I had to **surmount** the language barrier. -  
+I realized I had to **surmount** the language barrier.   
 The **dapple** of the deer is yellow. -  
 **Crucian** **carp**, **grass carp**. -  
 BBQ'ing may be the **epitome** of American summer, but it's also a hallmark of pandemic socializing. -  
@@ -70,11 +62,10 @@ that is the **ineluctable** **modality** of the audible. -
 To receive a compliment, in many cultures, is to **demur** -  
 He enjoyed drinking and **jesting** with his **cronies**. -  
 For those reasons, the stock became **au courant** to own, as many traders considered it only a "stay-at-home" stock -  
-  
+
 ## words-Jun.md ##  
 words/2021/words-Jun.md  
 When you wake up in the morning, tell yourself: The people I deal with today will be **meddling**, **ungrateful**, arrogant, dishonest, jealous, and **surly** -  
-The show was licensed to Spotify last year in an estimated $100 million deal, boosted by a **conceit** that can **at times** seem self-fulfilling -  
 Most of the stories about him are **apocryphal**. -  
 They **spurn** all our offers of help -  
 He grew lazy and **slovenly** in his habits. -  

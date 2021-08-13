@@ -1,4 +1,7 @@
 
+I'm **mad about** you  
+I'm **afraid for** you vs I'm afraid of you  
+
 https://7esl.com/phrasal-verbs/
 
 ## Week 1 

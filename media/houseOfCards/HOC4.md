@@ -1,3 +1,8 @@
+
+## E 7  
+You **hurl** accusations, I'll let the press **hurl** facts.  
+Our little **rascal** Lily.  
+
 ## E 4  
 My concern is him **railroading** me on the call.  
 Don't **equivocate**, be confident, you have the leverage.  

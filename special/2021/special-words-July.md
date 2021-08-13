@@ -1,4 +1,17 @@
 
+**clumsy**
+
+**shaky**, **iffy**
+**shady**, **wonky**
+
+**imperative** 
+
+**recourse**
+
+## Week 1 
+
+**bright**
+
 **pejorative**
 
 **susceptible**
