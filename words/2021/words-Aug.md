@@ -1,12 +1,13 @@
 
-surface runoff  
+surface **runoff**  
+Mississippi's US Senate **runoff** election is today.  
 
-His eyes were suffused with tears  
-The gist of something is the main point or key idea.  
-He parried the unwelcome question very skilfully.  
-Because we thrust, we don't parry  
-Yet the dollar remains the linchpin of the global system.  
-That ladder looks a little shaky.  
+His eyes were **suffused** with tears -  
+The **gist** of something is the main point or key idea.  
+He **parried** the unwelcome question very skilfully. -  
+Because we **thrust**, we don't **parry**  
+Yet the dollar remains the **linchpin** of the global system.   
+That **ladder** looks a little **shaky**.  
 The country was **mired** in recession.  
 Mind that cup, you **clumsy** **oaf**! -  
 
