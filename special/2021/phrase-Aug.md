@@ -1,5 +1,9 @@
 
 
+
+**Up to that point**, China had been a center of gravity for Bitcoin mining  
+they discover the Germans are **a spent force**.  
+
 I'm **mad about** you  
 I'm **afraid for** you vs I'm afraid of you  
 

@@ -1,4 +1,102 @@
 
+Alexander is a man of **unquestioned** moral **rectitude**  
+Why do the aged tend to be **taciturn**? -  
+Her singing **evoked** warm **acclamations**.  
+He swore to **abstain** from smoking. -  
+The party now has an **unassailable** lead.  
+That meat smells a bit **iffy** to me.  
+He **dabbled** in the Dark Arts himself in his youth ...  
+You're a good **newscaster**.  
+The plants **transpire** to **give off** more water **vapor**. -  
+You look great in the **mink** coat.  
+The **barbed** wire had **lacerated** her arm. -  
+**marmot**  
+Don't **squabble** over trifles.  
+Ginny was **irrepressibly** rebellious.  
+He wouldn't have accepted such an **inglorious** outcome. -  
+
+Some people do not want to admit that they have **blue blood**.  
+So how do you train your **Muse**? -  
+**lube** oil  
+
+much **obliged**   
+Poverty **obliged** her to live a hard life. -  
+Could you **oblige** me with ten yuan?  
+
+Buyback **Bonanza**  
+**parrot**  
+He is unlikely to **alter** his game plan.  
+The plane landed with a **jolt**.  
+He is **unrivaled** in bravery.  
+One is the **eulogistic** word freedom, and the other is the **opprobrious** word chance. -  
+**suffocate**
+The move mirrors a similar interest shown by Walmart’s **sworn enemy** Amazon, which wants to hire someone to head up cryptocurrency products  
+You’ll be joining a **tight-knit** team with experience at places like xxx.  
+**Stratified** flow, **stratified** society  
+He **glanced** **furtively** at the **stolid** faces of the two detectives. -  
+In that year, two **momentous** discoveries were made.  
+The enemy **infiltrated** our land  
+His face is **etched** onto his brain.  
+He would **repudiate** all debts incurred by his son.  
+**asterisk**  
+
+## Week 2 
+
+His comment was **trenchant** and **perceptive**. -   
+Strait of **Malacca**. -  
+they will give us a better picture of the **waxing and waning** of consumer confidence and spending in the second quarter.  
+The Fed believes supply will eventually catch up with demand, and these pressures should **abate** with time.  
+
+On a **sweltering** July day, an unlikely group arrived at a shooting range in central Texas.  
+**Up to that point**, China had been a center of gravity for Bitcoin mining  
+**Ousted** from the provinces where they’d spent years building a **footprint**, China's fleeing Bitcoin miners are now looking for stability  
+Before they can begin displacing the global financial system with a decentralized, peer-to-peer system of exchange, their needs are suddenly much more **prosaic**: predictable regulation, stable relations with governments, and affordable power -  
+
+Mining Bitcoin resembles an infinite **arms race**  
+The early months of 2021 saw Bitcoin’s value **seesaw**, and as volatility became a concern to Chinese authorities, they acted quickly  
+Here, they are not being evicted, but **courted** -  
+Miners with cash and the ability to commit are in talks with officials about building new facilities near power plants in the **far-flung** corners of Texas’ deregulated grid and in other states, like Wyoming and Nebraska  
+But detractors point out that these facilities are **diverting** an enormous amount of energy from an already strained grid, and toward something that not everyone agrees has value  
+Over barbecue after a recent Bitcoin developers’ meetup in Austin, Texas, the attendees were nothing but **exultant** about the results of the crackdown in China -  
+Everything in Bitcoin **boils down** to trust, the gathered developers agreed  
+But Bitcoiners, like everybody else, are nervous to admit that there might be the same types of flaws in the thing that they **hold dear** -  
+
+An epic **extravaganza** viewed by millions at New Year. -  
+She's beautiful, **vivacious**, and **charming**. -   
+**spinster**  
+One of the many **ramifications** of the Taliban’s **onslaught**: It could pour fuel on the illegal drug market.  
+She was a **hard-bitten** journalist who was suspicious of all forms of authority.  
+The economy still faces **intractable** problems. -  
+We are genuinely concerned about their **whereabouts**.  
+**armistice**  
+**platonic** love  
+**Berate**: To chide or **scold** **vehemently** -  
+
+Prices in Austin have just gone **berserk**, through the roof. -    
+**collective wisdom**  
+Holy **trinity**: Price growth, wage growth, job growth  
+The places that largely **skirted** the last housing crash, they're appreciating so much now, they're building more than ever.  
+
+In the two years leading up to the invasion, Germany and the Soviet Union signed political and economic **pacts** for strategic purposes  
+Third **Reich**  
+The **Wehrmacht**'s diminished forces could no longer attack along the entire Eastern Front, and subsequent operations to **retake** the initiative and drive deep into Soviet territory  
+German troops were heavily **indoctrinated** with anti-Bolshevik, anti-Semitic, and anti-Slavic ideology via movies, radio, lectures, books, and **leaflets**  
+Hitler saw the only solution as conquest—**expropriating** the resources, such as **Lebensraum**, through war that could not be won through failing capitalist system.  
+both economies also became more **isolated** and expanded under conditions of exceptional **autarky**. -  
+
+**Moral wounds** have this **peculiarity**— they may be hidden, but they never close; always painful, always ready to bleed when touched, they remain fresh and open in the heart.
+
+This kind of freedom is **licentious**. -  
+He was **captivated** by her beauty.  
+Twenty million years ago, Idaho was populated by dense **primordial** forest.  
+The police are checking out his **alibi**.  
+The company voted to **enfranchise** its 120 women members.   
+I was a **dunce** at chemistry. -  
+**slapstick** comedy  
+Spender concludes that, in mixed classes, if the girls are as **boisterous** and **pushy** as the boys, they are considered "unladylike", if they are **docile** and quiet, they are ignored.   
+Are you telling me the porn actually **sedated** you?  
+He's gone into **detox**.  
+They only made a **perfunctory** effort. -  
 surface **runoff**  
 Mississippi's US Senate **runoff** election is today.  
 
@@ -11,29 +109,27 @@ That **ladder** looks a little **shaky**.
 The country was **mired** in recession.  
 Mind that cup, you **clumsy** **oaf**! -  
 
-
 She's the prettiest, most **ethereal** romantic heroine in the movies. -  
 You could never eliminate risk, but preparation and training could **attenuate** it.  
 I can't help but feel a **twinge** of envy.  
 He felt a slight **twinge** in his damaged hamstring.  
-dichotomy **corollary**  
+dichotomy **corollary** -  
 I bet you dyed your hair only because you're jealous of my **luscious** hair! -  
 **logarithmic** spiral  
 
 Use an **emollient** for dry skin.  
-**Emollient** **balm**. -  
+**Emollient** **balm**.  
 The value of a true friend is not **estimable**.  
 He took some **anodyne** to relieve the pain. -   
-Their quarterly meetings were **anodyne** affairs. -  
+Their quarterly meetings were **anodyne** affairs.  
 **nepotism**  
 **transgression**  
 I'm gonna **snag** us five pool chairs.  
 The only **snag** is, I can’t afford it!  
-They are willing to **subjugate** their own feelings for the good of the group. -   
-
+They are willing to **subjugate** their own feelings for the good of the group.  
 The **corporal** shouted an order at the men.  
 **Corporal** punishment in public schools is forbidden.  
-I don't want to **encumber** myself with unnecessary luggage. -  
+I don't want to **encumber** myself with unnecessary luggage.  
 Absence of competition makes for **sloth**.  
 The **sloth** spends most of its time hanging **upside down** from the branches  
 All of this is an **egregious** lie.  
@@ -73,7 +169,7 @@ rather than **perching** your palm in front of keyboard, ideally actually you pu
 
 open-source intelligence proved that Russia **shot down** a Malaysian airline over Ukraine in 2014 and provided evidence of the scale of China’s **internment** of the Uyghurs  
 The **decentralized** and **egalitarian** nature of open-source intelligence **erodes** the power of traditional **arbiters** of truth and **falsehood**, in particular of governments and their spies and soldiers. -  
-Because my **assuredness** in **hindsight** is a **fabricated** memory. -   
+Because my **assuredness** in **hindsight** is a **fabricated** memory.  
 I want to believe that my success is the result of my hard work, preparation and **foresight**  
 I fell into the most common trap of a **juvenile** investor and focused exclusively on the outcome  
 I have yet to find a **blemish** in this jobs report. I've never before seen such a wonderful set of economic data.  
@@ -115,7 +211,7 @@ Of these, dark is the most **sinister**, implying an imperfect or clouded revela
 He had a chance to confess and **expiate** his guilt -  
 economically **feasible**  
 
-He is a **misanthropic** **villain**, although he differs from other villains. -  
+He is a **misanthropic** **villain**, although he differs from other villains.  
 (He was **paranoid**, **self-obsessed** and **misanthropic**)
 Humans were the cause of the **hellscape** that was once planet earth and the matrix.  
 **Friedrich Nietzsche**  
@@ -131,7 +227,7 @@ toy **poodle**
 She made **strenuous** efforts to **tame** her anger.  
 **induction coil**, wire **coil**  
 You may imprison my body, actually could not **fetter** my soul. -  
-I start to cut the **cantaloupe** for my sons' breakfast. -  
+I start to cut the **cantaloupe** for my sons' breakfast.  
 
 the changes must not be allowed to **stymie** new medical treatments.  
 The actress forgot her lines and had to **extemporize**. -  

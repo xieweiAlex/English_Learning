@@ -65,7 +65,7 @@ They’d often be just as happy with a front end that home users would **balk at
 It's taken a lot of **ingenuity** and salesmanship to make it happen.  
 We often talk about the Federal Reserve using a **bazooka** to tackle markets and economy. This is bazooka, cannons and tanks all **at once**. -  
 **punchy** pills... have perverse side effect.     
-The Federal Reserve is literally a banking **cartel**. Plain and simple as that. -  
+The Federal Reserve is literally a banking **cartel**. Plain and simple as that.  
 
 I made him **hold off** for another forty-five minutes.  
 After a six-month **probationary** period, her position was confirmed.  
@@ -74,13 +74,13 @@ The battlefield was a scene of utter **carnage**.
 **jughead**, **knucklehead**, **simple-minded**  
 
 Hereafter, we must be cautious how we **vex** her.  
-> When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying **washtubs**, not **teaspoons**. -  
+> When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying **washtubs**, not **teaspoons**.  
 
 **nautical** mile, **nautical** chart.  
 the **peripatetic** nature of military life. -  
 Those individual decisions to drop out collectively amount to society-wide **stratification**.  
 Many of the papers **muse** on the fate of the president.  
-All his **imperious** orders were obeyed -  
+All his **imperious** orders were obeyed  
 **dillydally**  
 Japanese **sumo**.  
 
@@ -102,7 +102,7 @@ He just flied into rage at such a **peccadillo**!
 He always makes **inapt** remarks.  
 Extra police were called in to **quell** the disturbances.  
 
-I realized I had to **surmount** the language barrier. -  
+I realized I had to **surmount** the language barrier.  
 Mummy, are you going to the **optician**  
 the volatility was an **eerie** reminder of how quickly investor sentiment can turn, especially with the unpredictability of the spread of this new COVID-19 variant.  
 Job growth is probably the most important **prognosticator** for real estate demand in home price.  
@@ -180,9 +180,9 @@ BoJack, these people **feed off** controversy.
 He is a possessive, **duplicitous**, and **unreasonable** man.  
 > Stones **whet** a sword, difficulties strengthen willpower.  
 
-that is the **ineluctable** **modality** of the audible. -   
+that is the **ineluctable** **modality** of the audible.  
 To receive a compliment, in many cultures, is to **demur** -  
-He enjoyed drinking and **jesting** with his **cronies**. -  
+He enjoyed drinking and **jesting** with his **cronies**.  
 Tim could barely **conceal** his disappointment.  
 **Nile** river  
 

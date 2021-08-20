@@ -1,7 +1,17 @@
 
+## E 8  
+A **chasm** opened up between them, a hallway less than 10 yards wide.  
+He is **perceptive**. - **uncanny**  
+We had no idea about this sort of **groundswell**.  
+Paper is strict when it comes to **moonlighting**.  
+Edward Meechum was **slain** with the bullets from that very same gun. -  
+the Universal Background check bill has been **deafening** in these last few days.  
+We would like to add one more voice to that **chorus**. -  
+I think we can **pivot**.  
+
 ## E 7  
 You **hurl** accusations, I'll let the press **hurl** facts.  
-Our little **rascal** Lily.  
+Our little **rascal** Lily. -  
 
 ## E 4  
 My concern is him **railroading** me on the call.  
@@ -27,3 +37,5 @@ I hope you don't **welsh** on your promise to me way you did with Oren. -
 American Works is **falling flat**, you campaign manager is ten years behind ten years ago.  
 If a **sliver** of Goodwind's story **holds up**..  
 It's serious ma'am, I can **fill you in** on the way.  
+
+

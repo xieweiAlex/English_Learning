@@ -1,4 +1,12 @@
 
+**inglorious**
+
+**stoical**
+
+**preliminary**
+
+## Week 2 
+
 **perceptive**
 
 **indoctrinate**
