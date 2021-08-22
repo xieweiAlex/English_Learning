@@ -1,4 +1,10 @@
 
+**endearing**
+
+**derisive**  
+
+**exultant**
+
 **inglorious**
 
 **stoical**

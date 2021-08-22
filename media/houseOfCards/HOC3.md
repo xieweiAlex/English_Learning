@@ -11,7 +11,7 @@ I'm trying to **salvage** the situation.
 If they don't like the job I'm doing, they **topple** statues.  
 Is the gay propaganda law **barbaric**? Yes.  
 **no stone left unturned** when the first lady in town.  
-It was so **endearing**. -  
+It was so **endearing**.  
 She's **dead set on** convincing this guy for your benefit.  
 
 

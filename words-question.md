@@ -1,5 +1,5 @@
 
-
+* ecstatic vs exultant vs elated 
 * Buckle up vs Buckle down 
 * disdain, scorn, despise, spurn
 * sardonic, sarcastic 

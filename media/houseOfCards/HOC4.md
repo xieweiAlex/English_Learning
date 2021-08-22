@@ -4,9 +4,9 @@ A **chasm** opened up between them, a hallway less than 10 yards wide.
 He is **perceptive**. - **uncanny**  
 We had no idea about this sort of **groundswell**.  
 Paper is strict when it comes to **moonlighting**.  
-Edward Meechum was **slain** with the bullets from that very same gun. -  
+Edward Meechum was **slain** with the bullets from that very same gun.  
 the Universal Background check bill has been **deafening** in these last few days.  
-We would like to add one more voice to that **chorus**. -  
+We would like to add one more voice to that **chorus**.  
 I think we can **pivot**.  
 
 ## E 7  
@@ -21,9 +21,9 @@ Don't **equivocate**, be confident, you have the leverage.
 If Donald wants my counsel, that's his **prerogative**.  
 > I imagine I'm the last person you expected to see today.  
 
-I'm sure there's some **wariness** about us being here, but I think we have a good plan on how to handle Russia. -    
-Of course, he'd have a **conniption** **fit** if he knew I were in the Oval Office. -  
-Really, Viktor? Are we gonna **dredge** that **up**? -  
+I'm sure there's some **wariness** about us being here, but I think we have a good plan on how to handle Russia.  
+Of course, he'd have a **conniption** **fit** if he knew I were in the Oval Office.  
+Really, Viktor? Are we gonna **dredge** that **up**?  
 I'm not here for **sightseeing trip**, Mr. President.  
 Francis needs a **liver**, and I need a **bailout**.  
 You fly in, you **puff up** your chest, and you pretend to play president.  

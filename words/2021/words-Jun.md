@@ -134,13 +134,13 @@ ByteDance, the Chinese company behind the **smash-hit** video app TikTok, saw it
 The net loss was attributed to a **one-off** accounting adjustment and not related to the company's operations.  
 In addition, China announced this week it would begin selling industrial metals out of government reserves in an effort to **tamp down** the rising cost of materials.  
   
-They **spurn** all our offers of help -  
+They **spurn** all our offers of help  
 Their eyes were full of friendliness and **bonhomie**.  
 This **precept** has guided U.S. government policy for 30 years.  
 **preceptor**  
   
 **synergy** effect  
-He grew lazy and **slovenly** in his habits. -  
+He grew lazy and **slovenly** in his habits.  
   
 **huffy**, **puffy**, **fluffy**, **poofy**  
 an **intricate** fraud  

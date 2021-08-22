@@ -1,6 +1,45 @@
 
-Alexander is a man of **unquestioned** moral **rectitude**  
+## Week 3 
+
+He delivered the speech in his own **inimitable** style.  
+A **dearth** of corn caused the prices to go up  
+There is nothing so **sanative** as a walk in the woods. -  
+**conjoin**  
+The report is based entirely on **supposition**.  
+
+**Stainless** steel  
+**penicillin**  
+**pacifist** allies  
+Although the Chinese have **immense** mobilizational abilities  
+**salmonella**  
+**tight ship**  
+A couple of **tavern** **wenches** to warm our beds tonight.  
+**academic** **dissertation**  
+Road under repair. No **thoroughfare**. -  
+
+Her boredom was **acute** and **ever present**. -  
+**Omnipresence**  
+**Academy** award.  
+**Baltic Sea**  
+**green peas**  
+
+Your silence **implies** **tacit** consent to these proposals. - 
 Why do the aged tend to be **taciturn**? -  
+She was alone and unloved, but she did not **repine**. -  
+She always looks **immaculate**. -  
+The two sides called a **truce** to avoid further **bloodshed**.   
+The air was **frosty**.  
+She was still at the **pinnacle** of her career. -  
+**breadboard**  
+The women have **lustrous** **cascades** of black hair.  
+Huge chimneys **belched** forth smoke and **grime**. -  
+
+He has a **rather** **tenuous** grasp of reality.  
+With the recent drop in consumer sentiment and services spending, those job gains may be **tenuous**  
+Facebook called the lawsuit “**meritless**,” and had petitioned the FTC to have newly-appointed chair Lina Khan **recuse** herself from the vote because of critical comments she has made about Big Tech  
+Did you check the map? Ohio is like a giant **turd**.  
+
+Alexander is a man of **unquestioned** moral **rectitude** -  
 Her singing **evoked** warm **acclamations**.  
 He swore to **abstain** from smoking. -  
 The party now has an **unassailable** lead.  
@@ -11,12 +50,11 @@ The plants **transpire** to **give off** more water **vapor**. -
 You look great in the **mink** coat.  
 The **barbed** wire had **lacerated** her arm. -  
 **marmot**  
-Don't **squabble** over trifles.  
+Don't **squabble** over **trifles**. -  
 Ginny was **irrepressibly** rebellious.  
 He wouldn't have accepted such an **inglorious** outcome. -  
-
 Some people do not want to admit that they have **blue blood**.  
-So how do you train your **Muse**? -  
+So how do you train your **Muse**?  
 **lube** oil  
 
 much **obliged**   
@@ -46,7 +84,6 @@ His comment was **trenchant** and **perceptive**. -
 Strait of **Malacca**. -  
 they will give us a better picture of the **waxing and waning** of consumer confidence and spending in the second quarter.  
 The Fed believes supply will eventually catch up with demand, and these pressures should **abate** with time.  
-
 On a **sweltering** July day, an unlikely group arrived at a shooting range in central Texas.  
 **Up to that point**, China had been a center of gravity for Bitcoin mining  
 **Ousted** from the provinces where they’d spent years building a **footprint**, China's fleeing Bitcoin miners are now looking for stability  
@@ -54,19 +91,19 @@ Before they can begin displacing the global financial system with a decentralize
 
 Mining Bitcoin resembles an infinite **arms race**  
 The early months of 2021 saw Bitcoin’s value **seesaw**, and as volatility became a concern to Chinese authorities, they acted quickly  
-Here, they are not being evicted, but **courted** -  
+Here, they are not being evicted, but **courted**  
 Miners with cash and the ability to commit are in talks with officials about building new facilities near power plants in the **far-flung** corners of Texas’ deregulated grid and in other states, like Wyoming and Nebraska  
 But detractors point out that these facilities are **diverting** an enormous amount of energy from an already strained grid, and toward something that not everyone agrees has value  
-Over barbecue after a recent Bitcoin developers’ meetup in Austin, Texas, the attendees were nothing but **exultant** about the results of the crackdown in China -  
+Over barbecue after a recent Bitcoin developers’ meetup in Austin, Texas, the attendees were nothing but **exultant** about the results of the crackdown in China  
 Everything in Bitcoin **boils down** to trust, the gathered developers agreed  
-But Bitcoiners, like everybody else, are nervous to admit that there might be the same types of flaws in the thing that they **hold dear** -  
+But Bitcoiners, like everybody else, are nervous to admit that there might be the same types of flaws in the thing that they **hold dear**  
 
-An epic **extravaganza** viewed by millions at New Year. -  
+An epic **extravaganza** viewed by millions at New Year.  
 She's beautiful, **vivacious**, and **charming**. -   
 **spinster**  
 One of the many **ramifications** of the Taliban’s **onslaught**: It could pour fuel on the illegal drug market.  
 She was a **hard-bitten** journalist who was suspicious of all forms of authority.  
-The economy still faces **intractable** problems. -  
+The economy still faces **intractable** problems.  
 We are genuinely concerned about their **whereabouts**.  
 **armistice**  
 **platonic** love  
@@ -96,20 +133,20 @@ I was a **dunce** at chemistry. -
 Spender concludes that, in mixed classes, if the girls are as **boisterous** and **pushy** as the boys, they are considered "unladylike", if they are **docile** and quiet, they are ignored.   
 Are you telling me the porn actually **sedated** you?  
 He's gone into **detox**.  
-They only made a **perfunctory** effort. -  
+They only made a **perfunctory** effort.  
 surface **runoff**  
 Mississippi's US Senate **runoff** election is today.  
 
 His eyes were **suffused** with tears -  
 The **gist** of something is the main point or key idea.  
-He **parried** the unwelcome question very skilfully. -  
+He **parried** the unwelcome question very skilfully.  
 Because we **thrust**, we don't **parry**  
 Yet the dollar remains the **linchpin** of the global system.   
 That **ladder** looks a little **shaky**.  
 The country was **mired** in recession.  
 Mind that cup, you **clumsy** **oaf**! -  
 
-She's the prettiest, most **ethereal** romantic heroine in the movies. -  
+She's the prettiest, most **ethereal** romantic heroine in the movies.  
 You could never eliminate risk, but preparation and training could **attenuate** it.  
 I can't help but feel a **twinge** of envy.  
 He felt a slight **twinge** in his damaged hamstring.  
@@ -120,7 +157,7 @@ I bet you dyed your hair only because you're jealous of my **luscious** hair! -
 Use an **emollient** for dry skin.  
 **Emollient** **balm**.  
 The value of a true friend is not **estimable**.  
-He took some **anodyne** to relieve the pain. -   
+He took some **anodyne** to relieve the pain.  
 Their quarterly meetings were **anodyne** affairs.  
 **nepotism**  
 **transgression**  
@@ -136,13 +173,13 @@ All of this is an **egregious** lie.
 **ornate**  
 The family honor is **at stake**.  
 the **mouthwatering** aroma of a baking pie.  
-There is no crisis that **compels** **hasty** legislation -  
+There is no crisis that **compels** **hasty** legislation  
 
 ## Week 1 
 
 This was a **fiendish** act of **wickedness**.  -  
-In that year, two **momentous** discoveries were made. -  
-**contumacious** headstrong, **contumacy** -     
+In that year, two **momentous** discoveries were made.  
+**contumacious** headstrong, **contumacy**  
 **trident**  
 **dribble**  
 **chronicle**  
@@ -168,7 +205,7 @@ I'm **mad about** you
 rather than **perching** your palm in front of keyboard, ideally actually you put you weight back into the chair.   
 
 open-source intelligence proved that Russia **shot down** a Malaysian airline over Ukraine in 2014 and provided evidence of the scale of China’s **internment** of the Uyghurs  
-The **decentralized** and **egalitarian** nature of open-source intelligence **erodes** the power of traditional **arbiters** of truth and **falsehood**, in particular of governments and their spies and soldiers. -  
+The **decentralized** and **egalitarian** nature of open-source intelligence **erodes** the power of traditional **arbiters** of truth and **falsehood**, in particular of governments and their spies and soldiers.  
 Because my **assuredness** in **hindsight** is a **fabricated** memory.  
 I want to believe that my success is the result of my hard work, preparation and **foresight**  
 I fell into the most common trap of a **juvenile** investor and focused exclusively on the outcome  
@@ -181,7 +218,7 @@ He gave an **ostentatious** yawn. -
 He is known for his **burning wit** and formidable **erudition**. -  
 Here's another subtle yet important **factoid**.   
 I grew to dislike the people from my background – they were uptight and **prissy**.  
-Littlefinger **hefted** the knife lightly in his hand, testing the grip. -  
+Littlefinger **hefted** the knife lightly in his hand, testing the grip.  
 A **callous** indifference to the suffering of others.  
 **miten**  
 **zoonotic**  
@@ -200,11 +237,11 @@ He was so **meticulous** about everything.
 a rigid **dichotomy** between science and **mysticism**.  
 She gives **showbiz** parties **a wide berth**.  
 **berth** ticket  
-a **comely** woman coach jogs alongside an **inmate** in the prison yard. - 
+a **comely** woman coach jogs alongside an **inmate** in the prison yard.  
 **activism**  
 **sewage** **sludge**, **sludge** treatment  
 
-It makes me so mysterious, so **enigmatic** -  
+It makes me so mysterious, so **enigmatic**  
 Of these, dark is the most **sinister**, implying an imperfect or clouded revelation, often with ominous **overtones**  
 **Enigmatic** (which traces back to Greek ainissesthai, meaning "to **speak in riddles**") emphasizes a puzzling, mystifying quality, whereas **cryptic** implies a purposely **concealed** meaning  
 **Equivocal** is the best choice for language that is **left open to** differing interpretations with the intention of deceiving or **evading**  
@@ -236,7 +273,7 @@ The actress forgot her lines and had to **extemporize**. -
 He regarded the new job as a distinct **comedown**.  
 He never allows work to **encroach** upon his family life.  
 Cook until the fruit is soft but not **mushy**.  
-The electricity supply here is quite **erratic**. -  
+The electricity supply here is quite **erratic**.  
 She has been a **socialite**, actress, fashion designer and artist who married four times.  
 Shall I **muster** the crew on the deck?  
 FSH **spurs** egg maturation in **ovary**.  

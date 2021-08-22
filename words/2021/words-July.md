@@ -15,13 +15,13 @@ Estimates of causes of death are **warped** by media coverage. The coverage is i
 
 Biden called on local governments to “take all possible steps” to **disburse** the funds. Evictions could begin as soon as Monday  
 after hours of **wrangling**, Democrats could not muster support to extend the ban  
-some **paprika** for extra flavor. -  
+some **paprika** for extra flavor.  
 His parents went through an **acrimonious** divorce  
 carefree **insouciant** **lighthearted**  
 Modern capitalist economy follows its own **immanent** laws.  
 The group **dissolved** in **dissension**.  
 They provided only **skimpy** details.  
-The rebels **besieged** the **fort**. -  
+The rebels **besieged** the **fort**.  
 How to Play **Razz**  
 
 > The table is **tilted**, the game is rigged.  
@@ -135,7 +135,7 @@ Who wants to **put up with** the toughness if you don't love it.
 **live up to one's words**.  
 
 **FOIA**: Freedom of Information Act  
-The **dapple** of the deer is yellow. -   
+The **dapple** of the deer is yellow.  
 His tone was **curt** and unfriendly.  
 He spoke with **curt** **finality**.  
 We **condole** with you on your **misfortune**.  
@@ -154,7 +154,7 @@ Ginny was **irrepressibly** rebellious.
 Her stare was **malevolent**, her mouth a thin line.  
 **malevolent** vs **malicious** 
 His article is stuffed with **shibboleth**.   
-BBQ'ing may be the **epitome** of American summer, but it's also a hallmark of pandemic socializing. -  
+BBQ'ing may be the **epitome** of American summer, but it's also a hallmark of pandemic socializing.  
 The best storytellers always define a clear purpose **prior to** **crafting** their story.  
 > Do you have a **burning desire** to tell this story? If so, why?  
 
@@ -167,7 +167,7 @@ Making **banal** **remarks** was one of his bad habits.
 In China, each couple is required to carry out a **eugenic** plan strictly  
 The more you unsubscribe from marketing emails, the less junk you've got **cluttering** up your inbox, and the easier it will be to achieve Inbox Zero.  
 A **dew point** sensor measures air humidity and prevents the Windows from **misting**.  
-He **dawdled** away his time. -  
+He **dawdled** away his time.  
 You have my interest **piqued**.  
 Artificial intelligence (AI) recommendation algorithm responsible for TikTok’s **meteoric rise** to the top of the social media digital entertainment **landscape**.  
 TikTok focuses on **serendipitous** discovery powered by its AI recommendation engine  
