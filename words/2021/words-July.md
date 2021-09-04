@@ -63,7 +63,7 @@ If you’re **paring down** your accounts, don’t close your oldest credit card
 
 They’d often be just as happy with a front end that home users would **balk at** for its ugliness as a front end that typical home users would love  
 It's taken a lot of **ingenuity** and salesmanship to make it happen.  
-We often talk about the Federal Reserve using a **bazooka** to tackle markets and economy. This is bazooka, cannons and tanks all **at once**. -  
+We often talk about the Federal Reserve using a **bazooka** to tackle markets and economy. This is bazooka, cannons and tanks all **at once**.  
 **punchy** pills... have perverse side effect.     
 The Federal Reserve is literally a banking **cartel**. Plain and simple as that.  
 

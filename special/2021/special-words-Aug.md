@@ -1,4 +1,27 @@
 
+**disciple**
+
+**apocalyptic**
+
+**vigilant**  
+
+**perpetuate**  
+
+**misinterpret**
+
+## Week 4 
+
+**dumbfound**
+
+**prosaic**
+
+**trifles**
+
+**tortuous**
+**tumultuous** 
+
+## Week 3 
+
 **endearing**
 
 **derisive**  

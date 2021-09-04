@@ -17,7 +17,7 @@ Before exiting the plane a baggage **carousel** was announced.
 
 like Stoicism, can both be a **boon** for individual and **collective** mental wellbeing, and also a **stand-in** for more meaningful measures or activism  
 it both incredibly useful as a strategy of resilience, and highly **commercializable** and **pliant** to varying interpretations  
-When you wake up in the morning, tell yourself: The people I deal with today will be **meddling**, **ungrateful**, arrogant, dishonest, jealous, and **surly** -  
+When you wake up in the morning, tell yourself: The people I deal with today will be **meddling**, **ungrateful**, arrogant, dishonest, jealous, and **surly**  
 > Any **distress** that comes from such events comes from your reactions to them, which you can modify for the better  
 
 The Greek world was upturned by Alexander the Great and his **Macedonian** armies, and there was a pandemic to contend with, too  
@@ -155,7 +155,7 @@ the rising confidence of the consumer (the Consumer Sentiment report on Friday i
 Netflix launches an online **merch** shop  
   
 He'd got his revenge now, and **in spades**  
-The **telltale** smell of cigarettes told her that he had been in the room.  
+The **telltale** smell of cigarettes told her that he had been in the room. -  
 The last question may seem dumb or even **callous**.  
 Everything about the affair was **repugnant** to her.  
 Once again, he completely **ripped me off**.  
@@ -182,7 +182,7 @@ Watch Ricky. He sometimes likes to **act up** in class.
   
 I have had enough **obloquy** for one lifetime.  
 Few words carry stronger **obloquy** than **slumlord**  
-You **mulish** guy, what the hell are you seeking? -  
+You **mulish** guy, what the hell are you seeking?  
 **crater**  
 She is such a **gregarious** and outgoing person.  
 He made a **wisecrack** about my ability.  

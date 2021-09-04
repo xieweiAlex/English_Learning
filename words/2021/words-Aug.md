@@ -1,5 +1,112 @@
 
+We know big tech stocks made a comeback, but the list of the best performers shows a **hodgepodge** of companies across sectors. -   
+
+he endeavored to **moralize** an immoral society. -  
+**tangly**: full of **tangles** or knots : intricate.  
+We're all a bit **gauche** when we're young.  
+**springboard** diving  
+He got rich by **devious** **means**. -  
+
+His voice was **husky** with grief.
+This young man had all the **inclination** to be a **profligate** of the first water. 
+he succumbed to drink and a **profligate** lifestyle. -  
+a **commendatory** letter.  
+**Novice** **rookie** **neophyte** **tyro**. -  
+**chipmunk**  
+Here's a **barf** bag.  
+Ben's getting a little **testy** in his old age. -  
+She gave a sharp **toot** on her horn. -  
+Do not just spout marketing **spiel** or you will quickly lose followers.  
+You're on mute... Now repeat the 30-second **spiel**. -  
+
+Don't **sprain** a finger.  
+Pinduoduo’s sales still **trail** Alibaba’s, but it’s growing faster. -  
+She even **concocted** the story of the wager.  
+Anywho, the staff would take the mushrooms, unwashed and still covered in dirt, and dump them into the **batter** which was a **concoction** of flour, salt and a **lemon lime** soda as the liquid. -  
+Social Security **Shortfall**.  
+The Social Security Trust Fund will be **deficit spending** again this year, according to its annual report, released earlier today.  
+**Paltry** government bond yields and money market funds still aren't offering an attractive alternative to stocks
+In addition, lower immigration and **child-bearing** this year and next are contributing to the shortfall.  
+
+That's why Obama can meet the troop **drawdown** deadline.   
+we've no **vital interest** in Afghanistan.  
+Your presidency and legacy will forever be labeled as a **abject** failure of leadership. -  
+
+Do **sadistic** films deprave the viewers? -  
+There's not a **vestige** of truth in the rumour.
+
+And while Stripe’s mission to “increase the GDP of the Internet” is **impelled** by powerful global tailwinds, the company is also arguably overvalued, **beset** by real competition, and attempting a delicate balancing act between serving SMBs and enterprises.  
+At the incubator, the Collisons were encouraged to join forces with another **precocious** **duo**, united by family bonds.  
+
+It was all highly **implausible**.  
+The teacher made the **rowdy** class quiet down. -  
+**slapstick** comedy  
+These men look a bit **drippy**.  
+The face was all **slimy** and **drippy**, but it wasn't crawling with **maggots** or anything disgusting. -  
+
+For years, the couple's **tempestuous** relationship made the headlines. -  
+I always think it's better to **broach** these things **head-on**.  
+No. She broke up with me before I could **broach** the subject. -   
+**vituperate**  
+She wondered how she had got into this **unholy** mess.  
+The climax came one **sultry** August evening. -  
+Supply chains remain **discombobulated** as US retailers rush to bring in goods from Asia ahead of the holiday shopping season.  
+The Taliban are telling some farmers to stop cultivating opium **poppies** as the group tries to gain wider international acceptance, per the WSJ.  
+this new **state of affairs** is somehow sustainable and viable economic **symbiotic** relationship between America and the rest of the world. -  
+The Big Shot Michael Burry buys Real Assets **hand over fist**.  
+
+## Week 4 
+He was **reprimanded** for playing **truant**. -   
+The boy was **enthralled** by the stories of adventure. -  
+He was a **stand-in** for my regular doctor.  
+
+**Undivided attention** 
+The oldest **extant** document is dated 1492. -  
+My normal **markup**'s 20 percent. But this is a specialty item.  
+The army **put down** the rebellion.  
+She finally agreed to have the **wretched** animal **put down**.  
+During the **flush times**, salespeople were **surly**, waiters **snobby**. -
+
+The Verge found that Rogan's influence has diminished since he went to **frolic** in Spotify’s **walled garden**.   
+Jackson Hole **Symposium**  
+Moving your security from **tactical** to **strategic**  
+**dumbfound**
+Hamilton looks **crestfallen**. -  
+**oil shale**  
+The water is filthy with **fecal matter**.  
+She **gallantly** battled on alone.  
+They are **time-bound**.  
+**Intestinal** tract, **intestinal** flora   
+
+Her behaviour was **exemplary**.  
+You must have managed to escape, you clever, **ingenious**, intelligent Toad!  
+Soap does not **lather** well in hard water.  
+They joked about his **ineptitude**.  
+We do not want any **extraneous** information on the page. -  
+**false dichotomy**  
+**weep** and **sniffle**  
+
+**Invariably**, everyone feels late when they arrive.  There are endless examples of people **lamenting** how late they were in 2011 or 2013 or 2016, when Bitcoin’s price was $5, $100, and $600, respectively  
+Bitcoin **maximalists**  (gone **snorkeling**)
+Throw a few dollars into Bitcoin in the hopes that maybe you hit the **jackpot**, like you might do with lottery tickets  
+Cook proved that he could lead the company though **tumultuous** times, and has been an important voice for social justice and civil rights in the process  
+
+investor anxiety is **percolating**, according to the Investopedia Anxiety Index, and Goldman Sachs Sentiment Indicator. -  
+Last week, the FDA said all adults vaccinated with the Pfizer-BioNTech or Moderna vaccines could get booster shots after research indicated the initial doses lose some **potency** over time.  
+
+He had a considerable Elizabethan library to **delve** in.  
+Very dirty can be filthy or **squalid**. -  
+**wine and dine**  
+
+**claustrophobic**
+**bulimic**  
+"But my **horoscope** said..." - "We DEFINATELY don't go THERE!" -  
+
 ## Week 3 
+If you have feedback, story tips, or any other recommendations, I'm **all ears**.  
+Focus Blocks are my **oasis**. Focus Blocks are my time away from the storms of life.  
+I see surging demand in the economy and strong corporate profits, while the Fed seems to be more **fixated** on the unemployment rate being slightly higher than they want it to be.  
+It’s not wind **turbines** or solar panels  
 
 He delivered the speech in his own **inimitable** style.  
 A **dearth** of corn caused the prices to go up  
@@ -15,9 +122,9 @@ Although the Chinese have **immense** mobilizational abilities
 **tight ship**  
 A couple of **tavern** **wenches** to warm our beds tonight.  
 **academic** **dissertation**  
-Road under repair. No **thoroughfare**. -  
+Road under repair. No **thoroughfare**.  
 
-Her boredom was **acute** and **ever present**. -  
+Her boredom was **acute** and **ever present**.  
 **Omnipresence**  
 **Academy** award.  
 **Baltic Sea**  
@@ -25,14 +132,14 @@ Her boredom was **acute** and **ever present**. -
 
 Your silence **implies** **tacit** consent to these proposals. - 
 Why do the aged tend to be **taciturn**? -  
-She was alone and unloved, but she did not **repine**. -  
-She always looks **immaculate**. -  
+She was alone and unloved, but she did not **repine**.  
+She always looks **immaculate**.  
 The two sides called a **truce** to avoid further **bloodshed**.   
 The air was **frosty**.  
-She was still at the **pinnacle** of her career. -  
+She was still at the **pinnacle** of her career.  
 **breadboard**  
 The women have **lustrous** **cascades** of black hair.  
-Huge chimneys **belched** forth smoke and **grime**. -  
+Huge chimneys **belched** forth smoke and **grime**.  
 
 He has a **rather** **tenuous** grasp of reality.  
 With the recent drop in consumer sentiment and services spending, those job gains may be **tenuous**  
@@ -41,18 +148,18 @@ Did you check the map? Ohio is like a giant **turd**.
 
 Alexander is a man of **unquestioned** moral **rectitude** -  
 Her singing **evoked** warm **acclamations**.  
-He swore to **abstain** from smoking. -  
+He swore to **abstain** from smoking.  
 The party now has an **unassailable** lead.  
 That meat smells a bit **iffy** to me.  
 He **dabbled** in the Dark Arts himself in his youth ...  
 You're a good **newscaster**.  
-The plants **transpire** to **give off** more water **vapor**. -  
+The plants **transpire** to **give off** more water **vapor**.  
 You look great in the **mink** coat.  
-The **barbed** wire had **lacerated** her arm. -  
+The **barbed** wire had **lacerated** her arm.  
 **marmot**  
-Don't **squabble** over **trifles**. -  
+Don't **squabble** over **trifles**.  
 Ginny was **irrepressibly** rebellious.  
-He wouldn't have accepted such an **inglorious** outcome. -  
+He wouldn't have accepted such an **inglorious** outcome.  
 Some people do not want to admit that they have **blue blood**.  
 So how do you train your **Muse**?  
 **lube** oil  
@@ -62,7 +169,7 @@ Poverty **obliged** her to live a hard life. -
 Could you **oblige** me with ten yuan?  
 
 Buyback **Bonanza**  
-**parrot**  
+Generations of students have learned to **parrot** the standard explanations. -  
 He is unlikely to **alter** his game plan.  
 The plane landed with a **jolt**.  
 He is **unrivaled** in bravery.  
@@ -87,7 +194,7 @@ The Fed believes supply will eventually catch up with demand, and these pressure
 On a **sweltering** July day, an unlikely group arrived at a shooting range in central Texas.  
 **Up to that point**, China had been a center of gravity for Bitcoin mining  
 **Ousted** from the provinces where they’d spent years building a **footprint**, China's fleeing Bitcoin miners are now looking for stability  
-Before they can begin displacing the global financial system with a decentralized, peer-to-peer system of exchange, their needs are suddenly much more **prosaic**: predictable regulation, stable relations with governments, and affordable power -  
+Before they can begin displacing the global financial system with a decentralized, peer-to-peer system of exchange, their needs are suddenly much more **prosaic**: predictable regulation, stable relations with governments, and affordable power  
 
 Mining Bitcoin resembles an infinite **arms race**  
 The early months of 2021 saw Bitcoin’s value **seesaw**, and as volatility became a concern to Chinese authorities, they acted quickly  
@@ -99,7 +206,7 @@ Everything in Bitcoin **boils down** to trust, the gathered developers agreed
 But Bitcoiners, like everybody else, are nervous to admit that there might be the same types of flaws in the thing that they **hold dear**  
 
 An epic **extravaganza** viewed by millions at New Year.  
-She's beautiful, **vivacious**, and **charming**. -   
+She's beautiful, **vivacious**, and **charming**.  
 **spinster**  
 One of the many **ramifications** of the Taliban’s **onslaught**: It could pour fuel on the illegal drug market.  
 She was a **hard-bitten** journalist who was suspicious of all forms of authority.  
@@ -123,7 +230,7 @@ both economies also became more **isolated** and expanded under conditions of ex
 
 **Moral wounds** have this **peculiarity**— they may be hidden, but they never close; always painful, always ready to bleed when touched, they remain fresh and open in the heart.
 
-This kind of freedom is **licentious**. -  
+This kind of freedom is **licentious**.  
 He was **captivated** by her beauty.  
 Twenty million years ago, Idaho was populated by dense **primordial** forest.  
 The police are checking out his **alibi**.  
@@ -137,14 +244,14 @@ They only made a **perfunctory** effort.
 surface **runoff**  
 Mississippi's US Senate **runoff** election is today.  
 
-His eyes were **suffused** with tears -  
+His eyes were **suffused** with tears  
 The **gist** of something is the main point or key idea.  
 He **parried** the unwelcome question very skilfully.  
 Because we **thrust**, we don't **parry**  
 Yet the dollar remains the **linchpin** of the global system.   
 That **ladder** looks a little **shaky**.  
 The country was **mired** in recession.  
-Mind that cup, you **clumsy** **oaf**! -  
+Mind that cup, you **clumsy** **oaf**!  
 
 She's the prettiest, most **ethereal** romantic heroine in the movies.  
 You could never eliminate risk, but preparation and training could **attenuate** it.  
@@ -190,7 +297,7 @@ She attended lectures only **sporadically**.
 **ensconce**  
 
 The Winklevoss twins were his perfect **foils**: buttoned-down “Men of Harvard,” privileged **jocks** who, in many ways easy to see, appeared to represent the “Establishment.” -
-the **mugginess** can become quite overwhelming. -  
+the **mugginess** can become quite overwhelming.  
 
 I still remember his **sly smile** as he said tentatively, “computer scientist?”  
 “I know this report is absolutely **damning**, and it may be based on solid evidence, but how sure are we?  
@@ -212,10 +319,10 @@ I fell into the most common trap of a **juvenile** investor and focused exclusiv
 I have yet to find a **blemish** in this jobs report. I've never before seen such a wonderful set of economic data.  
 While the US economy is steadily **clawing back** the jobs it lost during the pandemic, the country remains 5.7 million jobs short of where it was pre-Covid.  
 
-**prismatic** lens -  
+**prismatic** lens  
 **machination**  
 He gave an **ostentatious** yawn. -  
-He is known for his **burning wit** and formidable **erudition**. -  
+He is known for his **burning wit** and formidable **erudition**.  
 Here's another subtle yet important **factoid**.   
 I grew to dislike the people from my background – they were uptight and **prissy**.  
 Littlefinger **hefted** the knife lightly in his hand, testing the grip.  
@@ -263,7 +370,7 @@ He acted **out of expediency**, not principle.
 toy **poodle**  
 She made **strenuous** efforts to **tame** her anger.  
 **induction coil**, wire **coil**  
-You may imprison my body, actually could not **fetter** my soul. -  
+You may imprison my body, actually could not **fetter** my soul.  
 I start to cut the **cantaloupe** for my sons' breakfast.  
 
 the changes must not be allowed to **stymie** new medical treatments.  

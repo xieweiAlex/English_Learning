@@ -1,7 +1,24 @@
-The advantage of surprise and **overcast** skies are both now gone. Hitler's Army are **sitting ducks**. 
+
+She was a **hard-bitten** journalist who was suspicious of all forms of authority.  
+British companies believe they **have an edge** on technology.  
+It's not the fault of RAF Bomber Command that air raid shelters have been **given** such **scant regard**.  
+The bomber formation tries to **throw** the Germans **off the scent**.  
+
+## Week 4 
+
+The Big Shot Michael Burry buys Real Assets **hand over fist**.  
+this new **state of affairs** is somehow sustainable and viable economic **symbiotic** relationship between America and the rest of the world. -  
+The army **put down** the rebellion.  
+As they **carve up** their spoils, and **redraw** Poland's borders..  
+**false dichotomy**  
+Our success is **contingent on** your support.  
+Her boredom was **acute** and **ever present**. -  
+If you have feedback, story tips, or any other recommendations, I'm **all ears**.  
 
 https://7esl.com/phrasal-verbs/
 
+## Week 2, 3
+The advantage of surprise and **overcast** skies are both now gone. Hitler's Army are **sitting ducks**. 
 **dutch courage**  
 We love **making mountains out of molehills**.  
 they knew an invasion is **in the offing**.  
