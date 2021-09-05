@@ -70,7 +70,7 @@ he’s **bankrolled** a group that promotes building floating nations that would
 Thiel has quietly turned his Roth IRA — a **humdrum** retirement vehicle intended to **spur** Americans to save for their golden years — into a **gargantuan** tax-exempt piggy bank  
 an inside look at the financial lives of the richest Americans, those whose **stratospheric** fortunes put them among history’s wealthiest individuals  
 
-Most of the stories about him are **apocryphal**. -  
+Most of the stories about him are **apocryphal**.  
 No **vestige** of sunlight can penetrate as far as this.  
 **deracinate** plant  
 No wonder parents **agonise** over what names to give their babies.  

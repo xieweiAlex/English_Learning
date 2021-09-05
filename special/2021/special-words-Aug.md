@@ -1,4 +1,10 @@
 
+**euphemism**
+
+**ludicrous**
+
+**percolating**
+
 **disciple**
 
 **apocalyptic**

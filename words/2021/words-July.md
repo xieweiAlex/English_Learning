@@ -39,7 +39,7 @@ Both dogs looked **grimy**.
 Yet discipline is poor, and the **attrition rate** high.  
 **feral** cat  
 **mess hall**, **dinning hall**, **eatery**  
-You can only eat or drink in the **canteen**... -  
+You can only eat or drink in the **canteen**...  
 He **ogled** at all the attractive girls in the office. -  
 Shares popped 11% yesterday as investors **ogled** over Lucid's sleek-looking EVs and battery stats.  
 I can't have a conversation with you without it turning into a **full on** argument.  

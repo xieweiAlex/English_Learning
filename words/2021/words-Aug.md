@@ -1,11 +1,44 @@
 
+I can show you this without any financial mumbo-jumbo or anything complex or complicated. -  
+James Clear dishes out life-changing insights like they're T-shirts on a college campus.  
+> You don’t rise to the level of your goals, you fall to the level of your systems.  
+> Rather than worrying about the results you want, focus on becoming the type of person who could achieve those results.  
+
+He prefers light **fictions** to serious novels.  
+This job report is the **nail in the coffin** to the taper happening this month.  
+I'll give the **scoundrels** a **drubbing** if I can! -  
+But what happens when a stock truly takes a **shellacking** in the market after missed expectations or a disappointing forward outlook?   
+Of course, Zoom needs a **multipronged** strategy to maintain a double-digit growth rate.  
+system **choke point**
+**banal**, **trite**  
+It sounds **trite**, but it's true. -  
+sales **proceeds**, net **proceeds**  
+**Squint** my eyes just a little bit.  
+This is a **perilous** hour for all of us. -  
+She wasn't very **fastidious** about personal hygiene. -  
+**promiscuity**  
+**lancet** 
+GMT: **Greenwich Mean Time**, **Zulu time**   
+Cathie Wood was apparently **unfazed** by Zoom Video Communications Inc.’s post-earning decline. -
+
+I didn't **make the cut** for the yearbook.  
+We're two months **in arrears** with the rent. 
+
+The city was filled with **incogitant** **litterbugs**. -  
+Some day I will **reciprocate** your great kindness to me.  
+To my great relief, I was mentioned only once or twice and not in **opprobrious** terms.  
+People **dress to the nines** for the Christmas party.  
+These films are likely to **deprave** the children.  
+I shall never attempt to **palliate** my own foible by expose the error of another. -  
+He was full of **bonhomie**.  
+She gave me a **coy** smile.  
 We know big tech stocks made a comeback, but the list of the best performers shows a **hodgepodge** of companies across sectors. -   
 
 he endeavored to **moralize** an immoral society. -  
 **tangly**: full of **tangles** or knots : intricate.  
 We're all a bit **gauche** when we're young.  
 **springboard** diving  
-He got rich by **devious** **means**. -  
+He got rich by **devious** **means**.  
 
 His voice was **husky** with grief.
 This young man had all the **inclination** to be a **profligate** of the first water. 
@@ -15,14 +48,14 @@ a **commendatory** letter.
 **chipmunk**  
 Here's a **barf** bag.  
 Ben's getting a little **testy** in his old age. -  
-She gave a sharp **toot** on her horn. -  
+She gave a sharp **toot** on her horn.  
 Do not just spout marketing **spiel** or you will quickly lose followers.  
 You're on mute... Now repeat the 30-second **spiel**. -  
 
 Don't **sprain** a finger.  
-Pinduoduo’s sales still **trail** Alibaba’s, but it’s growing faster. -  
-She even **concocted** the story of the wager.  
-Anywho, the staff would take the mushrooms, unwashed and still covered in dirt, and dump them into the **batter** which was a **concoction** of flour, salt and a **lemon lime** soda as the liquid. -  
+Pinduoduo’s sales still **trail** Alibaba’s, but it’s growing faster.  
+She even **concocted** the story of the **wager**.  
+Anywho, the staff would take the mushrooms, unwashed and still covered in dirt, and dump them into the **batter** which was a **concoction** of flour, salt and a **lemon lime** soda as the liquid.  
 Social Security **Shortfall**.  
 The Social Security Trust Fund will be **deficit spending** again this year, according to its annual report, released earlier today.  
 **Paltry** government bond yields and money market funds still aren't offering an attractive alternative to stocks
@@ -31,15 +64,14 @@ In addition, lower immigration and **child-bearing** this year and next are cont
 That's why Obama can meet the troop **drawdown** deadline.   
 we've no **vital interest** in Afghanistan.  
 Your presidency and legacy will forever be labeled as a **abject** failure of leadership. -  
-
-Do **sadistic** films deprave the viewers? -  
+Do **sadistic** films deprave the viewers?  
 There's not a **vestige** of truth in the rumour.
 
 And while Stripe’s mission to “increase the GDP of the Internet” is **impelled** by powerful global tailwinds, the company is also arguably overvalued, **beset** by real competition, and attempting a delicate balancing act between serving SMBs and enterprises.  
 At the incubator, the Collisons were encouraged to join forces with another **precocious** **duo**, united by family bonds.  
 
 It was all highly **implausible**.  
-The teacher made the **rowdy** class quiet down. -  
+The teacher made the **rowdy** class quiet down.  
 **slapstick** comedy  
 These men look a bit **drippy**.  
 The face was all **slimy** and **drippy**, but it wasn't crawling with **maggots** or anything disgusting. -  
@@ -50,18 +82,17 @@ No. She broke up with me before I could **broach** the subject. -
 **vituperate**  
 She wondered how she had got into this **unholy** mess.  
 The climax came one **sultry** August evening. -  
-Supply chains remain **discombobulated** as US retailers rush to bring in goods from Asia ahead of the holiday shopping season.  
+Supply chains remain **discombobulated** as US retailers rush to bring in goods from Asia ahead of the holiday shopping season. -  
 The Taliban are telling some farmers to stop cultivating opium **poppies** as the group tries to gain wider international acceptance, per the WSJ.  
-this new **state of affairs** is somehow sustainable and viable economic **symbiotic** relationship between America and the rest of the world. -  
+this new **state of affairs** is somehow sustainable and viable economic **symbiotic** relationship between America and the rest of the world.  
 The Big Shot Michael Burry buys Real Assets **hand over fist**.  
 
 ## Week 4 
 He was **reprimanded** for playing **truant**. -   
-The boy was **enthralled** by the stories of adventure. -  
+The boy was **enthralled** by the stories of adventure.  
 He was a **stand-in** for my regular doctor.  
-
 **Undivided attention** 
-The oldest **extant** document is dated 1492. -  
+The oldest **extant** document is dated 1492.  
 My normal **markup**'s 20 percent. But this is a specialty item.  
 The army **put down** the rebellion.  
 She finally agreed to have the **wretched** animal **put down**.  
@@ -100,7 +131,7 @@ Very dirty can be filthy or **squalid**. -
 
 **claustrophobic**
 **bulimic**  
-"But my **horoscope** said..." - "We DEFINATELY don't go THERE!" -  
+"But my **horoscope** said..." - "We DEFINATELY don't go THERE!"  
 
 ## Week 3 
 If you have feedback, story tips, or any other recommendations, I'm **all ears**.  
@@ -146,7 +177,7 @@ With the recent drop in consumer sentiment and services spending, those job gain
 Facebook called the lawsuit “**meritless**,” and had petitioned the FTC to have newly-appointed chair Lina Khan **recuse** herself from the vote because of critical comments she has made about Big Tech  
 Did you check the map? Ohio is like a giant **turd**.  
 
-Alexander is a man of **unquestioned** moral **rectitude** -  
+Alexander is a man of **unquestioned** moral **rectitude**  
 Her singing **evoked** warm **acclamations**.  
 He swore to **abstain** from smoking.  
 The party now has an **unassailable** lead.  
@@ -173,7 +204,7 @@ Generations of students have learned to **parrot** the standard explanations. -
 He is unlikely to **alter** his game plan.  
 The plane landed with a **jolt**.  
 He is **unrivaled** in bravery.  
-One is the **eulogistic** word freedom, and the other is the **opprobrious** word chance. -  
+One is the **eulogistic** word freedom, and the other is the **opprobrious** word chance.  
 **suffocate**
 The move mirrors a similar interest shown by Walmart’s **sworn enemy** Amazon, which wants to hire someone to head up cryptocurrency products  
 You’ll be joining a **tight-knit** team with experience at places like xxx.  
@@ -258,7 +289,7 @@ You could never eliminate risk, but preparation and training could **attenuate**
 I can't help but feel a **twinge** of envy.  
 He felt a slight **twinge** in his damaged hamstring.  
 dichotomy **corollary** -  
-I bet you dyed your hair only because you're jealous of my **luscious** hair! -  
+I bet you dyed your hair only because you're jealous of my **luscious** hair!  
 **logarithmic** spiral  
 
 Use an **emollient** for dry skin.  
@@ -321,7 +352,7 @@ While the US economy is steadily **clawing back** the jobs it lost during the pa
 
 **prismatic** lens  
 **machination**  
-He gave an **ostentatious** yawn. -  
+He gave an **ostentatious** yawn.  
 He is known for his **burning wit** and formidable **erudition**.  
 Here's another subtle yet important **factoid**.   
 I grew to dislike the people from my background – they were uptight and **prissy**.  

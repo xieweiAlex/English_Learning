@@ -57,7 +57,7 @@ she appears **promptly** at eight each day.
 
 May I have a **peek**?  
 **gore** **galore**  
-Brutal **beasties** **in a bout** to the death! -  
+Brutal **beasties** **in a bout** to the death!  
 she is **up and running**  
 
 **sparrow**  
