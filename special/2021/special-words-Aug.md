@@ -1,20 +1,4 @@
 
-**euphemism**
-
-**ludicrous**
-
-**percolating**
-
-**disciple**
-
-**apocalyptic**
-
-**vigilant**  
-
-**perpetuate**  
-
-**misinterpret**
-
 ## Week 4 
 
 **dumbfound**

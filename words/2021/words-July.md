@@ -40,7 +40,7 @@ Yet discipline is poor, and the **attrition rate** high.
 **feral** cat  
 **mess hall**, **dinning hall**, **eatery**  
 You can only eat or drink in the **canteen**...  
-He **ogled** at all the attractive girls in the office. -  
+He **ogled** at all the attractive girls in the office.  
 Shares popped 11% yesterday as investors **ogled** over Lucid's sleek-looking EVs and battery stats.  
 I can't have a conversation with you without it turning into a **full on** argument.  
 Sensationalism is **anathema** to the Foolish mindset.  
@@ -87,7 +87,7 @@ Japanese **sumo**.
 Do your ankles **swell** at night?  
 Their purpose is to **adjudicate** disputes between employers and employees.  
 And some Allies said any **blowback** would not matter long anyway.  
-He had been taught to **abhor** people who did this **wicked** thing. -  
+He had been taught to **abhor** people who did this **wicked** thing.  
 The old man's a real **cold fish**. I've never seen him laugh.  
 
 The kitchen was **clean as a whistle**.   
@@ -159,7 +159,7 @@ The best storytellers always define a clear purpose **prior to** **crafting** th
 > Do you have a **burning desire** to tell this story? If so, why?  
 
 **endowment** effect  
-Paffrath **extols** the virtues of the FHA 203k loan which enabled him to purchase a home with 3.5% down and borrow the fix up. -  
+Paffrath **extols** the virtues of the FHA 203k loan which enabled him to purchase a home with 3.5% down and borrow the fix up.  
 I always get the **jitters** before exams.   
 Hi, guys. I'm sorry I went **bonkers**.  
 She was **dumbfounded** by the terrible news  

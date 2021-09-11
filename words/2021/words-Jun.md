@@ -147,7 +147,7 @@ an **intricate** fraud
 **Tehran** and Washington **ratcheted up** the rhetoric  
 The US is **ratcheting up** pressure on China's 5G ambitions, offering financial incentives to countries willing to **pass on** Chinese-made tech  
   
-Remember that you must die. **Memento Mori**. -  
+Remember that you must die. **Memento Mori**.  
 Among other requirements, bourbon must be distilled from a **mash** that’s at least 51% corn (hence the sweet flavor).  
 Danish soccer star Christian Eriksen suffered **cardiac arrest** when he collapsed on the field during the team's Euro 2020 match on Saturday  
 You will not be **stumped**, you will not have to work very hard, and you may not even notice that you did not answer the question you were asked.  
@@ -155,7 +155,7 @@ the rising confidence of the consumer (the Consumer Sentiment report on Friday i
 Netflix launches an online **merch** shop  
   
 He'd got his revenge now, and **in spades**  
-The **telltale** smell of cigarettes told her that he had been in the room. -  
+The **telltale** smell of cigarettes told her that he had been in the room.  
 The last question may seem dumb or even **callous**.  
 Everything about the affair was **repugnant** to her.  
 Once again, he completely **ripped me off**.  
@@ -210,7 +210,7 @@ They find it unpleasant and they **recoil** from it.
 The man has **sinewy** muscles  
 **dry hump**  
 He was brought up in **penury**, without education.  
-The priest **absolved** him of his sins. -  
+The priest **absolved** him of his sins.  
 I **eschewed** **upbraiding**, I curtailed **remonstrance**.  
 **Tundra** is flat land with very little **vegetation**.  
 Bees were buzzing in the **clover**.  

@@ -1,3 +1,6 @@
+
+It's a **crapshoot** whether I can win this, he can probably **fight that off**.   
+This job report is the **nail in the coffin** to the taper happening this month.  
 **what's in it for me**?  
 Doug, if our campaign manager **bites the dust**, that hurts us.  
 We all agreed to what our version of the story is, so somebody isn't **toeing the line**.  

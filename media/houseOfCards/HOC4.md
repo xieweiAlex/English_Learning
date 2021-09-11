@@ -1,8 +1,17 @@
 
+## E 10  
+Can't imagine daddy dressed up as a **fortune teller**.  
+You see, laughter is good for the pain, even better than this **morphine**.  
+You pretended to try. Clare's support didn't just happen on its own, and you had the **gall** to take my hand, look me in the eye and lie to my face.  
+I will tell them that Conway is right and Brockhart is right, and that you completely **bungled** the ICO situation, how do you think Dunbar will do then?  
+**cobb salad**  
+It's a **crapshoot** whether I can win this, he can probably **fight that off**.   
+There won't be a **dry eye** in Atlanta or across the rest of the country.  
+
 ## E9 
 The whole thing is **theatric**.  
 It's humid as hell, though. I just got here and I'm already **soaked**.  
-It's **muggier** than a street **hooker**'s **twat**. -  
+It's **muggier** than a street **hooker**'s **twat**.  
 We all agreed to what our version of the story is, so somebody isn't **toeing the line**.  
 Doug, if our campaign manager **bites the dust**, that hurts us.  
 Claire was **mortified** by those votes.  
@@ -19,7 +28,7 @@ We had no idea about this sort of **groundswell**. -
 Paper is strict when it comes to **moonlighting**.  
 Edward Meechum was **slain** with the bullets from that very same gun.  
 the Universal Background check bill has been **deafening** in these last few days.  
-We would like to add one more voice to that **chorus**. -  
+We would like to add one more voice to that **chorus**.  
 I think we can **pivot**.  
 
 ## E 7  

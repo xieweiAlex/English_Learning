@@ -1,4 +1,8 @@
 
+**extol** 
+
+## Week 1 
+
 **equivocate**
 
 **concoct**

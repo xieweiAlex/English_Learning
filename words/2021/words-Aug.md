@@ -1,6 +1,57 @@
 
-I can show you this without any financial mumbo-jumbo or anything complex or complicated. -  
-James Clear dishes out life-changing insights like they're T-shirts on a college campus.  
+## Week 2
+
+**ineluctable**
+**Penicillin** can **inhibit** the spread of the bacteria and inflammation. -  
+Historical evidence lends **credence** to his theory.  
+She was a **statuesque** brunette.  
+She stood looking at Carmen with her mouth **agape**. -  
+The boiled potato was **mealy**. -  
+Take me to the **potty**. I need to **tinkle**.  
+
+His **canoe** was there, on the river below the **rapids**.  
+I was on **picket** duty at the time.  
+**flagpole**  
+He was **apoplectic** with rage at the decision. -  
+The surveyor had not expected such a **denouement**. -  
+It became very clear that the incident was not just an **aberration**; it was not just a single incident. -  
+> When you view the world through a dirty lens, everything looks dirty. When you consider all of the facts through a clean lens you will see a different picture.  
+
+The Board of Governors in Washington, D.C., is an agency of the federal government and reports to and is directly **accountable to** the Congress.  
+You're not gonna embarrass me with some **sappy** toast, are you?  
+
+We all **lamented** the death of our friend. -  
+Her offer of help was met with a sharp **rebuff**.  
+He spoke in a **haughty** tone. -  
+The little **hamster** is dead!  
+The tradition of noblesse **oblige**.  
+Their ship was put into port to **careen** and **refit**.  
+Illinois seems to **careen** from one crisis to the next.  
+
+He is going to **abnegate** his plan. -  
+They still have to **broach** many tricky subjects. -  
+Companies sometimes **poach** employees from one another.  
+
+Referring to Patrick as the “**cerebral brother**” feels a little like referring to Tyler as the “tall Winklevoss.” By any other standard, John is **obscenely** **well-read** and **polymathic**. But Patrick takes these **traits** to a different level.  
+
+The stock market is in a **tailspin**.  
+The film had been shot in a **decrepit** old police station.  
+**uprooting**  
+He finally worked out a **face-saving** arrangement.  
+Judging by the polls, such efforts are likely to **fall flat**.  
+Parents campaigned in vain for her **reinstatement**. -  
+Something was **niggling** her.  
+With low housing supply, the market will still crash in 2021? Are you kidding me!? I know it sounds **oxymoron**, that’s why I took longer in this video to explain why this is the case.  
+A **Mildew**-Resistant **Wet-Dry Bag** for **Fuss-Free** Storage. -  
+
+
+## Week 1 
+
+Getting lost in the idea of perfection is a **hindrance**. Being with someone who is committed to going through the **ups and downs** of life together is truly priceless. -  
+There’s a much more effective way to conquer your **vices**. -  
+In the moment, these uncomfortable **urges** seem like they’re going to last forever, but they never do. They’re like waves–they **crest, peak, and subside**.  
+I can show you this without any financial **mumbo-jumbo** or anything complex or complicated. -  
+James Clear **dishes out** life-changing insights like they're T-shirts on a college campus.  
 > You don’t rise to the level of your goals, you fall to the level of your systems.  
 > Rather than worrying about the results you want, focus on becoming the type of person who could achieve those results.  
 
@@ -32,9 +83,9 @@ These films are likely to **deprave** the children.
 I shall never attempt to **palliate** my own foible by expose the error of another. -  
 He was full of **bonhomie**.  
 She gave me a **coy** smile.  
-We know big tech stocks made a comeback, but the list of the best performers shows a **hodgepodge** of companies across sectors. -   
+We know big tech stocks made a comeback, but the list of the best performers shows a **hodgepodge** of companies across sectors.  
 
-he endeavored to **moralize** an immoral society. -  
+he endeavored to **moralize** an immoral society.  
 **tangly**: full of **tangles** or knots : intricate.  
 We're all a bit **gauche** when we're young.  
 **springboard** diving  
@@ -141,7 +192,7 @@ It’s not wind **turbines** or solar panels
 
 He delivered the speech in his own **inimitable** style.  
 A **dearth** of corn caused the prices to go up  
-There is nothing so **sanative** as a walk in the woods. -  
+There is nothing so **sanative** as a walk in the woods.  
 **conjoin**  
 The report is based entirely on **supposition**.  
 
@@ -200,7 +251,7 @@ Poverty **obliged** her to live a hard life. -
 Could you **oblige** me with ten yuan?  
 
 Buyback **Bonanza**  
-Generations of students have learned to **parrot** the standard explanations. -  
+Generations of students have learned to **parrot** the standard explanations.  
 He is unlikely to **alter** his game plan.  
 The plane landed with a **jolt**.  
 He is **unrivaled** in bravery.  
@@ -209,7 +260,7 @@ One is the **eulogistic** word freedom, and the other is the **opprobrious** wor
 The move mirrors a similar interest shown by Walmart’s **sworn enemy** Amazon, which wants to hire someone to head up cryptocurrency products  
 You’ll be joining a **tight-knit** team with experience at places like xxx.  
 **Stratified** flow, **stratified** society  
-He **glanced** **furtively** at the **stolid** faces of the two detectives. -  
+He **glanced** **furtively** at the **stolid** faces of the two detectives.  
 In that year, two **momentous** discoveries were made.  
 The enemy **infiltrated** our land  
 His face is **etched** onto his brain.  
@@ -218,7 +269,7 @@ He would **repudiate** all debts incurred by his son.
 
 ## Week 2 
 
-His comment was **trenchant** and **perceptive**. -   
+His comment was **trenchant** and **perceptive**.  
 Strait of **Malacca**. -  
 they will give us a better picture of the **waxing and waning** of consumer confidence and spending in the second quarter.  
 The Fed believes supply will eventually catch up with demand, and these pressures should **abate** with time.  
@@ -266,7 +317,7 @@ He was **captivated** by her beauty.
 Twenty million years ago, Idaho was populated by dense **primordial** forest.  
 The police are checking out his **alibi**.  
 The company voted to **enfranchise** its 120 women members.   
-I was a **dunce** at chemistry. -  
+I was a **dunce** at chemistry.  
 **slapstick** comedy  
 Spender concludes that, in mixed classes, if the girls are as **boisterous** and **pushy** as the boys, they are considered "unladylike", if they are **docile** and quiet, they are ignored.   
 Are you telling me the porn actually **sedated** you?  
@@ -288,7 +339,7 @@ She's the prettiest, most **ethereal** romantic heroine in the movies.
 You could never eliminate risk, but preparation and training could **attenuate** it.  
 I can't help but feel a **twinge** of envy.  
 He felt a slight **twinge** in his damaged hamstring.  
-dichotomy **corollary** -  
+dichotomy **corollary**  
 I bet you dyed your hair only because you're jealous of my **luscious** hair!  
 **logarithmic** spiral  
 
@@ -383,7 +434,7 @@ It makes me so mysterious, so **enigmatic**
 Of these, dark is the most **sinister**, implying an imperfect or clouded revelation, often with ominous **overtones**  
 **Enigmatic** (which traces back to Greek ainissesthai, meaning "to **speak in riddles**") emphasizes a puzzling, mystifying quality, whereas **cryptic** implies a purposely **concealed** meaning  
 **Equivocal** is the best choice for language that is **left open to** differing interpretations with the intention of deceiving or **evading**  
-He had a chance to confess and **expiate** his guilt -  
+He had a chance to confess and **expiate** his guilt  
 economically **feasible**  
 
 He is a **misanthropic** **villain**, although he differs from other villains.  
