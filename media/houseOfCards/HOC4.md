@@ -42,7 +42,7 @@ I think we can **pivot**.
 
 ## E 7  
 You **hurl** accusations, I'll let the press **hurl** facts.  
-Our little **rascal** Lily. -  
+Our little **rascal** Lily.  
 
 ## E 4  
 My concern is him **railroading** me on the call.  

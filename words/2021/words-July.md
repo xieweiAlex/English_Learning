@@ -77,7 +77,7 @@ Hereafter, we must be cautious how we **vex** her.
 > When **downpours** of that sort **occur**, it’s **imperative** that we rush outdoors carrying **washtubs**, not **teaspoons**.  
 
 **nautical** mile, **nautical** chart.  
-the **peripatetic** nature of military life. -  
+the **peripatetic** nature of military life.  
 Those individual decisions to drop out collectively amount to society-wide **stratification**.  
 Many of the papers **muse** on the fate of the president.  
 All his **imperious** orders were obeyed  
@@ -196,7 +196,7 @@ technology could be about to **turn that on its head**
 Owning a home does **confer** real benefits, if you're married, you have kids.  
 The more people that own their home, the more the society becomes **sclerotic**.  
 America's success has made it **sclerotic**.  
-For those reasons, the stock became **au courant** to own, as many traders considered it only a "stay-at-home" stock -  
+For those reasons, the stock became **au courant** to own, as many traders considered it only a "stay-at-home" stock  
 Even Warren Buffett once **fell prey to** his frugal nature, initially intending to invest billions of dollars in Walmart(NYSE: WMT) stock but then stopping when his buying pushed the share price just pennies above the level he'd arbitrarily chosen as what he wanted to pay  
 venture capitalists are **shelling** out cash like they just got a stimulus check  
 As the Delta variant spreads and threatens to slow the economic recovery, the fall in yields means investors are **souring** on a mega **growth spurt** and **snapping up** safer assets rather than riskier stocks.  

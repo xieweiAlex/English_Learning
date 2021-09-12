@@ -1,9 +1,10 @@
 
 ## Week 2
+
+Angels are celestial beings.  
+
 She supports her theory with copious evidence.  
 Even the most finicky eater will find something appetizing here.  
-
-
 She has been encouraged by the **unwavering** support of her family.   
 
 a studious boy.  
@@ -23,15 +24,15 @@ Take me to the **potty**. I need to **tinkle**.
 His **canoe** was there, on the river below the **rapids**.  
 I was on **picket** duty at the time.  
 **flagpole**  
-He was **apoplectic** with rage at the decision. -  
+He was **apoplectic** with rage at the decision.  
 The surveyor had not expected such a **denouement**. -  
-It became very clear that the incident was not just an **aberration**; it was not just a single incident. -  
+It became very clear that the incident was not just an **aberration**; it was not just a single incident.  
 > When you view the world through a dirty lens, everything looks dirty. When you consider all of the facts through a clean lens you will see a different picture.  
 
 The Board of Governors in Washington, D.C., is an agency of the federal government and reports to and is directly **accountable to** the Congress.  
 You're not gonna embarrass me with some **sappy** toast, are you?  
 
-We all **lamented** the death of our friend. -  
+We all **lamented** the death of our friend.  
 Her offer of help was met with a sharp **rebuff**.  
 He spoke in a **haughty** tone. -  
 The little **hamster** is dead!  
@@ -76,7 +77,7 @@ system **choke point**
 It sounds **trite**, but it's true. -  
 sales **proceeds**, net **proceeds**  
 **Squint** my eyes just a little bit.  
-This is a **perilous** hour for all of us. -  
+This is a **perilous** hour for all of us.  
 She wasn't very **fastidious** about personal hygiene. -  
 **promiscuity**  
 **lancet** 
@@ -112,7 +113,7 @@ Here's a **barf** bag.
 Ben's getting a little **testy** in his old age. -  
 She gave a sharp **toot** on her horn.  
 Do not just spout marketing **spiel** or you will quickly lose followers.  
-You're on mute... Now repeat the 30-second **spiel**. -  
+You're on mute... Now repeat the 30-second **spiel**.  
 
 Don't **sprain** a finger.  
 Pinduoduo’s sales still **trail** Alibaba’s, but it’s growing faster.  
@@ -136,14 +137,14 @@ It was all highly **implausible**.
 The teacher made the **rowdy** class quiet down.  
 **slapstick** comedy  
 These men look a bit **drippy**.  
-The face was all **slimy** and **drippy**, but it wasn't crawling with **maggots** or anything disgusting. -  
+The face was all **slimy** and **drippy**, but it wasn't crawling with **maggots** or anything disgusting.  
 
 For years, the couple's **tempestuous** relationship made the headlines. -  
 I always think it's better to **broach** these things **head-on**.  
 No. She broke up with me before I could **broach** the subject. -   
 **vituperate**  
 She wondered how she had got into this **unholy** mess.  
-The climax came one **sultry** August evening. -  
+The climax came one **sultry** August evening.  
 Supply chains remain **discombobulated** as US retailers rush to bring in goods from Asia ahead of the holiday shopping season. -  
 The Taliban are telling some farmers to stop cultivating opium **poppies** as the group tries to gain wider international acceptance, per the WSJ.  
 this new **state of affairs** is somehow sustainable and viable economic **symbiotic** relationship between America and the rest of the world.  
