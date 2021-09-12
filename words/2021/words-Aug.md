@@ -1,4 +1,11 @@
 
+a studious boy.  
+
+I have “quietly “ adored these **natty** dressers! It’s hard to announce that in a crowd. -  
+A window is a **viewpoint** of buffer.  
+On Friday, we’ll hear more about consumers’ **psyches** when the University of Michigan Consumer Sentiment and Expectations preliminary reports for September are released.  
+
+
 ## Week 2
 
 **ineluctable**

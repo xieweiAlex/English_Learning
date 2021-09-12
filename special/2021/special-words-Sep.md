@@ -1,4 +1,8 @@
 
+## Week 2 
+
+**precedence**
+
 **trenchant**
 
 **wacky**

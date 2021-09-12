@@ -1,4 +1,11 @@
 
+## E 11 
+Planes take a **toll**. We are concerned a sudden organ rejection.  
+If we stay here, Conway **prances** around the country, playing his fighter-pilot image.  
+I know Edward Meechum **doctored** travel records, and I know you were there for all of it.  
+**unwavering** love  
+We know it's true, but we need **corroboration**. -  
+
 ## E 10  
 Can't imagine daddy dressed up as a **fortune teller**.  
 You see, laughter is good for the pain, even better than this **morphine**.  
@@ -7,6 +14,8 @@ I will tell them that Conway is right and Brockhart is right, and that you compl
 **cobb salad**  
 It's a **crapshoot** whether I can win this, he can probably **fight that off**.   
 There won't be a **dry eye** in Atlanta or across the rest of the country.  
+Loss makes us reevaluate what we **hold dear**.  
+
 
 ## E9 
 The whole thing is **theatric**.  
