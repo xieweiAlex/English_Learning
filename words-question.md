@@ -1,4 +1,5 @@
 
+* fastidious, picky, finicky, cavil  
 * barf vs vomit  
 * ecstatic vs exultant vs elated 
 * Buckle up vs Buckle down 

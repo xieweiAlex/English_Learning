@@ -1,7 +1,7 @@
 ## ww01.md ##  
 media/WWII/ww01.md  
 All existing in **squalor**. -  
-The country went into a great **tailspin**, you might say, economically, militarily, socially, there are all sorts of **upheavals**. -  
+The country went into a great **tailspin**, you might say, economically, militarily, socially, there are all sorts of **upheavals**.   
 One young man left **embittered** by German's **plight** was Adolf Hitler, Austrian by birth... -  
 Roosevelt calls it **dastardly** and evil, he calls it a day of **infamy**. -  
   
@@ -9,7 +9,7 @@ Roosevelt calls it **dastardly** and evil, he calls it a day of **infamy**. -
 media/houseOfCards/HOC4.md  
 We know it's true, but we need **corroboration**. -  
 We had no idea about this sort of **groundswell**. -  
-  
+
 ## words-Sep.md ##  
 words/2021/words-Sep.md  
 I have “quietly “ adored these **natty** dressers! It’s hard to announce that in a crowd. -  
@@ -29,7 +29,7 @@ I'll give the **scoundrels** a **drubbing** if I can! -
 It sounds **trite**, but it's true. -  
 She wasn't very **fastidious** about personal hygiene. -  
 The city was filled with **incogitant** **litterbugs**. -  
-I shall never attempt to **palliate** my own foible by expose the error of another. -  
+I shall never attempt to **palliate** my own **foible** by expose the error of another. -  
 he succumbed to drink and a **profligate** lifestyle. -  
 **Novice** **rookie** **neophyte** **tyro**. -  
 Ben's getting a little **testy** in his old age. -  
@@ -41,9 +41,6 @@ Supply chains remain **discombobulated** as US retailers rush to bring in goods 
 ## words-Aug.md ##  
 words/2021/words-Aug.md  
 He was **reprimanded** for playing **truant**. -  
-Hamilton looks **crestfallen**. -  
-We do not want any **extraneous** information on the page. -  
-investor anxiety is **percolating**, according to the Investopedia Anxiety Index, and Goldman Sachs Sentiment Indicator. -  
 Very dirty can be filthy or **squalid**. -  
 Your silence **implies** **tacit** consent to these proposals. -  
 Why do the aged tend to be **taciturn**? -  

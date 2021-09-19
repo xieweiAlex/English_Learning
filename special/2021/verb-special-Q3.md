@@ -1,4 +1,8 @@
 
+**squish**, **squash** 
+
+**inhibit**
+
 **extol** 
 
 ## Week 1 

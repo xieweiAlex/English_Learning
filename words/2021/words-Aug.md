@@ -14,7 +14,7 @@ The Verge found that Rogan's influence has diminished since he went to **frolic*
 Jackson Hole **Symposium**  
 Moving your security from **tactical** to **strategic**  
 **dumbfound**
-Hamilton looks **crestfallen**. -  
+Hamilton looks **crestfallen**.  
 **oil shale**  
 The water is filthy with **fecal matter**.  
 She **gallantly** battled on alone.  
@@ -25,7 +25,7 @@ Her behaviour was **exemplary**.
 You must have managed to escape, you clever, **ingenious**, intelligent Toad!  
 Soap does not **lather** well in hard water.  
 They joked about his **ineptitude**.  
-We do not want any **extraneous** information on the page. -  
+We do not want any **extraneous** information on the page.  
 **false dichotomy**  
 **weep** and **sniffle**  
 
@@ -34,7 +34,7 @@ Bitcoin **maximalists**  (gone **snorkeling**)
 Throw a few dollars into Bitcoin in the hopes that maybe you hit the **jackpot**, like you might do with lottery tickets  
 Cook proved that he could lead the company though **tumultuous** times, and has been an important voice for social justice and civil rights in the process  
 
-investor anxiety is **percolating**, according to the Investopedia Anxiety Index, and Goldman Sachs Sentiment Indicator. -  
+investor anxiety is **percolating**, according to the Investopedia Anxiety Index, and Goldman Sachs Sentiment Indicator.  
 Last week, the FDA said all adults vaccinated with the Pfizer-BioNTech or Moderna vaccines could get booster shots after research indicated the initial doses lose some **potency** over time.  
 
 He had a considerable Elizabethan library to **delve** in.  

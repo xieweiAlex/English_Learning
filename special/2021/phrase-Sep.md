@@ -1,3 +1,13 @@
+Take a great photo without **lifting a finger**.  
+the wooden structures of the city don't **stand a chance**.  
+While sealing an agreement with the U.S. and U.K. to acquire nuclear submarines, Australia **ripped up** an existing $90 billion submarine deal with France.  
+While sealing an agreement with the U.S. and U.K. to acquire nuclear submarines, Australia **ripped up** an existing $90 billion submarine deal with France.  
+While sealing an agreement with the U.S. and U.K. to acquire nuclear submarines, Australia **ripped up** an existing $90 billion submarine deal with France.  
+President's decided to **break off** diplomatic relations.  
+He also warned that Turkey may decide to **cut ties with** Israel.  
+
+Your car will **bog down** in the mud.  
+Convincing politicians to **cough up** more funds will be tough. 
 Loss makes us reevaluate what we **hold dear**.  
 
 ## Week 1,2

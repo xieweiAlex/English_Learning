@@ -1,4 +1,13 @@
 
+
+**lasting**
+
+**snub**
+
+**interdependent**
+
+**recourse**
+
 ## Week 2 
 
 **precedence**
