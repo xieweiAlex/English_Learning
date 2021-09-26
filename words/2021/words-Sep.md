@@ -197,7 +197,7 @@ James Clear **dishes out** life-changing insights like they're T-shirts on a col
 
 He prefers light **fictions** to serious novels.  
 This job report is the **nail in the coffin** to the taper happening this month.  
-I'll give the **scoundrels** a **drubbing** if I can! -  
+I'll give the **scoundrels** a **drubbing** if I can!  
 But what happens when a stock truly takes a **shellacking** in the market after missed expectations or a disappointing forward outlook?   
 Of course, Zoom needs a **multipronged** strategy to maintain a double-digit growth rate.  
 system **choke point**

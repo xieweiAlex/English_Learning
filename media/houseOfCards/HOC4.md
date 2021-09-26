@@ -33,7 +33,7 @@ Like we **grappled** with the future of America.
 ## E 8  
 A **chasm** opened up between them, a hallway less than 10 yards wide.  
 He is **perceptive**. - **uncanny**  
-We had no idea about this sort of **groundswell**. -  
+We had no idea about this sort of **groundswell**.  
 Paper is strict when it comes to **moonlighting**.  
 Edward Meechum was **slain** with the bullets from that very same gun.  
 the Universal Background check bill has been **deafening** in these last few days.  

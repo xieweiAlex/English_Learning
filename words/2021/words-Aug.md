@@ -38,7 +38,7 @@ investor anxiety is **percolating**, according to the Investopedia Anxiety Index
 Last week, the FDA said all adults vaccinated with the Pfizer-BioNTech or Moderna vaccines could get booster shots after research indicated the initial doses lose some **potency** over time.  
 
 He had a considerable Elizabethan library to **delve** in.  
-Very dirty can be filthy or **squalid**. -  
+Very dirty can be filthy or **squalid**.  
 **wine and dine**  
 
 **claustrophobic**
@@ -74,7 +74,7 @@ Her boredom was **acute** and **ever present**.
 **green peas**  
 
 Your silence **implies** **tacit** consent to these proposals.  
-Why do the aged tend to be **taciturn**? -  
+Why do the aged tend to be **taciturn**?  
 She was alone and unloved, but she did not **repine**.  
 She always looks **immaculate**.  
 The two sides called a **truce** to avoid further **bloodshed**.   
@@ -108,7 +108,7 @@ So how do you train your **Muse**?
 **lube** oil  
 
 much **obliged**   
-Poverty **obliged** her to live a hard life. -  
+Poverty **obliged** her to live a hard life.  
 Could you **oblige** me with ten yuan?  
 
 Buyback **Bonanza**  
@@ -169,7 +169,7 @@ Third **Reich**
 The **Wehrmacht**'s diminished forces could no longer attack along the entire Eastern Front, and subsequent operations to **retake** the initiative and drive deep into Soviet territory  
 German troops were heavily **indoctrinated** with anti-Bolshevik, anti-Semitic, and anti-Slavic ideology via movies, radio, lectures, books, and **leaflets**  
 Hitler saw the only solution as conquest—**expropriating** the resources, such as **Lebensraum**, through war that could not be won through failing capitalist system.  
-both economies also became more **isolated** and expanded under conditions of exceptional **autarky**. -  
+both economies also became more **isolated** and expanded under conditions of exceptional **autarky**.  
 
 **Moral wounds** have this **peculiarity**— they may be hidden, but they never close; always painful, always ready to bleed when touched, they remain fresh and open in the heart.
 
