@@ -73,7 +73,7 @@ Her boredom was **acute** and **ever present**.
 **Baltic Sea**  
 **green peas**  
 
-Your silence **implies** **tacit** consent to these proposals. - 
+Your silence **implies** **tacit** consent to these proposals.  
 Why do the aged tend to be **taciturn**? -  
 She was alone and unloved, but she did not **repine**.  
 She always looks **immaculate**.  

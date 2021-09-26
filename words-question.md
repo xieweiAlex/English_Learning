@@ -1,4 +1,6 @@
 
+* faze vs fray 
+* raunchy vs squalid vs squalor 
 * fastidious, picky, finicky, cavil  
 * barf vs vomit  
 * ecstatic vs exultant vs elated 

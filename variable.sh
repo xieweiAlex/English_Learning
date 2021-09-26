@@ -73,4 +73,3 @@ test_files=(
   "./words/2021/words-April.md"
   "./words/2021/words-Mar.md"
 )
-

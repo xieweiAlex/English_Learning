@@ -1,4 +1,7 @@
 
+**arduous**
+
+## Week 3 
 
 **lasting**
 

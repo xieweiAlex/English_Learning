@@ -28,7 +28,7 @@ How to Play **Razz**
 
 **unbeatable** location  
 He was silenced by her **stinging** rebuke.  
-A **carper** will **cavil** at anything. -   
+A **carper** will **cavil** at anything.  
 Let us not **cavil** too much.  
 Let's **jettison** some historical baggage.  
 She will face a local **magistrate** on Tuesday.  
@@ -141,7 +141,7 @@ He spoke with **curt** **finality**.
 We **condole** with you on your **misfortune**.  
 **reminiscent**, **nostalgia**  
 
-**Crucian** **carp**, **grass carp**. -   
+**Crucian** **carp**, **grass carp**.  
 **Gerbils** are pets in many American homes.  
 He knew that he might soon **lapse** into unconsciousness.  
 colored **glaze**   

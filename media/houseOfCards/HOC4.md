@@ -4,7 +4,7 @@ Planes take a **toll**. We are concerned a sudden organ rejection.
 If we stay here, Conway **prances** around the country, playing his fighter-pilot image.  
 I know Edward Meechum **doctored** travel records, and I know you were there for all of it.  
 **unwavering** love  
-We know it's true, but we need **corroboration**. -  
+We know it's true, but we need **corroboration**.  
 
 ## E 10  
 Can't imagine daddy dressed up as a **fortune teller**.  

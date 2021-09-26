@@ -1,12 +1,84 @@
+## Week 4 
 
+Today banks are much more **stringent** on their requirements.  
+**Dysbiosis** (also called **dysbacteriosis**) is a term for a **microbial** **imbalance** on or inside the body.  
+But being **psychologically** **clingy** is even worse.  
+as opposed to being too busy **divvying up** your allotted drink tickets.  
 
-The **whirlpool** sucked down the boat. -  
+In this case, people who risked $150 of their own money to win a $650 bonus prize were dramatically more likely to quit smoking than those who used traditional smoking **cessation** methods.  
+
+> On average, a bear market ends about 4 months before an economic recession does.  
+
+Can’t Seem to Stick With Your Commitments? Try Making a **Pact**.  
+If Rose finished her **manuscript** by her self-determined deadline, she would get to cut into a celebratory cake. But if she didn't, she would let her kids cut off her long, curly hair.  
+Like a good protest slogan, a good pact demands action. Personal change, like social change, is hard and uncomfortable. When other tactics aren't enough, you need to **agitate** the **status quo**.  
+> A pact, like a protest slogan, is urgent, specific, and has a serious and unavoidable consequence.  
+
+After a **topsy-turvy** week, stocks yesterday were as flat as an air mattress 45 minutes after sleeping on it.  
+Plus, China’s not exactly known for its **laissez faire** governing style. It’s been on a regulation **spree** this year, from limiting kids’ online gaming to kicking ride-hailing company Didi off app stores.  
+The case was symbolic of the **frayed** relations between the US and China.  
+They’ll make the **trek** between Dallas and Houston a few times a week. - 
+
+Taking a look at modern examples of **exorbitant** money printing in countries like Venezuela and Zimbabwe, we see a similar modern hyper-inflationary story playing out.  
+the Chinese government has been tightening the **spigot** and **reining in** debt and lending practices, which has **stunted** Evergrande’s cash flow and has the company at the brink of bankruptcy. -  
+
+Demand for second homes **skid**.  
+The business world has been **captivated** by the slow-moving train **wreck** that is Evergrande, a massive Chinese real estate developer that’s buried up to its **penthouse** in debt.  
+But thanks to super-low borrowing costs, the Chinese property sector has been **feasting** on empty calories, leading to **astronomical** debt loads.  
+I was **admitted** by a man servant, and shown into a **sumptuous** room where a couple of elderly gentlemen were sitting. -  
+I **entreat** you, give no place to despondency.  
+Imagination raises a man above the **humdrum** of life.  
+**bankroll**  
+**squalid**  
+
+He fears Australia is already China's **punching bag**.  
+At Voyager, we pride ourselves on **going against the grain**.  
+They usually **meander** down to the pub after work. -  
+**forensic** medicine  
+**watertight**  
+She endured the **monstrous** behaviour for years. -  
+A group of men are **erecting** a **monstrous** copper edifice. -  
+a **thoughtout** plan.  
+Is it necessary to decide between **remunerative** work and meaningful work? -  
+Here’s your iPhone 13 review, **hot off** the presses.  
+Crowded areas can make **silverbacks** more violent, scientists say.  
+They'll dare not **come after** us there.  
+
+That's an **inferiority complex** where short men overcompensate by being aggressive.  
+He replied with **haughty** **disdain**.  
+There was a dark **smudge** on his **forehead**.  
+That idea **enrages** many of her **detractors**.  
+But the company quickly **fell behind**, missing payments earlier this month and leaving thousands of employees **in a lurch** 
+China is caught in a very tough spot with no easy options. Act quickly with a bailout and be viewed as **condoning** the financial **excess** that led to the problem. -  
+(I don't **condone** violence in any shape or form)  
+The government will likely rescue it but the equity and some bond holders will be wiped out to **obviate** moral hazard. -  
+Those bonds are trading **close to par**.  
+**plagiarize**.  
+His book **commingles** sarcasm and sadness.  
+**hilarity**  
+**Insulin** enables the body to use and store sugar.  
+**Cicada** sings in summer.  
+
+I would not **deign** to comment on such behaviour. -  
+This was their fourth **successive** win.  
+Raymond was **stricken** with grief. -  
+
+This is a **fictitious** story.  
+He arranged a **parley** with us. -  
+And their **ambivalence** is never far away.  
+Trade is not a **panacea** for the world's economic or social ills.  
+Japanese is turning into a confused **mishmash** of languages.  
+They made their **getaway** on a stolen motorcycle.  
+The boys looked pretty **raunchy** after a night of drinking. -  
+
+## Week 3
+
+The **whirlpool** sucked down the boat.  
 His continuous chatter **vexes** me.  
 Never had she met such **spite** and **pettiness**. -  
 Worn rugs increase the danger of **tripping**.  
 In the **sweltering** **haze** of summer-noon. -  
 Times of national turmoil generally **roil** a country's financial markets. -  
-
 Concrete is basically sand plus **gravel** plus **cement**. Add water and you get an extraordinary reaction.  
 
 He also warned that Turkey may decide to **cut ties with** Israel.  
@@ -70,10 +142,10 @@ A window is a **viewpoint** of buffer.
 On Friday, we’ll hear more about consumers’ **psyches** when the University of Michigan Consumer Sentiment and Expectations preliminary reports for September are released.  
 
 **ineluctable**
-**Penicillin** can **inhibit** the spread of the bacteria and inflammation. -  
+**Penicillin** can **inhibit** the spread of the bacteria and inflammation.  
 Historical evidence lends **credence** to his theory.  
 She was a **statuesque** brunette.  
-She stood looking at Carmen with her mouth **agape**. -  
+She stood looking at Carmen with her mouth **agape**.  
 The boiled potato was **mealy**.   
 Take me to the **potty**. I need to **tinkle**.  
 
@@ -90,14 +162,14 @@ You're not gonna embarrass me with some **sappy** toast, are you?
 
 We all **lamented** the death of our friend.  
 Her offer of help was met with a sharp **rebuff**.  
-He spoke in a **haughty** tone. -  
+He spoke in a **haughty** tone.  
 The little **hamster** is dead!  
 The tradition of noblesse **oblige**.  
 Their ship was put into port to **careen** and **refit**.  
 Illinois seems to **careen** from one crisis to the next.  
 
 He is going to **abnegate** his plan. -  
-They still have to **broach** many tricky subjects. -  
+They still have to **broach** many tricky subjects.  
 Companies sometimes **poach** employees from one another.  
 
 Referring to Patrick as the “**cerebral brother**” feels a little like referring to Tyler as the “tall Winklevoss.” By any other standard, John is **obscenely** **well-read** and **polymathic**. But Patrick takes these **traits** to a different level.  
@@ -110,15 +182,15 @@ Judging by the polls, such efforts are likely to **fall flat**.
 Parents campaigned **in vain** for her **reinstatement**. -  
 Something was **niggling** her.  
 With low housing supply, the market will still crash in 2021? Are you kidding me!? I know it sounds **oxymoron**, that’s why I took longer in this video to explain why this is the case.  
-A **Mildew**-Resistant **Wet-Dry Bag** for **Fuss-Free** Storage. -  
+A **Mildew**-Resistant **Wet-Dry Bag** for **Fuss-Free** Storage.  
 
 
 ## Week 1 
 
 Getting lost in the idea of perfection is a **hindrance**. Being with someone who is committed to going through the **ups and downs** of life together is truly priceless. -  
-There’s a much more effective way to conquer your **vices**. -  
+There’s a much more effective way to conquer your **vices**.  
 In the moment, these uncomfortable **urges** seem like they’re going to last forever, but they never do. They’re like waves–they **crest, peak, and subside**.  
-I can show you this without any financial **mumbo-jumbo** or anything complex or complicated. -  
+I can show you this without any financial **mumbo-jumbo** or anything complex or complicated.  
 James Clear **dishes out** life-changing insights like they're T-shirts on a college campus.  
 > You don’t rise to the level of your goals, you fall to the level of your systems.  
 > Rather than worrying about the results you want, focus on becoming the type of person who could achieve those results.  
@@ -195,9 +267,9 @@ The teacher made the **rowdy** class quiet down.
 These men look a bit **drippy**.  
 The face was all **slimy** and **drippy**, but it wasn't crawling with **maggots** or anything disgusting.  
 
-For years, the couple's **tempestuous** relationship made the headlines. -  
+For years, the couple's **tempestuous** relationship made the headlines.  
 I always think it's better to **broach** these things **head-on**.  
-No. She broke up with me before I could **broach** the subject. -   
+No. She broke up with me before I could **broach** the subject.  
 **vituperate**  
 She wondered how she had got into this **unholy** mess.  
 The climax came one **sultry** August evening.  

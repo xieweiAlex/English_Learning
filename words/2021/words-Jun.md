@@ -96,7 +96,7 @@ She now directs a large **choir**.
 I mean isn't **Lucifer** a **synonym** for **Satan**?  
 
 The video will **dispel** some common developer myths about using secure protocols.  
-Nothing could **dispel** the **torpidity** of the indifferent audience.  
+Nothing could **dispel** the **torpidity** of the indifferent audience. -  
 Cross-Site Request **Forgery** (CSRF)
 A TV show about **wacky** characters and an alcoholic horse  
 He wouldn't have accepted such an **inglorious** outcome.  

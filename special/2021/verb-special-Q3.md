@@ -1,4 +1,8 @@
 
+**scrap** 
+
+## Week 2,3 
+
 **squish**, **squash** 
 
 **inhibit**
