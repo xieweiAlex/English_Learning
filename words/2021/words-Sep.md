@@ -1,6 +1,37 @@
+
+He could not support his family on his meager salary.  
+
+All rescue measures proved ineffectual.  
+Such comparisons are obviously specious and self-serving. -  
+Now he is viewed as one of those most culpable for the crisis.  
+
+The bird gave a startled **squawk**. - 
+Well, I'm in a **quandary**, and I need your help. -  
+Women tend to **impart** their secrets to their intimate friends.  
+Will you please not **suspect** my **venerable** ancestors?  
+**endorphin**  
+shake **shack** 
+You throw a **pebble** in a pool and it **ripples**.  
+
+The function of the **kidneys** is to **excrete** wastes from the body. -  
+The **congregation** stood to sing the **hymn**. -  
+nine-year **compulsory** education  
+The storm **wrought** **havoc** in the south. 
+
+The colourful flags added to the **gaiety** of the occasion. - 
+This kind of freedom is **licentious**.  
+**Palmy** times for stockbrokers.  
+This caused such a **ruckus** all over Japan that they had to change their mind. -  
+
+And you tell me she's not a **knockout**.  
+ARK ETFs have been struggling in 2021 after a **stellar** 2020, but let’s be real: almost everyone had a **knockout** 2020. 
+
+U.S. equity markets were flat on Friday as investors took a **breather** from a **hectic** trading week which saw stocks plunge on Monday then bounce back with a strong two-day rally Wednesday and Thursday.  
+
+
 ## Week 4 
 
-Today banks are much more **stringent** on their requirements.  
+Today banks are much more **stringent** on their requirements. -  
 **Dysbiosis** (also called **dysbacteriosis**) is a term for a **microbial** **imbalance** on or inside the body.  
 But being **psychologically** **clingy** is even worse.  
 as opposed to being too busy **divvying up** your allotted drink tickets.  
@@ -8,19 +39,19 @@ as opposed to being too busy **divvying up** your allotted drink tickets.
 In this case, people who risked $150 of their own money to win a $650 bonus prize were dramatically more likely to quit smoking than those who used traditional smoking **cessation** methods.  
 
 > On average, a bear market ends about 4 months before an economic recession does.  
+> A pact, like a protest slogan, is urgent, specific, and has a serious and unavoidable consequence.  
 
 Can’t Seem to Stick With Your Commitments? Try Making a **Pact**.  
 If Rose finished her **manuscript** by her self-determined deadline, she would get to cut into a celebratory cake. But if she didn't, she would let her kids cut off her long, curly hair.  
 Like a good protest slogan, a good pact demands action. Personal change, like social change, is hard and uncomfortable. When other tactics aren't enough, you need to **agitate** the **status quo**.  
-> A pact, like a protest slogan, is urgent, specific, and has a serious and unavoidable consequence.  
 
 After a **topsy-turvy** week, stocks yesterday were as flat as an air mattress 45 minutes after sleeping on it.  
 Plus, China’s not exactly known for its **laissez faire** governing style. It’s been on a regulation **spree** this year, from limiting kids’ online gaming to kicking ride-hailing company Didi off app stores.  
 The case was symbolic of the **frayed** relations between the US and China.  
-They’ll make the **trek** between Dallas and Houston a few times a week. - 
+They’ll make the **trek** between Dallas and Houston a few times a week.  
 
 Taking a look at modern examples of **exorbitant** money printing in countries like Venezuela and Zimbabwe, we see a similar modern hyper-inflationary story playing out.  
-the Chinese government has been tightening the **spigot** and **reining in** debt and lending practices, which has **stunted** Evergrande’s cash flow and has the company at the brink of bankruptcy. -  
+the Chinese government has been tightening the **spigot** and **reining in** debt and lending practices, which has **stunted** Evergrande’s cash flow and has the company at the brink of bankruptcy.  
 
 Demand for second homes **skid**.  
 The business world has been **captivated** by the slow-moving train **wreck** that is Evergrande, a massive Chinese real estate developer that’s buried up to its **penthouse** in debt.  
@@ -33,11 +64,11 @@ Imagination raises a man above the **humdrum** of life.
 
 He fears Australia is already China's **punching bag**.  
 At Voyager, we pride ourselves on **going against the grain**.  
-They usually **meander** down to the pub after work. -  
+They usually **meander** down to the pub after work.  
 **forensic** medicine  
 **watertight**  
-She endured the **monstrous** behaviour for years. -  
-A group of men are **erecting** a **monstrous** copper edifice. -  
+She endured the **monstrous** behaviour for years.  
+A group of men are **erecting** a **monstrous** copper edifice.  
 a **thoughtout** plan.  
 Is it necessary to decide between **remunerative** work and meaningful work? -  
 Here’s your iPhone 13 review, **hot off** the presses.  
@@ -49,7 +80,7 @@ He replied with **haughty** **disdain**.
 There was a dark **smudge** on his **forehead**.  
 That idea **enrages** many of her **detractors**.  
 But the company quickly **fell behind**, missing payments earlier this month and leaving thousands of employees **in a lurch** 
-China is caught in a very tough spot with no easy options. Act quickly with a bailout and be viewed as **condoning** the financial **excess** that led to the problem. -  
+China is caught in a very tough spot with no easy options. Act quickly with a bailout and be viewed as **condoning** the financial **excess** that led to the problem.  
 (I don't **condone** violence in any shape or form)  
 The government will likely rescue it but the equity and some bond holders will be wiped out to **obviate** moral hazard. -  
 Those bonds are trading **close to par**.  
@@ -77,8 +108,8 @@ The **whirlpool** sucked down the boat.
 His continuous chatter **vexes** me.  
 Never had she met such **spite** and **pettiness**. -  
 Worn rugs increase the danger of **tripping**.  
-In the **sweltering** **haze** of summer-noon. -  
-Times of national turmoil generally **roil** a country's financial markets. -  
+In the **sweltering** **haze** of summer-noon.  
+Times of national turmoil generally **roil** a country's financial markets.  
 Concrete is basically sand plus **gravel** plus **cement**. Add water and you get an extraordinary reaction.  
 
 He also warned that Turkey may decide to **cut ties with** Israel.  
@@ -86,7 +117,7 @@ President's decided to **break off** diplomatic relations.
 **unilateral**, **bilateral**, **trilateral**.  
 
 France is so **infuriated** that its foreign affairs minister, Jean-Yves Le Drian, **unleashed** a **tirade** against President Biden. -  
-"This **unilateral**, brutal and **unpredictable** decision" reminded him of former President Donald Trump’s **arbitrary** and **capricious** behavior toward France. -  
+"This **unilateral**, brutal and **unpredictable** decision" reminded him of former President Donald Trump’s **arbitrary** and **capricious** behavior toward France.  
 The **scrapped** deal could cost the French defense industry around $65.7 billion.  
 
 While sealing an agreement with the U.S. and U.K. to acquire nuclear submarines, Australia **ripped up** an existing $90 billion submarine deal with France.  
@@ -101,16 +132,16 @@ Other analysts say the comparisons to Lehman Brothers are **overblown** and that
 The **concessions** did little to **placate** the students. -  
 Apple and Google **bow to** pressure in Russia to remove Kremlin critic’s **tactical** voting app.  
 How did this **weather vane** of the US economy become a car crash of a corporation?   
-He just **flied into rage** at such a **peccadillo**! -  
+He just **flied into rage** at such a **peccadillo**!  
 Your response should express your thoughts clearly and **succinctly**, **lasting** one to two minutes.  
 
-To be clear, I blame Larry Nassar, but I also blame an entire system that enabled and **perpetrated** his abuse. -  
+To be clear, I blame Larry Nassar, but I also blame an entire system that enabled and **perpetrated** his abuse.  
 **drag through the mud**.  
 This has brought back a **modicum** of stability.  
 A front camera that doesn't **take a back seat**.  
 Take a great photo without **lifting a finger**.  
 We don't need to **stint** ourselves—have some more!  
-He did a **stint** abroad early in his career. -  
+He did a **stint** abroad early in his career.  
 It was a heavy **affliction** to them to see the beloved prince so **stricken**. -  
 Her life was **sedate**, almost **mundane**.  
 Human nature is **frail**.  
@@ -168,7 +199,7 @@ The tradition of noblesse **oblige**.
 Their ship was put into port to **careen** and **refit**.  
 Illinois seems to **careen** from one crisis to the next.  
 
-He is going to **abnegate** his plan. -  
+He is going to **abnegate** his plan.  
 They still have to **broach** many tricky subjects.  
 Companies sometimes **poach** employees from one another.  
 
@@ -179,7 +210,7 @@ The film had been shot in a **decrepit** old police station.
 **uprooting**  
 He finally worked out a **face-saving** arrangement.  
 Judging by the polls, such efforts are likely to **fall flat**.  
-Parents campaigned **in vain** for her **reinstatement**. -  
+Parents campaigned **in vain** for her **reinstatement**.  
 Something was **niggling** her.  
 With low housing supply, the market will still crash in 2021? Are you kidding me!? I know it sounds **oxymoron**, that’s why I took longer in this video to explain why this is the case.  
 A **Mildew**-Resistant **Wet-Dry Bag** for **Fuss-Free** Storage.  
@@ -220,7 +251,7 @@ Some day I will **reciprocate** your great kindness to me.
 To my great relief, I was mentioned only once or twice and not in **opprobrious** terms.  
 People **dress to the nines** for the Christmas party.  
 These films are likely to **deprave** the children.  
-I shall never attempt to **palliate** my own **foible** by expose the error of another. -  
+I shall never attempt to **palliate** my own **foible** by expose the error of another.  
 He was full of **bonhomie**.  
 She gave me a **coy** smile.  
 We know big tech stocks made a comeback, but the list of the best performers shows a **hodgepodge** of companies across sectors.  
@@ -238,7 +269,7 @@ a **commendatory** letter.
 **Novice** **rookie** **neophyte** **tyro**. -  
 **chipmunk**  
 Here's a **barf** bag.  
-Ben's getting a little **testy** in his old age. -  
+Ben's getting a little **testy** in his old age.  
 She gave a sharp **toot** on her horn.  
 Do not just spout marketing **spiel** or you will quickly lose followers.  
 You're on mute... Now repeat the 30-second **spiel**.  

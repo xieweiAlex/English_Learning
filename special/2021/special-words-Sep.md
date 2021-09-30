@@ -1,4 +1,8 @@
 
+
+**euphemistic**
+**euphemism**
+
 **arduous**
 
 ## Week 3 
@@ -22,8 +26,6 @@
 **wariness**  
 
 ## Week 1  
-
-**euphemism**
 
 **ludicrous**
 

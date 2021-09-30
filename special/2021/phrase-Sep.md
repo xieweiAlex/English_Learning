@@ -1,3 +1,4 @@
+as opposed to being too busy **divvying up** your allotted drink tickets.  
 Here’s your iPhone 13 review, **hot off** the presses.  
 At Voyager, we pride ourselves on **going against the grain**.  
 

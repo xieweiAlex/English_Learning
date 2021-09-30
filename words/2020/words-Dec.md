@@ -53,7 +53,7 @@ He had reached a **crossroads** in his career.
 Those of you who celebrate Christmas may be celebrating the **Nativity** of Jesus, whose life is a demonstration of the power of one.  
 
 shares of the cruise line companies **bobbed** higher on recovery hopes  
-It is soaring to record levels as investors lean into stocks, hoping for more **torrid** gains in 2021  
+It is soaring to record levels as investors lean into stocks, hoping for more **torrid** gains in 2021. - 
 
 TAN, the solar ETF, really started **cooking** when it appeared that Joe Biden would win the U.S. presidential election.  
 The surge in risk-taking indicates that investors were **euphoric** as COVID-19 vaccines **neared**  

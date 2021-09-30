@@ -1,4 +1,5 @@
 
+* quandary vs dilemma   
 * faze vs fray 
 * raunchy vs squalid vs squalor 
 * fastidious, picky, finicky, cavil  
