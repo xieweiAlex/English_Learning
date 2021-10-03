@@ -1,9 +1,43 @@
 
-He could not support his family on his meager salary.  
+## Week 5  
 
-All rescue measures proved ineffectual.  
-Such comparisons are obviously specious and self-serving. -  
-Now he is viewed as one of those most culpable for the crisis.  
+This is the third time Venezuela’s leaders have **lopped off** some zeroes on its currency in an attempt to address the country’s hyperinflation.  
+Crypto is being used as a **palliative** for the economic situation, but you see it mostly among businesses.  
+
+Japan deserves better than an **inoffensive** prime minister.  
+Allbirds' **superfine** **merino** **fabric** is comfortably **snug** and expertly conforms to fit the **contours** of your foot, while the mesh tree fabric is form-fitting and **stretchy**, hugging your feet in all the right places  
+By placing your order, you accept the gift as a form of taxable **imputed** incom. -  
+
+**cerebral** palsy, **cerebral** **cortex**
+Virgin Galactic (SPCE) can return to the final frontier, and the news sent its stock price **skyward**. -  
+Airbnb has expanded to unique stays like **yurts**, **houseboats**, and caves to lure adventure-hungry remote workers. -  
+China's new reality is **rife with danger**. -  
+describing it as a toxic worksplace "**rife** with sexism".  
+
+She watched them through a **slit** in the curtains.  
+They say somebody **slit** her throat.  
+Don't **wrangle** with others over trifles.  
+**penniless**  
+**noblesse**  
+**sclerotic**, **sclerosis** -  
+The presidential contest is **nip and tuck**.  
+**Capital punishment** is a highly **emotive** issue.  
+It was **muggy** and **overcast**.  
+The bread, **pastry** and mayonnaise are homemade.  
+He's **setting up** this **patsy** to **take the fall**. -  
+But relatively high growth of service output does not have the same **propulsive** effect on growth of industrial productivity.  
+**empirical** analysis  
+He is just a **whipping boy** in this accident.  
+Their quarterly meetings were **anodyne** affairs.  
+
+He rubbed his arms and **stiff** legs.  
+A **decrepit** old man sat on a park bench. -  
+
+Love, like death, a universal **leveller** of mankind.   
+He could not support his family on his **meager** salary. -  
+All rescue measures proved **ineffectual**.  
+Such comparisons are obviously **specious** and self-serving. -  
+Now he is viewed as one of those most **culpable** for the crisis.  
 
 The bird gave a startled **squawk**. - 
 Well, I'm in a **quandary**, and I need your help. -  
@@ -22,10 +56,8 @@ The colourful flags added to the **gaiety** of the occasion. -
 This kind of freedom is **licentious**.  
 **Palmy** times for stockbrokers.  
 This caused such a **ruckus** all over Japan that they had to change their mind. -  
-
 And you tell me she's not a **knockout**.  
 ARK ETFs have been struggling in 2021 after a **stellar** 2020, but let’s be real: almost everyone had a **knockout** 2020. 
-
 U.S. equity markets were flat on Friday as investors took a **breather** from a **hectic** trading week which saw stocks plunge on Monday then bounce back with a strong two-day rally Wednesday and Thursday.  
 
 
@@ -251,7 +283,7 @@ Some day I will **reciprocate** your great kindness to me.
 To my great relief, I was mentioned only once or twice and not in **opprobrious** terms.  
 People **dress to the nines** for the Christmas party.  
 These films are likely to **deprave** the children.  
-I shall never attempt to **palliate** my own **foible** by expose the error of another.  
+I shall never attempt to **palliate** my own **foible** by expose the error of another. -  
 He was full of **bonhomie**.  
 She gave me a **coy** smile.  
 We know big tech stocks made a comeback, but the list of the best performers shows a **hodgepodge** of companies across sectors.  

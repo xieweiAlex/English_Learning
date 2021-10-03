@@ -1,3 +1,14 @@
+
+## Week 4,5
+
+People **girding** themselves for a tragedy. -  
+There people **with an ax to grind**, no hard evidence and some travel logs?  
+He is just a **whipping boy** in this accident.  
+He's **setting up** this **patsy** to **take the fall**. -  
+The presidential contest is **nip and tuck**.  
+There people **with an ax to grind**, no hard evidence and some travel logs?  
+Oh, I **got under your skin** the first time we met.  
+
 as opposed to being too busy **divvying up** your allotted drink tickets.  
 Here’s your iPhone 13 review, **hot off** the presses.  
 At Voyager, we pride ourselves on **going against the grain**.  

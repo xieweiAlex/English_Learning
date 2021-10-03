@@ -1,4 +1,11 @@
 
+## Week 4, 5
+
+**leveller**
+
+**palliative**
+
+**lopsided**
 
 **euphemistic**
 **euphemism**
@@ -38,6 +45,7 @@
 **vigilant**  
 
 **perpetuate**  
+**perpetrate**
 
 **misinterpret**
 
