@@ -181,7 +181,7 @@ He is a possessive, **duplicitous**, and **unreasonable** man.
 > Stones **whet** a sword, difficulties strengthen willpower.  
 
 that is the **ineluctable** **modality** of the audible.  
-To receive a compliment, in many cultures, is to **demur** -  
+To receive a compliment, in many cultures, is to **demur**  
 He enjoyed drinking and **jesting** with his **cronies**.  
 Tim could barely **conceal** his disappointment.  
 **Nile** river  

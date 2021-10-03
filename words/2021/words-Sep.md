@@ -1,4 +1,7 @@
 
+skywalk  
+The politicking in Seattle is extremely intense.  
+
 ## Week 5  
 
 This is the third time Venezuela’s leaders have **lopped off** some zeroes on its currency in an attempt to address the country’s hyperinflation.  
@@ -55,7 +58,7 @@ The storm **wrought** **havoc** in the south.
 The colourful flags added to the **gaiety** of the occasion. - 
 This kind of freedom is **licentious**.  
 **Palmy** times for stockbrokers.  
-This caused such a **ruckus** all over Japan that they had to change their mind. -  
+This caused such a **ruckus** all over Japan that they had to change their mind.  
 And you tell me she's not a **knockout**.  
 ARK ETFs have been struggling in 2021 after a **stellar** 2020, but let’s be real: almost everyone had a **knockout** 2020. 
 U.S. equity markets were flat on Friday as investors took a **breather** from a **hectic** trading week which saw stocks plunge on Monday then bounce back with a strong two-day rally Wednesday and Thursday.  
@@ -102,7 +105,7 @@ They usually **meander** down to the pub after work.
 She endured the **monstrous** behaviour for years.  
 A group of men are **erecting** a **monstrous** copper edifice.  
 a **thoughtout** plan.  
-Is it necessary to decide between **remunerative** work and meaningful work? -  
+Is it necessary to decide between **remunerative** work and meaningful work?  
 Here’s your iPhone 13 review, **hot off** the presses.  
 Crowded areas can make **silverbacks** more violent, scientists say.  
 They'll dare not **come after** us there.  
@@ -127,7 +130,7 @@ This was their fourth **successive** win.
 Raymond was **stricken** with grief. -  
 
 This is a **fictitious** story.  
-He arranged a **parley** with us. -  
+He arranged a **parley** with us.  
 And their **ambivalence** is never far away.  
 Trade is not a **panacea** for the world's economic or social ills.  
 Japanese is turning into a confused **mishmash** of languages.  
@@ -148,14 +151,14 @@ He also warned that Turkey may decide to **cut ties with** Israel.
 President's decided to **break off** diplomatic relations.  
 **unilateral**, **bilateral**, **trilateral**.  
 
-France is so **infuriated** that its foreign affairs minister, Jean-Yves Le Drian, **unleashed** a **tirade** against President Biden. -  
+France is so **infuriated** that its foreign affairs minister, Jean-Yves Le Drian, **unleashed** a **tirade** against President Biden.  
 "This **unilateral**, brutal and **unpredictable** decision" reminded him of former President Donald Trump’s **arbitrary** and **capricious** behavior toward France.  
 The **scrapped** deal could cost the French defense industry around $65.7 billion.  
 
 While sealing an agreement with the U.S. and U.K. to acquire nuclear submarines, Australia **ripped up** an existing $90 billion submarine deal with France.  
 French Foreign Minister Jean-Yves Le Drian **fumed** on Thursday, comparing Biden's announcement to "what Mr. Trump used to do."  
 Secretary of State Tony Blinken tried to **mop things up** by praising France as a crucial ally in the Indo-Pacific, but to **no avail**.  
-**Between the lines**: This move could be **in part** intended for domestic **conception** after a major international **snub**, and with a presidential election **looming** in April. -  
+**Between the lines**: This move could be **in part** intended for domestic **conception** after a major international **snub**, and with a presidential election **looming** in April.  
 
 Tech companies and the US government have an **interdependent**, but at times fraught, relationship.
 The company’s 2018 algorithm change made users angrier, although it was **billed** as promoting healthy engagement.  
@@ -197,7 +200,7 @@ He's a **malicious** and **malevolent** **malefactor** and **gangster**. -
 Angels are **celestial** beings.  
 She supports her theory with **copious** evidence.  
 Even the most **finicky** eater will find something appetizing here.  
-She has been encouraged by the **unwavering** support of her family. -   
+She has been encouraged by the **unwavering** support of her family.  
 a **studious** boy.  
 
 I have “quietly “ adored these **natty** dressers! It’s hard to announce that in a crowd. -  
@@ -216,7 +219,7 @@ His **canoe** was there, on the river below the **rapids**.
 I was on **picket** duty at the time.  
 **flagpole**  
 He was **apoplectic** with rage at the decision.  
-The surveyor had not expected such a **denouement**. -  
+The surveyor had not expected such a **denouement**.  
 It became very clear that the incident was not just an **aberration**; it was not just a single incident.  
 > When you view the world through a dirty lens, everything looks dirty. When you consider all of the facts through a clean lens you will see a different picture.  
 
@@ -250,7 +253,7 @@ A **Mildew**-Resistant **Wet-Dry Bag** for **Fuss-Free** Storage.
 
 ## Week 1 
 
-Getting lost in the idea of perfection is a **hindrance**. Being with someone who is committed to going through the **ups and downs** of life together is truly priceless. -  
+Getting lost in the idea of perfection is a **hindrance**. Being with someone who is committed to going through the **ups and downs** of life together is truly priceless.  
 There’s a much more effective way to conquer your **vices**.  
 In the moment, these uncomfortable **urges** seem like they’re going to last forever, but they never do. They’re like waves–they **crest, peak, and subside**.  
 I can show you this without any financial **mumbo-jumbo** or anything complex or complicated.  
@@ -296,7 +299,7 @@ He got rich by **devious** **means**.
 
 His voice was **husky** with grief.
 This young man had all the **inclination** to be a **profligate** of the first water. 
-he succumbed to drink and a **profligate** lifestyle. -  
+he succumbed to drink and a **profligate** lifestyle.  
 a **commendatory** letter.  
 **Novice** **rookie** **neophyte** **tyro**. -  
 **chipmunk**  
@@ -336,7 +339,7 @@ No. She broke up with me before I could **broach** the subject.
 **vituperate**  
 She wondered how she had got into this **unholy** mess.  
 The climax came one **sultry** August evening.  
-Supply chains remain **discombobulated** as US retailers rush to bring in goods from Asia ahead of the holiday shopping season. -  
+Supply chains remain **discombobulated** as US retailers rush to bring in goods from Asia ahead of the holiday shopping season.  
 The Taliban are telling some farmers to stop cultivating opium **poppies** as the group tries to gain wider international acceptance, per the WSJ.  
 this new **state of affairs** is somehow sustainable and viable economic **symbiotic** relationship between America and the rest of the world.  
 The Big Shot Michael Burry buys Real Assets **hand over fist**.  
