@@ -2,15 +2,36 @@
   
 Expanding vocabulary for a non native-speaker is very tedious and time-consuming, how do you think about it 🤔? I try to record the **words or phrases** I encounter everyday with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and if it can inspire someone else, that's even better 💖.  
 
+
+### Current 
+[Words](./words/2021/words-Sep.md) |
+[Special word](./special/2021/special-words-Sep.md) |
+[Phrase](./special/2021/phrase-Sep.md) |
+[Verb](./special/2021/verb-special-Q3.md)
+
+### Prior 
+[Words](./words/2021/words-Aug.md) |
+[Special word](./special/2021/special-words-Aug.md) |
+[Phrase](./special/2021/phrase-Aug.md) |
+[Verb](./special/2021/verb-special-Q2.md)
+
+### House of Cards 
+[S1](./media/houseOfCards/HOC1.md) |
+[S2](./media/houseOfCards/HOC2.md) |
+[S3](./media/houseOfCards/HOC3.md) |
+[S4](./media/houseOfCards/HOC4.md) |
+
+
 ### General Review 
 |  Review 🐗        |    File Marks       |  file   	|
 | -------------     |-------------  | ------- |
-| Monthly Word              |  A  | [Current Month](./words/2021/words-Sep.md)  |
 | Monthly Word **Review**   |  I  |  [Words Review](./words-review.md)       |
+| Monthly Word              |  A  | [Current Month](./words/2021/words-Sep.md)  |
 | Monthly **Phrase**        |  J  | [Special Phrase](./special/2021/phrase-Sep.md)
 | Monthly **Special Words** |  K  | [Special Words](./special/2021/special-words-Sep.md)
 | Monthly **Verb Words**    |  V  | [Special Verb][verb-2021-Q2]       |
 | **Movie** Record          |  L | [movie-record](./media/movie.md)       |
+
 
 
 ### Special Review
