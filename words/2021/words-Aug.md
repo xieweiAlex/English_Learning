@@ -53,7 +53,7 @@ It’s not wind **turbines** or solar panels
 
 He delivered the speech in his own **inimitable** style.  
 A **dearth** of corn caused the prices to go up  
-There is nothing so **sanative** as a walk in the woods.  
+There is nothing so **sanative** as a walk in the woods. -  
 **conjoin**  
 The report is based entirely on **supposition**.  
 

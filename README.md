@@ -4,12 +4,20 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 
 
 ### Current 
+
+[Words](./words/2021/words-Oct.md) |
+[Special word](./special/2021/special-words-Oct.md) |
+[Phrase](./special/2021/phrase-Oct.md) |
+[Verb](./special/2021/verb-special-Q4.md)
+
+### Prior 
+
 [Words](./words/2021/words-Sep.md) |
 [Special word](./special/2021/special-words-Sep.md) |
 [Phrase](./special/2021/phrase-Sep.md) |
 [Verb](./special/2021/verb-special-Q3.md)
 
-### Prior 
+
 [Words](./words/2021/words-Aug.md) |
 [Special word](./special/2021/special-words-Aug.md) |
 [Phrase](./special/2021/phrase-Aug.md) |

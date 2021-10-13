@@ -1,7 +1,3 @@
-
-skywalk  
-The politicking in Seattle is extremely intense.  
-
 ## Week 5  
 
 This is the third time Venezuela’s leaders have **lopped off** some zeroes on its currency in an attempt to address the country’s hyperinflation.  
@@ -9,12 +5,12 @@ Crypto is being used as a **palliative** for the economic situation, but you see
 
 Japan deserves better than an **inoffensive** prime minister.  
 Allbirds' **superfine** **merino** **fabric** is comfortably **snug** and expertly conforms to fit the **contours** of your foot, while the mesh tree fabric is form-fitting and **stretchy**, hugging your feet in all the right places  
-By placing your order, you accept the gift as a form of taxable **imputed** incom. -  
+By placing your order, you accept the gift as a form of taxable **imputed** income. -  
 
 **cerebral** palsy, **cerebral** **cortex**
-Virgin Galactic (SPCE) can return to the final frontier, and the news sent its stock price **skyward**. -  
+Virgin Galactic (SPCE) can return to the final frontier, and the news sent its stock price **skyward**.  
 Airbnb has expanded to unique stays like **yurts**, **houseboats**, and caves to lure adventure-hungry remote workers. -  
-China's new reality is **rife with danger**. -  
+China's new reality is **rife with danger**.  
 describing it as a toxic worksplace "**rife** with sexism".  
 
 She watched them through a **slit** in the curtains.  
@@ -34,28 +30,27 @@ He is just a **whipping boy** in this accident.
 Their quarterly meetings were **anodyne** affairs.  
 
 He rubbed his arms and **stiff** legs.  
-A **decrepit** old man sat on a park bench. -  
+A **decrepit** old man sat on a park bench.  
 
 Love, like death, a universal **leveller** of mankind.   
-He could not support his family on his **meager** salary. -  
+He could not support his family on his **meager** salary.  
 All rescue measures proved **ineffectual**.  
 Such comparisons are obviously **specious** and self-serving. -  
 Now he is viewed as one of those most **culpable** for the crisis.  
 
 The bird gave a startled **squawk**. - 
-Well, I'm in a **quandary**, and I need your help. -  
+Well, I'm in a **quandary**, and I need your help.  
 Women tend to **impart** their secrets to their intimate friends.  
 Will you please not **suspect** my **venerable** ancestors?  
-**endorphin**  
 shake **shack** 
 You throw a **pebble** in a pool and it **ripples**.  
 
-The function of the **kidneys** is to **excrete** wastes from the body. -  
-The **congregation** stood to sing the **hymn**. -  
+The function of the **kidneys** is to **excrete** wastes from the body.  
+The **congregation** stood to sing the **hymn**.  
 nine-year **compulsory** education  
 The storm **wrought** **havoc** in the south. 
 
-The colourful flags added to the **gaiety** of the occasion. - 
+The colourful flags added to the **gaiety** of the occasion.  
 This kind of freedom is **licentious**.  
 **Palmy** times for stockbrokers.  
 This caused such a **ruckus** all over Japan that they had to change their mind.  
@@ -66,7 +61,7 @@ U.S. equity markets were flat on Friday as investors took a **breather** from a 
 
 ## Week 4 
 
-Today banks are much more **stringent** on their requirements. -  
+Today banks are much more **stringent** on their requirements.  
 **Dysbiosis** (also called **dysbacteriosis**) is a term for a **microbial** **imbalance** on or inside the body.  
 But being **psychologically** **clingy** is even worse.  
 as opposed to being too busy **divvying up** your allotted drink tickets.  
@@ -125,7 +120,7 @@ His book **commingles** sarcasm and sadness.
 **Insulin** enables the body to use and store sugar.  
 **Cicada** sings in summer.  
 
-I would not **deign** to comment on such behaviour. -  
+I would not **deign** to comment on such behaviour.  
 This was their fourth **successive** win.  
 Raymond was **stricken** with grief. -  
 
@@ -135,7 +130,7 @@ And their **ambivalence** is never far away.
 Trade is not a **panacea** for the world's economic or social ills.  
 Japanese is turning into a confused **mishmash** of languages.  
 They made their **getaway** on a stolen motorcycle.  
-The boys looked pretty **raunchy** after a night of drinking. -  
+The boys looked pretty **raunchy** after a night of drinking.  
 
 ## Week 3
 
@@ -164,7 +159,7 @@ Tech companies and the US government have an **interdependent**, but at times fr
 The company’s 2018 algorithm change made users angrier, although it was **billed** as promoting healthy engagement.  
 Other analysts say the comparisons to Lehman Brothers are **overblown** and that the Chinese government will probably, **begrudgingly**, step in to prevent Evergrande from triggering a broader **meltdown**.  
 
-The **concessions** did little to **placate** the students. -  
+The **concessions** did little to **placate** the students.  
 Apple and Google **bow to** pressure in Russia to remove Kremlin critic’s **tactical** voting app.  
 How did this **weather vane** of the US economy become a car crash of a corporation?   
 He just **flied into rage** at such a **peccadillo**!  
@@ -203,7 +198,7 @@ Even the most **finicky** eater will find something appetizing here.
 She has been encouraged by the **unwavering** support of her family.  
 a **studious** boy.  
 
-I have “quietly “ adored these **natty** dressers! It’s hard to announce that in a crowd. -  
+I have “quietly “ adored these **natty** dressers! It’s hard to announce that in a crowd.  
 A window is a **viewpoint** of buffer.  
 On Friday, we’ll hear more about consumers’ **psyches** when the University of Michigan Consumer Sentiment and Expectations preliminary reports for September are released.  
 
@@ -268,11 +263,11 @@ But what happens when a stock truly takes a **shellacking** in the market after 
 Of course, Zoom needs a **multipronged** strategy to maintain a double-digit growth rate.  
 system **choke point**
 **banal**, **trite**  
-It sounds **trite**, but it's true. -  
+It sounds **trite**, but it's true.  
 sales **proceeds**, net **proceeds**  
 **Squint** my eyes just a little bit.  
 This is a **perilous** hour for all of us.  
-She wasn't very **fastidious** about personal hygiene. -  
+She wasn't very **fastidious** about personal hygiene.  
 **promiscuity**  
 **lancet** 
 GMT: **Greenwich Mean Time**, **Zulu time**   
@@ -286,7 +281,7 @@ Some day I will **reciprocate** your great kindness to me.
 To my great relief, I was mentioned only once or twice and not in **opprobrious** terms.  
 People **dress to the nines** for the Christmas party.  
 These films are likely to **deprave** the children.  
-I shall never attempt to **palliate** my own **foible** by expose the error of another. -  
+I shall never attempt to **palliate** my own **foible** by expose the error of another.  
 He was full of **bonhomie**.  
 She gave me a **coy** smile.  
 We know big tech stocks made a comeback, but the list of the best performers shows a **hodgepodge** of companies across sectors.  

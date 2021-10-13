@@ -1,5 +1,7 @@
 
-* quandary vs dilemma   
+* pliable, pliant
+* abnegate vs abstain 
+* quandary vs dilemma vs predicament   
 * faze vs fray 
 * raunchy vs squalid vs squalor 
 * fastidious, picky, finicky, cavil  

@@ -1,10 +1,9 @@
-
+I'm not holding back, Francis, I have **reached out**.  
 ## Week 4,5
 
-People **girding** themselves for a tragedy. -  
-There people **with an ax to grind**, no hard evidence and some travel logs?  
+People **girding** themselves for a tragedy.   
 He is just a **whipping boy** in this accident.  
-He's **setting up** this **patsy** to **take the fall**. -  
+He's **setting up** this **patsy** to **take the fall**.   
 The presidential contest is **nip and tuck**.  
 There people **with an ax to grind**, no hard evidence and some travel logs?  
 Oh, I **got under your skin** the first time we met.  
