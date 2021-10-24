@@ -304,7 +304,7 @@ the **gremlin**
 We spent a **sedate** evening at home  
 Deep **Sedation**  
 A **general** comes before a **colonel**.  
-A woman protester was killed by a **ricochet** (bullet). -  
+A woman protester was killed by a **ricochet** (bullet).  
 the sound **ricocheted** around the hall.  
 **mugger**  
 eagle's **talons**  

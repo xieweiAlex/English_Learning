@@ -10,6 +10,8 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 [Phrase](./special/2021/phrase-Oct.md) |
 [Verb](./special/2021/verb-special-Q4.md)
 
+[SeinField](./media/seinfeld.md)
+
 ### Prior 
 
 [Words](./words/2021/words-Sep.md) |

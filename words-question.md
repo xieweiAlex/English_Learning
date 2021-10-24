@@ -1,4 +1,5 @@
 
+* white-knuckle
 * pliable, pliant
 * abnegate vs abstain 
 * quandary vs dilemma vs predicament   

@@ -5,7 +5,7 @@ Crypto is being used as a **palliative** for the economic situation, but you see
 
 Japan deserves better than an **inoffensive** prime minister.  
 Allbirds' **superfine** **merino** **fabric** is comfortably **snug** and expertly conforms to fit the **contours** of your foot, while the mesh tree fabric is form-fitting and **stretchy**, hugging your feet in all the right places  
-By placing your order, you accept the gift as a form of taxable **imputed** income. -  
+By placing your order, you accept the gift as a form of taxable **imputed** income.  
 
 **cerebral** palsy, **cerebral** **cortex**
 Virgin Galactic (SPCE) can return to the final frontier, and the news sent its stock price **skyward**.  
@@ -23,7 +23,7 @@ The presidential contest is **nip and tuck**.
 **Capital punishment** is a highly **emotive** issue.  
 It was **muggy** and **overcast**.  
 The bread, **pastry** and mayonnaise are homemade.  
-He's **setting up** this **patsy** to **take the fall**. -  
+He's **setting up** this **patsy** to **take the fall**.  
 But relatively high growth of service output does not have the same **propulsive** effect on growth of industrial productivity.  
 **empirical** analysis  
 He is just a **whipping boy** in this accident.  
@@ -35,10 +35,10 @@ A **decrepit** old man sat on a park bench.
 Love, like death, a universal **leveller** of mankind.   
 He could not support his family on his **meager** salary.  
 All rescue measures proved **ineffectual**.  
-Such comparisons are obviously **specious** and self-serving. -  
+Such comparisons are obviously **specious** and self-serving.  
 Now he is viewed as one of those most **culpable** for the crisis.  
 
-The bird gave a startled **squawk**. - 
+The bird gave a startled **squawk**.  
 Well, I'm in a **quandary**, and I need your help.  
 Women tend to **impart** their secrets to their intimate friends.  
 Will you please not **suspect** my **venerable** ancestors?  
@@ -172,7 +172,7 @@ A front camera that doesn't **take a back seat**.
 Take a great photo without **lifting a finger**.  
 We don't need to **stint** ourselves—have some more!  
 He did a **stint** abroad early in his career.  
-It was a heavy **affliction** to them to see the beloved prince so **stricken**. -  
+It was a heavy **affliction** to them to see the beloved prince so **stricken**.  
 Her life was **sedate**, almost **mundane**.  
 Human nature is **frail**.  
 He crouched behind a low **hedgerow**.  
@@ -296,7 +296,7 @@ His voice was **husky** with grief.
 This young man had all the **inclination** to be a **profligate** of the first water. 
 he succumbed to drink and a **profligate** lifestyle.  
 a **commendatory** letter.  
-**Novice** **rookie** **neophyte** **tyro**. -  
+**Novice** **rookie** **neophyte** **tyro**.  
 **chipmunk**  
 Here's a **barf** bag.  
 Ben's getting a little **testy** in his old age.  

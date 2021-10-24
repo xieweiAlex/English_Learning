@@ -1,4 +1,4 @@
-I'm not holding back, Francis, I have **reached out**.  
+
 ## Week 4,5
 
 People **girding** themselves for a tragedy.   
