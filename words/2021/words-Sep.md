@@ -18,7 +18,7 @@ They say somebody **slit** her throat.
 Don't **wrangle** with others over trifles.  
 **penniless**  
 **noblesse**  
-**sclerotic**, **sclerosis** -  
+**sclerotic**, **sclerosis**  
 The presidential contest is **nip and tuck**.  
 **Capital punishment** is a highly **emotive** issue.  
 It was **muggy** and **overcast**.  
@@ -276,7 +276,7 @@ Cathie Wood was apparently **unfazed** by Zoom Video Communications Inc.’s pos
 I didn't **make the cut** for the yearbook.  
 We're two months **in arrears** with the rent. 
 
-The city was filled with **incogitant** **litterbugs**. -  
+The city was filled with **incogitant** **litterbugs**.  
 Some day I will **reciprocate** your great kindness to me.  
 To my great relief, I was mentioned only once or twice and not in **opprobrious** terms.  
 People **dress to the nines** for the Christmas party.  

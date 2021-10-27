@@ -1,6 +1,15 @@
 
 ## Season 2  
 
+Tell anyone answers the phone to ask a balding stocky man with glasses.  
+The chain reaction of calls, this is gonna set off.  
+cannibalism  
+
+pesto  
+busboy  
+
+
+
 When I finally see her, I'm like a little **groveling** worm. -  
 What are you gonna do? **Badger** a pregnant woman at her own baby shower?  
 You though you could **waltz through** the rest of life and never **bump into** me again, but you were wrong, Jerry!  
@@ -33,7 +42,7 @@ They never **fumble** for the checkbook.
 
 That's just the way I was **brought up**.  
 **Tan pants**  
-My brother in law once left a message on this guy's machine, and he **blurted** out some business information he wasn't suppose to, and it would've cost him $15,000. -  
+My brother in law once left a message on this guy's machine, and he **blurted** out some business information he wasn't suppose to, and it would've cost him $15,000.  
 I just **bumped into** him around the corner, what a coincidence.  
 
 I don't want to be **presumptuous**.  

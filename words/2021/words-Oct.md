@@ -1,8 +1,45 @@
 
+Elk rut at Great smoky Mountains National Park.  
+
+
+These luxuriantly packaged mooncakes are selling well both in supermarkets and hotels around the country.  
+an imperturbable tranquillity. -  
+he felt a **yearning** for the mountains  
+There's so much saccharine in this, it's giving me cancer.  
+They live in the posh part of town.  
+Worn rugs increase the danger of tripping.  
+I was offended by his discourteous reply.  
+He wiped a tear from his sightless eyes.  
+gunship  
+He was winded and shaken.  
+I hope I'm not being too long-winded.  
+He arranged a parley with us.  
+**oaf**  
+
+On Tuesday the outcome of the six-month inquiry could be **watered down** further.  
+In his latest work, he has changed **tack** and **delved into** the life of a neglected American journalist.  
+Another “zero covid” **holdout**.  
+Ofcom says 45m Britons were targeted by scammers this summer, including **mendacious** text messages and landline calls. -  
+
+He was so **cocksure** that she would call him first.  
+Who wouldn't want a job with a food salary and **commodious** living quarters? -  
+The ordinary feelings which make life **amiable** and **indolent**, were unknown to him. -  
+
+He was given only a wooden **pallet** with a blanket. -   
+Stories about the shortages **plaguing** American firms can be found throughout the Federal Reserve’s “**Beige Book**”, a survey of economic conditions across the country that is published eight times a year.  
+A protester yelled “nice suit you f*cking shill”, and the **taunt** was met with cheer by his companion.   
+
+People today are no **dimmer** than their Iron Age forebears.  
+job openings **outstrip** available workers. This gives confidence to the **strikers**.  
+When unemployment was low and wages were growing fast at the beginning of 2020, The Economist’s presidential election model **reckoned** that Donald Trump was likely to be re-elected. -   
+And over at the Atlanta Fed, the **wonks** who put together the real-time GDP estimate **reckon** that the economy is slowing at an **alarming** pace.  
+If the economic **trends turn**, that loss would become a **wipeout**. -  
+
+## Week 3
+
 My boss **told me off** for being late for work.  
 **Can I pick your brain** for a second?  
 He refused to **rule out** the possibility of a tax increase.  
-
 When the cycles align, the **tectonic plates** of history shift, and the lives of all people change in big ways. -  
 I saw that America was experiencing very large gaps in people’s economic conditions, which were **obscured** by looking only at economic averages  
 
@@ -120,8 +157,8 @@ One is the **eulogistic** word freedom, and the other is the **opprobrious** wor
 **profiling**  
 The media has waged a **virulent** hate campaign against her.  
 **dillydally**  
-A **head cold** hit me like an **anvil** last week, and that usually means I'm going to feel too **dopey** or **muddled** to write a review. -  
-An **anvil** is a block with a hard surface on which another object is **struck**. -   
+A **head cold** hit me like an **anvil** last week, and that usually means I'm going to feel too **dopey** or **muddled** to write a review.  
+An **anvil** is a block with a hard surface on which another object is **struck**.  
 
 we expect rates to continue a modest **upswing**.  
 We now watch Tesla **consign** the **incumbents** to a place of total irrelevance. -  
@@ -238,7 +275,7 @@ PayPal policies **stipulate** that sellers must prove buyers received an item.
 The walls were black, cold and **slimy**.  
 **chlorine**  
 **misperceive** 
-In this way, **endorphins** are the quicker-acting "feelings" while **dopamine** is the longer-acting **afterglow**. -  
+In this way, **endorphins** are the quicker-acting "feelings" while **dopamine** is the longer-acting **afterglow**.  
 Macy’s didn’t need a **pep talk** to take on the e-commerce king. The chain crushed Q2 earnings and reported that digital customers accounted for 41% of its 5 million new shoppers last quarter.  
 Do you **fixate** on the stock selection that led to more than half of the hypothetical positions losing value over five years and only two that beat the market?
 After getting **roughed up** in September, stocks have entered a fourth quarter that's typically been bullish for equities, with the S&P gaining four out of every five years since WWII.  
