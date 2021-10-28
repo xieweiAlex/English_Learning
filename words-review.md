@@ -27,7 +27,7 @@ Tony is very **cagey** about his family. -
 The empire had for years been falling into **decadence**. -  
 **Engrossed** in his book he forgot the time. -  
 The nation's **coffers** are empty. -  
-People flying into the city from outside the mainland will be **whisked** there directly, instead of to normal hotels, for at least two weeks of **confinement** and frequent testing. -  
+People flying into the city from outside the mainland will be **whisked** there directly, instead of to normal hotels, for at least two weeks of **confinement** and frequent testing.   
 For a while, state media suggested that the West’s vaccines were **shoddy** -  
 But many people have little sympathy with their **travails** -  
 Space **taunts** us because it' always there, it's always visible, it's directly across the cosmic window. -  
@@ -37,15 +37,15 @@ An **incantation** can be "deflected" and "**rebound**". -
 They only made a **perfunctory** effort. -  
 One is the **eulogistic** word freedom, and the other is the **opprobrious** word chance. -  
 We now watch Tesla **consign** the **incumbents** to a place of total irrelevance. -  
-Everyone is talking about housing shortage, why do you think we could end up as a **glut**. -  
+Everyone is talking about housing shortage, why do you think we could end up as a **glut**.   
 Some words are really too **esoteric** for this dictionary. -  
 The First Lady unveiled a **commemorative** **plaque**. -  
 At no time did I make an attempt to **impede** any investigatory effort. -  
 degrees higher than 60 degrees out the shoulder is placed in a compromised position that can lead to shoulder **impingement**, so keep them below a 60 degree angle. -    
-A sudden strong wind **capsize** their boat. -  
+A sudden strong wind **capsize** their boat.   
 The sheer quantity of detail would **bemuse** even the most **clear-headed** author. -  
-**ogle**: look at with **amorous** intentions. - 
-The custom **impound** the whole cargo. - 
+**ogle**: look at with **amorous** intentions.  
+The custom **impound** the whole cargo.  
 We had 3 lunches and a movie, she never stopped calling. And it's those meaningless, purposeless, **blather** calls. -  
 He **furrows** his **brow**, as he's really trying to figure it out. -  
 Researchers greeted the proposal with **scorn**. -  
@@ -59,16 +59,16 @@ There was a **triumphant** **glitter** in his eyes. -
 She spent the last forty years of her life as a **recluse**. -  
 It cost far more than a regular **incandescent** bulb. -  
 This process begins by virtue of an inner need, an **inquietude**, a thought that stimulates one's mind and **anima** to accomplish it. -  	 
-We try to **preclude** any possibility of misunderstanding. -  
+We try to **preclude** any possibility of misunderstanding.   
 Housing **Provident** Fund. -  
 
 ## words-Sep.md ## 
 words/2021/words-Sep.md  
-Airbnb has expanded to unique stays like **yurts**, **houseboats**, and caves to lure adventure-hungry remote workers. -  
+Airbnb has expanded to unique stays like **yurts**, **houseboats**, and caves to lure adventure-hungry remote workers.   
 I was **admitted** by a man servant, and shown into a **sumptuous** room where a couple of elderly gentlemen were sitting. -  
 The government will likely rescue it but the equity and some bond holders will be wiped out to **obviate** moral hazard. -  
 Raymond was **stricken** with grief. -  
-Never had she met such **spite** and **pettiness**. -  
+Never had she met such **spite** and **pettiness**.   
 AI usually scans posts for rule-breaking content and quickly removes it if there’s an **infraction**. -  
 He's a **malicious** and **malevolent** **malefactor** and **gangster**. -  
 Your presidency and legacy will forever be labeled as a **abject** failure of leadership. -  

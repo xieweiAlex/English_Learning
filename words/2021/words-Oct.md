@@ -1,19 +1,24 @@
 
-Elk rut at Great smoky Mountains National Park.  
+He was **pilloried**, but she escaped without blemish.  
+**bento**  
+**dumbfound**  
 
+The FCC already **nobbled** China Mobile, Huawei and ZTE, under the Trump administration. -  
+That might be because of Chinese hashers re-routing their traffic through European virtual private networks to avoid authorities’ **ire**.  
+**Elk** **rut** at Great smoky Mountains National Park.  
 
-These luxuriantly packaged mooncakes are selling well both in supermarkets and hotels around the country.  
-an imperturbable tranquillity. -  
+These **luxuriantly** packaged mooncakes are selling well both in supermarkets and hotels around the country.  
+an **imperturbable** tranquillity. -  
 he felt a **yearning** for the mountains  
-There's so much saccharine in this, it's giving me cancer.  
-They live in the posh part of town.  
-Worn rugs increase the danger of tripping.  
-I was offended by his discourteous reply.  
-He wiped a tear from his sightless eyes.  
-gunship  
-He was winded and shaken.  
-I hope I'm not being too long-winded.  
-He arranged a parley with us.  
+There's so much **saccharine** in this, it's giving me cancer. -  
+They live in the **posh** part of town.  
+**Worn rugs** increase the danger of **tripping**.  
+I was offended by his **discourteous** reply.  
+He wiped a tear from his **sightless** eyes.  
+**gunship**  
+He was **winded** and **shaken**. -  
+I hope I'm not being too **long-winded**.  
+He arranged a **parley** with us. -  
 **oaf**  
 
 On Tuesday the outcome of the six-month inquiry could be **watered down** further.  
@@ -43,7 +48,6 @@ He refused to **rule out** the possibility of a tax increase.
 When the cycles align, the **tectonic plates** of history shift, and the lives of all people change in big ways. -  
 I saw that America was experiencing very large gaps in people’s economic conditions, which were **obscured** by looking only at economic averages  
 
-
 **fizzy** alcoholic drinks.  
 You're not going to get that feeling if you are just going to **spectate**. -  
 The WeWork cofounder and former CEO, whose marketing savvy was matched only by his **proclivity** for hosting ragers, resigned **in disgrace** in 2019 after financial documents showed seriously **sketchy** corporate governance practices at the company, among many other red flags.  
@@ -51,7 +55,6 @@ The WeWork cofounder and former CEO, whose marketing savvy was matched only by h
 The government has said it was an **inadvertent** error.  
 **tampon**  
 **mouthwatering**  
-
 The company’s valuation was eventually slashed from $47 billion to just $8 billion following the **botched** offering.  
 
 After Xi Jinping became China’s leader in 2012, he **unblushingly** re-**emphasised** the party’s authority over everything from the machinery of state and the armed forces to the **judiciary**, universities and news media.  
