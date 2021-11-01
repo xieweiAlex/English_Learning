@@ -1,18 +1,32 @@
 ## seinfeld.md ## 
-media/seinfeld.md  
+media/seinfeld.md
 When I finally see her, I'm like a little **groveling** worm. -  
 What do you think, I'm a poor **pathetic** **wretch**? -  
 
 ## ww01.md ## 
-media/WWII/ww01.md  
+media/WWII/ww01.md
 Roosevelt calls it **dastardly** and evil, he calls it a day of **infamy**. -  
 
 ## words-Oct.md ## 
-words/2021/words-Oct.md  
+words/2021/words-Oct.md
+Don't **skimp** the butter in making a cake. -  
+A hot climate **enervates** people who are not used to it. -  
+the country tries to boost its **immunisation** rate and revive its **battered** tourism sector. -  
+He was **pilloried**, but she escaped without blemish. -  
+The FCC already **nobbled** China Mobile, Huawei and ZTE, under the Trump administration. -  
+an **imperturbable** tranquillity. -  
+There's so much **saccharine** in this, it's giving me cancer. -  
+He was **winded** and **shaken**. -  
+He arranged a **parley** with us. -  
+Ofcom says 45m Britons were targeted by scammers this summer, including **mendacious** text messages and landline calls. -  
+Who wouldn't want a job with a food salary and **commodious** living quarters? -  
+The **ordinary** feelings which make life **amiable** and **indolent**, were unknown to him. -  
+He was given only a wooden **pallet** with a blanket. -   
+When unemployment was low and wages were growing fast at the beginning of 2020, The Economist’s presidential election model **reckoned** that Donald Trump was likely to be re-elected. -   
+If the economic **trends turn**, that loss would become a **wipeout**. -  
+When the cycles align, the **tectonic plates** of history shift, and the lives of all people change in big ways. -  
 You're not going to get that feeling if you are just going to **spectate**. -  
 But more casualties died in fighting between rival, adult **Red Guard** **factions** or with army units. -  
-Today’s China is **bossy**, socially conservative and **relentlessly** controlling. Its rise as an authoritarian giant is disruptive enough without mistaking it for **Maoist** **fanaticism**. -  
-The prosecution has forced us into holding **depositions** before the trial. -  
 They were **solicitous** and intent, watching her every move. -  
 He underwent nineteen years of **penal** **servitude** for theft. -  
 He became **provost** in 2006 and President the following year. -  
@@ -23,11 +37,8 @@ He was a **rascal** from his birth. -
 Chemistry isn't a **litany** of facts. -  
 Lack of sleep is a major factor in loss of **libido**. -  
 I was vaccinated against **tetanus**. -  
-Tony is very **cagey** about his family. -  
 The empire had for years been falling into **decadence**. -  
-**Engrossed** in his book he forgot the time. -  
 The nation's **coffers** are empty. -  
-People flying into the city from outside the mainland will be **whisked** there directly, instead of to normal hotels, for at least two weeks of **confinement** and frequent testing.   
 For a while, state media suggested that the West’s vaccines were **shoddy** -  
 But many people have little sympathy with their **travails** -  
 Space **taunts** us because it' always there, it's always visible, it's directly across the cosmic window. -  
@@ -37,44 +48,31 @@ An **incantation** can be "deflected" and "**rebound**". -
 They only made a **perfunctory** effort. -  
 One is the **eulogistic** word freedom, and the other is the **opprobrious** word chance. -  
 We now watch Tesla **consign** the **incumbents** to a place of total irrelevance. -  
-Everyone is talking about housing shortage, why do you think we could end up as a **glut**.   
 Some words are really too **esoteric** for this dictionary. -  
 The First Lady unveiled a **commemorative** **plaque**. -  
 At no time did I make an attempt to **impede** any investigatory effort. -  
 degrees higher than 60 degrees out the shoulder is placed in a compromised position that can lead to shoulder **impingement**, so keep them below a 60 degree angle. -    
-A sudden strong wind **capsize** their boat.   
 The sheer quantity of detail would **bemuse** even the most **clear-headed** author. -  
-**ogle**: look at with **amorous** intentions.  
-The custom **impound** the whole cargo.  
 We had 3 lunches and a movie, she never stopped calling. And it's those meaningless, purposeless, **blather** calls. -  
 He **furrows** his **brow**, as he's really trying to figure it out. -  
 Researchers greeted the proposal with **scorn**. -  
-He showed a **flagrant** disregard for anyone else's feelings. - 
 An **infelicitous** remark. -  
-Paul was in a **sombre** mood. -  
 Rather than frying meat, try baking, grilling or **broiling**. -  
-Biography must to some extent **delineate** characters. -  
 He was brought up in **penury**, without education. -  
 There was a **triumphant** **glitter** in his eyes. - 
-She spent the last forty years of her life as a **recluse**. -  
 It cost far more than a regular **incandescent** bulb. -  
 This process begins by virtue of an inner need, an **inquietude**, a thought that stimulates one's mind and **anima** to accomplish it. -  	 
-We try to **preclude** any possibility of misunderstanding.   
 Housing **Provident** Fund. -  
 
 ## words-Sep.md ## 
-words/2021/words-Sep.md  
-Airbnb has expanded to unique stays like **yurts**, **houseboats**, and caves to lure adventure-hungry remote workers.   
-I was **admitted** by a man servant, and shown into a **sumptuous** room where a couple of elderly gentlemen were sitting. -  
+words/2021/words-Sep.md
 The government will likely rescue it but the equity and some bond holders will be wiped out to **obviate** moral hazard. -  
 Raymond was **stricken** with grief. -  
-Never had she met such **spite** and **pettiness**.   
 AI usually scans posts for rule-breaking content and quickly removes it if there’s an **infraction**. -  
-He's a **malicious** and **malevolent** **malefactor** and **gangster**. -  
 Your presidency and legacy will forever be labeled as a **abject** failure of leadership. -  
 
 ## words-Aug.md ## 
-words/2021/words-Aug.md  
+words/2021/words-Aug.md
 **Berate**: To chide or **scold** **vehemently** -  
 Prices in Austin have just gone **berserk**, through the roof. -    
 The definition of **sedulous** is someone who is **diligent**, hard working and persistent. -  

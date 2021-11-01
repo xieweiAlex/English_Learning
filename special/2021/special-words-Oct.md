@@ -1,4 +1,14 @@
 
+**glut** 
+
+**cagey**  
+
+**cater**  
+
+## Week 4 
+
+**solicitous**
+
 **myriad**
 
 **methodical** 

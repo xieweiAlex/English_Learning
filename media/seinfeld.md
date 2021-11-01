@@ -1,14 +1,15 @@
 
+## Season 3 
+The woman has my papers you told her she's **pretentious**?  
+
 ## Season 2  
 
-Tell anyone answers the phone to ask a balding stocky man with glasses.  
-The chain reaction of calls, this is gonna set off.  
-cannibalism  
+Tell anyone answers the phone to ask a **balding** **stocky** man with glasses.  
+The chain reaction of calls, this is gonna **set off**.  
+**cannibalism**  
 
-pesto  
-busboy  
-
-
+**pesto**  
+**busboy**  
 
 When I finally see her, I'm like a little **groveling** worm. -  
 What are you gonna do? **Badger** a pregnant woman at her own baby shower?  

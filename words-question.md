@@ -1,4 +1,5 @@
 
+* famished vs starving 
 * white-knuckle
 * pliable, pliant
 * abnegate vs abstain 

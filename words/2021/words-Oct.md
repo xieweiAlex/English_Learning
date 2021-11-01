@@ -1,5 +1,27 @@
 
-He was **pilloried**, but she escaped without blemish.  
+Boundless **intemperance** in nature is a tyranny.  
+Don't **skimp** the butter in making a cake. -  
+**makeover**  
+Some say this **state of affairs** just can't last.  
+**llama** 
+She is perceived as **vain**, spoiled, and **promiscuous**. -
+Isn't dinner ready? I'm **famished**.  
+
+He was a **vociferous** opponent of Conservatism.  
+**comely**  
+**second thought**  
+**homogenous**, **hemogenize**
+
+
+You **loathsome** pig.You're supposed to be **cheating with** me, not **on** me.  
+**willful**  
+A hot climate **enervates** people who are not used to it. -  
+**broach**  
+**akimbo**  
+The **skipper** notified the coastguard of the tragedy.  
+the country tries to boost its **immunisation** rate and revive its **battered** tourism sector. -  
+
+He was **pilloried**, but she escaped without blemish. -  
 **bento**  
 **dumbfound**  
 
@@ -28,7 +50,7 @@ Ofcom says 45m Britons were targeted by scammers this summer, including **mendac
 
 He was so **cocksure** that she would call him first.  
 Who wouldn't want a job with a food salary and **commodious** living quarters? -  
-The ordinary feelings which make life **amiable** and **indolent**, were unknown to him. -  
+The **ordinary** feelings which make life **amiable** and **indolent**, were unknown to him. -  
 
 He was given only a wooden **pallet** with a blanket. -   
 Stories about the shortages **plaguing** American firms can be found throughout the Federal Reserve’s “**Beige Book**”, a survey of economic conditions across the country that is published eight times a year.  
@@ -69,10 +91,10 @@ The party will not admit it, but Mao **traumatized** China.
 But they are **resigned** to the possibility that their **trade** may end one day.  
 > "We set off firecrackers for thousands of years. Now it is not allowed and has stopped," explains one, calling modern-day Chinese **obedient**.  
 
-Today’s China is **bossy**, socially conservative and **relentlessly** controlling. Its rise as an authoritarian giant is disruptive enough without mistaking it for **Maoist** **fanaticism**. -  
+Today’s China is **bossy**, socially conservative and **relentlessly** controlling. Its rise as an authoritarian giant is disruptive enough without mistaking it for **Maoist** **fanaticism**.  
 Though his words at times seem **whimsical**, he is just as often fierce.  
 **sediment** **deposition**  
-The prosecution has forced us into holding **depositions** before the trial. -  
+The prosecution has forced us into holding **depositions** before the trial.  
 A **dearth** of corn caused the prices to go up.  
 They were **solicitous** and intent, watching her every move. -  
 **ultraviolet** light/radiation  
@@ -104,7 +126,7 @@ Lack of sleep is a major factor in loss of **libido**. -
 She **powdered** her face and applied her **lipstick** and **rouge**.
 Someone wants to **flatline** him, huh?  
 I was vaccinated against **tetanus**. -  
-Tony is very **cagey** about his family. -  
+Tony is very **cagey** about his family.  
 Her hair was crawling with **lice**.  
 Stay away since the oil **splatters**  
 
@@ -112,7 +134,7 @@ The empire had for years been falling into **decadence**. -
 **acclamation**  
 I eschewed **upbraiding**, I curtailed **remonstrance**.  
 Very much a man's man, he enjoyed drinking and **jesting** with his cronies.  
-**Engrossed** in his book he forgot the time. -  
+**Engrossed** in his book he forgot the time.  
 Toad ceased his **frivolous** **antics** at once.  
 I would not judge nor **rebuke** them.  
 I would not **coddle** the child.  
@@ -122,7 +144,7 @@ A speech therapist cured his **stammer**.
 The nation's **coffers** are empty. -  
 **receding** hairline
 
-People flying into the city from outside the mainland will be **whisked** there directly, instead of to normal hotels, for at least two weeks of **confinement** and frequent testing. -  
+People flying into the city from outside the mainland will be **whisked** there directly, instead of to normal hotels, for at least two weeks of **confinement** and frequent testing.  
 For a while, state media suggested that the West’s vaccines were **shoddy** -  
 Might economic **malaise** force China’s hand?   
 The country’s repeated **skirmishes** in recent months with Delta-related outbreaks have prompted sudden and severe lockdowns  
@@ -168,7 +190,7 @@ We now watch Tesla **consign** the **incumbents** to a place of total irrelevanc
 Like a **sibling** rivalry… except there’s no **relation**.  
 
 He is short-**fused** play-writer.  
-Everyone is talking about housing shortage, why do you think we could end up as a **glut**. -  
+Everyone is talking about housing shortage, why do you think we could end up as a **glut**.  
 **Snarled** supply chains are considered one of the main drivers of higher prices this year.  
 GM won’t have to **cough up** the $1.9B it expected to pay for the recall of its Chevy Bolt EVs, after battery supplier LG committed to **footing the bill**.
 **drudgery**  
@@ -184,15 +206,15 @@ degrees higher than 60 degrees out the shoulder is placed in a compromised posit
 He was **effusive** in his praise for the general.  
 **demolition** blasting  
 I was given the **third degree** to find out what had happened.  
-A sudden strong wind **capsize** their boat. -  
+A sudden strong wind **capsize** their boat.  
 
 The sheer quantity of detail would **bemuse** even the most **clear-headed** author. -  
 **tacit** approval  
 Mary rejected Tony's **amorous** advances.  
-**ogle**: look at with **amorous** intentions. - 
+**ogle**: look at with **amorous** intentions.  
 **grime**  
 **slinky**  
-The custom **impound** the whole cargo. - 
+The custom **impound** the whole cargo.  
 **constable**  
 **quadruple**  
 The patient's blood refused to **clot**.  
@@ -218,12 +240,12 @@ Researchers greeted the proposal with **scorn**. -
 **meticulous**  
 Some parents seem to live **vicariously** through their children.  
 Use an **emollient** for dry skin.  
-He showed a **flagrant** disregard for anyone else's feelings. - 
+He showed a **flagrant** disregard for anyone else's feelings.  
 The shark **described** a circle around the **shoal** of fish.  
 An **infelicitous** remark. -  
 
 **attention span**  
-Paul was in a **sombre** mood. -  
+Paul was in a **sombre** mood.  
 I'm trying not to be **sentimental** about the past.  
 burglars **ransacked** her home.  
 **mishmash**  
@@ -236,7 +258,7 @@ Rather than frying meat, try baking, grilling or **broiling**. -
 > The **antidote** to a bad day is a good workout.  
 
 You've lost the spike off your **helm**, though.  
-Biography must to some extent **delineate** characters. -  
+Biography must to some extent **delineate** characters.  
 **suture** needle, line  
 The word has a pejorative **overtone**.  
 I heard a **gush** of water.  
@@ -256,7 +278,7 @@ A **barge** was close inshore about a hundred yards away.
 **miscreant**  
 
 The roof is structurally **unsound**.  
-She spent the last forty years of her life as a **recluse**. -  
+She spent the last forty years of her life as a **recluse**.  
 His duty was to **conciliate** the people, not to provoke them.  
 It cost far more than a regular **incandescent** bulb. -  
 
@@ -273,7 +295,7 @@ This process begins by virtue of an inner need, an **inquietude**, a thought tha
 Dogecoin fans **swoon over** Elon Musk's floki update. 
 
 **spurious**
-We try to **preclude** any possibility of misunderstanding. -  
+We try to **preclude** any possibility of misunderstanding.  
 PayPal policies **stipulate** that sellers must prove buyers received an item.  
 The walls were black, cold and **slimy**.  
 **chlorine**  

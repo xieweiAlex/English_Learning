@@ -1,8 +1,9 @@
+You **loathsome** pig.You're supposed to be **cheating with** me, not **on** me.  
 
 He refused to **rule out** the possibility of a tax increase.  
 
 ## Week 3 
-My brother in law once left a message on this guy's machine, and he **blurted** out some business information he wasn't suppose to, and it would've cost him $15,000. -  
+My brother in law once left a message on this guy's machine, and he **blurted** out some business information he wasn't suppose to, and it would've cost him $15,000.   
 You thought you could **waltz through** the rest of life and never **bump into** me again, but you were wrong, Jerry!  
 My boss **told me off** for being late for work.  
 **Can I pick your brain** for a second?  

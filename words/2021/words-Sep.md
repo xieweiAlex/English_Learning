@@ -9,7 +9,7 @@ By placing your order, you accept the gift as a form of taxable **imputed** inco
 
 **cerebral** palsy, **cerebral** **cortex**
 Virgin Galactic (SPCE) can return to the final frontier, and the news sent its stock price **skyward**.  
-Airbnb has expanded to unique stays like **yurts**, **houseboats**, and caves to lure adventure-hungry remote workers. -  
+Airbnb has expanded to unique stays like **yurts**, **houseboats**, and caves to lure adventure-hungry remote workers.  
 China's new reality is **rife with danger**.  
 describing it as a toxic worksplace "**rife** with sexism".  
 
@@ -86,7 +86,7 @@ the Chinese government has been tightening the **spigot** and **reining in** deb
 Demand for second homes **skid**.  
 The business world has been **captivated** by the slow-moving train **wreck** that is Evergrande, a massive Chinese real estate developer that’s buried up to its **penthouse** in debt.  
 But thanks to super-low borrowing costs, the Chinese property sector has been **feasting** on empty calories, leading to **astronomical** debt loads.  
-I was **admitted** by a man servant, and shown into a **sumptuous** room where a couple of elderly gentlemen were sitting. -  
+I was **admitted** by a man servant, and shown into a **sumptuous** room where a couple of elderly gentlemen were sitting.  
 I **entreat** you, give no place to despondency.  
 Imagination raises a man above the **humdrum** of life.  
 **bankroll**  
@@ -136,7 +136,7 @@ The boys looked pretty **raunchy** after a night of drinking.
 
 The **whirlpool** sucked down the boat.  
 His continuous chatter **vexes** me.  
-Never had she met such **spite** and **pettiness**. -  
+Never had she met such **spite** and **pettiness**.  
 Worn rugs increase the danger of **tripping**.  
 In the **sweltering** **haze** of summer-noon.  
 Times of national turmoil generally **roil** a country's financial markets.  
@@ -189,7 +189,7 @@ As a **beachhead** to attack America.
 His days passed like this, slow and **methodical**.  
 A scientist is usually a **methodical** person  
 **growl**  
-He's a **malicious** and **malevolent** **malefactor** and **gangster**. -  
+He's a **malicious** and **malevolent** **malefactor** and **gangster**.  
 
 ## Week 2
 Angels are **celestial** beings.  
