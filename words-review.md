@@ -1,11 +1,11 @@
 ## seinfeld.md ## 
-media/seinfeld.md
+media/seinfeld.md  
 **Mutt**? I'll **wager** his parents are more purer than yours. -  
 **tattletale** - I didn't **tattle**. -  
 When I finally see her, I'm like a little **groveling** worm. -  
 
 ## words-Oct.md ## 
-words/2021/words-Oct.md
+words/2021/words-Oct.md  
 He would **repudiate** all debts incurred by his son. -  
 Make A Long **Harangue** -  
 The town takes **immense** pride in recent achievements. -  
@@ -56,13 +56,13 @@ This process begins by virtue of an inner need, an **inquietude**, a thought tha
 Housing **Provident** Fund. -  
 
 ## words-Sep.md ## 
-words/2021/words-Sep.md
+words/2021/words-Sep.md  
 The government will likely rescue it but the equity and some bond holders will be wiped out to **obviate** moral hazard. -  
 Raymond was **stricken** with grief. -  
 AI usually scans posts for rule-breaking content and quickly removes it if there’s an **infraction**. -  
 Your presidency and legacy will forever be labeled as a **abject** failure of leadership. -  
 
 ## words-Aug.md ## 
-words/2021/words-Aug.md
+words/2021/words-Aug.md  
 **Berate**: To chide or **scold** **vehemently** -  
 The definition of **sedulous** is someone who is **diligent**, hard working and persistent. -  
