@@ -2,6 +2,16 @@
 ## Season 3 
 The woman has my papers you told her she's **pretentious**?  
 
+This guys is probably **on a bender**.  
+Jerry **gargles**? He does it like 6 times a day.  
+**Mutt**? I'll **wager** his parents are more purer than yours. -  
+
+George got him fired, he **squealed on** him.  
+**tattletale** - I didn't **tattle**. -  
+
+**flaunting** convention.  
+
+
 ## Season 2  
 
 Tell anyone answers the phone to ask a **balding** **stocky** man with glasses.  
@@ -14,7 +24,7 @@ The chain reaction of calls, this is gonna **set off**.
 When I finally see her, I'm like a little **groveling** worm. -  
 What are you gonna do? **Badger** a pregnant woman at her own baby shower?  
 You though you could **waltz through** the rest of life and never **bump into** me again, but you were wrong, Jerry!  
-What do you think, I'm a poor **pathetic** **wretch**? -  
+What do you think, I'm a poor **pathetic** **wretch**?  
 
 Comm on, That's $182 there, I don't think that's **anything to sneeze at**.  
 

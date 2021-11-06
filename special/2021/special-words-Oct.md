@@ -1,4 +1,12 @@
 
+**housekeeping**
+
+## Week 1 
+
+**bloated**
+
+**surefire** 
+
 **glut** 
 
 **cagey**  

@@ -159,7 +159,7 @@ We are genuinely concerned about their **whereabouts**.
 **platonic** love  
 **Berate**: To chide or **scold** **vehemently** -  
 
-Prices in Austin have just gone **berserk**, through the roof. -    
+Prices in Austin have just gone **berserk**, through the roof.  
 **collective wisdom**  
 Holy **trinity**: Price growth, wage growth, job growth  
 The places that largely **skirted** the last housing crash, they're appreciating so much now, they're building more than ever.  

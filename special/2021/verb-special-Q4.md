@@ -1,4 +1,8 @@
 
+**splurge** 
+
+**balk**
+
 ## Oct 
 
 **impede**  

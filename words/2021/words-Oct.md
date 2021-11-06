@@ -1,17 +1,68 @@
 
+His remarks were clearly not **displeasing** to her.  
+**nemesis**  
+**drippy**  
+I took **copious** notes.  
+I say we **nab** his watery miscreant ass now.  
+The stock market is in a **tailspin**.
+He would **repudiate** all debts incurred by his son. -  
+Performance, scalability and **fault-tolerant** considerations.  
+**choke point**  
+They **dredge** the bay for gravel.  
+Many of his warnings proved **prophetic**. -
+**poach**, **pilfer**  
+Make A Long **Harangue** -  
+
+
+It's hard to win if your attitude adds friction to every **interpersonal** experience.
+
+A **sliver** of light showed under the door.  
+The town takes **immense** pride in recent achievements. -  
+You **vulgar** little **maggot**. -  
+**sheik**  
+He **swam down** and retrieved his glasses from the muck and **slime** at the bottom of the pond. -  
+**quarrel**  
+
+Zillow will likely sell the properties to a **multitude** of buyers rather than packaging them in a single transaction, said the people, who asked not to be named because the matter is private.  
+History is **littered** with the **corpses** of those who tried and failed to **corner a market**. Real estate is no different.  
+Clearly Zillow is not going to buy all the houses in America and turn us into **serfs** overnight. -  
+that is an absurd **straw man**  
+The **boom and bust cycle** reflects basic human psychology of **fear and greed**.  
+History is also filled with the **bloated** corpses of those who did successfully corner a market. Or, in modern times, those who participated in a **synergistic** **duopoly** to **skirt** **anti-trust** laws.  
+
+The ideal way to take a cold shower is to **ease in to the habit**.  
+
+The **row** over Australia’s cancellation of a deal with France to make 12 diesel-powered submarines, worth $67bn, intensified.  
+Australia’s prime minister, said that his country would not accept “**sledging**” and “**slurs**” from the French president, Emmanuel Macron. -   
+Airport officials **struggle to** interpret **disparate** QR codes, verified by different apps and spitting out different information when scanned.  
+Even so, after months holed up at home, holidaymakers may still decide that long lines and piles of paperwork are a price worth paying for a pina colada on a **faraway** beach.  
+
+moral **turpitude**. -  
+**loquacious** woman. -  
+**specious**  
+**gospel**  
+It decided to **perch** on our yacht.  
+go **awry**  
+She was **in a fury** over a plan that had **gone awry**.  
+**provisional** rules/regulation   
+**hyperbolic** function  
+From **gateway** to **air-lock**: Hong Kong’s economy  
+
+
+## Week 4 
+
 Boundless **intemperance** in nature is a tyranny.  
-Don't **skimp** the butter in making a cake. -  
+Don't **skimp** the butter in making a cake.  
 **makeover**  
 Some say this **state of affairs** just can't last.  
 **llama** 
 She is perceived as **vain**, spoiled, and **promiscuous**. -
 Isn't dinner ready? I'm **famished**.  
 
-He was a **vociferous** opponent of Conservatism.  
+He was a **vociferous** opponent of Conservatism. -  
 **comely**  
 **second thought**  
 **homogenous**, **hemogenize**
-
 
 You **loathsome** pig.You're supposed to be **cheating with** me, not **on** me.  
 **willful**  
@@ -19,7 +70,7 @@ A hot climate **enervates** people who are not used to it. -
 **broach**  
 **akimbo**  
 The **skipper** notified the coastguard of the tragedy.  
-the country tries to boost its **immunisation** rate and revive its **battered** tourism sector. -  
+the country tries to boost its **immunisation** rate and revive its **battered** tourism sector.  
 
 He was **pilloried**, but she escaped without blemish. -  
 **bento**  
@@ -38,7 +89,7 @@ They live in the **posh** part of town.
 I was offended by his **discourteous** reply.  
 He wiped a tear from his **sightless** eyes.  
 **gunship**  
-He was **winded** and **shaken**. -  
+He was **winded** and **shaken**.  
 I hope I'm not being too **long-winded**.  
 He arranged a **parley** with us. -  
 **oaf**  
@@ -58,9 +109,9 @@ A protester yelled “nice suit you f*cking shill”, and the **taunt** was met 
 
 People today are no **dimmer** than their Iron Age forebears.  
 job openings **outstrip** available workers. This gives confidence to the **strikers**.  
-When unemployment was low and wages were growing fast at the beginning of 2020, The Economist’s presidential election model **reckoned** that Donald Trump was likely to be re-elected. -   
+When unemployment was low and wages were growing fast at the beginning of 2020, The Economist’s presidential election model **reckoned** that Donald Trump was likely to be re-elected.  
 And over at the Atlanta Fed, the **wonks** who put together the real-time GDP estimate **reckon** that the economy is slowing at an **alarming** pace.  
-If the economic **trends turn**, that loss would become a **wipeout**. -  
+If the economic **trends turn**, that loss would become a **wipeout**.  
 
 ## Week 3
 
@@ -71,13 +122,14 @@ When the cycles align, the **tectonic plates** of history shift, and the lives o
 I saw that America was experiencing very large gaps in people’s economic conditions, which were **obscured** by looking only at economic averages  
 
 **fizzy** alcoholic drinks.  
-You're not going to get that feeling if you are just going to **spectate**. -  
+You're not going to get that feeling if you are just going to **spectate**.  
 The WeWork cofounder and former CEO, whose marketing savvy was matched only by his **proclivity** for hosting ragers, resigned **in disgrace** in 2019 after financial documents showed seriously **sketchy** corporate governance practices at the company, among many other red flags.  
 
 The government has said it was an **inadvertent** error.  
 **tampon**  
 **mouthwatering**  
 The company’s valuation was eventually slashed from $47 billion to just $8 billion following the **botched** offering.  
+
 
 After Xi Jinping became China’s leader in 2012, he **unblushingly** re-**emphasised** the party’s authority over everything from the machinery of state and the armed forces to the **judiciary**, universities and news media.  
 New rules ban **effeminate** actors from television and curb how many hours youngsters spend on video games.  
@@ -100,7 +152,7 @@ They were **solicitous** and intent, watching her every move. -
 **ultraviolet** light/radiation  
 **reprieve**  
 People used to **recoil** from the idea of getting into debt.  
-He underwent nineteen years of **penal** **servitude** for theft. -  
+He underwent nineteen years of **penal** **servitude** for theft.  
 He became **provost** in 2006 and President the following year. -  
 **pasture**  
 **steadfast**  
@@ -109,12 +161,12 @@ He became **provost** in 2006 and President the following year. -
 Uyghur artists and intellectuals are being **rounded up**, but some of their work escapes.  
 Kato was fully aware of the **provenance** of these **treasures**. -  
 **crumby** bread  
-He was not a **prepossessing** in first sight. -  
+He was not a **prepossessing** in first sight.  
 
 The **peasants** **doff** their hats.  
-a **clarion** call to resistance. -  
+a **clarion** call to resistance.  
 **dawdle**  
-He was a **rascal** from his birth. -  
+He was a **rascal** from his birth.  
 
 But it’s not a fully automated process, and that’s where Zillow is **in a pickle**.  
 It’s impolite to **gibe** at a foreign student’s English.  
@@ -162,11 +214,11 @@ In that state, circulating and mutating from year to year, the coronavirus will 
 ## Week 2 
 
 **shamless plug**
-Space **taunts** us because it' always there, it's always visible, it's directly across the cosmic window. -  
+Space **taunts** us because it' always there, it's always visible, it's directly across the cosmic window.  
 **hideous**  
 It’ll be a winter of **discontent**...and skyrocketing gas bills.  
 Nothing can **sunder** our friendship. -  
-the mouse that **pilfers** from our **pantry**. -  
+the mouse that **pilfers** from our **pantry**.  
 An **incantation** can be "deflected" and "**rebound**". -  
 Twenty million years ago, Idaho was populated by dense **primordial** forest.  
 Life’s **primordial** reality is spirit  
@@ -175,7 +227,7 @@ He has nothing to **repent** of.
 **slapstick**  
 **bonanza**  
 My **complexion** remained **pale and pasty**.  
-They only made a **perfunctory** effort. -  
+They only made a **perfunctory** effort.  
 I insist on perfect **sobriety** and silence.  
 **uterus**  
 One is the **eulogistic** word freedom, and the other is the **opprobrious** word chance. -  
@@ -194,10 +246,10 @@ Everyone is talking about housing shortage, why do you think we could end up as 
 **Snarled** supply chains are considered one of the main drivers of higher prices this year.  
 GM won’t have to **cough up** the $1.9B it expected to pay for the recall of its Chevy Bolt EVs, after battery supplier LG committed to **footing the bill**.
 **drudgery**  
-Some words are really too **esoteric** for this dictionary. -  
+Some words are really too **esoteric** for this dictionary.  
 **willful misconduct**  
 The First Lady unveiled a **commemorative** **plaque**. -  
-At no time did I make an attempt to **impede** any investigatory effort. -  
+At no time did I make an attempt to **impede** any investigatory effort.  
 **biorhythms**  
 
 When you execute your push-ups, don't forget to **tuck** your elbows in towards your body rather than **flaring** them out.  
@@ -208,7 +260,7 @@ He was **effusive** in his praise for the general.
 I was given the **third degree** to find out what had happened.  
 A sudden strong wind **capsize** their boat.  
 
-The sheer quantity of detail would **bemuse** even the most **clear-headed** author. -  
+The sheer quantity of detail would **bemuse** even the most **clear-headed** author.  
 **tacit** approval  
 Mary rejected Tony's **amorous** advances.  
 **ogle**: look at with **amorous** intentions.  
