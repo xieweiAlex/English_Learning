@@ -1,14 +1,19 @@
 
 ## Season 3 
+
+Maybe the **dingo** ate your baby. -  
+the last time a woman said that to me I **wound up** apologizing to her.  
+Every time I pass her desk, I have to plan a little **patter**.  
+it'll look like I'm abandoning him because of his condition. I'll be **ostracized** from the community.  
+But if I get the **sniffles**, you better be there.  
 The woman has my papers you told her she's **pretentious**?  
 
 This guys is probably **on a bender**.  
 Jerry **gargles**? He does it like 6 times a day.  
-**Mutt**? I'll **wager** his parents are more purer than yours. -  
+**Mutt**? I'll **wager** his parents are more purer than yours.  
 
 George got him fired, he **squealed on** him.  
-**tattletale** - I didn't **tattle**. -  
-
+**tattletale** - I didn't **tattle**.  
 **flaunting** convention.  
 
 

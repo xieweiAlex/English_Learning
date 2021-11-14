@@ -122,7 +122,7 @@ His book **commingles** sarcasm and sadness.
 
 I would not **deign** to comment on such behaviour.  
 This was their fourth **successive** win.  
-Raymond was **stricken** with grief. -  
+Raymond was **stricken** with grief.  
 
 This is a **fictitious** story.  
 He arranged a **parley** with us.  

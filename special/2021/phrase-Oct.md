@@ -1,3 +1,9 @@
+I hear there are more staff changes **in the offing**.  
+The Chinese government has been **bearing down** on tech giants and pushing companies toward achieving “common prosperity,” which Alibaba added to its “core corporate responsibilities” list in September.  
+
+Zillow's home-flipping **Demise** **puts** other iBuyers **on the spot**.  
+Largest iBuying firms say they're **forging ahead** after Zillow's exit.  
+Moreover, it seems the market isn't **keen on** Lemonade's proposed acquisition of competitor Metromile.  
 
 You **loathsome** pig.You're supposed to be **cheating with** me, not **on** me.  
 He refused to **rule out** the possibility of a tax increase.  

@@ -1,4 +1,8 @@
 
+**glitter**
+
+**disparate**
+
 **housekeeping**
 
 ## Week 1 
