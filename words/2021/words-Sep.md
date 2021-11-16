@@ -112,7 +112,7 @@ That idea **enrages** many of her **detractors**.
 But the company quickly **fell behind**, missing payments earlier this month and leaving thousands of employees **in a lurch** 
 China is caught in a very tough spot with no easy options. Act quickly with a bailout and be viewed as **condoning** the financial **excess** that led to the problem.  
 (I don't **condone** violence in any shape or form)  
-The government will likely rescue it but the equity and some bond holders will be wiped out to **obviate** moral hazard. -  
+The government will likely rescue it but the equity and some bond holders will be wiped out to **obviate** moral hazard.  
 Those bonds are trading **close to par**.  
 **plagiarize**.  
 His book **commingles** sarcasm and sadness.  

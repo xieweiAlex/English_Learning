@@ -1,3 +1,9 @@
+
+## Week 1,2
+
+The Leader’s face **bears down on** you and his **gaze** drills into you.  
+Countries are still **haggling over** a possible commitment to phase out coal and fossil-fuel subsidies.  
+Huddling masses: Eastern Europe’s border **stand-offs**  
 I hear there are more staff changes **in the offing**.  
 The Chinese government has been **bearing down** on tech giants and pushing companies toward achieving “common prosperity,” which Alibaba added to its “core corporate responsibilities” list in September.  
 

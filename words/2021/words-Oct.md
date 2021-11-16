@@ -1,17 +1,76 @@
 
-Countries are still haggling over a possible commitment to phase out coal and fossil-fuel subsidies.  
 
+GDP is usually used as the **numerator** in the velocity of money formula though gross national product (GNP) may also be used as well. -  
+In the **denominator**, economists will typically identify money velocity for both M1 and M2.  
+The sheets kept getting **snarled up**.   
+Definitely feel free to **circle back** with me when the time is right.  
 
+She decided on a **beige** **cashmere** sweater.  
+He was offered a research **fellowship** at Yale.  
+**glorious**  
+**calamity**  
+**clunky**  
+**polaroid**   
+The cock's breast is **tinged** with **chestnut**. -  
+Tears can be **cathartic** and releasing.  
+Don't **psychoanalyze** me, you **simp**!  
+**threadbare**  
+Choose a close friend to help you through the **white-knuckle** times of this journey.  
+Such catastrophe was of course likely to **embitter** the French nation. -  
 
-The foundation I’m referring to includes understanding the language you use, the tools you use day in day out, and the best or recommended practices of the platform you write software for.  
+I wouldn't **heckle** the comedian, he is very quick-witted.  
+Thanks, but I'm **on the wagon**.  
 
-This is where our thinking about Orwell led. It is a telescreen, which can be dimmed, but never turned off.  
-The Leader’s face bears down on you and his gaze drills into you.  
-Big Brother has total control of Oceania but Mr Putin is resorting to repression partly because, as the internet supersedes television news, he is losing his domination over the flow of information.  
-Mr Putin looks inappropriately avuncular, so for the final cover we swapped in an alternative picture.  
-Last week New Zealand enacted a euthanasia law after 65% of voters backed it in a referendum.  
-However, it is a stark and disconcerting image that makes assisted death seem like a punishment rather than a release.  
-The green is warm and peaceful, and better than a trace set against bombazine black. All we changed was the words--because some readers do not think that there is another side.  
+True, there will be local and seasonal **flare-ups**, especially in **chronically** undervaccinated countries.  
+**Epidemiologists** will also need to watch out for new variants that might be capable of **outflanking** the immunity provided by vaccines.  
+The erection of each new wall further reduces the **lethality** of covid.  
+Increasingly, therefore, people will die from covid because they are elderly or **infirm**, or they are unvaccinated or cannot afford medicines.  
+
+Economics is an **inexact** science.  
+Yet the comparison with the early 2010s is **inexact**.  
+The **woes** of global trade in 2021 have not just been caused by disrupted supply, such as covid-19 outbreaks shutting Vietnamese factories.  
+**Imminent** fiscal **retrenchment** in many countries will help cool economies. -  
+
+Ma Chun-man, known as “Captain America” for the costume he wore while on demonstrations, pleaded not guilty to violating the law, which was imposed at the **behest** of the mainland government to curb free speech in the city. -  
+The Taliban will be urged to make their government more inclusive of other **factions**, a point on which they are unlikely to **give ground**.   
+Without more balanced leadership that could prevent renewed war, Afghanistan’s **woes** **may yet** **redouble**. -  
+(Like the best stories, this one **may yet have** a happy ending.)  
+
+This book is an excellent **chronology** of how the collision happened, **albeit** lacking in **facetious** metaphors like this. -  
+“Singles’ Day”, a **bacchanal** of online Chinese consumerism, proved more restrained than usual. - 
+Inflation gives American policymakers an unpleasant reminder of their 1970s **funk**.   
+She had to **coax** the car along.  
+She **coaxed** her son into going to school.  
+You're just **coasting**—it's time to work hard now.  
+
+Huddling masses: Eastern Europe’s border **stand-offs**  
+I'll have a couple of drinks to give me **Dutch courage**.  
+Alexander Lukashenko, Belarus’s dictator, gave the EU a **fright** by flying in thousands of Iraqi migrants and sending them to the Polish border.  
+European diplomats looking to **unwind** after a stressful week are unlikely to have a restful weekend.  
+
+The Krishna Lifting Mount Govardhan, a statue of the Hindu **deity** crafted in Cambodia nearly 1,500 years ago. -  
+Despite its name, the **microbiome**, an ecosystem of microorganisms living in the body, plays a big role.   
+These random results are **antithetical** to a fair system. -  
+
+**subjugate**  
+a **dandy**-looking dude with a slick black ponytail.  
+**pyro**  
+He received a severe **reprimand** for his behaviour. -  
+For a book **purportedly** about love, the Barthes didn't look very romantic.  
+**pole position**  
+**pull strings**  
+
+Countries are still **haggling over** a possible commitment to phase out coal and fossil-fuel subsidies.  
+
+The foundation I’m referring to includes understanding the language you use, the tools you use **day in day out**, and the best or recommended practices of the platform you write software for.  
+
+This is where our thinking about Orwell led. It is a **telescreen**, which can be **dimmed**, but never turned off.  
+The Leader’s face **bears down on** you and his **gaze** drills into you.  
+Big Brother has total control of **Oceania** but Mr Putin is **resorting to** **repression** partly because, as the internet **supersedes** television news, he is losing his domination over the flow of information.  
+Mr Putin looks inappropriately **avuncular**, so for the final cover we swapped in an alternative picture. -  
+Last week New Zealand enacted a **euthanasia** law after 65% of voters backed it in a referendum. -  
+However, it is a stark and **disconcerting** image that makes assisted death seem like a punishment rather than a release.  
+The green is warm and peaceful, and better than a trace set against **bombazine** black. All we changed was the words--because some readers do not think that there is another side.  
 
 
 A compressed bottle of gas **fulminated** in front of the painting. -  
@@ -20,18 +79,18 @@ At any rate, I couldn't come to you to **encumber** you, to be a drag upon you. 
 What about when people are trying to **enrage** you?  
 The authorities proved **unyielding** on one crucial demand.  
 First and foremost he is a **logician**.  
-He lived on the street as a **vagrant**.  
+He lived on the street as a **vagrant**. -  
 **windfall**  
 He wore the robe, crown, and **scepter** of a **triumphant** general and used the title **imperator**. -  
 I hear there are more staff changes **in the offing**.  
 
-The Chinese government has been **bearing down** on tech giants and pushing companies toward achieving “common prosperity,” which Alibaba added to its “core corporate responsibilities” list in September.  
+The Chinese government has been **bearing down on** tech giants and pushing companies toward achieving “common prosperity,” which Alibaba added to its “core corporate responsibilities” list in September.  
 Since the government’s new groove doesn't **jibe** with Alibaba raking in billions on luxury goods.  
 Disney **whiffed** on its earnings as Disney+ subscriber growth hit a speedbump.  
 
 Your apartment feels **homey**.  
 He was **apoplectic** with rage at the decision.  
-The audience were **petrified** by the **deafening** noise. -  
+The audience were **petrified** by the **deafening** noise.  
 
 To make this cheque legal, you should **antedate** it by 7days.  
 He hoped to **expiate** his guilt.  
@@ -39,11 +98,11 @@ He was becoming more **expansive** as he relaxed.
 be sentimental but not **mawkish**. -  
 More discriminating visitors now tend to **shun** the area.  
 **pyro**  
-The new law will be a **charter** for **unscrupulous** financial advisers. -  
+The new law will be a **charter** for **unscrupulous** financial advisers.  
 
-Those rules of **etiquette** have been **defunct** for years. -  
+Those rules of **etiquette** have been **defunct** for years.  
 Many landlords are **rejoicing** at the sky-high rental rate increases they are charging tenants.   
-These domestic migrants often brought higher incomes to their new warm-weather **domiciles**, pushing home prices up. -  
+These domestic migrants often brought higher incomes to their new warm-weather **domiciles**, pushing home prices up.  
 Here's Why the Market **Soured** on Lemonade Stock Today.  
 Moreover, it seems the market isn't **keen on** Lemonade's proposed acquisition of competitor Metromile.  
 
@@ -65,9 +124,9 @@ Their success is the result of a **fortuitous** combination of circumstances. -
 
 If you're missing out on sufficient shut-eye-most likely seven to eight hours a night-you're probably irritable, dealing with **mind fog**, and have difficulty managing daily tasks.   
 How could such a **nonentity** become chairman of the company?  
-He clearly found the physical **exertion** **exhilarating**. -  
+He clearly found the physical **exertion** **exhilarating**.  
 He is **well-intentioned** but a poor administrator.  
-She has a **vile** temper; it is impossible to live with her. -  
+She has a **vile** temper; it is impossible to live with her.  
 **prism**  
 **antiquity**  
 Times of national **turmoil** generally **roil** a country's financial markets.  
@@ -79,14 +138,14 @@ However, with Opendoor's business reportedly going quite well (we'll get actual 
 In fact, with the second-largest iBuying company **calling it quits**, it reduces Opendoor's competition and creates an even larger growth opportunity.  
 
 But that is the **figurative** you, not the literal you.  
-Their decision to do nothing makes them **culpable**. -  
+Their decision to do nothing makes them **culpable**.  
 The committee will need time to **assimilate** this report.  
 The room smelled of **mildew**.  
 **lacerate**  
 **facilities** and **amenities**  
 He finished his dessert and **patted** his **paunch**. -  
 **faggot**  
-**Asparagus** is reputed to be an **aphrodisiac**. -  
+**Asparagus** is reputed to be an **aphrodisiac**.  
 **ancillary** facility/premises/building/service  
 It all seemed useless and **inane**. -  
 
@@ -97,9 +156,9 @@ The House has one version, which would make **preschool** free, subsidise child 
 They had the **foresight** to invest in new technology.  
 They gave me a strange **concoction** to drink.  
 Love is the **antithesis** of selfishness.  
-I grew to dislike the people from my background – they were **uptight** and **prissy**. -  
+I grew to dislike the people from my background – they were **uptight** and **prissy**.  
 **armistice** day  
-In the **cloister**, hell is accepted in advance as a **post obit** on paradise. -  
+In the **cloister**, hell is accepted in advance as a **post obit** on paradise.  
 The only road access is a **tortuous** mountain route.  
 Malcolm looked at her as if she were a **raving** **lunatic**.  
 Each and every one of these soldiers has proved his **mettle**.  
@@ -175,7 +234,7 @@ He was a **vociferous** opponent of Conservatism. -
 
 You **loathsome** pig.You're supposed to be **cheating with** me, not **on** me.  
 **willful**  
-A hot climate **enervates** people who are not used to it. -  
+A hot climate **enervates** people who are not used to it.  
 **broach**  
 **akimbo**  
 The **skipper** notified the coastguard of the tragedy.  
@@ -212,7 +271,7 @@ He was so **cocksure** that she would call him first.
 Who wouldn't want a job with a food salary and **commodious** living quarters? -  
 The **ordinary** feelings which make life **amiable** and **indolent**, were unknown to him. -  
 
-He was given only a wooden **pallet** with a blanket. -   
+He was given only a wooden **pallet** with a blanket.  
 Stories about the shortages **plaguing** American firms can be found throughout the Federal Reserve’s “**Beige Book**”, a survey of economic conditions across the country that is published eight times a year.  
 A protester yelled “nice suit you f*cking shill”, and the **taunt** was met with cheer by his companion.   
 
@@ -227,7 +286,7 @@ If the economic **trends turn**, that loss would become a **wipeout**.
 My boss **told me off** for being late for work.  
 **Can I pick your brain** for a second?  
 He refused to **rule out** the possibility of a tax increase.  
-When the cycles align, the **tectonic plates** of history shift, and the lives of all people change in big ways. -  
+When the cycles align, the **tectonic plates** of history shift, and the lives of all people change in big ways.  
 I saw that America was experiencing very large gaps in people’s economic conditions, which were **obscured** by looking only at economic averages  
 
 **fizzy** alcoholic drinks.  
@@ -257,7 +316,7 @@ Though his words at times seem **whimsical**, he is just as often fierce.
 **sediment** **deposition**  
 The prosecution has forced us into holding **depositions** before the trial.  
 A **dearth** of corn caused the prices to go up.  
-They were **solicitous** and intent, watching her every move. -  
+They were **solicitous** and intent, watching her every move.  
 **ultraviolet** light/radiation  
 **reprieve**  
 People used to **recoil** from the idea of getting into debt.  
@@ -280,7 +339,7 @@ He was a **rascal** from his birth.
 But it’s not a fully automated process, and that’s where Zillow is **in a pickle**.  
 It’s impolite to **gibe** at a foreign student’s English.  
 **runic** writing   
-Chemistry isn't a **litany** of facts. -  
+Chemistry isn't a **litany** of facts.  
 **oligopoly** market  
 His tone was **curt** and unfriendly.  
 Lack of sleep is a major factor in loss of **libido**. -  
@@ -302,7 +361,7 @@ I would not **coddle** the child.
 This may affect your **entitlement** to compensation.  
 We are generally very **conscientious** about our work.  
 A speech therapist cured his **stammer**.  
-The nation's **coffers** are empty. -  
+The nation's **coffers** are empty.  
 **receding** hairline
 
 People flying into the city from outside the mainland will be **whisked** there directly, instead of to normal hotels, for at least two weeks of **confinement** and frequent testing.  
@@ -357,7 +416,7 @@ GM won’t have to **cough up** the $1.9B it expected to pay for the recall of i
 **drudgery**  
 Some words are really too **esoteric** for this dictionary.  
 **willful misconduct**  
-The First Lady unveiled a **commemorative** **plaque**. -  
+The First Lady unveiled a **commemorative** **plaque**.  
 At no time did I make an attempt to **impede** any investigatory effort.  
 **biorhythms**  
 
@@ -390,7 +449,7 @@ He is nuts, but you want to **bump off** a couple of cats?
 Jerry dates her and also finds her **grating**, and yet he can't bring himself to end this relationship.  
 I almost **relented**, but the voice inside me going "Keep going, you're almost out!"  
 We had 3 lunches and a movie, she never stopped calling. And it's those meaningless, purposeless, **blather** calls.  
-He **furrows** his **brow**, as he's really trying to figure it out. -  
+He **furrows** his **brow**, as he's really trying to figure it out.  
 It's just so much **fluff**.  
 
 The body produces **Oxytocin**, the **bonding hormone**.  
@@ -411,7 +470,7 @@ I'm trying not to be **sentimental** about the past.
 burglars **ransacked** her home.  
 **mishmash**  
 It is a **quaint** and **marvellous** thought!  
-Rather than frying meat, try baking, grilling or **broiling**. -  
+Rather than frying meat, try baking, grilling or **broiling**.  
 **succumb**  
 **ergonomical**  
 **pus**  
@@ -441,7 +500,7 @@ A **barge** was close inshore about a hundred yards away.
 The roof is structurally **unsound**.  
 She spent the last forty years of her life as a **recluse**.  
 His duty was to **conciliate** the people, not to provoke them.  
-It cost far more than a regular **incandescent** bulb. -  
+It cost far more than a regular **incandescent** bulb.  
 
 He **staggered** in and dropped into a chair.  
 White House officials ordered Williams to **recant**.  

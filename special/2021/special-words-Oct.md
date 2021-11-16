@@ -1,4 +1,12 @@
 
+**mettle**
+
+**unscrupulous** 
+
+**vigilant**  
+
+## Week 2 
+
 **glitter**
 
 **disparate**

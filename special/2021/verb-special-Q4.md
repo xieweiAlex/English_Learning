@@ -1,4 +1,6 @@
 
+skimp  
+
 **splurge** 
 
 **balk**
