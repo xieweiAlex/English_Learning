@@ -1,222 +1,3 @@
-
-
-GDP is usually used as the **numerator** in the velocity of money formula though gross national product (GNP) may also be used as well. -  
-In the **denominator**, economists will typically identify money velocity for both M1 and M2.  
-The sheets kept getting **snarled up**.   
-Definitely feel free to **circle back** with me when the time is right.  
-
-She decided on a **beige** **cashmere** sweater.  
-He was offered a research **fellowship** at Yale.  
-**glorious**  
-**calamity**  
-**clunky**  
-**polaroid**   
-The cock's breast is **tinged** with **chestnut**. -  
-Tears can be **cathartic** and releasing.  
-Don't **psychoanalyze** me, you **simp**!  
-**threadbare**  
-Choose a close friend to help you through the **white-knuckle** times of this journey.  
-Such catastrophe was of course likely to **embitter** the French nation. -  
-
-I wouldn't **heckle** the comedian, he is very quick-witted.  
-Thanks, but I'm **on the wagon**.  
-
-True, there will be local and seasonal **flare-ups**, especially in **chronically** undervaccinated countries.  
-**Epidemiologists** will also need to watch out for new variants that might be capable of **outflanking** the immunity provided by vaccines.  
-The erection of each new wall further reduces the **lethality** of covid.  
-Increasingly, therefore, people will die from covid because they are elderly or **infirm**, or they are unvaccinated or cannot afford medicines.  
-
-Economics is an **inexact** science.  
-Yet the comparison with the early 2010s is **inexact**.  
-The **woes** of global trade in 2021 have not just been caused by disrupted supply, such as covid-19 outbreaks shutting Vietnamese factories.  
-**Imminent** fiscal **retrenchment** in many countries will help cool economies. -  
-
-Ma Chun-man, known as “Captain America” for the costume he wore while on demonstrations, pleaded not guilty to violating the law, which was imposed at the **behest** of the mainland government to curb free speech in the city. -  
-The Taliban will be urged to make their government more inclusive of other **factions**, a point on which they are unlikely to **give ground**.   
-Without more balanced leadership that could prevent renewed war, Afghanistan’s **woes** **may yet** **redouble**. -  
-(Like the best stories, this one **may yet have** a happy ending.)  
-
-This book is an excellent **chronology** of how the collision happened, **albeit** lacking in **facetious** metaphors like this. -  
-“Singles’ Day”, a **bacchanal** of online Chinese consumerism, proved more restrained than usual. - 
-Inflation gives American policymakers an unpleasant reminder of their 1970s **funk**.   
-She had to **coax** the car along.  
-She **coaxed** her son into going to school.  
-You're just **coasting**—it's time to work hard now.  
-
-Huddling masses: Eastern Europe’s border **stand-offs**  
-I'll have a couple of drinks to give me **Dutch courage**.  
-Alexander Lukashenko, Belarus’s dictator, gave the EU a **fright** by flying in thousands of Iraqi migrants and sending them to the Polish border.  
-European diplomats looking to **unwind** after a stressful week are unlikely to have a restful weekend.  
-
-The Krishna Lifting Mount Govardhan, a statue of the Hindu **deity** crafted in Cambodia nearly 1,500 years ago. -  
-Despite its name, the **microbiome**, an ecosystem of microorganisms living in the body, plays a big role.   
-These random results are **antithetical** to a fair system. -  
-
-**subjugate**  
-a **dandy**-looking dude with a slick black ponytail.  
-**pyro**  
-He received a severe **reprimand** for his behaviour. -  
-For a book **purportedly** about love, the Barthes didn't look very romantic.  
-**pole position**  
-**pull strings**  
-
-Countries are still **haggling over** a possible commitment to phase out coal and fossil-fuel subsidies.  
-
-The foundation I’m referring to includes understanding the language you use, the tools you use **day in day out**, and the best or recommended practices of the platform you write software for.  
-
-This is where our thinking about Orwell led. It is a **telescreen**, which can be **dimmed**, but never turned off.  
-The Leader’s face **bears down on** you and his **gaze** drills into you.  
-Big Brother has total control of **Oceania** but Mr Putin is **resorting to** **repression** partly because, as the internet **supersedes** television news, he is losing his domination over the flow of information.  
-Mr Putin looks inappropriately **avuncular**, so for the final cover we swapped in an alternative picture. -  
-Last week New Zealand enacted a **euthanasia** law after 65% of voters backed it in a referendum. -  
-However, it is a stark and **disconcerting** image that makes assisted death seem like a punishment rather than a release.  
-The green is warm and peaceful, and better than a trace set against **bombazine** black. All we changed was the words--because some readers do not think that there is another side.  
-
-
-A compressed bottle of gas **fulminated** in front of the painting. -  
-He is **bedeviled** by his mistaken ideas.  
-At any rate, I couldn't come to you to **encumber** you, to be a drag upon you. -  
-What about when people are trying to **enrage** you?  
-The authorities proved **unyielding** on one crucial demand.  
-First and foremost he is a **logician**.  
-He lived on the street as a **vagrant**. -  
-**windfall**  
-He wore the robe, crown, and **scepter** of a **triumphant** general and used the title **imperator**. -  
-I hear there are more staff changes **in the offing**.  
-
-The Chinese government has been **bearing down on** tech giants and pushing companies toward achieving “common prosperity,” which Alibaba added to its “core corporate responsibilities” list in September.  
-Since the government’s new groove doesn't **jibe** with Alibaba raking in billions on luxury goods.  
-Disney **whiffed** on its earnings as Disney+ subscriber growth hit a speedbump.  
-
-Your apartment feels **homey**.  
-He was **apoplectic** with rage at the decision.  
-The audience were **petrified** by the **deafening** noise.  
-
-To make this cheque legal, you should **antedate** it by 7days.  
-He hoped to **expiate** his guilt.  
-He was becoming more **expansive** as he relaxed.  
-be sentimental but not **mawkish**. -  
-More discriminating visitors now tend to **shun** the area.  
-**pyro**  
-The new law will be a **charter** for **unscrupulous** financial advisers.  
-
-Those rules of **etiquette** have been **defunct** for years.  
-Many landlords are **rejoicing** at the sky-high rental rate increases they are charging tenants.   
-These domestic migrants often brought higher incomes to their new warm-weather **domiciles**, pushing home prices up.  
-Here's Why the Market **Soured** on Lemonade Stock Today.  
-Moreover, it seems the market isn't **keen on** Lemonade's proposed acquisition of competitor Metromile.  
-
-Largest iBuying firms say they're **forging ahead** after Zillow's exit.  
-Zillow's home-flipping **Demise** **puts** other iBuyers **on the spot**.  
-
-**Calcium** is found most **abundantly** in milk. -   
-His tiny brain has been calcified by **intolerance**.  
-Remain calm and **levelheaded**. -  
-It was a horrific **denouement** to the wildest **con** ever **pulled**. -  
-The diving championship was a **cakewalk** for her. -  
-he **cakewalked** to a 5-1 triumph.  
-**perspiration**  
-Students should avoid any **immodest** behaviour, on or off campus.  
-They questioned the **veracity** of her story.  
-I'm still feeling a little **woozy**, so I rest my head on his shoulder. -  
-**attic** window  
-Their success is the result of a **fortuitous** combination of circumstances. -  
-
-If you're missing out on sufficient shut-eye-most likely seven to eight hours a night-you're probably irritable, dealing with **mind fog**, and have difficulty managing daily tasks.   
-How could such a **nonentity** become chairman of the company?  
-He clearly found the physical **exertion** **exhilarating**.  
-He is **well-intentioned** but a poor administrator.  
-She has a **vile** temper; it is impossible to live with her.  
-**prism**  
-**antiquity**  
-Times of national **turmoil** generally **roil** a country's financial markets.  
-He is **meanly** dressed.  
-She felt **heady** with success.  
-I have a little **menagerie** outside in backyard. - 
-
-However, with Opendoor's business reportedly going quite well (we'll get actual earnings results next week), it appears these fears are **overblown**.  
-In fact, with the second-largest iBuying company **calling it quits**, it reduces Opendoor's competition and creates an even larger growth opportunity.  
-
-But that is the **figurative** you, not the literal you.  
-Their decision to do nothing makes them **culpable**.  
-The committee will need time to **assimilate** this report.  
-The room smelled of **mildew**.  
-**lacerate**  
-**facilities** and **amenities**  
-He finished his dessert and **patted** his **paunch**. -  
-**faggot**  
-**Asparagus** is reputed to be an **aphrodisiac**.  
-**ancillary** facility/premises/building/service  
-It all seemed useless and **inane**. -  
-
-The House has one version, which would make **preschool** free, subsidise child care, spend **lavishly** on climate **readiness** and expand Medicare, America’s federal health-insurance program.  
-
-## Week 1 
-
-They had the **foresight** to invest in new technology.  
-They gave me a strange **concoction** to drink.  
-Love is the **antithesis** of selfishness.  
-I grew to dislike the people from my background – they were **uptight** and **prissy**.  
-**armistice** day  
-In the **cloister**, hell is accepted in advance as a **post obit** on paradise.  
-The only road access is a **tortuous** mountain route.  
-Malcolm looked at her as if she were a **raving** **lunatic**.  
-Each and every one of these soldiers has proved his **mettle**.  
-In my fever I had a long consistent **delirium**. -  
-She wrote in an original and highly **erudite** style.
-No one can **gainsay** his honesty.  
-**scotch** whisky, **scotch** tape  
-You'd **be better off** doing something   
-
-Zillow's AI pricing algorithms despite its access to ample data, **calling into question** the high balance sheet risk necessary to enable the scaling of iBuying business models.  
-His remarks were clearly not **displeasing** to her.  
-**nemesis**  
-**drippy**  
-I took **copious** notes.  
-I say we **nab** his **watery** **miscreant** ass now.  
-The stock market is in a **tailspin**.
-He would **repudiate** all debts incurred by his son.  
-Performance, scalability and **fault-tolerant** considerations.  
-**choke point**  
-They **dredge** the bay for **gravel**. -  
-Many of his warnings proved **prophetic**. -
-**poach**, **pilfer**  
-Make A Long **Harangue**  
-It's hard to win if your attitude adds friction to every **interpersonal** experience.
-
-A **sliver** of light showed under the door.  
-The town takes **immense** pride in recent achievements.  
-You **vulgar** little **maggot**. -  
-**sheik**  
-He **swam down** and retrieved his glasses from the muck and **slime** at the bottom of the pond.  
-**quarrel**  
-
-Zillow will likely sell the properties to a **multitude** of buyers rather than packaging them in a single transaction, said the people, who asked not to be named because the matter is private.  
-History is **littered** with the **corpses** of those who tried and failed to **corner a market**. Real estate is no different.  
-Clearly Zillow is not going to buy all the houses in America and turn us into **serfs** overnight. -  
-that is an absurd **straw man**  
-The **boom and bust cycle** reflects basic human psychology of **fear and greed**.  
-History is also filled with the **bloated** corpses of those who did successfully corner a market. Or, in modern times, those who participated in a **synergistic** **duopoly** to **skirt** **anti-trust** laws.  
-
-The ideal way to take a cold shower is to **ease in to the habit**.  
-
-The **row** over Australia’s cancellation of a deal with France to make 12 diesel-powered submarines, worth $67bn, intensified.  
-Australia’s prime minister, said that his country would not accept “**sledging**” and “**slurs**” from the French president, Emmanuel Macron.  
-Airport officials **struggle to** interpret **disparate** QR codes, verified by different apps and spitting out different information when scanned.  
-Even so, after months holed up at home, holidaymakers may still decide that long lines and piles of paperwork are a price worth paying for a pina colada on a **faraway** beach.  
-
-moral **turpitude**. -  
-**loquacious** woman. -  
-**specious**  
-**gospel**  
-It decided to **perch** on our yacht.  
-go **awry**  
-She was **in a fury** over a plan that had **gone awry**.  
-**provisional** rules/regulation   
-**hyperbolic** function  
-From **gateway** to **air-lock**: Hong Kong’s economy  
-
-
 ## Week 4 
 
 **Boundless** **intemperance** in nature is a **tyranny**. -  
@@ -227,7 +8,7 @@ Some say this **state of affairs** just can't last.
 She is perceived as **vain**, spoiled, and **promiscuous**. -
 Isn't dinner ready? I'm **famished**.  
 
-He was a **vociferous** opponent of Conservatism. -  
+He was a **vociferous** opponent of Conservatism.  
 **comely**  
 **second thought**  
 **homogenous**, **hemogenize**
@@ -321,7 +102,7 @@ They were **solicitous** and intent, watching her every move.
 **reprieve**  
 People used to **recoil** from the idea of getting into debt.  
 He underwent nineteen years of **penal** **servitude** for theft.  
-He became **provost** in 2006 and President the following year. -  
+He became **provost** in 2006 and President the following year.  
 **pasture**  
 **steadfast**  
 
@@ -342,7 +123,7 @@ It’s impolite to **gibe** at a foreign student’s English.
 Chemistry isn't a **litany** of facts.  
 **oligopoly** market  
 His tone was **curt** and unfriendly.  
-Lack of sleep is a major factor in loss of **libido**. -  
+Lack of sleep is a major factor in loss of **libido**.  
 She **powdered** her face and applied her **lipstick** and **rouge**.
 Someone wants to **flatline** him, huh?  
 I was vaccinated against **tetanus**. -  
@@ -350,7 +131,7 @@ Tony is very **cagey** about his family.
 Her hair was crawling with **lice**.  
 Stay away since the oil **splatters**  
 
-The empire had for years been falling into **decadence**. -  
+The empire had for years been falling into **decadence**.  
 **acclamation**  
 I eschewed **upbraiding**, I curtailed **remonstrance**.  
 Very much a man's man, he enjoyed drinking and **jesting** with his cronies.  
@@ -371,7 +152,7 @@ The country’s repeated **skirmishes** in recent months with Delta-related outb
 people stuck at home have been **splurging** on goods such as electronics and exercise gear  
 China makes such things **aplenty**  
 Foreign businesspeople in China certainly **grumble**.  
-But many people have little sympathy with their **travails** -  
+But many people have little sympathy with their **travails**  
 It faces a series of big public events that it will not want **overshadowed** by outbreaks that raise embarrassing questions at home about its **vaunted** ability to defeat the virus.  
 Many Chinese, encouraged by state media, believe the West has been **peddling** falsehoods about the origins of the virus in order to make their country look bad.  
 
@@ -385,9 +166,9 @@ In that state, circulating and mutating from year to year, the coronavirus will 
 Space **taunts** us because it' always there, it's always visible, it's directly across the cosmic window.  
 **hideous**  
 It’ll be a winter of **discontent**...and skyrocketing gas bills.  
-Nothing can **sunder** our friendship. -  
+Nothing can **sunder** our friendship.  
 the mouse that **pilfers** from our **pantry**.  
-An **incantation** can be "deflected" and "**rebound**". -  
+An **incantation** can be "deflected" and "**rebound**".  
 Twenty million years ago, Idaho was populated by dense **primordial** forest.  
 Life’s **primordial** reality is spirit  
 The vase hit the floor and **shattered**.  
@@ -398,7 +179,7 @@ My **complexion** remained **pale and pasty**.
 They only made a **perfunctory** effort.  
 I insist on perfect **sobriety** and silence.  
 **uterus**  
-One is the **eulogistic** word freedom, and the other is the **opprobrious** word chance. -  
+One is the **eulogistic** word freedom, and the other is the **opprobrious** word chance.  
 **profiling**  
 The media has waged a **virulent** hate campaign against her.  
 **dillydally**  
@@ -462,7 +243,7 @@ Some parents seem to live **vicariously** through their children.
 Use an **emollient** for dry skin.  
 He showed a **flagrant** disregard for anyone else's feelings.  
 The shark **described** a circle around the **shoal** of fish.  
-An **infelicitous** remark. -  
+An **infelicitous** remark.  
 
 **attention span**  
 Paul was in a **sombre** mood.  
@@ -490,7 +271,7 @@ I've been moody and tired and **crabby**.
 he had an **impish** look about him.  
 **hamster**  
 **sombrero**  
-He was brought up in **penury**, without education. -  
+He was brought up in **penury**, without education.  
 **squabble**  
 There was a **triumphant** **glitter** in his eyes.  
 A **barge** was close inshore about a hundred yards away.

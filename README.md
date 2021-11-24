@@ -4,15 +4,20 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 
 
 ### Current 
-
-[Words](./words/2021/words-Oct.md) |
-[Special word](./special/2021/special-words-Oct.md) |
-[Phrase](./special/2021/phrase-Oct.md) |
+[Words](./words/2021/words-Nov.md) |
+[Special word](./special/2021/special-words-Nov.md) |
+[Phrase](./special/2021/phrase-Nov.md) |
 [Verb](./special/2021/verb-special-Q4.md)
+
 
 [SeinField](./media/seinfeld.md)
 
 ### Prior 
+o
+[Words](./words/2021/words-Oct.md) |
+[Special word](./special/2021/special-words-Oct.md) |
+[Phrase](./special/2021/phrase-Oct.md) |
+[Verb](./special/2021/verb-special-Q4.md)
 
 [Words](./words/2021/words-Sep.md) |
 [Special word](./special/2021/special-words-Sep.md) |
@@ -36,12 +41,6 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 |  Review 🐗        |    File Marks       |  file   	|
 | -------------     |-------------  | ------- |
 | Monthly Word **Review**   |  I  |  [Words Review](./words-review.md)       |
-| Monthly Word              |  A  | [Current Month](./words/2021/words-Sep.md)  |
-| Monthly **Phrase**        |  J  | [Special Phrase](./special/2021/phrase-Sep.md)
-| Monthly **Special Words** |  K  | [Special Words](./special/2021/special-words-Sep.md)
-| Monthly **Verb Words**    |  V  | [Special Verb][verb-2021-Q2]       |
-| **Movie** Record          |  L | [movie-record](./media/movie.md)       |
-
 
 
 ### Special Review

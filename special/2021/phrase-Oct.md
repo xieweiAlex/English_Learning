@@ -1,20 +1,4 @@
-
-## Week 1,2
-
-The Leader’s face **bears down on** you and his **gaze** drills into you.  
-Countries are still **haggling over** a possible commitment to phase out coal and fossil-fuel subsidies.  
-Huddling masses: Eastern Europe’s border **stand-offs**  
-I hear there are more staff changes **in the offing**.  
-The Chinese government has been **bearing down** on tech giants and pushing companies toward achieving “common prosperity,” which Alibaba added to its “core corporate responsibilities” list in September.  
-
-Zillow's home-flipping **Demise** **puts** other iBuyers **on the spot**.  
-Largest iBuying firms say they're **forging ahead** after Zillow's exit.  
-Moreover, it seems the market isn't **keen on** Lemonade's proposed acquisition of competitor Metromile.  
-
-You **loathsome** pig.You're supposed to be **cheating with** me, not **on** me.  
-He refused to **rule out** the possibility of a tax increase.  
-
-## Week 3 
+## Week 3,4 
 My brother in law once left a message on this guy's machine, and he **blurted** out some business information he wasn't suppose to, and it would've cost him $15,000.   
 You thought you could **waltz through** the rest of life and never **bump into** me again, but you were wrong, Jerry!  
 My boss **told me off** for being late for work.  

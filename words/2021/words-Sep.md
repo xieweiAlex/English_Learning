@@ -51,7 +51,6 @@ nine-year **compulsory** education
 The storm **wrought** **havoc** in the south. 
 
 The colourful flags added to the **gaiety** of the occasion.  
-This kind of freedom is **licentious**.  
 **Palmy** times for stockbrokers.  
 This caused such a **ruckus** all over Japan that they had to change their mind.  
 And you tell me she's not a **knockout**.  
@@ -177,7 +176,7 @@ Her life was **sedate**, almost **mundane**.
 Human nature is **frail**.  
 He crouched behind a low **hedgerow**.  
 Once you've passed the critical point where **diversion** will no longer sustain you, the only **recourse** is to turn to God.  
-AI usually scans posts for rule-breaking content and quickly removes it if there’s an **infraction**. -  
+AI usually scans posts for rule-breaking content and quickly removes it if there’s an **infraction**.  
 It leads with an Introduction that completely **divulges** the ending of the story as well as other major plot points throughout the book.  
 The trip is **punctuated** by numerous philosophical discussions  
 He knows that such persons are determined to **shoehorn** all of life's experience into the romantic view.  
@@ -315,7 +314,7 @@ In addition, lower immigration and **child-bearing** this year and next are cont
 
 That's why Obama can meet the troop **drawdown** deadline.   
 we've no **vital interest** in Afghanistan.  
-Your presidency and legacy will forever be labeled as a **abject** failure of leadership. -  
+Your presidency and legacy will forever be labeled as a **abject** failure of leadership.  
 Do **sadistic** films deprave the viewers?  
 There's not a **vestige** of truth in the rumour.
 

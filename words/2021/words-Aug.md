@@ -157,7 +157,7 @@ The economy still faces **intractable** problems.
 We are genuinely concerned about their **whereabouts**.  
 **armistice**  
 **platonic** love  
-**Berate**: To chide or **scold** **vehemently** -  
+**Berate**: To chide or **scold** **vehemently**  
 
 Prices in Austin have just gone **berserk**, through the roof.  
 **collective wisdom**  

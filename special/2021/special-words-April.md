@@ -77,9 +77,6 @@
 **effusive**
 **effusion**
 
-**cathartic** 
-**lethargic**
-
 **prerogative**
 
 **hallmark**

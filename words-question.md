@@ -1,4 +1,6 @@
 
+
+* gravel, rubble, cobble, pebble
 * famished vs starving 
 * white-knuckle
 * pliable, pliant

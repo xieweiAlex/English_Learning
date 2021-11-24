@@ -1,20 +1,17 @@
 
 ## Season 3 
 
-I see a very cheap man holding a sweater trying to get away with something. That's my overview.
-You're still here. You're a dynamo.  
-George: So she starts vaccuming, back and forth, back and forth, her hips swivelling, her breasts, uh... (trying to think of a word)
-Jerry: Convulsing?
-George: Convulsing?
-So we started drinking, and I'll tell you I don't know if it was the alcohol or the ammonia, but the next think I knew she was mopping the floor with me.  
-Jerry takes out a hankerchief and starts fake-crying in it.  
+I see a very cheap man holding a sweater trying to **get away with** something. That's my **overview**.
+You're still here. You're a **dynamo**. -  
+George: So she starts vaccuming, back and forth, back and forth, her hips **swivelling**, her breasts, uh... (trying to think of a word)
+Jerry: **Convulsing**?
+George: **Convulsing**?
+So we started drinking, and I'll tell you I don't know if it was the alcohol or the **ammonia**, but the next think I knew she was mopping the floor with me.  
+Jerry takes out a **hankerchief** and starts fake-crying in it.  
 
-Oh, wait a second, I believe we have a heckler ladies and gentlemen. Hey Dick I don't know what your problem is. It's not my fault you're back on the wagon.  
+Oh, wait a second, I believe we have a **heckler** ladies and gentlemen. Hey Dick I don't know what your problem is. It's not my fault you're back **on the wagon**.  
 
-
-
-
-Maybe the **dingo** ate your baby. -  
+Maybe the **dingo** ate your baby.  
 the last time a woman said that to me I **wound up** apologizing to her.  
 Every time I pass her desk, I have to plan a little **patter**.  
 it'll look like I'm abandoning him because of his condition. I'll be **ostracized** from the community.  
@@ -23,7 +20,7 @@ The woman has my papers you told her she's **pretentious**?
 
 This guys is probably **on a bender**.  
 Jerry **gargles**? He does it like 6 times a day.  
-**Mutt**? I'll **wager** his parents are more purer than yours.  
+**Mutt**? I'll **wager** his parents are more pure than yours.  
 
 George got him fired, he **squealed on** him.  
 **tattletale** - I didn't **tattle**.  
