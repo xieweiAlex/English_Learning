@@ -1,8 +1,25 @@
 
 ## Season 3 
+KRAMER: (**debonair** smile) Well, it’d be our little secret. -  
+
+A car just bashed into a parked car, and **sped off**, right on my **block**!  
+What are you, **yellow**?  
+They both smile **flirtatiously** at each other.  
+Look, she slammed into a parked car! She took no responsibility for **mutilating** the property of a stranger, then she **sped off** like a criminal!  
+What kind of a sick **lowlife** would do a thing like that? You know those people, you know they're **mentally disturbed**.  
+(Michael throws down his **serviette**), Michael: You think you're so damn special because you say 'God bless you'?  
+The **intercom** buzzes, Jerry walks over and presses the button  
+Unless, she's one of these multiple sneezers, and he's holding his 'God bless you' **in abeyance**, until she completes the series. -  
+**Don't sell yourself short** saying 'God bless you' to every Tom, Dick and Harry in great personal risk.  
+Robin: Maybe even someone who didn't say 'God bless you'. George: Well, **that's a given**.
+
+Now you listen to me, suck face! You tell anybody, anything, and I will **carve** my **initials** in your brain tissue!
+I wasn't going to do anything until you got her all **juiced up** with your story about having the affair with the **matador**!
+Becky: **You have got some nerve**! You smash up my car, you don't admit it, and now you want to ask me out on a date?  
+Kramer is walking toward her door, hair **slicked** back, with a **bouquet** of flowers in his hand. -  
 
 I see a very cheap man holding a sweater trying to **get away with** something. That's my **overview**.
-You're still here. You're a **dynamo**. -  
+You're still here. You're a **dynamo**.  
 George: So she starts vaccuming, back and forth, back and forth, her hips **swivelling**, her breasts, uh... (trying to think of a word)
 Jerry: **Convulsing**?
 George: **Convulsing**?

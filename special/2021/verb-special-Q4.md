@@ -1,7 +1,14 @@
 
+## Nov 
+
+**sidestep**
+
+**abate**  
+
 **pester**
 
 **skimp**  
+**scrimp**  
 
 **splurge** 
 

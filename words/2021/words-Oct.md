@@ -46,7 +46,7 @@ He arranged a **parley** with us.
 On Tuesday the outcome of the six-month inquiry could be **watered down** further.  
 In his latest work, he has changed **tack** and **delved into** the life of a neglected American journalist.  
 Another “zero covid” **holdout**.  
-Ofcom says 45m Britons were targeted by scammers this summer, including **mendacious** text messages and landline calls. -  
+Ofcom says 45m Britons were targeted by scammers this summer, including **mendacious** text messages and landline calls.  
 
 He was so **cocksure** that she would call him first.  
 Who wouldn't want a job with a food salary and **commodious** living quarters? -  
@@ -126,7 +126,7 @@ His tone was **curt** and unfriendly.
 Lack of sleep is a major factor in loss of **libido**.  
 She **powdered** her face and applied her **lipstick** and **rouge**.
 Someone wants to **flatline** him, huh?  
-I was vaccinated against **tetanus**. -  
+I was vaccinated against **tetanus**.  
 Tony is very **cagey** about his family.  
 Her hair was crawling with **lice**.  
 Stay away since the oil **splatters**  
@@ -202,7 +202,7 @@ At no time did I make an attempt to **impede** any investigatory effort.
 **biorhythms**  
 
 When you execute your push-ups, don't forget to **tuck** your elbows in towards your body rather than **flaring** them out.  
-degrees higher than 60 degrees out the shoulder is placed in a compromised position that can lead to shoulder **impingement**, so keep them below a 60 degree angle. -    
+degrees higher than 60 degrees out the shoulder is placed in a compromised position that can lead to shoulder **impingement**, so keep them below a 60 degree angle.  
 
 He was **effusive** in his praise for the general.  
 **demolition** blasting  
@@ -291,7 +291,7 @@ He drank and **stifled** a **belch**.
 **pebble**  
 
 He needed aluminum **crutches** to walk.  
-This process begins by virtue of an inner need, an **inquietude**, a thought that stimulates one's mind and **anima** to accomplish it. -  	 
+This process begins by virtue of an inner need, an **inquietude**, a thought that stimulates one's mind and **anima** to accomplish it.  
 
 Dogecoin fans **swoon over** Elon Musk's floki update. 
 
@@ -310,7 +310,7 @@ Haugen was so concerned that she gathered **reams** of internal research and dis
 Just a twist of the handle is all it takes to **wring** out the mop.  
 Many may **abstain** through fear.  
 He felt a **thump** on his shoulder.  
-Housing **Provident** Fund. -  
+Housing **Provident** Fund.  
 I didn't come here to **steal your thunder**.  
 Tim could barely **conceal** his disappointment.  
 

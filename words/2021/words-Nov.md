@@ -1,14 +1,126 @@
 
-His head moved in an almost imperceptible nod.  
-The enigmatic designer is no stranger to scandal.  
-Neandertal vertebrae were not simian at all.  
-Stupendous  
-boderline personality  
-indefensible  
-Dolly Girl  
+paper mache  
 
 
+The new Omicron variant will further entrench China’s tight restrictions on business travel.  
+I don’t think the Chinese government is dogmatic. It is quite pragmatic.  
+The authorities have been unconscionably slow in approving the vaccine developed by BioNTech and Pfizer.  
+The virus is highly mutable. China’s policy towards it, however, is strikingly invariant.  
 
+
+Some think of the office as the new offsite.  
+If you are a pessimist, it will be a building full of heavily surveilled drunkards.  
+
+
+Its new **moniker** signals a plan to expand into blockchain-related technologies.  
+And I hope could spend **commonness** and **treacly** life with you. -  
+**Rabid** animals on the loose frequent our TVs and newsfeeds. -  
+that **doddering** old fool.  
+**indolent**  
+Freedom of the press is **sacrosanct**.  
+The planets move around the sun in **ellipses**.  
+He built himself a **cubby** in my house.  
+**simile**  
+
+We believed our love was **inviolate**. -  
+**distal** end   
+**faultfinder**  
+She likes to **reminisce** about her childhood.  
+**frazzle**  
+Many of its practices seem **anachronistic**.  
+**rectum**  
+It sort of resembled a **savanna** but without grass. -  
+until the rooster **crow**. - 
+
+She made an **impassioned** plea for help.  
+the company has failed to impress investors despite **enduring** growth.  
+
+Not only are technologies advancing at **breakneck** speed, but they’re doing so at an exponential rate.  
+America’s abortion rights **on the ropes**.  
+Mr Agrawal seems more **strait-laced** than his predecessor.  
+
+Who could possibly have come up with such a **nifty** **contraption**? -  
+He is incapable of **discriminating** between a good idea and a terrible one.  
+She seemed **invigorated**, **full of life** and energy.  
+I grew up **bereft** of hugs. -  
+She's **delirious**, but has **lucid** **intervals**.  
+
+I cannot **brook** his arrogance.  
+The **brook** **warbled** over its rocky bed. -  
+In my view this book would **deprave** young children.  
+
+## Week 4
+
+
+Three-quarters of Americans say they’re feeling the **pinch**, and more than half blame President Biden, knocking his approval rating to an all-time low of 41%.  
+Twitter only snagged $3.7 billion in revenue last year, while Meta **raked in** almost $86 billion.  
+America will be especially reluctant to let the bank **open the taps**, despite the escalating crisis faced by ordinary Afghans.  
+Despite its oil wealth, Russia is increasingly **reliant on** the West. -  
+
+He was so **mulish** that my **admonitions** just **flowed over** him. -  
+**indispensable**  
+The **imbroglio** overshadowed Tesla hitting its production targets for the Model 3 for the first time. -  
+It’s impolite to **gibe at** a foreign student’s English.  
+**ostrich**  
+
+But complaints about unequal distribution will start to **abate** during 2022 as access to patients’ arms becomes a larger limiting factor than access to jabs.  
+That will **crimp** the global market for less effective vaccines, such as the Chinese ones.  
+Pfizer is already manufacturing “significant quantities” of its **protease** inhibitor. -  
+The coronavirus remains a formidable **foe**.  
+(**friend or foe** )  
+China seeks to extend its **clout** in commodity markets.  
+**LNG**: liquefied natural gas.  
+Now China wants to extend its influence over commodities **further still**. -  
+(The Americans go **further still**.)  
+All otters have a **voracious** appetite. -  
+Estimates from 2016 suggest that this group holds around 85% of open positions, compared with 15% on Western **bourses**. -  
+A lack of expertise means retail investors tend to **accentuate** price swings. -  
+Another is that officials are **wary** of Western benchmarks, suspecting that they may have been manipulated.  
+the prices of futures contracts on Western and Chinese exchanges are more often moving **in tandem**.  
+After months in which Chinese censors have tolerated online mockery of Mr Biden as a **doddery** shui wang, or “sleep king”, prone to napping during meetings. -  
+The video call was **a far cry** from a traditional summit between American and Chinese leaders.  
+namely that America is **bent on** **containing** China’s rise and is to blame for all **present-day** tensions.  
+code for a realist America realising it has no choice but to accommodate China’s **autocratic**, **statist** ways. -  
+China’s leaders still want investment and technology from the West, but they think it is **in decadent** decline and are decoupling from Western **norms** and ideas.  
+
+They got mad, stood up, **stormed out** of the shop.  
+The **orgiastic** day of children is coming.  
+We mustn't **let up** now. 
+If somebody finds it hard to **make ends meet**, they have problems living on the money they earn.  
+
+One man died, and his body was **encased in** all the **debris**.  
+She could not ignore his **indecorous** behaviour though she loved him very much. -  
+The aged cheese had a **pungent** taste.  
+**succinctness**  
+**esoteric** buddhism. -  
+
+The electorate had grown **disenchanted** with politics. -  
+**feminine** vs **girly**  
+summer/winter **solstice**
+He **plunked** into the lake.  
+I'm not ready to **plunk** my money into any of these.  
+**photogenic**  
+**reciprocal** relation  
+She managed to **stifle** a **yawn**.  
+**franchise** chain  
+a **fraternity** beer bust  
+The **prodigal** had returned. -  
+
+Rarely, if ever, does he **sidestep** a question.  
+
+I can **sell short** as well as **go long**. 
+Don't **sell yourself short**.  
+That's a **given**. 
+
+His head moved in an almost **imperceptible** nod. -  
+The **enigmatic** designer is **no stranger** to scandal.  
+**Neandertal** vertebrae were not **simian** at all.  
+**Stupendous**  
+**borderline** personality  
+**indefensible**  
+**Dolly** Girl  
+**OCD**: obsessive-compulsive disorder  
+**horoscope**
 
 The **wisecrack** you believe is witty often is not.  
 **disarming**  
@@ -17,7 +129,7 @@ The **wisecrack** you believe is witty often is not.
 Careful you don't **tread** in that **puddle**.  
 they danced and **caroused** until the drink ran out. -  
 He was **effusive** in his praise for the general.  
-He was a **punctilious** young man. -  
+He was a **punctilious** young man.  
 You can't tell her that joke—she's much too **prim and proper**. -  
 
 Was he, as alleged by the prosecution, a naive “chaos tourist” who went to Kenosha to play at being a **vigilante** and then shot his way out of a scary but not actually life-threatening confrontation?  
@@ -39,7 +151,7 @@ Don't **deify** people even they're extremely influential.
 Despite empty **pews** and sexual-abuse scandals, Catholic education is increasing in popularity.  
 Remote learning was difficult for her daughter. Once happy and outgoing, she became **withdrawn**.  
 The number had fallen from a peak in the early 1960s, when Catholic schools had 5.2m **pupils**, to around 1.6m last year, which meant a lot of empty desks.  
-But this autumn **dioceses** all over the country are seeing increases in enrolments.  
+But this autumn **dioceses** all over the country are seeing increases in enrolments. -  
 Even so, many families are willing to pay. Ms Camisa and her husband have had to **rejig** their finances to afford tuition. -  
 
 Leaders from both parties gathered on the White House’s south lawn to praise the **bulging** spending package for roads and bridges.  
@@ -47,9 +159,12 @@ The 39-year-old, who used the mayoralty of Indiana’s fourth-biggest city to la
 a staggering **disparity**.  
 The **disdain** on the right reflected not only unconcern about racial injustice, but how much the Biden administration has riding on the spending bill.  
 
+## Week 3 
+
 Dorothea **let out** a **histrionic** groan.  
+**histrionic personality**  
 **plethora**  
-On the other hand, girls learn to be **deferential**, and anger is incompatible with **deference**. -  
+On the other hand, girls learn to be **deferential**, and anger is incompatible with **deference**.  
 The flags were lowered out of **deference to** the **bereaved** family. -  
 She used to be a singer of some **renown**.  
 **poster board**, **poster child**  
@@ -92,9 +207,9 @@ Sharpen your **foresight** with Tom Standage, deputy editor of The Economist and
 **Aryan**
 **pester**  
 When he doesn't know the answer, he gets **huffy**.  
-He has to visit them on the **sly**. -  
+He has to visit them on the **sly**.  
 **bolshevism**  
-This kind of freedom is **licentious**. -  
+This kind of freedom is **licentious**.  
 He was treated with **penicillin** injections.  
 **ordinance**  
 His opponents viewed him as stubborn, **dogmatic**, and **inflexible**.  
@@ -110,11 +225,11 @@ industrial **agglomeration**
 
 There's been a recent **upsurge** in incidents, including the **desecration** of a Jewish **cemetery**. -  
 **whet**  
-Handling conflict takes **finesse** and thought. -  
-**desiccative** preservation. -  
+Handling conflict takes **finesse** and thought.  
+**desiccative** preservation.  
 We should care for them and not **thwart** their enthusiasm.  
 
-GDP is usually used as the **numerator** in the velocity of money formula though gross national product (GNP) may also be used as well. -  
+GDP is usually used as the **numerator** in the velocity of money formula though gross national product (GNP) may also be used as well.  
 In the **denominator**, economists will typically identify money velocity for both M1 and M2.  
 The sheets kept getting **snarled up**.   
 Definitely feel free to **circle back** with me when the time is right.  
@@ -125,7 +240,7 @@ He was offered a research **fellowship** at Yale.
 **calamity**  
 **clunky**  
 **polaroid**   
-The cock's breast is **tinged** with **chestnut**. -  
+The cock's breast is **tinged** with **chestnut**.  
 Tears can be **cathartic** and releasing.  
 Don't **psychoanalyze** me, you **simp**!  
 I almost wore my **threadbare** robe that can't contain my breasts  
@@ -190,11 +305,11 @@ The green is warm and peaceful, and better than a trace set against **bombazine*
 
 A compressed bottle of gas **fulminated** in front of the painting. -  
 He is **bedeviled** by his mistaken ideas.  
-At any rate, I couldn't come to you to **encumber** you, to be a drag upon you. -  
+At any rate, I couldn't come to you to **encumber** you, to be a drag upon you.  
 What about when people are trying to **enrage** you?  
 The authorities proved **unyielding** on one crucial demand.  
 First and foremost he is a **logician**.  
-He lived on the street as a **vagrant**. -  
+He lived on the street as a **vagrant**.  
 **windfall**  
 He wore the robe, crown, and **scepter** of a **triumphant** general and used the title **imperator**. -  
 I hear there are more staff changes **in the offing**.  
@@ -277,7 +392,7 @@ In the **cloister**, hell is accepted in advance as a **post obit** on paradise.
 The only road access is a **tortuous** mountain route.  
 Malcolm looked at her as if she were a **raving** **lunatic**.  
 Each and every one of these soldiers has proved his **mettle**.  
-In my fever I had a long consistent **delirium**. -  
+In my fever I had a long consistent **delirium**.  
 She wrote in an original and highly **erudite** style.
 No one can **gainsay** his honesty.  
 **scotch** whisky, **scotch** tape  
@@ -320,8 +435,8 @@ Australia’s prime minister, said that his country would not accept “**sledgi
 Airport officials **struggle to** interpret **disparate** QR codes, verified by different apps and spitting out different information when scanned.  
 Even so, after months holed up at home, holidaymakers may still decide that long lines and piles of paperwork are a price worth paying for a pina colada on a **faraway** beach.  
 
-moral **turpitude**. -  
-**loquacious** woman. -  
+moral **turpitude**.  
+**loquacious** woman.  
 **specious**  
 **gospel**  
 It decided to **perch** on our yacht.  

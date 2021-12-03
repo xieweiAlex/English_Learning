@@ -1,4 +1,12 @@
 
+**abrasive** 
+
+**prudent** 
+**attentive**
+
+**lucid**  
+
+## Week 3, 4
 
 **levelheaded**
 

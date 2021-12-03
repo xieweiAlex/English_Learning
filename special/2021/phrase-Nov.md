@@ -1,3 +1,14 @@
+
+## Week 3,4
+
+America’s abortion rights **on the ropes**.  
+Now China wants to extend its influence over commodities **further still**. -  
+Twitter only snagged $3.7 billion in revenue last year, while Meta **raked in** almost $86 billion.  
+They got mad, stood up, **stormed out** of the shop.  
+the prices of futures contracts on Western and Chinese exchanges are more often moving **in tandem**.  
+She seemed **invigorated**, **full of life** and energy.  
+America’s abortion rights **on the ropes**.  
+Mr Agrawal seems more **strait-laced** than his predecessor.  
 I gotta say the "new you" seems a little **on edge**  
 I want to **swing for the fences**, you know?  
 No, we just took you at **face value**  
