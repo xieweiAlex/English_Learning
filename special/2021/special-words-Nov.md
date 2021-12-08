@@ -1,8 +1,15 @@
 
+**pervade**
+
+## Week 1 
+
+**pragmatic**, **dogmatic**
+
+**discombobulate**
+
 **abrasive** 
 
-**prudent** 
-**attentive**
+**prudent**, **attentive**
 
 **lucid**  
 

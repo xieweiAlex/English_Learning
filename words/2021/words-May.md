@@ -222,7 +222,6 @@ Here's a **gratuitous** shot of Caleb hanging out with the Oracle of Omaha at hi
 While common usage of the term "**FUD**" is relatively recent and somewhat limited, the practice of casting **unwarranted** **aspersions** upon other persons, products or circumstances to further one's own goals may be as old as humanity  
 The only one who keep coming back even when I **chase them away**. 
 **punitive** tax.  
-Jacobs was a **stout**, **florid** man.  
 Being at the barn is very like **homey**.  
 **homie** 
 **envelop**  

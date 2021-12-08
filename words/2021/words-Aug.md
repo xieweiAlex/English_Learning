@@ -307,7 +307,7 @@ The heartbeat was **feeble** and **irregular**.
 
 I have only **scratched the surface** of their feature sets in keeping with the spirit of this book
 His book **commingles** sarcasm and sadness.  
-The definition of **sedulous** is someone who is **diligent**, hard working and persistent. -  
+The definition of **sedulous** is someone who is **diligent**, hard working and persistent.  
 She is **assiduous** in her efforts to learn French.  
 He acted **out of expediency**, not principle.  
 toy **poodle**  

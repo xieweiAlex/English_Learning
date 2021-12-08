@@ -1,29 +1,80 @@
 
-paper mache  
+
+He is a self-professed expert on everything-he proves to be the classic bumbler.  
+The guy's a chump. I could do a better job myself.  
+slurp  
+conducive  
 
 
-The new Omicron variant will further entrench China’s tight restrictions on business travel.  
-I don’t think the Chinese government is dogmatic. It is quite pragmatic.  
-The authorities have been unconscionably slow in approving the vaccine developed by BioNTech and Pfizer.  
-The virus is highly mutable. China’s policy towards it, however, is strikingly invariant.  
+Apple's Tim Cook signed $27 bln deal with Chinese officals to placate China.  
+The housing market is moribund. -  
+He used striking visuals to get his point across.  
+He's a retired lieutenant colonel and a bit of a martinet. -  
+The standards have been raised. The clarion has sounded. -  
+His tightfisted employer is unwilling to give him a raise.  
 
 
-Some think of the office as the new offsite.  
-If you are a pessimist, it will be a building full of heavily surveilled drunkards.  
 
+The market was **glutted** with **shoddy** goods.  
 
-Its new **moniker** signals a plan to expand into blockchain-related technologies.  
+Republican Sen. Tom Cotton of Arkansas, said the US is just **figure skating** around the issue and should have fully boycotted the games.  
+
+The monument was unveiled with great **solemnity**. -  
+Nobody can **impugn** his ability. -  
+His walk was **lithe** and graceful.  
+To me, **croissants** are the **epitome** of French baking.  
+Who was **at the helm** when the collision occurred?  
+I can’t tell you the joke, I forgot the **punch line**.  
+**uterine** cavity/contraction  
+**light-footed** **lightsome**  
+**lightsome**, high-flying dancers.  
+So Jian-Yang's whole **gambit** was **for naught**. -  
+
+The difference between PUT and POST is that PUT is **idempotent**: calling it once or several times successively has the same effect (that is no side effect).  
+Our **overriding** concern is the **eradication** of **illiteracy**.  
+My **overriding** objective is to help understanding.  
+**scrimp**: subsist on a **meager** **allowance**. -  
+
+## Week 1 
+
+hair **follicle**  
+For years this **anomalous** behaviour has **baffled** scientists.  
+
+You cannot **flay the same ox twice**.  
+Jacobs was a **stout**, **florid** man.  
+Their much **vaunted** reforms did not **materialize**. -  
+The **manhunt** has become more intense.  
+a public **soothsayer**.  
+little **dipper**  
+When I first came here, I had a **crummy** apartment.  
+A **disembodied** voice sounded from the back of the cabin. -  
+The **willful** killing of a person is murder.  
+A happy festival atmosphere **pervaded** the whole town.  
+
+President Joe Biden **stopped short of** imposing lockdowns as the new variant emerged across America, **opting for** greater jab uptake, boosters and testing to curb the spread of covid-19 in winter.  
+Roberta Wohlstetter’s “Pearl Harbour: Warning and Decision”, a **seminal** book on America’s profound lack of **readiness**. -   
+paper **mache**  
+The new Omicron variant will further **entrench** China’s tight restrictions on business travel. -   
+I don’t think the Chinese government is **dogmatic**. It is quite **pragmatic**.  
+The authorities have been **unconscionably** slow in approving the vaccine developed by BioNTech and Pfizer.  
+The virus is highly mutable. China’s policy towards it, however, is **strikingly** **invariant**.  
+Some think of the office as the new **offsite**.  
+If you are a pessimist, it will be a building full of heavily surveilled **drunkards**.  
+
+Its new **moniker** signals a plan to expand into blockchain-related technologies. -  
 And I hope could spend **commonness** and **treacly** life with you. -  
 **Rabid** animals on the loose frequent our TVs and newsfeeds. -  
 that **doddering** old fool.  
 **indolent**  
-Freedom of the press is **sacrosanct**.  
+Freedom of the press is **sacrosanct**. -  
+Personal-finance experts have long considered the **proverbial** **nest egg** to be **sacrosanct**.  
+Their **hospitality** is proverbial. -  
 The planets move around the sun in **ellipses**.  
 He built himself a **cubby** in my house.  
 **simile**  
 
 We believed our love was **inviolate**. -  
-**distal** end   
+**distal** end. -   
 **faultfinder**  
 She likes to **reminisce** about her childhood.  
 **frazzle**  
@@ -32,7 +83,7 @@ Many of its practices seem **anachronistic**.
 It sort of resembled a **savanna** but without grass. -  
 until the rooster **crow**. - 
 
-She made an **impassioned** plea for help.  
+She made an **impassioned** plea for help.   
 the company has failed to impress investors despite **enduring** growth.  
 
 Not only are technologies advancing at **breakneck** speed, but they’re doing so at an exponential rate.  
@@ -50,7 +101,6 @@ The **brook** **warbled** over its rocky bed. -
 In my view this book would **deprave** young children.  
 
 ## Week 4
-
 
 Three-quarters of Americans say they’re feeling the **pinch**, and more than half blame President Biden, knocking his approval rating to an all-time low of 41%.  
 Twitter only snagged $3.7 billion in revenue last year, while Meta **raked in** almost $86 billion.  
@@ -74,10 +124,10 @@ Now China wants to extend its influence over commodities **further still**. -
 (The Americans go **further still**.)  
 All otters have a **voracious** appetite. -  
 Estimates from 2016 suggest that this group holds around 85% of open positions, compared with 15% on Western **bourses**. -  
-A lack of expertise means retail investors tend to **accentuate** price swings. -  
+A lack of expertise means retail investors tend to **accentuate** price swings.  
 Another is that officials are **wary** of Western benchmarks, suspecting that they may have been manipulated.  
 the prices of futures contracts on Western and Chinese exchanges are more often moving **in tandem**.  
-After months in which Chinese censors have tolerated online mockery of Mr Biden as a **doddery** shui wang, or “sleep king”, prone to napping during meetings. -  
+After months in which Chinese censors have tolerated online mockery of Mr Biden as a **doddery** shui wang, or “sleep king”, prone to napping during meetings.  
 The video call was **a far cry** from a traditional summit between American and Chinese leaders.  
 namely that America is **bent on** **containing** China’s rise and is to blame for all **present-day** tensions.  
 code for a realist America realising it has no choice but to accommodate China’s **autocratic**, **statist** ways. -  
@@ -89,10 +139,10 @@ We mustn't **let up** now.
 If somebody finds it hard to **make ends meet**, they have problems living on the money they earn.  
 
 One man died, and his body was **encased in** all the **debris**.  
-She could not ignore his **indecorous** behaviour though she loved him very much. -  
+She could not ignore his **indecorous** behaviour though she loved him very much.  
 The aged cheese had a **pungent** taste.  
 **succinctness**  
-**esoteric** buddhism. -  
+**esoteric** buddhism.  
 
 The electorate had grown **disenchanted** with politics. -  
 **feminine** vs **girly**  
@@ -130,7 +180,7 @@ Careful you don't **tread** in that **puddle**.
 they danced and **caroused** until the drink ran out. -  
 He was **effusive** in his praise for the general.  
 He was a **punctilious** young man.  
-You can't tell her that joke—she's much too **prim and proper**. -  
+You can't tell her that joke—she's much too **prim and proper**.  
 
 Was he, as alleged by the prosecution, a naive “chaos tourist” who went to Kenosha to play at being a **vigilante** and then shot his way out of a scary but not actually life-threatening confrontation?  
 Budget airlines, growing **prosperity** and more leisure time **underpinned** this growth. These forces will eventually **reassert** themselves.  
@@ -348,7 +398,7 @@ he **cakewalked** to a 5-1 triumph.
 **perspiration**  
 Students should avoid any **immodest** behaviour, on or off campus.  
 They questioned the **veracity** of her story.  
-I'm still feeling a little **woozy**, so I rest my head on his shoulder. -  
+I'm still feeling a little **woozy**, so I rest my head on his shoulder.  
 **attic** window  
 Their success is the result of a **fortuitous** combination of circumstances.  
 
@@ -423,7 +473,7 @@ He **swam down** and retrieved his glasses from the muck and **slime** at the bo
 
 Zillow will likely sell the properties to a **multitude** of buyers rather than packaging them in a single transaction, said the people, who asked not to be named because the matter is private.  
 History is **littered** with the **corpses** of those who tried and failed to **corner a market**. Real estate is no different.  
-Clearly Zillow is not going to buy all the houses in America and turn us into **serfs** overnight. -  
+Clearly Zillow is not going to buy all the houses in America and turn us into **serfs** overnight.  
 that is an absurd **straw man**  
 The **boom and bust cycle** reflects basic human psychology of **fear and greed**.  
 History is also filled with the **bloated** corpses of those who did successfully corner a market. Or, in modern times, those who participated in a **synergistic** **duopoly** to **skirt** **anti-trust** laws.  

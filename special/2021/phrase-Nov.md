@@ -1,8 +1,14 @@
 
+
+You can't tell her that joke—she's much too **prim and proper**. -  
+Mr Agrawal seems more **strait-laced** than his predecessor.  
+So Jian-Yang's whole **gambit** was **for naught**.  
+I can’t tell you the joke, I forgot the **punch line**.  
+Who was **at the helm** when the collision occurred?  
+
 ## Week 3,4
 
-America’s abortion rights **on the ropes**.  
-Now China wants to extend its influence over commodities **further still**. -  
+Now China wants to extend its influence over commodities **further still**.   
 Twitter only snagged $3.7 billion in revenue last year, while Meta **raked in** almost $86 billion.  
 They got mad, stood up, **stormed out** of the shop.  
 the prices of futures contracts on Western and Chinese exchanges are more often moving **in tandem**.  
@@ -13,7 +19,7 @@ I gotta say the "new you" seems a little **on edge**
 I want to **swing for the fences**, you know?  
 No, we just took you at **face value**  
 So "Disneyland" is still **up for grabs**?    
-Ma Chun-man, known as “Captain America” for the costume he wore while on demonstrations, pleaded not guilty to violating the law, which was imposed at the **behest** of the mainland government to curb free speech in the city. -  
+Ma Chun-man, known as “Captain America” for the costume he wore while on demonstrations, pleaded not guilty to violating the law, which was imposed at the **behest** of the mainland government to curb free speech in the city.   
 
 Choose a close friend to help you through the **white-knuckle** times of this journey.  
 
