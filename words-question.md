@@ -1,5 +1,6 @@
 
-
+* dweeb, bozo, dork, dummy 
+* propensity vs proclivity 
 * gravel, rubble, cobble, pebble
 * famished vs starving 
 * white-knuckle

@@ -1,5 +1,4 @@
 
-
 ## E 12   
 **pasta**  
 Hey, Diane, **What have you been up to**?  
@@ -27,16 +26,16 @@ I'll go back to being another **cog** in the giant **Play-Doh** **spaghetti** ma
 
 ## E 9 
 It's already an **overused** **trope** now, in 2007.  
-can you be **wistful** a little quieter?  
+can you be **wistful** a little quieter? -  
 **bygones**  
-Luis Guzman said I'm too **portly** for TV?  
+Luis Guzman said I'm too **portly** for TV? -  
 Is there a single woman you've worked with who you haven't tried to **groggily** thrust yourself into?  
 Is there **any wonder** I don't want to be around you?  
 Please, you're such a **self-pitying** **masochist**  
 I'm good at driving **sober**, but I don't **relish** the opportunity.  
 
 ## E 8 
-Rutabaga, do you think we have the **spunk** and **moxie**?  
+Rutabaga, do you think we have the **spunk** and **moxie**? -  
 I've been telling people I didn't need the **trappings of fame**.  
 that's an **untapped market**  
 He is probably just **razzing** ya, but he's a good dog.  
@@ -53,9 +52,9 @@ I've been **tied up** with my studies
 ## E 7 
 He is pretty **steamed**  
 We do have an **infestation**, of Todds, look at that, they're getting bigger.  
-Did the head help to **ameliorate** your pest **peccadillo**?  
+Did the head help to **ameliorate** your pest **peccadillo**? -  
 Do you often **keep people at arm's length**?  
-So you don't feel any guilt about your **tryst** with Emily?  
+So you don't feel any guilt about your **tryst** with Emily? -  
 I knew I had to **lay low**. **Go off the grid**, disappear.  
 
 ## E 6 
@@ -67,7 +66,7 @@ Obviously, we'll **pre-tape** it.
 I'm **making things all about me**? I'm the one who's having an abortion.  
 I gotta take the **high road**, go on the news and **rat those suckers out**.  
 Is somebody standing in my **windpipe**?  
-A little **queasy**, but **on the whole**, wonderful.  
+A little **queasy**, but **on the whole**, wonderful. -  
 
 ## E 5 
 I want you to on my side, **soaking up** the **spillover** and **feasting** on my discarded **leftovers**.  

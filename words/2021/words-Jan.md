@@ -193,7 +193,6 @@ inside the remarkable **rift** between Trump and Pence
 **eggnog**  
 **pyjama**
 The conference might **reconvene** after its opening session  
-I'm not gonna let you **glom onto** my new hit show!
 Trump's approval rating **craters** in final days 
 He did not **speculate** on the future of his **tenuous** career.  
 Moreover, Verizon, T-Mobile (NASDAQ:TMUS), and ATMoreover, Verizon, T-Mobile (NASDAQ:TMUS), and AT&T (NYSE:T) have **formed** an **oligopoly** in the U.S. for this essential service -  T (NYSE:T) have **formed** an **oligopoly** in the U.S. for this essential service  

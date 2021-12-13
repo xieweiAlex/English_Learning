@@ -1,4 +1,6 @@
 
+**uppity**
+
 **pervade**
 
 ## Week 1 

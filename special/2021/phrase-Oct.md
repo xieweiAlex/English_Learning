@@ -1,3 +1,6 @@
+It's on my **tip of tongue**  
+I am just trying to **get through** each day.  
+Is there **any wonder** I don't want to be around you?  
 ## Week 3,4 
 My brother in law once left a message on this guy's machine, and he **blurted** out some business information he wasn't suppose to, and it would've cost him $15,000.   
 You thought you could **waltz through** the rest of life and never **bump into** me again, but you were wrong, Jerry!  

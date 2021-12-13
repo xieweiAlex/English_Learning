@@ -5,7 +5,7 @@ Honestly, you'll probably be **better off** without me.
 you really are the master of **spontaneous** **witticisms**.  
 you look **doughy**, do you run? **Cardio**? Anything?  
 Feel the **wrath** of my **flamethrower**  
-listen, **bozo**...  
+listen, **bozo**... -  
 
 ## E 10  
 I'm **swamped** here at work.  
@@ -19,7 +19,7 @@ this prom is really **bourgeois**.
 you said LA is a **tar pit**  
 
 ## E 9  
-He is a **groovy** dude  
+He is a **groovy** dude. -  
 I'm the biggest agent in the entire **idyllic** New England village.  
 You're polluting my perfect **serene** dream life.  
 
@@ -32,9 +32,9 @@ It's on my **tip of tongue**
 
 ## E 7 
 **hippo**  
-What you got against Uncle Hanky, you **uppity** **cooze**?   
+What you got against Uncle Hanky, you **uppity** **cooze**? -   
 I'm not **slinking** away  
-I'm so **incorrigible**.  
+I'm so **incorrigible**. -  
 everybody thinks he is a nice guy, people don't want to think he **is capable of** awful things, so they let him **off the hook**.  
 Hey **turtleneck**, you're fired.  
 I wanted to pitch you an **expose** on Hank Hippopolaous  
@@ -70,7 +70,7 @@ let's get some light in here, it's so **dreadfully** **dreary**.
 He was a **peculiar** client.  
 the network said it was too **edgy**.  
 I never met the guy. I'm just here to **schmooze**  
-you **blew up** again, **dweeb**.  
+you **blew up** again, **dweeb**. -  
 if you are being **zonked up** all the time, I'm not sure I can trust you with the responsibility.  
 I'm remembering a lot of stuff. The **ketamine**'s **wearing off**.  
 Do you mean I'm a "killer of **gloom**"?  
