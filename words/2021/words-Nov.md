@@ -4,11 +4,11 @@
 Three-quarters of Americans say they’re feeling the **pinch**, and more than half blame President Biden, knocking his approval rating to an all-time low of 41%.  
 Twitter only snagged $3.7 billion in revenue last year, while Meta **raked in** almost $86 billion.  
 America will be especially reluctant to let the bank **open the taps**, despite the escalating crisis faced by ordinary Afghans.  
-Despite its oil wealth, Russia is increasingly **reliant on** the West. -  
+Despite its oil wealth, Russia is increasingly **reliant on** the West.  
 
 He was so **mulish** that my **admonitions** just **flowed over** him. -  
 **indispensable**  
-The **imbroglio** overshadowed Tesla hitting its production targets for the Model 3 for the first time. -  
+The **imbroglio** overshadowed Tesla hitting its production targets for the Model 3 for the first time.  
 It’s impolite to **gibe at** a foreign student’s English.  
 **ostrich**  
 
@@ -19,10 +19,10 @@ The coronavirus remains a formidable **foe**.
 (**friend or foe** )  
 China seeks to extend its **clout** in commodity markets.  
 **LNG**: liquefied natural gas.  
-Now China wants to extend its influence over commodities **further still**. -  
+Now China wants to extend its influence over commodities **further still**.  
 (The Americans go **further still**.)  
 All otters have a **voracious** appetite. -  
-Estimates from 2016 suggest that this group holds around 85% of open positions, compared with 15% on Western **bourses**. -  
+Estimates from 2016 suggest that this group holds around 85% of open positions, compared with 15% on Western **bourses**.  
 A lack of expertise means retail investors tend to **accentuate** price swings.  
 Another is that officials are **wary** of Western benchmarks, suspecting that they may have been manipulated.  
 the prices of futures contracts on Western and Chinese exchanges are more often moving **in tandem**.  
@@ -53,13 +53,13 @@ I'm not ready to **plunk** my money into any of these.
 She managed to **stifle** a **yawn**.  
 **franchise** chain  
 a **fraternity** beer bust  
-The **prodigal** had returned. -  
+The **prodigal** had returned.  
 
 Rarely, if ever, does he **sidestep** a question.  
 
 I can **sell short** as well as **go long**. 
 Don't **sell yourself short**.  
-That's a **given**. 
+**That's a given**. 
 
 His head moved in an almost **imperceptible** nod. -  
 The **enigmatic** designer is **no stranger** to scandal.  
@@ -132,19 +132,19 @@ He was left alone and **agape**.
 **moldy**, **mildew**  
 
 
-The Afghans I met were neither **xenophobic** nor **bellicose**. -  
+The Afghans I met were neither **xenophobic** nor **bellicose**.  
 The industry became a **byword** for **mendacity**, **secrecy** and **profligacy** with taxpayers' money. -  
 
 **Craven** image: a Mladic **mural** in Serbia. -  
 Its stores are **well-lit** and **spotlessly** clean.  
 
-**vacuous** slogans -  
+**vacuous** slogans  
 **abnegate**  
 He always sleeps in a **supine** position.  
 I went to the room which he had called the **nuptial** **chamber**.  
 **pre-nuptial** agreement.  
 Drip **irrigation**  
-This was a **fiendish** act of **wickedness**. -  
+This was a **fiendish** act of **wickedness**.  
 **ineffectual**  
 **sideburns**  
 The **exultant** crowds were dancing in the streets. -  
@@ -172,7 +172,7 @@ I gotta do **soul searching**
 He spoke in a **haughty** tone.  
 industrial **agglomeration**  
 
-There's been a recent **upsurge** in incidents, including the **desecration** of a Jewish **cemetery**. -  
+There's been a recent **upsurge** in incidents, including the **desecration** of a Jewish **cemetery**.  
 **whet**  
 Handling conflict takes **finesse** and thought.  
 **desiccative** preservation.  
@@ -212,12 +212,12 @@ The **woes** of global trade in 2021 have not just been caused by disrupted supp
 
 Ma Chun-man, known as “Captain America” for the costume he wore while on demonstrations, pleaded not guilty to violating the law, which was imposed at the **behest** of the mainland government to curb free speech in the city.  
 The Taliban will be urged to make their government more inclusive of other **factions**, a point on which they are unlikely to **give ground**.   
-Without more balanced leadership that could prevent renewed war, Afghanistan’s **woes** **may yet** **redouble**. -  
+Without more balanced leadership that could prevent renewed war, Afghanistan’s **woes** **may yet** **redouble**.  
 (Like the best stories, this one **may yet have** a happy ending.)  
 
-This book is an excellent **chronology** of how the collision happened, **albeit** lacking in **facetious** metaphors like this. -  
+This book is an excellent **chronology** of how the collision happened, **albeit** lacking in **facetious** metaphors like this.  
 “Singles’ Day”, a **bacchanal** of online Chinese consumerism, proved more restrained than usual. - 
-Inflation gives American policymakers an unpleasant reminder of their 1970s **funk**.   
+Inflation gives American policymakers an unpleasant reminder of their 1970s **funk**. -   
 She had to **coax** the car along.  
 She **coaxed** her son into going to school.  
 You're just **coasting**—it's time to work hard now.  
@@ -234,7 +234,7 @@ These random results are **antithetical** to a fair system.
 **subjugate**  
 a **dandy**-looking dude with a slick black ponytail.  
 **pyro**  
-He received a severe **reprimand** for his behaviour. -  
+He received a severe **reprimand** for his behaviour.  
 For a book **purportedly** about love, the Barthes didn't look very romantic.  
 **pole position**  
 **pull strings**  
@@ -246,13 +246,13 @@ The foundation I’m referring to includes understanding the language you use, t
 This is where our thinking about Orwell led. It is a **telescreen**, which can be **dimmed**, but never turned off.  
 The Leader’s face **bears down on** you and his **gaze** drills into you.  
 Big Brother has total control of **Oceania** but Mr Putin is **resorting to** **repression** partly because, as the internet **supersedes** television news, he is losing his domination over the flow of information.  
-Mr Putin looks inappropriately **avuncular**, so for the final cover we swapped in an alternative picture. -  
+Mr Putin looks inappropriately **avuncular**, so for the final cover we swapped in an alternative picture.  
 Last week New Zealand enacted a **euthanasia** law after 65% of voters backed it in a referendum. -  
 However, it is a stark and **disconcerting** image that makes assisted death seem like a punishment rather than a release.  
 The green is warm and peaceful, and better than a trace set against **bombazine** black. All we changed was the words--because some readers do not think that there is another side.  
 
 
-A compressed bottle of gas **fulminated** in front of the painting. -  
+A compressed bottle of gas **fulminated** in front of the painting.  
 He is **bedeviled** by his mistaken ideas.  
 At any rate, I couldn't come to you to **encumber** you, to be a drag upon you.  
 What about when people are trying to **enrage** you?  

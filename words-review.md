@@ -1,38 +1,67 @@
-## seinfeld.md ## 
-media/seinfeld.md  
-KRAMER: (**debonair** smile) Well, it’d be our little secret. -  
-Unless, she's one of these multiple sneezers, and he's holding his 'God bless you' **in abeyance**, until she completes the series. -  
-Kramer is walking toward her door, hair **slicked** back, with a **bouquet** of flowers in his hand. -  
+## bojack4.md ## 
+media/bojack-horseman/bojack4.md
+It's not like you to be so **testy**.   
+Eventually, she'll recognize you, and then you can totally **rip into** her. -  
 
 ## bojack3.md ## 
-media/bojack-horseman/bojack3.md  
-can you be **wistful** a little quieter? -  
-Luis Guzman said I'm too **portly** for TV? -  
+media/bojack-horseman/bojack3.md
 Rutabaga, do you think we have the **spunk** and **moxie**? -  
 Did the head help to **ameliorate** your pest **peccadillo**? -  
-So you don't feel any guilt about your **tryst** with Emily? -  
-A little **queasy**, but **on the whole**, wonderful. -  
 
 ## bojack2.md ## 
-media/bojack-horseman/bojack2.md  
+media/bojack-horseman/bojack2.md
 listen, **bozo**... -  
+this prom is really **bourgeois**. -  
 He is a **groovy** dude. -  
-What you got against Uncle Hanky, you **uppity** **cooze**? -   
-I'm so **incorrigible**. -  
-you **blew up** again, **dweeb**. -  
+this isn't funny, no more **tomfoolery**. -  
+
+## words-Dec.md ## 
+words/2021/words-Dec.md
+I have a **prodigious** amount of work to do before I leave. -  
+He **delights in** making **caustic** remarks. -  
+**Nix** the anonymous letter; anyone would **crumble** under the weight of that humiliation. -  
+I knew his help wouldn't be given **gratis**. -  
+I've never heard such a **rigmarole**. -  
+Catherine was a **pious**, earnest woman. -  
+His **irreverence** for authority marks him out as a troublemaker. -  
+The castle is **redolent** of the past. -  
+The kitchen was **redolent** of onions. -  
+Many **molluscs** have **tentacles**. -  
+He **pilfer** from a cash register. -  
+We must act now to **forestall** disaster. -  
+The guy's a **chump**. I could do a better job myself. -  
+The housing market is **moribund**. -  
+He's a retired lieutenant colonel and a bit of a **martinet**. -  
+The standards have been raised. The **clarion** has sounded. -  
+His **tightfisted** employer is unwilling to give him a raise. -  
+The monument was unveiled with great **solemnity**. -  
+Nobody can **impugn** his ability. -  
+So Jian-Yang's whole **gambit** was **for naught**. -  
+**scrimp**: subsist on a **meager** **allowance**. -  
+Their much **vaunted** reforms did not **materialize**. -  
+A **disembodied** voice sounded from the back of the cabin. -  
+Roberta Wohlstetter’s “Pearl Harbour: Warning and Decision”, a **seminal** book on America’s profound lack of **readiness**. -   
+The new Omicron variant will further **entrench** China’s tight restrictions on business travel. -   
+Its new **moniker** signals a plan to expand into blockchain-related technologies. -  
+And I hope could spend **commonness** and **treacly** life with you. -  
+**Rabid** animals on the loose frequent our TVs and newsfeeds. -  
+Freedom of the press is **sacrosanct**. -  
+Their **hospitality** is proverbial. -  
+We believed our love was **inviolate**. -  
+**distal** end. -   
+It sort of resembled a **savanna** but without grass. -  
+until the rooster **crow**. - 
+Who could possibly have come up with such a **nifty** **contraption**? -  
+I grew up **bereft** of hugs. -  
+The **brook** **warbled** over its rocky bed. -  
 
 ## words-Nov.md ## 
-words/2021/words-Nov.md  
-Despite its oil wealth, Russia is increasingly **reliant on** the West. -  
+words/2021/words-Nov.md
 He was so **mulish** that my **admonitions** just **flowed over** him. -  
-The **imbroglio** overshadowed Tesla hitting its production targets for the Model 3 for the first time. -  
 Pfizer is already manufacturing “significant quantities” of its **protease** inhibitor. -  
-Now China wants to extend its influence over commodities **further still**. -  
 All otters have a **voracious** appetite. -  
-Estimates from 2016 suggest that this group holds around 85% of open positions, compared with 15% on Western **bourses**. -  
 code for a realist America realising it has no choice but to accommodate China’s **autocratic**, **statist** ways. -  
 The electorate had grown **disenchanted** with politics. -  
-The **prodigal** had returned. -  
 His head moved in an almost **imperceptible** nod. -  
 they danced and **caroused** until the drink ran out. -  
 Restrictions on international **jaunts** are still tight and are lifting only slowly. -  
@@ -41,27 +70,19 @@ But this autumn **dioceses** all over the country are seeing increases in enrolm
 Even so, many families are willing to pay. Ms Camisa and her husband have had to **rejig** their finances to afford tuition. -  
 The flags were lowered out of **deference to** the **bereaved** family. -  
 No minerals have yet been exploited in **Antarctica**. -  
-The Afghans I met were neither **xenophobic** nor **bellicose**. -  
 The industry became a **byword** for **mendacity**, **secrecy** and **profligacy** with taxpayers' money. -  
 **Craven** image: a Mladic **mural** in Serbia. -  
-**vacuous** slogans -  
-This was a **fiendish** act of **wickedness**. -  
 The **exultant** crowds were dancing in the streets. -  
-There's been a recent **upsurge** in incidents, including the **desecration** of a Jewish **cemetery**. -  
 **Imminent** fiscal **retrenchment** in many countries will help cool economies. -  
-Without more balanced leadership that could prevent renewed war, Afghanistan’s **woes** **may yet** **redouble**. -  
-This book is an excellent **chronology** of how the collision happened, **albeit** lacking in **facetious** metaphors like this. -  
 “Singles’ Day”, a **bacchanal** of online Chinese consumerism, proved more restrained than usual. - 
-He received a severe **reprimand** for his behaviour. -  
-Mr Putin looks inappropriately **avuncular**, so for the final cover we swapped in an alternative picture. -  
+Inflation gives American policymakers an unpleasant reminder of their 1970s **funk**. -   
 Last week New Zealand enacted a **euthanasia** law after 65% of voters backed it in a referendum. -  
-A compressed bottle of gas **fulminated** in front of the painting. -  
 He wore the robe, crown, and **scepter** of a **triumphant** general and used the title **imperator**. -  
 be sentimental but not **mawkish**. -  
 I have a little **menagerie** outside in backyard. - 
 
 ## words-Oct.md ## 
-words/2021/words-Oct.md  
+words/2021/words-Oct.md
 **Boundless** **intemperance** in nature is a **tyranny**. -  
 He was **pilloried**, but she escaped without blemish. -  
 The FCC already **nobbled** China Mobile, Huawei and ZTE, under the Trump administration. -  
@@ -70,5 +91,3 @@ Who wouldn't want a job with a food salary and **commodious** living quarters? -
 The **ordinary** feelings which make life **amiable** and **indolent**, were unknown to him. -  
 But more casualties died in fighting between rival, adult **Red Guard** **factions** or with army units. -  
 Kato was fully aware of the **provenance** of these **treasures**. -  
-For a while, state media suggested that the West’s vaccines were **shoddy** -  
-We now watch Tesla **consign** the **incumbents** to a place of total irrelevance. -  

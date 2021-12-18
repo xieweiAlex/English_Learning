@@ -1,4 +1,18 @@
+Eventually, she'll recognize you, and then you can totally **rip into** her. -  
+She tried to **lighten up** her speech with a few jokes.  
+Suddenly, I saw the Officer's face **light up**.  
+He is known for his ability to **come through** **in the clutch**.  
+You'd **be better off** doing something   
+you said LA is a **tar pit**  
+He is known for his ability to **come through** **in the clutch**.  
+Many in Japan **shrug off** the problem of ageing.  
+He refused to **give ground** on this issue.  
 
+
+## Week 1,2
+
+He is known for his ability to **come through** **in the clutch**.  
+The letter was short and **to the point**.  
 I just couldn't **wrap my head around it**.  
 
 You can't tell her that joke—she's much too **prim and proper**. -  

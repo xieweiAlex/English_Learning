@@ -146,7 +146,7 @@ The nation's **coffers** are empty.
 **receding** hairline
 
 People flying into the city from outside the mainland will be **whisked** there directly, instead of to normal hotels, for at least two weeks of **confinement** and frequent testing.  
-For a while, state media suggested that the West’s vaccines were **shoddy** -  
+For a while, state media suggested that the West’s vaccines were **shoddy**  
 Might economic **malaise** force China’s hand?   
 The country’s repeated **skirmishes** in recent months with Delta-related outbreaks have prompted sudden and severe lockdowns  
 people stuck at home have been **splurging** on goods such as electronics and exercise gear  
@@ -187,7 +187,7 @@ A **head cold** hit me like an **anvil** last week, and that usually means I'm g
 An **anvil** is a block with a hard surface on which another object is **struck**.  
 
 we expect rates to continue a modest **upswing**.  
-We now watch Tesla **consign** the **incumbents** to a place of total irrelevance. -  
+We now watch Tesla **consign** the **incumbents** to a place of total irrelevance.  
 Like a **sibling** rivalry… except there’s no **relation**.  
 
 He is short-**fused** play-writer.  

@@ -1,4 +1,18 @@
 
+**thoroughbred**
+
+**choppy** 
+
+**testy**
+
+**cyclical**
+
+**dichotomy**, **false dichotomy** 
+
+**inadvertent**
+
+## Week 2 
+
 **uppity**
 
 **pervade**

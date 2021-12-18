@@ -15,7 +15,7 @@ I don't wanna **put you out**. - It's no bother.
 It's such an **eyesore**  
 there is a real **stick-in-the-mud** dean there who doesn't like my **in-your-face** style  
 sounds like a real **bust-ass** super-**skank**  
-this prom is really **bourgeois**.  
+this prom is really **bourgeois**. -  
 you said LA is a **tar pit**  
 
 ## E 9  
@@ -24,7 +24,7 @@ I'm the biggest agent in the entire **idyllic** New England village.
 You're polluting my perfect **serene** dream life.  
 
 ## E 8 
-this isn't funny, no more **tomfoolery**  
+this isn't funny, no more **tomfoolery**. -  
 **trigonometry**, advanced physics, or at the movies with Mr. Peanutbutter  
 when he gets excited, his ears so slightly **flop up** and **give him away**. 
 it was **touch and go**  
@@ -32,9 +32,9 @@ It's on my **tip of tongue**
 
 ## E 7 
 **hippo**  
-What you got against Uncle Hanky, you **uppity** **cooze**? -   
+What you got against Uncle Hanky, you **uppity** **cooze**?  
 I'm not **slinking** away  
-I'm so **incorrigible**. -  
+I'm so **incorrigible**.  
 everybody thinks he is a nice guy, people don't want to think he **is capable of** awful things, so they let him **off the hook**.  
 Hey **turtleneck**, you're fired.  
 I wanted to pitch you an **expose** on Hank Hippopolaous  
@@ -70,7 +70,7 @@ let's get some light in here, it's so **dreadfully** **dreary**.
 He was a **peculiar** client.  
 the network said it was too **edgy**.  
 I never met the guy. I'm just here to **schmooze**  
-you **blew up** again, **dweeb**. -  
+you **blew up** again, **dweeb**.  
 if you are being **zonked up** all the time, I'm not sure I can trust you with the responsibility.  
 I'm remembering a lot of stuff. The **ketamine**'s **wearing off**.  
 Do you mean I'm a "killer of **gloom**"?  

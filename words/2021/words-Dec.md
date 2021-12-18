@@ -1,4 +1,81 @@
 
+We lived in a palatial house with maids.  
+I have had enough obloquy for one lifetime.  
+Aesthete can find the beauty in the daily life.  
+tremble  
+glide  
+
+
+Ballantyne is an **upscale** Charlotte neighborhood with a population of around 25,000.  
+
+
+All this suggests that Google's **one-trick pony** is really more of a **thoroughbred**.  
+The bottom line: The market is **warped**. Throw historical norms **out the window**. -  
+There could be a reverse **logjam** next year in Asia.  
+
+whisk **besom**  
+They came **panting up** to his door with their **unwieldy** baggage. -  
+There is not a **shred** of truth in the story.  
+He instructed staff to **shred** sensitive documents.  
+**corridor**  
+There is a **dichotomy** between the academic world and the industrial world.  
+**trapezoid**, **right trapezoid**, **trapezoid window**  
+a controversial **avant-garde** composer.  
+He pursued the problem like the **sleuth**-hound that he was.  
+
+I have a **prodigious** amount of work to do before I leave. -  
+
+The typical 007 movie has two Bond girls: the girl friend and the **temptress**.  
+**noah**  
+**monomania**  
+**halfhearted** 
+
+I **commiserate** with you on the loss of your mother.  
+You'd better **commiserate** John on his recent misfortunes.  
+He **delights in** making **caustic** remarks. -  
+Some chemicals are **caustic** by nature.   
+**Nix** the anonymous letter; anyone would **crumble** under the weight of that humiliation. -  
+
+they **lambasted** the report as a gross distortion of the truth.  
+**ovary**  
+To **assuage** his wife's grief, he took her on a tour of Europe.  
+I realized I was **babbling** like an idiot.  
+**sugarcoat**  
+feather **duster**  
+Essentially, this is the **acid test**.  
+**affectionate**  
+
+He refused to **give ground** on this issue.  
+I knew his help wouldn't be given **gratis**. -  
+**nozzle**  
+**fall behind**  
+**mescaline**  
+Many in Japan **shrug off** the problem of ageing.  
+I've never heard such a **rigmarole**. -  
+
+**conflagrate**, **conflagration**  
+Miranda felt a **wistful** longing for the old days.  
+**unobtrusive**  
+They walked out onto the pitch to a **tidal wave** of noise.  
+Her speech gave an **impetus** to my ideas.  
+He is known for his ability to **come through** **in the clutch**.  
+Suddenly, I saw the Officer's face **light up**.  
+
+As for Intel, its manufacturing machine is **peerless**.  
+Catherine was a **pious**, earnest woman. -  
+The bird gave a **startled** **squawk**.  
+His **irreverence** for authority marks him out as a troublemaker. -  
+**unrestrained**  
+**grungy**  
+Test and **profiling** tools.  
+The letter was short and **to the point**.  
+**expeditious**  
+
+to measure the correlation between **wastewater** **sequencing** and **empirical** COVID-19 case rates in all 50 states.  
+Mr Lai is already **incarcerated** on another charge and will serve the sentences **concurrently**.  
+She tried to **lighten up** her speech with a few jokes.  
+
+Far from being a dreamer, she's a **level-headed** **pragmatist**.  
 
 ## Week 2 
 
@@ -9,17 +86,16 @@ I've always known you were weird, but **this takes the cake**.
 The castle is **redolent** of the past. -  
 The kitchen was **redolent** of onions. -  
 That way, you have some **wiggle room**. You can always change your mind later.  
-Many **molluscs** have tentacles. -  
+Many **molluscs** have **tentacles**. -  
 Snails and octopuses are **molluscs**.  
 **in bulk**  
 
 This certified **chiller** asked fans to suggest 100 activities for him to do in space, which he intends to document and upload to YouTube.  
 China’s policymakers are **renowned** for stimulating growth when it **flags**.  
-This upstream price pressure has not yet generated much retail inflation, due to the countervailing effect of falling pork prices.   
-Figures released on Thursday allayed those worries somewhat.  
-These are laudable goals. But authoritarian governments, such as Congo’s, countries with rampant corruption (Brazil) and human-rights abusers (Pakistan) have all been invited.  
-questions have been raised about America’s moral authority to host such an event after years of its own democratic backsliding.  
-
+This upstream price pressure has not yet generated much retail inflation, due to the **countervailing** effect of falling pork prices.   
+Figures released on Thursday **allayed** those worries **somewhat**.  
+These are **laudable** goals. But authoritarian governments, such as Congo’s, countries with **rampant** corruption (Brazil) and human-rights abusers (Pakistan) have all been invited.  
+questions have been raised about America’s moral authority to host such an event after years of its own democratic **backsliding**.  
 
 **get out of hand** 
 **back down**  

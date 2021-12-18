@@ -1,4 +1,7 @@
 
+* queasy vs nauseous  
+* encumber
+
 * dweeb, bozo, dork, dummy 
 * propensity vs proclivity 
 * gravel, rubble, cobble, pebble
