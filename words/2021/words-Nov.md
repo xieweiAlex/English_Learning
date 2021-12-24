@@ -61,7 +61,7 @@ I can **sell short** as well as **go long**.
 Don't **sell yourself short**.  
 **That's a given**. 
 
-His head moved in an almost **imperceptible** nod. -  
+His head moved in an almost **imperceptible** nod.  
 The **enigmatic** designer is **no stranger** to scandal.  
 **Neandertal** vertebrae were not **simian** at all.  
 **Stupendous**  
@@ -100,7 +100,7 @@ Don't **deify** people even they're extremely influential.
 Despite empty **pews** and sexual-abuse scandals, Catholic education is increasing in popularity.  
 Remote learning was difficult for her daughter. Once happy and outgoing, she became **withdrawn**.  
 The number had fallen from a peak in the early 1960s, when Catholic schools had 5.2m **pupils**, to around 1.6m last year, which meant a lot of empty desks.  
-But this autumn **dioceses** all over the country are seeing increases in enrolments. -  
+But this autumn **dioceses** all over the country are seeing increases in enrolments.  
 Even so, many families are willing to pay. Ms Camisa and her husband have had to **rejig** their finances to afford tuition. -  
 
 Leaders from both parties gathered on the White House’s south lawn to praise the **bulging** spending package for roads and bridges.  
@@ -114,7 +114,7 @@ Dorothea **let out** a **histrionic** groan.
 **histrionic personality**  
 **plethora**  
 On the other hand, girls learn to be **deferential**, and anger is incompatible with **deference**.  
-The flags were lowered out of **deference to** the **bereaved** family. -  
+The flags were lowered out of **deference to** the **bereaved** family.  
 She used to be a singer of some **renown**.  
 **poster board**, **poster child**  
 **rouge**  
@@ -124,7 +124,7 @@ She used to be a singer of some **renown**.
 **vindictive**  
 That's why Obama can meet the troop **drawdown** deadline.   
 They depended on **animal husbandry** for their livelihood.  
-No minerals have yet been exploited in **Antarctica**. -  
+No minerals have yet been exploited in **Antarctica**.  
 The doctor wrote a **treatise** on alcoholism.  
 a **pail** of water  
 **Atheist**  
@@ -208,7 +208,7 @@ Increasingly, therefore, people will die from covid because they are elderly or 
 Economics is an **inexact** science.  
 Yet the comparison with the early 2010s is **inexact**.  
 The **woes** of global trade in 2021 have not just been caused by disrupted supply, such as covid-19 outbreaks shutting Vietnamese factories.  
-**Imminent** fiscal **retrenchment** in many countries will help cool economies. -  
+**Imminent** fiscal **retrenchment** in many countries will help cool economies.  
 
 Ma Chun-man, known as “Captain America” for the costume he wore while on demonstrations, pleaded not guilty to violating the law, which was imposed at the **behest** of the mainland government to curb free speech in the city.  
 The Taliban will be urged to make their government more inclusive of other **factions**, a point on which they are unlikely to **give ground**.   
@@ -216,7 +216,7 @@ Without more balanced leadership that could prevent renewed war, Afghanistan’s
 (Like the best stories, this one **may yet have** a happy ending.)  
 
 This book is an excellent **chronology** of how the collision happened, **albeit** lacking in **facetious** metaphors like this.  
-“Singles’ Day”, a **bacchanal** of online Chinese consumerism, proved more restrained than usual. - 
+“Singles’ Day”, a **bacchanal** of online Chinese consumerism, proved more restrained than usual.  
 Inflation gives American policymakers an unpleasant reminder of their 1970s **funk**. -   
 She had to **coax** the car along.  
 She **coaxed** her son into going to school.  

@@ -15,7 +15,7 @@ I don't wanna **put you out**. - It's no bother.
 It's such an **eyesore**  
 there is a real **stick-in-the-mud** dean there who doesn't like my **in-your-face** style  
 sounds like a real **bust-ass** super-**skank**  
-this prom is really **bourgeois**. -  
+this prom is really **bourgeois**.  
 you said LA is a **tar pit**  
 
 ## E 9  

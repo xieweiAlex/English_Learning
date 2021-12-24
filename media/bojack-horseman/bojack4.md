@@ -4,7 +4,7 @@ My mother, she's **senile**, and she was drugging the coffee.
 Well, this is me giving you the Princess Carolyn **pep talk**.  
 **rabies**  
 We have zero ballrooms, in this **Thrifty** Lodge.  
-You're **willingly** misunderstanding me.  
+You're **willingly** misunderstanding me. -  
 Well, **onwards and upwards**.  
 I guess I will see you **on set**.  
 But sometimes, if you **squint** at it just right, everything **lines up**, and it's the most perfect... beautiful, amazing thing.  
@@ -12,8 +12,8 @@ But sometimes, if you **squint** at it just right, everything **lines up**, and 
 
 ## E 11 
 
-You're a reminder of **disparity** of wealth in this county. Poor people find that dreadfully **gauche**.  
-I bet your thank-you letters are **perfunctory**, your flower arrangement are **uninspired**, and your courtesy is an embarrassment.  
+You're a reminder of **disparity** of wealth in this county. Poor people find that dreadfully **gauche**. -  
+I bet your thank-you letters are **perfunctory**, your flower arrangement are **uninspired**, and your courtesy is an embarrassment. -  
 Can I pay her 5 years **in a lump sum** now, so I don't have to think about her again?  
 It'll **dispense** with the need for goodbyes, **thus** **eliminating** my **transgression**.  
 If a beautiful creature like herself could ever love an **oaf** like him.  
@@ -58,7 +58,7 @@ He's got **moxie** and a soft **thorax**.
 what an **eyesore**.  
 
 ## E 6  
-It's not like you to be so **testy**. -  
+It's not like you to be so **testy**.  
 that doll actually belongs to my mom, she is very sick, very **frail**.  
 I guess it's a **bad analogy**.  
 you care about people more than just yourself. And **for what it's worth**, you will be a wonderful mother.  
@@ -84,7 +84,7 @@ We need to return fashion to its **utilitarian** roots.
 
 > BoJack goes **off the grid** and **winds up** at his grandparents' **dilapidated** home in Michigan where he reflects on his family legacy and **befriends** another soul **haunted** by the past.
 
-We need to take this **portrait** before you and I both **take a powder**.  
+We need to take this **portrait** before you and I both **take a powder**.   
 Folks, this is for **posterity**, so don't forget to look far away sad.  
 It's a **blight** on the neighborhood  
 This is **bound to happen**.  

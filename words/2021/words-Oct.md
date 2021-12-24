@@ -83,7 +83,7 @@ The company’s valuation was eventually slashed from $47 billion to just $8 bil
 After Xi Jinping became China’s leader in 2012, he **unblushingly** re-**emphasised** the party’s authority over everything from the machinery of state and the armed forces to the **judiciary**, universities and news media.  
 New rules ban **effeminate** actors from television and curb how many hours youngsters spend on video games.  
 Whether issuing textbooks in Xi Jinping Thought to six-year-old children or using smartphone apps to ensure that officials study Mr Xi’s wisdom, the leader’s **sternly** **paternal presence** is felt in **every corner of life**.  
-But more casualties died in fighting between rival, adult **Red Guard** **factions** or with army units. -  
+But more casualties died in fighting between rival, adult **Red Guard** **factions** or with army units.  
 The violence **at times** **resembled** a civil war, set in motion after Mao came to doubt the loyalty and **revolutionary** **fervor** of the ruling establishment.  
 Those are large reasons to avoid **miscasting** Mr Xi as a second Mao. But there are **myriad** smaller ones, too.  
 In imperial times, children studied models of **filial piety** including Dong Yong, a man so poor that he sold himself into **servitude** to bury his father properly.  

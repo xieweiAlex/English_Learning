@@ -1,13 +1,57 @@
 
-We lived in a palatial house with maids.  
-I have had enough obloquy for one lifetime.  
-Aesthete can find the beauty in the daily life.  
-tremble  
-glide  
+There is just a bit of multiplication and modulus calculation going on.  
 
 
+Escape, can at least **ignoble** peace, year after year, until come to an end.  
+The beautiful and **dolorous** memory. -  
+**derogatory**  
+John is such a **windbag**.  
+
+
+I feel the people of the city are **perfervid**. -  
+**vacuous**  
+Mrs. Miller is very **keen on** art.  
+To study hard is our **cardinal** thing to do. -  
+They seem less tense, more **even-tempered**.  
+**meek**  
+**malay** **archipelago**.  
+The **slums** are a **reproach** to London. -  
+
+But poor sleep is linked with **maladies** from heart disease to obesity. -  
+**defunct**  
+The University suspended the most **recalcitrant** demonstraters. -  
+He's not his usual **blithe** and **festive** self, is he? -  
+That leaves us in a bit of a **quandary**.  
+**joyous**  
+I'll have a vodka and **lime**.  
+**lime** juice, **lime** kiln  
+**vindictive**  
+In men, **cholesterol** levels generally **level off** after age 50.  
+**dilapidate**  
+
+## Week 3 
+
+It involves a **neuroendocrine** effect and triggers our **fight-or-flight** response, causing hormones like **cortisol** to increase, shortly before we shift to a relaxation response.  
+
+Why U.S. companies keep **caving** to China.  
+Semiconductor companies like AMD and Nvidia got particularly **thwacked**. -  
+Global capitalism **abets** China's repression. -  
+The Chinese government wants this election to appear to be successful, as Beijing needs the **facade** of Hong Kong becoming more 'democratic.  
+Ever since China Evergrande started hinting at default this past fall, the biggest question for markets was how much of the sector will be **engulfed** in the crisis.  
+Unlike U.S. sanctions, which are publicly announced **de jure** sanctions typically enacted to uphold **multilateral** principles such as countering weapons proliferation and funding for terrorism, China's unfolding sanctions regime is **opaque** and usually deployed to uphold its narrow political interests.  
+From housing to child care to energy and education, the U.S. is **beset** by rising costs for the goods and services needed most. -  
+**Sparring** Over Taxes  
+Let’s change the **rigged** tax code so The Person of the Year will actually pay taxes and stop **freeloading** off everyone else.  
+Their eyes were full of friendliness and **bonhomie**. -  
+fish **fillet**  
+His brow **corrugated** with the effort of thinking. -  
+Did anyone else have their car **rummaged** through last night?  
+We lived in a **palatial** house with maids.  
+I have had enough **obloquy** for one lifetime. -  
+**Aesthete** can find the beauty in the daily life.  
+**tremble**  
+**glide**  
 Ballantyne is an **upscale** Charlotte neighborhood with a population of around 25,000.  
-
 
 All this suggests that Google's **one-trick pony** is really more of a **thoroughbred**.  
 The bottom line: The market is **warped**. Throw historical norms **out the window**. -  
@@ -32,9 +76,9 @@ The typical 007 movie has two Bond girls: the girl friend and the **temptress**.
 
 I **commiserate** with you on the loss of your mother.  
 You'd better **commiserate** John on his recent misfortunes.  
-He **delights in** making **caustic** remarks. -  
+He **delights in** making **caustic** remarks.  
 Some chemicals are **caustic** by nature.   
-**Nix** the anonymous letter; anyone would **crumble** under the weight of that humiliation. -  
+**Nix** the anonymous letter; anyone would **crumble** under the weight of that humiliation.  
 
 they **lambasted** the report as a gross distortion of the truth.  
 **ovary**  
@@ -62,9 +106,9 @@ He is known for his ability to **come through** **in the clutch**.
 Suddenly, I saw the Officer's face **light up**.  
 
 As for Intel, its manufacturing machine is **peerless**.  
-Catherine was a **pious**, earnest woman. -  
+Catherine was a **pious**, earnest woman.  
 The bird gave a **startled** **squawk**.  
-His **irreverence** for authority marks him out as a troublemaker. -  
+His **irreverence** for authority marks him out as a troublemaker.  
 **unrestrained**  
 **grungy**  
 Test and **profiling** tools.  
@@ -84,7 +128,7 @@ I'm not gonna let you **glom onto** my new hit show!
 He tried to **profiteer** from this dirty deal.  
 I've always known you were weird, but **this takes the cake**.  
 The castle is **redolent** of the past. -  
-The kitchen was **redolent** of onions. -  
+The kitchen was **redolent** of onions.  
 That way, you have some **wiggle room**. You can always change your mind later.  
 Many **molluscs** have **tentacles**. -  
 Snails and octopuses are **molluscs**.  
@@ -108,7 +152,7 @@ We must act now to **forestall** disaster. -
 **maggot**  
 **Incarceration** in America is a failure by almost any measure.  
 He is a self-professed expert on everything-he proves to be the classic **bumbler**.  
-The guy's a **chump**. I could do a better job myself. -  
+The guy's a **chump**. I could do a better job myself.  
 **slurp**  
 **conducive**  
 
@@ -131,12 +175,12 @@ I can’t tell you the joke, I forgot the **punch line**.
 **uterine** cavity/contraction  
 **light-footed** **lightsome**  
 **lightsome**, high-flying dancers.  
-So Jian-Yang's whole **gambit** was **for naught**. -  
+So Jian-Yang's whole **gambit** was **for naught**.  
 
 The difference between PUT and POST is that PUT is **idempotent**: calling it once or several times successively has the same effect (that is no side effect).  
 Our **overriding** concern is the **eradication** of **illiteracy**.  
 My **overriding** objective is to help understanding.  
-**scrimp**: subsist on a **meager** **allowance**. -  
+**scrimp**: subsist on a **meager** **allowance**.  
 
 ## Week 1 
 
@@ -155,7 +199,7 @@ The **willful** killing of a person is murder.
 A happy festival atmosphere **pervaded** the whole town.  
 
 President Joe Biden **stopped short of** imposing lockdowns as the new variant emerged across America, **opting for** greater jab uptake, boosters and testing to curb the spread of covid-19 in winter.  
-Roberta Wohlstetter’s “Pearl Harbour: Warning and Decision”, a **seminal** book on America’s profound lack of **readiness**. -   
+Roberta Wohlstetter’s “Pearl Harbour: Warning and Decision”, a **seminal** book on America’s profound lack of **readiness**.  
 paper **mache**  
 The new Omicron variant will further **entrench** China’s tight restrictions on business travel. -   
 I don’t think the Chinese government is **dogmatic**. It is quite **pragmatic**.  
@@ -176,14 +220,14 @@ The planets move around the sun in **ellipses**.
 He built himself a **cubby** in my house.  
 **simile**  
 
-We believed our love was **inviolate**. -  
-**distal** end. -   
+We believed our love was **inviolate**.  
+**distal** end.  
 **faultfinder**  
 She likes to **reminisce** about her childhood.  
 **frazzle**  
 Many of its practices seem **anachronistic**.  
 **rectum**  
-It sort of resembled a **savanna** but without grass. -  
+It sort of resembled a **savanna** but without grass.  
 until the rooster **crow**. - 
 
 She made an **impassioned** plea for help.   
@@ -193,10 +237,10 @@ Not only are technologies advancing at **breakneck** speed, but they’re doing 
 America’s abortion rights **on the ropes**.  
 Mr Agrawal seems more **strait-laced** than his predecessor.  
 
-Who could possibly have come up with such a **nifty** **contraption**? -  
+Who could possibly have come up with such a **nifty** **contraption**?  
 He is incapable of **discriminating** between a good idea and a terrible one.  
 She seemed **invigorated**, **full of life** and energy.  
-I grew up **bereft** of hugs. -  
+I grew up **bereft** of hugs.  
 She's **delirious**, but has **lucid** **intervals**.  
 
 I cannot **brook** his arrogance.  

@@ -1,4 +1,6 @@
 
+* groovy
+* sedulous
 * queasy vs nauseous  
 * encumber
 
