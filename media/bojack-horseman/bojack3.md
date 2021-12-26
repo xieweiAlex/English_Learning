@@ -35,7 +35,7 @@ Please, you're such a **self-pitying** **masochist**
 I'm good at driving **sober**, but I don't **relish** the opportunity.  
 
 ## E 8 
-Rutabaga, do you think we have the **spunk** and **moxie**? -  
+Rutabaga, do you think we have the **spunk** and **moxie**?  
 I've been telling people I didn't need the **trappings of fame**.  
 that's an **untapped market**  
 He is probably just **razzing** ya, but he's a good dog.  

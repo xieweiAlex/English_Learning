@@ -1,13 +1,17 @@
+
+
 We need to take this **portrait** before you and I both **take a powder**.   
 You **went over** my head and **turned him down** without telling me.  
 This is a really **head-scratcher** for me  
 > somebody said funny and sad are two sides of the same coin.  
 > Diane leaks damaging information on Jessica Biel, Todd's clown dentist business **hits a snag**, and Princess Carolyn finds hope in an unlikely place.  
+
 Can I pay her 5 years **in a lump sum** now, so I don't have to think about her again?  
 Well, this is me giving you the Princess Carolyn **pep talk**.  
 The bottom line: The market is **warped**. Throw historical norms **out the window**. -  
 All this suggests that Google's **one-trick pony** is really more of a **thoroughbred**.  
 
+## Week 3
 
 Eventually, she'll recognize you, and then you can totally **rip into** her. -  
 She tried to **lighten up** her speech with a few jokes.  

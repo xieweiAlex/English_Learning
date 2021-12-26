@@ -5,7 +5,7 @@ Honestly, you'll probably be **better off** without me.
 you really are the master of **spontaneous** **witticisms**.  
 you look **doughy**, do you run? **Cardio**? Anything?  
 Feel the **wrath** of my **flamethrower**  
-listen, **bozo**... -  
+listen, **bozo**...  
 
 ## E 10  
 I'm **swamped** here at work.  

@@ -21,7 +21,7 @@ A hot climate **enervates** people who are not used to it.
 The **skipper** notified the coastguard of the tragedy.  
 the country tries to boost its **immunisation** rate and revive its **battered** tourism sector.  
 
-He was **pilloried**, but she escaped without blemish. -  
+He was **pilloried**, but she escaped without blemish.  
 **bento**  
 **dumbfound**  
 

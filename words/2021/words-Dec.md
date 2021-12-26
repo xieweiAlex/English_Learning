@@ -1,12 +1,57 @@
 
-There is just a bit of multiplication and modulus calculation going on.  
+## Week 4
+
+She gave him her best **winsome** smile.  
+chorale fantasia.  
+We expect politicians to defame each other in an election year.  
+reaper, grim reaper  
+lewd comments  
+
+That calculus looks demonstrably worse in many parts of America.  
+I like to macerate the food in liqueur for a few minutes before serving.  
+The film mercilessly castigates the old society.  
+tempestuous  
+He was an exacting man to work for.  
+They contrived a plan to defraud the company.  
+Their quarterly meetings were anodyne affairs.  
+perpetrate  
+inglorious  
+clavicle hook.  
+nepotism  
+assiduous vs sedulous  
+**radian**  
 
 
-Escape, can at least **ignoble** peace, year after year, until come to an end.  
+This month eight pro-democracy activists were sentenced to up to 14 months in prison for their role last year in a **vigil** for the **massacre**. -  
+Mr Moon had previously pledged not to pardon those convicted of **graft**, but supporters of the **conservative** opposition party had been calling for Ms Park’s release, citing her poor health.  
+
+When the **verdict** came, it surprised people on both sides of the debate. A group huddled outside the courthouse broke into **jubilant** cheers and chants of "Guilty! Guilty!". -  
+> **Conformity** is the **jailer** of freedom and the enemy of growth.  
+
+Satellite view: Russia **crowds** Ukraine.  
+Pics **du jour**: Bidens visit hospitalized kids.  
+The high cost of food is the topic **du jour**. -  
+
+You **tramp**  
+Web3 fans and venture investors return fire after Jack Dorsey’s **disparaging** tweet.  
+Among the most prominent of these investors is Silicon Valley venture firm Andreessen Horowitz, also known by the shorthand **moniker** a16z.  
+**imbue**  
+**bereavement**  
+**vex**  
+**hegemony**  
+
+
+There is just a bit of **multiplication** and **modulus calculation** going on. -  
+She was a **hard-bitten** journalist who was suspicious of all forms of authority.  
+His political **ardor** led him into many arguments. -  
+He's always **boasting** about how clever his children are.  
+**well-bred**  
+An **octagon** has eight sides.  
+
+Escape, can at least **ignoble** peace, year after year, until come to an end. -  
 The beautiful and **dolorous** memory. -  
 **derogatory**  
 John is such a **windbag**.  
-
 
 I feel the people of the city are **perfervid**. -  
 **vacuous**  
@@ -15,7 +60,7 @@ To study hard is our **cardinal** thing to do. -
 They seem less tense, more **even-tempered**.  
 **meek**  
 **malay** **archipelago**.  
-The **slums** are a **reproach** to London. -  
+The **slums** are a **reproach** to London.  
 
 But poor sleep is linked with **maladies** from heart disease to obesity. -  
 **defunct**  
@@ -160,14 +205,14 @@ Apple's Tim Cook signed $27 bln deal with Chinese officals to **placate** China.
 The housing market is **moribund**. -  
 He used striking visuals to **get his point across**.  
 He's a retired lieutenant colonel and a bit of a **martinet**. -  
-The standards have been raised. The **clarion** has sounded. -  
+The standards have been raised. The **clarion** has sounded.  
 His **tightfisted** employer is unwilling to give him a raise. -  
 
 The market was **glutted** with **shoddy** goods.  
 Republican Sen. Tom Cotton of Arkansas, said the US is just **figure skating** around the issue and should have fully boycotted the games.  
 
-The monument was unveiled with great **solemnity**. -  
-Nobody can **impugn** his ability. -  
+The monument was unveiled with great **solemnity**.  
+Nobody can **impugn** his ability.  
 His walk was **lithe** and graceful.  
 To me, **croissants** are the **epitome** of French baking.  
 Who was **at the helm** when the collision occurred?  
@@ -201,21 +246,21 @@ A happy festival atmosphere **pervaded** the whole town.
 President Joe Biden **stopped short of** imposing lockdowns as the new variant emerged across America, **opting for** greater jab uptake, boosters and testing to curb the spread of covid-19 in winter.  
 Roberta Wohlstetter’s “Pearl Harbour: Warning and Decision”, a **seminal** book on America’s profound lack of **readiness**.  
 paper **mache**  
-The new Omicron variant will further **entrench** China’s tight restrictions on business travel. -   
+The new Omicron variant will further **entrench** China’s tight restrictions on business travel.  
 I don’t think the Chinese government is **dogmatic**. It is quite **pragmatic**.  
 The authorities have been **unconscionably** slow in approving the vaccine developed by BioNTech and Pfizer.  
 The virus is highly mutable. China’s policy towards it, however, is **strikingly** **invariant**.  
 Some think of the office as the new **offsite**.  
 If you are a pessimist, it will be a building full of heavily surveilled **drunkards**.  
 
-Its new **moniker** signals a plan to expand into blockchain-related technologies. -  
+Its new **moniker** signals a plan to expand into blockchain-related technologies.  
 And I hope could spend **commonness** and **treacly** life with you. -  
-**Rabid** animals on the loose frequent our TVs and newsfeeds. -  
+**Rabid** animals on the loose frequent our TVs and newsfeeds.  
 that **doddering** old fool.  
 He is old and fat and **indolent**.  
-Freedom of the press is **sacrosanct**. -  
+Freedom of the press is **sacrosanct**.  
 Personal-finance experts have long considered the **proverbial** **nest egg** to be **sacrosanct**.  
-Their **hospitality** is proverbial. -  
+Their **hospitality** is proverbial.  
 The planets move around the sun in **ellipses**.  
 He built himself a **cubby** in my house.  
 **simile**  
@@ -228,7 +273,7 @@ She likes to **reminisce** about her childhood.
 Many of its practices seem **anachronistic**.  
 **rectum**  
 It sort of resembled a **savanna** but without grass.  
-until the rooster **crow**. - 
+until the rooster **crow**.  
 
 She made an **impassioned** plea for help.   
 the company has failed to impress investors despite **enduring** growth.  
@@ -244,6 +289,6 @@ I grew up **bereft** of hugs.
 She's **delirious**, but has **lucid** **intervals**.  
 
 I cannot **brook** his arrogance.  
-The **brook** **warbled** over its rocky bed. -  
+The **brook** **warbled** over its rocky bed.  
 In my view this book would **deprave** young children.  
 

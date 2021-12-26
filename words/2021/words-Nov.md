@@ -14,7 +14,7 @@ It’s impolite to **gibe at** a foreign student’s English.
 
 But complaints about unequal distribution will start to **abate** during 2022 as access to patients’ arms becomes a larger limiting factor than access to jabs.  
 That will **crimp** the global market for less effective vaccines, such as the Chinese ones.  
-Pfizer is already manufacturing “significant quantities” of its **protease** inhibitor. -  
+Pfizer is already manufacturing “significant quantities” of its **protease** inhibitor.  
 The coronavirus remains a formidable **foe**.  
 (**friend or foe** )  
 China seeks to extend its **clout** in commodity markets.  
@@ -29,7 +29,7 @@ the prices of futures contracts on Western and Chinese exchanges are more often 
 After months in which Chinese censors have tolerated online mockery of Mr Biden as a **doddery** shui wang, or “sleep king”, prone to napping during meetings.  
 The video call was **a far cry** from a traditional summit between American and Chinese leaders.  
 namely that America is **bent on** **containing** China’s rise and is to blame for all **present-day** tensions.  
-code for a realist America realising it has no choice but to accommodate China’s **autocratic**, **statist** ways. -  
+code for a realist America realising it has no choice but to accommodate China’s **autocratic**, **statist** ways.  
 China’s leaders still want investment and technology from the West, but they think it is **in decadent** decline and are decoupling from Western **norms** and ideas.  
 
 They got mad, stood up, **stormed out** of the shop.  
@@ -101,7 +101,7 @@ Despite empty **pews** and sexual-abuse scandals, Catholic education is increasi
 Remote learning was difficult for her daughter. Once happy and outgoing, she became **withdrawn**.  
 The number had fallen from a peak in the early 1960s, when Catholic schools had 5.2m **pupils**, to around 1.6m last year, which meant a lot of empty desks.  
 But this autumn **dioceses** all over the country are seeing increases in enrolments.  
-Even so, many families are willing to pay. Ms Camisa and her husband have had to **rejig** their finances to afford tuition. -  
+Even so, many families are willing to pay. Ms Camisa and her husband have had to **rejig** their finances to afford tuition.  
 
 Leaders from both parties gathered on the White House’s south lawn to praise the **bulging** spending package for roads and bridges.  
 The 39-year-old, who used the mayoralty of Indiana’s fourth-biggest city to launch an **improbable** and impressive presidential run, is cerebral.  
@@ -217,7 +217,7 @@ Without more balanced leadership that could prevent renewed war, Afghanistan’s
 
 This book is an excellent **chronology** of how the collision happened, **albeit** lacking in **facetious** metaphors like this.  
 “Singles’ Day”, a **bacchanal** of online Chinese consumerism, proved more restrained than usual.  
-Inflation gives American policymakers an unpleasant reminder of their 1970s **funk**. -   
+Inflation gives American policymakers an unpleasant reminder of their 1970s **funk**.  
 She had to **coax** the car along.  
 She **coaxed** her son into going to school.  
 You're just **coasting**—it's time to work hard now.  

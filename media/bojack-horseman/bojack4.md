@@ -68,7 +68,7 @@ I choose my words very carefully, with an eye towards **precision** and **expedi
 We both agreed it was the best place for my mom to **run out the clock**  
 Oh, **pluck a duck**, it's called Walnut Springs.  
 you didn't feel a **twinge of guilt** when you left your mom in this place.  
-Eventually, she'll recognize you, and then you can totally **rip into** her. -  
+Eventually, she'll recognize you, and then you can totally **rip into** her.  
 
 ## E 4  
 You said offices are have corners, and corners are the **patriarchy**.  
