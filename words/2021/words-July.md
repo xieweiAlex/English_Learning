@@ -47,7 +47,6 @@ Sensationalism is **anathema** to the Foolish mindset.
 **landmark**  
 
 The **dilapidated** barn **detracts** charm from the landscape  
-Ikea is an **old hand** at **herding** customers through a **labyrinthine** store layout.  
 On the whole it's a good plan and we shouldn't **nitpick**.  
 I **flunked** the exam and my dad's going to kill me.  
 **Self-directed** study  

@@ -1,19 +1,24 @@
 
 ## E 12 
+> Princess Carolyn pitches "Philbert" to company execs. Todd gets a better business idea. BoJack comes to a realization about Hollyhock.
+
+
 My mother, she's **senile**, and she was drugging the coffee.  
 Well, this is me giving you the Princess Carolyn **pep talk**.  
 **rabies**  
 We have zero ballrooms, in this **Thrifty** Lodge.  
-You're **willingly** misunderstanding me. -  
+You're **willingly** misunderstanding me.  
 Well, **onwards and upwards**.  
 I guess I will see you **on set**.  
 But sometimes, if you **squint** at it just right, everything **lines up**, and it's the most perfect... beautiful, amazing thing.  
 
 
 ## E 11 
+> In 1963, young **socialite** Beatrice Sugarman meets the **rebellious** Butterscotch Horseman at her **debutante** party.
 
-You're a reminder of **disparity** of wealth in this county. Poor people find that dreadfully **gauche**. -  
-I bet your thank-you letters are **perfunctory**, your flower arrangement are **uninspired**, and your courtesy is an embarrassment. -  
+
+You're a reminder of **disparity** of wealth in this county. Poor people find that dreadfully **gauche**.  
+I bet your thank-you letters are **perfunctory**, your flower arrangement are **uninspired**, and your courtesy is an embarrassment.  
 Can I pay her 5 years **in a lump sum** now, so I don't have to think about her again?  
 It'll **dispense** with the need for goodbyes, **thus** **eliminating** my **transgression**.  
 If a beautiful creature like herself could ever love an **oaf** like him.  

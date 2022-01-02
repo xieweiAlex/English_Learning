@@ -133,7 +133,7 @@ He was left alone and **agape**.
 
 
 The Afghans I met were neither **xenophobic** nor **bellicose**.  
-The industry became a **byword** for **mendacity**, **secrecy** and **profligacy** with taxpayers' money. -  
+The industry became a **byword** for **mendacity**, **secrecy** and **profligacy** with taxpayers' money.  
 
 **Craven** image: a Mladic **mural** in Serbia. -  
 Its stores are **well-lit** and **spotlessly** clean.  
@@ -247,7 +247,7 @@ This is where our thinking about Orwell led. It is a **telescreen**, which can b
 The Leader’s face **bears down on** you and his **gaze** drills into you.  
 Big Brother has total control of **Oceania** but Mr Putin is **resorting to** **repression** partly because, as the internet **supersedes** television news, he is losing his domination over the flow of information.  
 Mr Putin looks inappropriately **avuncular**, so for the final cover we swapped in an alternative picture.  
-Last week New Zealand enacted a **euthanasia** law after 65% of voters backed it in a referendum. -  
+Last week New Zealand enacted a **euthanasia** law after 65% of voters backed it in a referendum.  
 However, it is a stark and **disconcerting** image that makes assisted death seem like a punishment rather than a release.  
 The green is warm and peaceful, and better than a trace set against **bombazine** black. All we changed was the words--because some readers do not think that there is another side.  
 
@@ -260,7 +260,7 @@ The authorities proved **unyielding** on one crucial demand.
 First and foremost he is a **logician**.  
 He lived on the street as a **vagrant**.  
 **windfall**  
-He wore the robe, crown, and **scepter** of a **triumphant** general and used the title **imperator**. -  
+He wore the robe, crown, and **scepter** of a **triumphant** general and used the title **imperator**.  
 I hear there are more staff changes **in the offing**.  
 
 The Chinese government has been **bearing down on** tech giants and pushing companies toward achieving “common prosperity,” which Alibaba added to its “core corporate responsibilities” list in September.  
@@ -274,7 +274,7 @@ The audience were **petrified** by the **deafening** noise.
 To make this cheque legal, you should **antedate** it by 7days.  
 He hoped to **expiate** his guilt.  
 He was becoming more **expansive** as he relaxed.  
-be sentimental but not **mawkish**. -  
+be sentimental but not **mawkish**.  
 More discriminating visitors now tend to **shun** the area.  
 **pyro**  
 The new law will be a **charter** for **unscrupulous** financial advisers.  
@@ -296,7 +296,6 @@ The diving championship was a **cakewalk** for her.
 he **cakewalked** to a 5-1 triumph.  
 **perspiration**  
 Students should avoid any **immodest** behaviour, on or off campus.  
-They questioned the **veracity** of her story.  
 I'm still feeling a little **woozy**, so I rest my head on his shoulder.  
 **attic** window  
 Their success is the result of a **fortuitous** combination of circumstances.  

@@ -19,12 +19,12 @@ this prom is really **bourgeois**.
 you said LA is a **tar pit**  
 
 ## E 9  
-He is a **groovy** dude. -  
+He is a **groovy** dude.  
 I'm the biggest agent in the entire **idyllic** New England village.  
 You're polluting my perfect **serene** dream life.  
 
 ## E 8 
-this isn't funny, no more **tomfoolery**. -  
+this isn't funny, no more **tomfoolery**.  
 **trigonometry**, advanced physics, or at the movies with Mr. Peanutbutter  
 when he gets excited, his ears so slightly **flop up** and **give him away**. 
 it was **touch and go**  

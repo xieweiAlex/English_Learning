@@ -52,7 +52,7 @@ I've been **tied up** with my studies
 ## E 7 
 He is pretty **steamed**  
 We do have an **infestation**, of Todds, look at that, they're getting bigger.  
-Did the head help to **ameliorate** your pest **peccadillo**? -  
+Did the head help to **ameliorate** your pest **peccadillo**?  
 Do you often **keep people at arm's length**?  
 So you don't feel any guilt about your **tryst** with Emily?  
 I knew I had to **lay low**. **Go off the grid**, disappear.  

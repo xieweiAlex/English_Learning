@@ -1,53 +1,45 @@
-## bojack4.md ## 
-media/bojack-horseman/bojack4.md
-You're **willingly** misunderstanding me. -  
-You're a reminder of **disparity** of wealth in this county. Poor people find that dreadfully **gauche**. -  
-I bet your thank-you letters are **perfunctory**, your flower arrangement are **uninspired**, and your courtesy is an embarrassment. -  
-
-## bojack3.md ## 
-media/bojack-horseman/bojack3.md
-Did the head help to **ameliorate** your pest **peccadillo**? -  
-
-## bojack2.md ## 
-media/bojack-horseman/bojack2.md
-He is a **groovy** dude. -  
-this isn't funny, no more **tomfoolery**. -  
-
 ## words-Dec.md ## 
 words/2021/words-Dec.md
+Considering something as personally **integral** as this couldn't be mutually agreed upon, the pair decided to split **amicably**. -  
+an **overpass** is called a **flyover** or a **flypast** in England. -  
+Times Square still put on a show, with about 15,000 **revelers** — about a quarter of the usual 58,000. -  
+other markets are not **corroborating** fears of inflation. -  
+They are two **streetwise** and **sassy** girls from Queens. -  
+Praise in public, **censure** in private, right? -  
+I'll do anything. I don't care how **menial** the task is. -  
+She is such a **gregarious** and outgoing person. -  
+Critics have accused him of **rabble**-rousing. -  
+Certain discomforts are **incidental** to the joys of **camping** out. -  
+He delivered the speech with his usual **aplomb**. -  
+The **ruckus** **belies** a simple fact. -  
+Users were asked by each app if they are okay with being tracked across other apps and websites, bringing **seismic** changes to the nearly $100B mobile advertising market. -  
+**reprise** their roles from the previous films. -    
+Researchers have found that mental **abstinence** can backfire: trying not to think of something can trigger even more thoughts about it. -  
+The new “Matrix” film released this holiday season is a bit of a disaster, but while it **falls down on** action, characters, **pacing**, visuals and most other measures, it succeeds on a surprising one: having something **cogent** to say about our relationship with technology. -  
+The first one is a Hamlet **soliloquy**. - 
+In the **sweltering** haze of summer-noon. -  
+Billy started to **snivel**. His mother smacked his hand. -  
+Her speech was memorable for its **polemic** rather than its substance. -  
+He likes girls that play the **coquette**. -  
+Your look fills beautifully, carries off my **palpitation**. -  
+He wanted his sons to become strong, **virile**, and athletic like himself. -  
+Dee talked **incessantly** about herself. -  
+She gave him her best **winsome** smile. -  
+We expect politicians to **defame** each other in an election year. -  
+The film **mercilessly** **castigates** the old society. -  
+Their quarterly meetings were **anodyne affairs**. -  
+**clavicle** hook. -  
 This month eight pro-democracy activists were sentenced to up to 14 months in prison for their role last year in a **vigil** for the **massacre**. -  
-When the **verdict** came, it surprised people on both sides of the debate. A group huddled outside the courthouse broke into **jubilant** cheers and chants of "Guilty! Guilty!". -  
-The high cost of food is the topic **du jour**. -  
-There is just a bit of **multiplication** and **modulus calculation** going on. -  
 His political **ardor** led him into many arguments. -  
 Escape, can at least **ignoble** peace, year after year, until come to an end. -  
-The beautiful and **dolorous** memory. -  
-I feel the people of the city are **perfervid**. -  
-To study hard is our **cardinal** thing to do. -  
-But poor sleep is linked with **maladies** from heart disease to obesity. -  
-The University suspended the most **recalcitrant** demonstraters. -  
-He's not his usual **blithe** and **festive** self, is he? -  
-Semiconductor companies like AMD and Nvidia got particularly **thwacked**. -  
 Global capitalism **abets** China's repression. -  
 From housing to child care to energy and education, the U.S. is **beset** by rising costs for the goods and services needed most. -  
-Their eyes were full of friendliness and **bonhomie**. -  
-His brow **corrugated** with the effort of thinking. -  
-I have had enough **obloquy** for one lifetime. -  
-The bottom line: The market is **warped**. Throw historical norms **out the window**. -  
 They came **panting up** to his door with their **unwieldy** baggage. -  
-I have a **prodigious** amount of work to do before I leave. -  
 I knew his help wouldn't be given **gratis**. -  
-I've never heard such a **rigmarole**. -  
-The castle is **redolent** of the past. -  
-Many **molluscs** have **tentacles**. -  
 He **pilfer** from a cash register. -  
-We must act now to **forestall** disaster. -  
 The housing market is **moribund**. -  
 He's a retired lieutenant colonel and a bit of a **martinet**. -  
-His **tightfisted** employer is unwilling to give him a raise. -  
-Their much **vaunted** reforms did not **materialize**. -  
 A **disembodied** voice sounded from the back of the cabin. -  
-And I hope could spend **commonness** and **treacly** life with you. -  
 
 ## words-Nov.md ## 
 words/2021/words-Nov.md
@@ -57,12 +49,8 @@ The electorate had grown **disenchanted** with politics. -
 they danced and **caroused** until the drink ran out. -  
 Restrictions on international **jaunts** are still tight and are lifting only slowly. -  
 It is **impermissible** to overlook or **whitewash** mistakes, which in itself would be a mistake and would give rise to more and worse mistakes. -  
-The industry became a **byword** for **mendacity**, **secrecy** and **profligacy** with taxpayers' money. -  
 **Craven** image: a Mladic **mural** in Serbia. -  
 The **exultant** crowds were dancing in the streets. -  
-Last week New Zealand enacted a **euthanasia** law after 65% of voters backed it in a referendum. -  
-He wore the robe, crown, and **scepter** of a **triumphant** general and used the title **imperator**. -  
-be sentimental but not **mawkish**. -  
 I have a little **menagerie** outside in backyard. - 
 
 ## words-Oct.md ## 
@@ -70,6 +58,5 @@ words/2021/words-Oct.md
 **Boundless** **intemperance** in nature is a **tyranny**. -  
 The FCC already **nobbled** China Mobile, Huawei and ZTE, under the Trump administration. -  
 an **imperturbable** tranquillity. -  
-Who wouldn't want a job with a food salary and **commodious** living quarters? -  
 The **ordinary** feelings which make life **amiable** and **indolent**, were unknown to him. -  
 Kato was fully aware of the **provenance** of these **treasures**. -  

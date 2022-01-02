@@ -1,4 +1,5 @@
 ## E 12 
+
 It's a minor injury issue, a stunt went slightly **awry**.  
 I'm clearing my **docket**, this is my only priority.  
 I still think it's pretty **nutty** we both have the left half of a **medallion**.  
@@ -56,6 +57,8 @@ hobnobbing sexual violence, protracted, **lascivious** nude scenes.
 **culpable** for that **complicit**  
 
 ## E 1  
+> BoJack has misgivings about his new show. Princess Carolyn visits an adoption agency. Todd interviews for a job at WhatTimeIsItRightNow.com.
+
 Gina, Bojack was concerned the old scene was **gratuitous** and male-gazey.  
 do you feel weird that you don't have **discernible** life direction?  
 

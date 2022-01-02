@@ -49,7 +49,7 @@ Another “zero covid” **holdout**.
 Ofcom says 45m Britons were targeted by scammers this summer, including **mendacious** text messages and landline calls.  
 
 He was so **cocksure** that she would call him first.  
-Who wouldn't want a job with a food salary and **commodious** living quarters? -  
+Who wouldn't want a job with a food salary and **commodious** living quarters?  
 The **ordinary** feelings which make life **amiable** and **indolent**, were unknown to him. -  
 
 He was given only a wooden **pallet** with a blanket.  
@@ -110,7 +110,6 @@ He became **provost** in 2006 and President the following year.
 Uyghur artists and intellectuals are being **rounded up**, but some of their work escapes.  
 Kato was fully aware of the **provenance** of these **treasures**. -  
 **crumby** bread  
-He was not a **prepossessing** in first sight.  
 
 The **peasants** **doff** their hats.  
 a **clarion** call to resistance.  
