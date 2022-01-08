@@ -1,5 +1,8 @@
 
 
+**bog down**  
+**follow suit**  
+
 We need to take this **portrait** before you and I both **take a powder**.   
 You **went over** my head and **turned him down** without telling me.  
 This is a really **head-scratcher** for me  

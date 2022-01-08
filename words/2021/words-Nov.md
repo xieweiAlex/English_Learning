@@ -21,7 +21,7 @@ China seeks to extend its **clout** in commodity markets.
 **LNG**: liquefied natural gas.  
 Now China wants to extend its influence over commodities **further still**.  
 (The Americans go **further still**.)  
-All otters have a **voracious** appetite. -  
+All otters have a **voracious** appetite.  
 Estimates from 2016 suggest that this group holds around 85% of open positions, compared with 15% on Western **bourses**.  
 A lack of expertise means retail investors tend to **accentuate** price swings.  
 Another is that officials are **wary** of Western benchmarks, suspecting that they may have been manipulated.  
@@ -76,7 +76,7 @@ The **wisecrack** you believe is witty often is not.
 **megaphone**  
 **latecomer**  
 Careful you don't **tread** in that **puddle**.  
-they danced and **caroused** until the drink ran out. -  
+they danced and **caroused** until the drink ran out.  
 He was **effusive** in his praise for the general.  
 He was a **punctilious** young man.  
 You can't tell her that joke—she's much too **prim and proper**.  
@@ -135,7 +135,7 @@ He was left alone and **agape**.
 The Afghans I met were neither **xenophobic** nor **bellicose**.  
 The industry became a **byword** for **mendacity**, **secrecy** and **profligacy** with taxpayers' money.  
 
-**Craven** image: a Mladic **mural** in Serbia. -  
+**Craven** image: a Mladic **mural** in Serbia.  
 Its stores are **well-lit** and **spotlessly** clean.  
 
 **vacuous** slogans  
@@ -147,7 +147,7 @@ Drip **irrigation**
 This was a **fiendish** act of **wickedness**.  
 **ineffectual**  
 **sideburns**  
-The **exultant** crowds were dancing in the streets. -  
+The **exultant** crowds were dancing in the streets.  
 **commendatory**  
 **statuesque**  
 
@@ -310,7 +310,7 @@ She has a **vile** temper; it is impossible to live with her.
 Times of national **turmoil** generally **roil** a country's financial markets.  
 He is **meanly** dressed.  
 She felt **heady** with success.  
-I have a little **menagerie** outside in backyard. - 
+I have a little **menagerie** outside in backyard.  
 
 However, with Opendoor's business reportedly going quite well (we'll get actual earnings results next week), it appears these fears are **overblown**.  
 In fact, with the second-largest iBuying company **calling it quits**, it reduces Opendoor's competition and creates an even larger growth opportunity.  

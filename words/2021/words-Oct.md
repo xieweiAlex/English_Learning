@@ -1,6 +1,6 @@
 ## Week 4 
 
-**Boundless** **intemperance** in nature is a **tyranny**. -  
+**Boundless** **intemperance** in nature is a **tyranny**.  
 Don't **skimp** the butter in making a cake.  
 **makeover**  
 Some say this **state of affairs** just can't last.  
@@ -25,7 +25,7 @@ He was **pilloried**, but she escaped without blemish.
 **bento**  
 **dumbfound**  
 
-The FCC already **nobbled** China Mobile, Huawei and ZTE, under the Trump administration. -  
+The FCC already **nobbled** China Mobile, Huawei and ZTE, under the Trump administration.  
 That might be because of Chinese hashers re-routing their traffic through European virtual private networks to avoid authorities’ **ire**.  
 **Elk** **rut** at Great smoky Mountains National Park.  
 
@@ -50,7 +50,7 @@ Ofcom says 45m Britons were targeted by scammers this summer, including **mendac
 
 He was so **cocksure** that she would call him first.  
 Who wouldn't want a job with a food salary and **commodious** living quarters?  
-The **ordinary** feelings which make life **amiable** and **indolent**, were unknown to him. -  
+The **ordinary** feelings which make life **amiable** and **indolent**, were unknown to him.  
 
 He was given only a wooden **pallet** with a blanket.  
 Stories about the shortages **plaguing** American firms can be found throughout the Federal Reserve’s “**Beige Book**”, a survey of economic conditions across the country that is published eight times a year.  
@@ -108,7 +108,7 @@ He became **provost** in 2006 and President the following year.
 
 
 Uyghur artists and intellectuals are being **rounded up**, but some of their work escapes.  
-Kato was fully aware of the **provenance** of these **treasures**. -  
+Kato was fully aware of the **provenance** of these **treasures**.  
 **crumby** bread  
 
 The **peasants** **doff** their hats.  

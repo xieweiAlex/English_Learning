@@ -1,5 +1,46 @@
 
 
+**reams** and **reams** of data.  
+We think that's a **vestige** of tech and telecom bubble  
+We cannot simply rip and **replace** legacy assets.  
+
+The meeting **engendered** several quarrels. -  
+Fight against **hypochondria**.  
+They can get **worked up** and irrational sometimes.
+He uses **hypnosis** as part of the treatment.  
+
+Harris’ office has been **buffeted** by the departures of her communications director, Ashley Etienne, and press secretary, Symone Sanders, within the first year.  
+
+**pouch**  
+**pastime**  
+A **colony** of seals lay **basking** in the sun  
+**rat race**  
+**insectivore**  
+**attestation** services.  
+So is this just a Wall Street **trope**? -  
+**headmaster**  
+His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
+
+**contractual** agreement.  
+many landlords are reasonable and understand that sometimes tenants need to relocate due to **extenuating** circumstances.  
+
+The thief **disgorged** his **plunder**.  
+**foe**  
+The company yesterday **shed** a sixth of its **workforce**.  
+
+America’s president is stuck, his approval ratings down by 25 percentage points since he entered office. Blame inflation, an **unrelenting** pandemic, the Afghanistan **debacle** and his own inability to **corral** congressional majorities.  
+That is a **dismal** **prospect**.  
+**meticulous**  
+**sombrero**  
+Talking too much is one of his **foibles**.  
+**electrocute**  
+What has he done to deserve that **termagant**? -  
+**cobra**  
+
+## Week 5
+
+I could previously type around 80 to 100 WPM—not too **shabby**, but nothing amazing.  
+
 **snug** 
 **cheetah**
 **illegible**  
@@ -8,16 +49,16 @@ The wheels sank deeper into the **mire**. -
 **bog down**  
 
 That people are **contextualizing** you as an Oscar contender.  
-Considering something as personally **integral** as this couldn't be mutually agreed upon, the pair decided to split **amicably**. -  
+Considering something as personally **integral** as this couldn't be mutually agreed upon, the pair decided to split **amicably**.  
 Mr. Reese, please **part ways** with Leon as quickly as possible.  
 2022 will be a year of **seismic** elections.  
 The **flyover** broadens into the NLEx expressway.  
-an **overpass** is called a **flyover** or a **flypast** in England. -  
+an **overpass** is called a **flyover** or a **flypast** in England.  
 A woman **beholds** the remains of her mother's home in Louisville, Colo.  
-Times Square still put on a show, with about 15,000 **revelers** — about a quarter of the usual 58,000. -  
+Times Square still put on a show, with about 15,000 **revelers** — about a quarter of the usual 58,000.  
 
 As with most **cliches**, there is some truth in it.  
-The **pickpocket** was caught in the act.  
+The **pickpocket** was caught **in the act**.  
 **grime**  
 They had a **quarrel** about money.  
 **jack the ripper**  
@@ -35,23 +76,23 @@ They are two **streetwise** and **sassy** girls from Queens. -
 **arthritis**  
 **windpipe**  
 Praise in public, **censure** in private, right? -  
-I'll do anything. I don't care how **menial** the task is. -  
+I'll do anything. I don't care how **menial** the task is.  
 **brass tacks**  
-She is such a **gregarious** and outgoing person. -  
-Critics have accused him of **rabble**-rousing. -  
+She is such a **gregarious** and outgoing person.  
+Critics have accused him of **rabble**-rousing.  
 **common divisor**  
 Certain discomforts are **incidental** to the joys of **camping** out. -  
-He delivered the speech with his usual **aplomb**. -  
+He delivered the speech with his usual **aplomb**.  
 The traffic lights were **on amber**.  
 **slapstick** comedy  
 Mind that cup, you **clumsy** **oaf**!  
 He is a **possessive**, **duplicitous**, and unreasonable man.  
 The **ruckus** **belies** a simple fact. -  
 
-Users were asked by each app if they are okay with being tracked across other apps and websites, bringing **seismic** changes to the nearly $100B mobile advertising market. -  
+Users were asked by each app if they are okay with being tracked across other apps and websites, bringing **seismic** changes to the nearly $100B mobile advertising market.  
 
 **crude** jokes  
-**reprise** their roles from the previous films. -    
+**reprise** their roles from the previous films.  
 Researchers have found that mental **abstinence** can backfire: trying not to think of something can trigger even more thoughts about it. -  
 The new “Matrix” film released this holiday season is a bit of a disaster, but while it **falls down on** action, characters, **pacing**, visuals and most other measures, it succeeds on a surprising one: having something **cogent** to say about our relationship with technology. -  
 
@@ -66,13 +107,14 @@ edible **fungus**
 **romp**  
 The U. S. A. has **assimilated** people from many European countries.  
 **jism**  
-Something gave a loud discordant **twang**.  
-Billy started to **snivel**. His mother smacked his hand. -  
+Something gave a loud **discordant** **twang**.  
+Billy started to **snivel**. His mother smacked his hand.  
 **denture**  
 **follow suit**  
 a child in **tutelage**  
 
 a **buttload** of money 
+In fact, I hear she's a real **ballbuster**.  
 
 jade **bracelet**  
 The **antipathy** is mutual.  
@@ -82,7 +124,6 @@ They questioned the **veracity** of her story.
 He was not a **prepossessing** in first sight.  
 **effeminate** behavior    
 **arthritis**  
-
 
 He likes girls that play the **coquette**. -  
 He is a big, **ham-handed** man who used to be a football player.  
@@ -96,12 +137,12 @@ There's too much crime and **gratuitous** violence on TV.
 
 The draw for the **raffle** takes place on Saturday.  
 The key is to not let it **debilitate** you.  
-Your look fills beautifully, carries off my **palpitation**. -  
+Your look fills beautifully, carries off my **palpitation**.  
 He wanted his sons to become strong, **virile**, and athletic like himself. -  
 
 ## Week 4
 
-Dee talked **incessantly** about herself. -  
+Dee talked **incessantly** about herself.  
 **alimony**  
 **sabre**  
 He tried hard to **vindicate** his honor.  
@@ -112,7 +153,7 @@ The rapid growth of Antiwork and the **onset** of the Great Resignation highligh
 
 She gave him her best **winsome** smile. -  
 **chorale** **fantasia**.  
-We expect politicians to **defame** each other in an election year. -  
+We expect politicians to **defame** each other in an election year.  
 **reaper**, **grim reaper**  
 **lewd** comments  
 
@@ -125,12 +166,12 @@ They **contrived** a plan to **defraud** the company.
 Their quarterly meetings were **anodyne affairs**. -  
 **perpetrate**  
 **inglorious**  
-**clavicle** hook. -  
+**clavicle** hook.  
 **nepotism**  
 **assiduous** vs **sedulous**  
 angle of **radian**  
 
-This month eight pro-democracy activists were sentenced to up to 14 months in prison for their role last year in a **vigil** for the **massacre**. -  
+This month eight pro-democracy activists were sentenced to up to 14 months in prison for their role last year in a **vigil** for the **massacre**.  
 Mr Moon had previously pledged not to pardon those convicted of **graft**, but supporters of the **conservative** opposition party had been calling for Ms Park’s release, citing her poor health.  
 
 When the **verdict** came, it surprised people on both sides of the debate. A group huddled outside the courthouse broke into **jubilant** cheers and chants of "Guilty! Guilty!".  
@@ -348,7 +389,7 @@ The **manhunt** has become more intense.
 a public **soothsayer**.  
 little **dipper**  
 When I first came here, I had a **crummy** apartment.  
-A **disembodied** voice sounded from the back of the cabin. -  
+A **disembodied** voice sounded from the back of the cabin.  
 The **willful** killing of a person is murder.  
 A happy festival atmosphere **pervaded** the whole town.  
 

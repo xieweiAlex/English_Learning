@@ -1,4 +1,9 @@
 
+
+**shabby**
+
+## Week 3,4
+
 **flop**  
 
 **thoroughbred**
@@ -18,6 +23,7 @@
 **uppity**
 
 **pervade**
+**prevail**
 
 ## Week 1 
 
