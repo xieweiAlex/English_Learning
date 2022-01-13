@@ -30,7 +30,7 @@ That might be because of Chinese hashers re-routing their traffic through Europe
 **Elk** **rut** at Great smoky Mountains National Park.  
 
 These **luxuriantly** packaged mooncakes are selling well both in supermarkets and hotels around the country.  
-an **imperturbable** tranquillity. -  
+an **imperturbable** tranquillity.  
 he felt a **yearning** for the mountains  
 There's so much **saccharine** in this, it's giving me cancer.  
 They live in the **posh** part of town.  

@@ -43,7 +43,7 @@ The aged cheese had a **pungent** taste.
 **succinctness**  
 **esoteric** buddhism.  
 
-The electorate had grown **disenchanted** with politics. -  
+The electorate had grown **disenchanted** with politics.  
 **feminine** vs **girly**  
 summer/winter **solstice**
 He **plunked** into the lake.  
@@ -90,7 +90,7 @@ one type of **globetrotter** will fly above the lingering dark clouds—the rich
 commercial flights still **languish** around 40% below pre-pandemic levels, according to WingX, a private-aviation data firm.  
 He was **dismantling** the disastrous “people’s **communes**” that had caused millions of people to starve to death in the early 1960s.  
 But it **dwelt on** those faults, especially the “catastrophe” of the Cultural Revolution between 1966 and 1976..  
-It is **impermissible** to overlook or **whitewash** mistakes, which in itself would be a mistake and would give rise to more and worse mistakes. -  
+It is **impermissible** to overlook or **whitewash** mistakes, which in itself would be a mistake and would give rise to more and worse mistakes.  
 Mr Xi seems **oblivious** to this warning.  
 Yet it should be acknowledged that generating wild enthusiasm for **humdrum** ideas and governing is Mr Buttigieg’s specialty.   
 

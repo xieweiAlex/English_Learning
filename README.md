@@ -1,33 +1,41 @@
 # English_Learning
-  
-Expanding vocabulary for a non native-speaker is very tedious and time-consuming, how do you think about it 🤔? I try to record the **words or phrases** I encounter everyday with some necessary context, hope it makes my English/Culture learning journey easier and more delight, and if it can inspire someone else, that's even better 💖.  
+
+Expanding vocabulary for a non native-speaker is tedious and time-consuming. I try to record the **words or phrases** I encounter everyday with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight, if it can inspire someone else, that's even better 💖.  
 
 
-### Current 
+### Dec/Jan 
+[Words Review](./words-review.md)
+
 [Words](./words/2021/words-Dec.md) |
 [Special word](./special/2021/special-words-Nov.md) |
 [Phrase](./special/2021/phrase-Nov.md) |
 [Verb](./special/2021/verb-special-Q4.md)
 
-
 [SeinField](./media/seinfeld.md)
-
 
 [Impromptu](./impromptu.md)
 
 ### Prior 
 
+Nov | 
+[Words](./words/2021/words-Dec.md) |
+[Special word](./special/2021/special-words-Nov.md) |
+[Phrase](./special/2021/phrase-Nov.md) |
+[Verb](./special/2021/verb-special-Q4.md)
+
+Oct | 
 [Words](./words/2021/words-Oct.md) |
 [Special word](./special/2021/special-words-Oct.md) |
 [Phrase](./special/2021/phrase-Oct.md) |
 [Verb](./special/2021/verb-special-Q4.md)
 
+Set | 
 [Words](./words/2021/words-Sep.md) |
 [Special word](./special/2021/special-words-Sep.md) |
 [Phrase](./special/2021/phrase-Sep.md) |
 [Verb](./special/2021/verb-special-Q3.md)
 
-
+Aug | 
 [Words](./words/2021/words-Aug.md) |
 [Special word](./special/2021/special-words-Aug.md) |
 [Phrase](./special/2021/phrase-Aug.md) |
@@ -38,12 +46,6 @@ Expanding vocabulary for a non native-speaker is very tedious and time-consuming
 [S2](./media/houseOfCards/HOC2.md) |
 [S3](./media/houseOfCards/HOC3.md) |
 [S4](./media/houseOfCards/HOC4.md) |
-
-
-### General Review 
-|  Review 🐗        |    File Marks       |  file   	|
-| -------------     |-------------  | ------- |
-| Monthly Word **Review**   |  I  |  [Words Review](./words-review.md)       |
 
 
 ### Special Review

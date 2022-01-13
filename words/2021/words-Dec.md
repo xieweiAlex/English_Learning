@@ -1,5 +1,41 @@
 
+She **put away** the clothes. 
+Those are very **cogent** and reasonable conditions.  
+The U.S. and NATO view that as a complete non-**starter**.  
 
+Young children have difficulty **grasping** the finality of death.  
+An Australian court **quashed** the federal government’s revocation of Novak Djokovic’s visa, allowing the tennis star to defend his title in the Australian Open.  
+
+That Djokovic was allowed to play in the first place was greeted with a **torrent** of criticism by lockdown-weary Australians, who accused the tennis star of receiving **preferential** treatment.  
+You're gonna **rat me out** to Howard, aren't you?  
+
+
+## Week 1 
+
+The **relics** were objects of **veneration**. -  
+**altar**  
+
+He refused to **give ground** on this issue.  
+The party now has an **unassailable** lead. -  
+
+I like to **putter** around in the garden.  - 
+The city hosts the **preponderance** of the Chinese headquarters of multinationals. -  
+Hong Kong, meanwhile, is a world **unto** itself. Since the political problems there over the last three years, the central government has made it obvious that it can think of the city only with **exasperation**.  
+Rather than expect it to lead, Beijing is treating Hong Kong as something like an **ulcer**: a problem to manage away with hopefully not much more pain. -  
+a tropical island with a **splendid** geographic setting, featuring **a ring of** skyscrapers that hug thickly-forested mountains.  
+And there is still an interesting cast of characters, many of whom have adventured on the mainland or the rest of Asia, to **enliven** the city.  
+Therefore I think **there is little excuse** for young people to live in Hong Kong. -   
+One shouldn't **overdraw** the differences between these regions.  
+But I will **exaggerate** their differences as part of an exercise to **decompose** the **heterogeneity** behind Chinese growth.  
+When I’m in Beijing, I find myself **sympathizing** with the **Legalist school of philosophy**, which **enjoins** the ruler to govern with a **brutal fist**.  
+I speak from the perspective of a cyclist, an **aggrieved** class everywhere. -  
+That is a **messianic** drive, complete with **sacred** texts, elaborate rituals, and the occasional **purge**. -  
+**Politburo**  
+Chen noted that his home region was filled with opportunists who would destroy the social order **for a dime**.  
+The **apostles** who govern in Beijing know that nothing can be more **venal** than the interests of capitalists, who dominate Shanghai and Shenzhen. -  
+with the uncertainty of not knowing which might be confiscated by Chinese customs—that **heightens** the physical **ecstasy** of holding a book in one’s hands.  
+
+**impermissible** behavior.  
 **reams** and **reams** of data.  
 We think that's a **vestige** of tech and telecom bubble  
 We cannot simply rip and **replace** legacy assets.  
@@ -17,7 +53,7 @@ A **colony** of seals lay **basking** in the sun
 **rat race**  
 **insectivore**  
 **attestation** services.  
-So is this just a Wall Street **trope**? -  
+So is this just a Wall Street **trope**?  
 **headmaster**  
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
 
@@ -64,7 +100,7 @@ They had a **quarrel** about money.
 **jack the ripper**  
 
 Has inflation **derailed** disruptive innovation.  
-other markets are not **corroborating** fears of inflation. -  
+other markets are not **corroborating** fears of inflation.  
 
 If those factors were to ease, much of those fears could **dissipate**.  
 
@@ -81,8 +117,8 @@ I'll do anything. I don't care how **menial** the task is.
 She is such a **gregarious** and outgoing person.  
 Critics have accused him of **rabble**-rousing.  
 **common divisor**  
-Certain discomforts are **incidental** to the joys of **camping** out. -  
-He delivered the speech with his usual **aplomb**.  
+Certain discomforts are **incidental** to the joys of **camping** out.  
+He delivered the speech with his usual **aplomb**. -  
 The traffic lights were **on amber**.  
 **slapstick** comedy  
 Mind that cup, you **clumsy** **oaf**!  
@@ -138,7 +174,7 @@ There's too much crime and **gratuitous** violence on TV.
 The draw for the **raffle** takes place on Saturday.  
 The key is to not let it **debilitate** you.  
 Your look fills beautifully, carries off my **palpitation**.  
-He wanted his sons to become strong, **virile**, and athletic like himself. -  
+He wanted his sons to become strong, **virile**, and athletic like himself.  
 
 ## Week 4
 
@@ -151,7 +187,7 @@ If Antiwork sounds a little…**absolute**, that’s by design.
 the subreddit seeks to not only improve working conditions for employees **beleaguered** by the pandemic, but also to move toward the dissolution of work altogether.   
 The rapid growth of Antiwork and the **onset** of the Great Resignation highlight how Covid exacerbated **long-held** frustrations with work.  
 
-She gave him her best **winsome** smile. -  
+She gave him her best **winsome** smile.  
 **chorale** **fantasia**.  
 We expect politicians to **defame** each other in an election year.  
 **reaper**, **grim reaper**  
