@@ -84,7 +84,7 @@ You can't tell her that joke—she's much too **prim and proper**.
 Was he, as alleged by the prosecution, a naive “chaos tourist” who went to Kenosha to play at being a **vigilante** and then shot his way out of a scary but not actually life-threatening confrontation?  
 Budget airlines, growing **prosperity** and more leisure time **underpinned** this growth. These forces will eventually **reassert** themselves.  
 Early in the pandemic, most forecasters **reckoned** that international travel would not recover to the levels of 2019 before 2023 at the earliest, and more likely in 2024.  
-Restrictions on international **jaunts** are still tight and are lifting only slowly. -  
+Restrictions on international **jaunts** are still tight and are lifting only slowly.  
 The gloomiest **prognosticators** **reckon** half of all business travel could be gone for good.  
 one type of **globetrotter** will fly above the lingering dark clouds—the rich.  
 commercial flights still **languish** around 40% below pre-pandemic levels, according to WingX, a private-aviation data firm.  

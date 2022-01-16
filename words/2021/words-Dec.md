@@ -1,18 +1,65 @@
 
+The coach admonished the girls for being lazy.  
+Schools' COVID contortions.  
+Texas synagogue safe after 11-hour standoff.  
+The talks ended in (a) stalemate.  
+forsake   
+He faithlessly forsook his friends in their hour of need.  
+She got huffy and left, then Wil and I headed out to dinner.  
+
+
+
+
+> the default was that each day you had a three-hour chunk of time when you were at your best to really move the needle  
+
+Celiac (gluten intolerance). 
+
+hospitals are financially incentivized to attribute deaths to Covid and that leaders have “hypnotized” the public into believing the vaccines work.  
+On Wednesday, Nuro debuted its newest—and eponymous—delivery robot.  
+It's also acknowledging the president’s approval rating is well underwater — just not as deep as Quinnipiac found.  
+The drumbeat of war is sounding loud and the rhetoric has gotten rather shrill."  
+I'm not going to opine on who's right or who's wrong on this one.  
+
+Biden boxed in on Ukraine.  
+This book is a prequel of sorts talking about what kept other parts of Asia so poor.   
+Russia has been amassing troops on the Ukrainian border for months, and talks aimed at staving off an invasion failed last week.  
+The U.S. claims to have intelligence indicating that Russia is sending saboteurs to eastern Ukraine for a potential "false flag" operation that would give Moscow a pretext to invade — likely within weeks.  
+Throat swabs will be required daily. In Tokyo, participants spit into vials for antigen tests.  
+
+
+The storm wrought havoc in the south.   
+This wishy-washy statement always made me felt uneasy.  
+He bunched the flowers and sold them.  
+We bunched around the fire for warmth.  
+That view is wrongheaded.  
+If I accept the job, it will mean uprooting my family and moving to Italy.  
+Hops serve to embitter beer.  
+The more taste buds you have, the more likely you are to detest hoppy beers.  
+
+
+
+**intestinal** tract  
+**intestine** 
+He **beguiled** me into signing this contract. -  
+**fitful** bursts of energy.  
+a few hours' **fitful** sleep.  
+financial **tsunami**  
+
+Google is **shelling out** $1B to acquire the rest of London's colorful Central Saint Giles building, where it already occupies a number of floors.   
+
+**well-intentioned**.  
 She **put away** the clothes. 
 Those are very **cogent** and reasonable conditions.  
 The U.S. and NATO view that as a complete non-**starter**.  
-
 Young children have difficulty **grasping** the finality of death.  
 An Australian court **quashed** the federal government’s revocation of Novak Djokovic’s visa, allowing the tennis star to defend his title in the Australian Open.  
-
 That Djokovic was allowed to play in the first place was greeted with a **torrent** of criticism by lockdown-weary Australians, who accused the tennis star of receiving **preferential** treatment.  
 You're gonna **rat me out** to Howard, aren't you?  
 
 
 ## Week 1 
 
-The **relics** were objects of **veneration**. -  
+The **relics** were objects of **veneration**.  
 **altar**  
 
 He refused to **give ground** on this issue.  
@@ -24,7 +71,7 @@ Hong Kong, meanwhile, is a world **unto** itself. Since the political problems t
 Rather than expect it to lead, Beijing is treating Hong Kong as something like an **ulcer**: a problem to manage away with hopefully not much more pain. -  
 a tropical island with a **splendid** geographic setting, featuring **a ring of** skyscrapers that hug thickly-forested mountains.  
 And there is still an interesting cast of characters, many of whom have adventured on the mainland or the rest of Asia, to **enliven** the city.  
-Therefore I think **there is little excuse** for young people to live in Hong Kong. -   
+Therefore I think **there is little excuse** for young people to live in Hong Kong.  
 One shouldn't **overdraw** the differences between these regions.  
 But I will **exaggerate** their differences as part of an exercise to **decompose** the **heterogeneity** behind Chinese growth.  
 When I’m in Beijing, I find myself **sympathizing** with the **Legalist school of philosophy**, which **enjoins** the ruler to govern with a **brutal fist**.  
@@ -70,7 +117,7 @@ That is a **dismal** **prospect**.
 **sombrero**  
 Talking too much is one of his **foibles**.  
 **electrocute**  
-What has he done to deserve that **termagant**? -  
+What has he done to deserve that **termagant**?  
 **cobra**  
 
 ## Week 5
@@ -106,7 +153,7 @@ If those factors were to ease, much of those fears could **dissipate**.
 
 the **cicada** has got me.  
 **razz**  
-They are two **streetwise** and **sassy** girls from Queens. -  
+They are two **streetwise** and **sassy** girls from Queens.  
 **mormon**  
 **head cold**  
 **arthritis**  
@@ -123,19 +170,19 @@ The traffic lights were **on amber**.
 **slapstick** comedy  
 Mind that cup, you **clumsy** **oaf**!  
 He is a **possessive**, **duplicitous**, and unreasonable man.  
-The **ruckus** **belies** a simple fact. -  
+The **ruckus** **belies** a simple fact.  
 
 Users were asked by each app if they are okay with being tracked across other apps and websites, bringing **seismic** changes to the nearly $100B mobile advertising market.  
 
 **crude** jokes  
 **reprise** their roles from the previous films.  
 Researchers have found that mental **abstinence** can backfire: trying not to think of something can trigger even more thoughts about it. -  
-The new “Matrix” film released this holiday season is a bit of a disaster, but while it **falls down on** action, characters, **pacing**, visuals and most other measures, it succeeds on a surprising one: having something **cogent** to say about our relationship with technology. -  
+The new “Matrix” film released this holiday season is a bit of a disaster, but while it **falls down on** action, characters, **pacing**, visuals and most other measures, it succeeds on a surprising one: having something **cogent** to say about our relationship with technology.  
 
 
 The first one is a Hamlet **soliloquy**. - 
 After much legal **disputation** our right to resign was established.  
-In the **sweltering** haze of summer-noon. -  
+In the **sweltering** haze of summer-noon.  
 My darling gone for **evermore**!  
 **Parliament** can make and **unmake** any law whatever.  
 edible **fungus**
@@ -154,14 +201,14 @@ In fact, I hear she's a real **ballbuster**.
 
 jade **bracelet**  
 The **antipathy** is mutual.  
-Her speech was memorable for its **polemic** rather than its substance. -  
+Her speech was memorable for its **polemic** rather than its substance.  
 **reparation**  
 They questioned the **veracity** of her story.  
 He was not a **prepossessing** in first sight.  
 **effeminate** behavior    
 **arthritis**  
 
-He likes girls that play the **coquette**. -  
+He likes girls that play the **coquette**.  
 He is a big, **ham-handed** man who used to be a football player.  
 **corridor**  
 He was seen **canoodling** with his new girlfriend.  
@@ -266,11 +313,11 @@ It involves a **neuroendocrine** effect and triggers our **fight-or-flight** res
 
 Why U.S. companies keep **caving** to China.  
 Semiconductor companies like AMD and Nvidia got particularly **thwacked**.  
-Global capitalism **abets** China's repression. -  
+Global capitalism **abets** China's repression.  
 The Chinese government wants this election to appear to be successful, as Beijing needs the **facade** of Hong Kong becoming more 'democratic.  
 Ever since China Evergrande started hinting at default this past fall, the biggest question for markets was how much of the sector will be **engulfed** in the crisis.  
 Unlike U.S. sanctions, which are publicly announced **de jure** sanctions typically enacted to uphold **multilateral** principles such as countering weapons proliferation and funding for terrorism, China's unfolding sanctions regime is **opaque** and usually deployed to uphold its narrow political interests.  
-From housing to child care to energy and education, the U.S. is **beset** by rising costs for the goods and services needed most. -  
+From housing to child care to energy and education, the U.S. is **beset** by rising costs for the goods and services needed most.  
 **Sparring** Over Taxes  
 Let’s change the **rigged** tax code so The Person of the Year will actually pay taxes and stop **freeloading** off everyone else.  
 Their eyes were full of friendliness and **bonhomie**.  
@@ -289,7 +336,7 @@ The bottom line: The market is **warped**. Throw historical norms **out the wind
 There could be a reverse **logjam** next year in Asia.  
 
 whisk **besom**  
-They came **panting up** to his door with their **unwieldy** baggage. -  
+They came **panting up** to his door with their **unwieldy** baggage.  
 There is not a **shred** of truth in the story.  
 He instructed staff to **shred** sensitive documents.  
 **corridor**  
