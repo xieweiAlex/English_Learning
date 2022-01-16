@@ -1,5 +1,12 @@
-## words-Dec.md ## 
-words/2021/words-Dec.md
+## words-Jan.md ##  
+words/2022/words-Jan.md  
+The coach **admonished** the girls for being lazy. -  
+**Celiac** (gluten intolerance). - 
+hospitals are financially incentivized to **attribute deaths to** Covid and that leaders have “**hypnotized**” the public into believing the vaccines work. -  
+On Wednesday, Nuro debuted its newest—and **eponymous**—delivery robot. -  
+The storm **wrought** **havoc** in the south. -   
+This **wishy-washy** statement always made me felt uneasy. -  
+The more **taste buds** you have, the more likely you are to **detest** **hoppy** beers. -  
 He **beguiled** me into signing this contract. -  
 The party now has an **unassailable** lead. -  
 I like to **putter** around in the garden.  - 
@@ -10,6 +17,9 @@ That is a **messianic** drive, complete with **sacred** texts, elaborate rituals
 The **apostles** who govern in Beijing know that nothing can be more **venal** than the interests of capitalists, who dominate Shanghai and Shenzhen. -  
 The meeting **engendered** several quarrels. -  
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
+
+## words-Dec.md ## 
+words/2021/words-Dec.md  
 Praise in public, **censure** in private, right? -  
 He delivered the speech with his usual **aplomb**. -  
 Researchers have found that mental **abstinence** can backfire: trying not to think of something can trigger even more thoughts about it. -  
@@ -24,5 +34,5 @@ The housing market is **moribund**. -
 He's a retired lieutenant colonel and a bit of a **martinet**. -  
 
 ## words-Nov.md ## 
-words/2021/words-Nov.md
+words/2021/words-Nov.md  
 He was so **mulish** that my **admonitions** just **flowed over** him. -  
