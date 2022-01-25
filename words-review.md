@@ -19,22 +19,16 @@ More than a third of the population was **destitute**. -
 There was nothing **portentous** or solemn about him. He was bubbling with humour. -  
 The hotel had always been run in a **slipshod** way. -  
 Fabricating data is a **heinous** scientific sin. -  
-They **eke out** a **precarious** existence **foraging** in rubbish **dumps**. -  
 Remove **extraneous** connection initialization. -  
 The two men managed to **elude** the police for six weeks. -  
-My new roommate is **bending over backwards** to **ingratiate himself to me**. -   
-**let the chips fall where they may**. -  
 She felt **boxed in** by all their petty rules. -   
 **cellist** -  
 Donald Trump is trashing Ron DeSantis in private as an **ingrate**. -  
 The two are among the most popular Republicans in the country, and as the former president eyes another run in 2024, he's **irked** by DeSantis' popularity and refusal to **rule out** running against him. -  
-Tcoalescehe coach **admonished** the girls for being lazy. -  
 Schools' COVID **synagogue** safe after 11-hour standoff. -  
-The talks ended in (a) **stalemate**. -  
 **Celiac** (gluten intolerance). - 
 hospitals are financially incentivized to **attribute deaths to** Covid and that leaders have “**hypnotized**” the public into believing the vaccines work. -  
 On Wednesday, Nuro debuted its newest—and **eponymous**—delivery robot. -  
-The storm **wrought** **havoc** in the south. -   
 This **wishy-washy** statement always made me felt uneasy. -  
 The more **taste buds** you have, the more likely you are to **detest** **hoppy** beers. -  
 He **beguiled** me into signing this contract. -  
@@ -46,13 +40,8 @@ I speak from the perspective of a cyclist, an **aggrieved** class everywhere. -
 That is a **messianic** drive, complete with **sacred** texts, elaborate rituals, and the occasional **purge**. -  
 The **apostles** who govern in Beijing know that nothing can be more **venal** than the interests of capitalists, who dominate Shanghai and Shenzhen. -  
 The meeting **engendered** several quarrels. -  
-His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
-My new roommate is **bending over backwards** to **ingratiate himself to me**. -   
-The customer doesn't **delineate** store versus online, that's Walmart experience. -  
 
 ## words-Dec.md ## 
 words/2021/words-Dec.md
 His political **ardor** led him into many arguments. -  
-Escape, can at least **ignoble** peace, year after year, until come to an end. -  
 I knew his help wouldn't be given **gratis**. -  
-He **pilfer** from a cash register. -  

@@ -159,7 +159,7 @@ He's always **boasting** about how clever his children are.
 **well-bred**  
 An **octagon** has eight sides.  
 
-Escape, can at least **ignoble** peace, year after year, until come to an end. -  
+Escape, can at least **ignoble** peace, year after year, until come to an end.  
 The beautiful and **dolorous** memory.  
 **derogatory**  
 John is such a **windbag**.  
@@ -300,7 +300,7 @@ questions have been raised about America’s moral authority to host such an eve
 **get out of hand** 
 **back down**  
 **barter** trade 
-He **pilfer** from a cash register. -  
+He **pilfer** from a cash register.  
 You don't have to call the **midwife** as soon as labour starts.  
 I just couldn't **wrap my head around it**.  
 They **flout** the most basic laws protecting the rights of workers.  

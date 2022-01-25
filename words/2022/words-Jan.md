@@ -1,7 +1,7 @@
 
 
-Slogans petrify our thinking.  
-dyspeptic symptom, dyspeptic vomiting.  
+Slogans **petrify** our thinking.  
+**dyspeptic** symptom, dyspeptic vomiting.  
 
 
 ## Week 3
@@ -75,7 +75,7 @@ The hotel had always been run in a **slipshod** way. -
 Fabricating data is a **heinous** scientific sin. -  
 Tom had finally **badgered** her into going.  
 earth **crust**, upper **crust**, **oceanic crust**  
-They **eke out** a **precarious** existence **foraging** in rubbish **dumps**. -  
+They **eke out** a **precarious** existence **foraging** in rubbish **dumps**.  
 
 Remove **extraneous** connection initialization. -  
 for **courier** delivery.  
@@ -90,8 +90,8 @@ He became an **unwitting** **accomplice** in the crime.
 An underwater volcano erupted in the Pacific Ocean on Saturday, raining ash on the nearby nation of Tonga and prompting tsunami **advisories** from Japan to California.  
 Malls and **big-box** stores have **proliferated**, while many older urban shopping districts have declined.   
 **Vectors of human diseases**.  
-My new roommate is **bending over backwards** to **ingratiate himself to me**. -   
-**let the chips fall where they may**. -  
+My new roommate is **bending over backwards** to **ingratiate himself to me**.  
+**let the chips fall where they may**.  
 
 She felt **boxed in** by all their petty rules. -   
 You should liberate the mind from **prejudice**.  
@@ -104,9 +104,9 @@ The two are among the most popular Republicans in the country, and as the former
 
 ## Week 2 
 
-Tcoalescehe coach **admonished** the girls for being lazy. -  
+Tcoalescehe coach **admonished** the girls for being lazy.  
 Schools' COVID **synagogue** safe after 11-hour standoff. -  
-The talks ended in (a) **stalemate**. -  
+The talks ended in (a) **stalemate**.  
 **forsake**   
 She **forsook** the glamour of the city and went to live in the wilds of Scotland.  
 She got **huffy** and left, then Wil and I headed out to dinner.  
@@ -128,7 +128,7 @@ The U.S. claims to have intelligence indicating that Russia is sending **saboteu
 Throat **swabs** will be required daily. In Tokyo, participants spit into **vials** for antigen tests.  
 
 
-The storm **wrought** **havoc** in the south. -   
+The storm **wrought** **havoc** in the south.  
 This **wishy-washy** statement always made me felt uneasy. -  
 He **bunched** the flowers and sold them.  
 We **bunched** around the fire for warmth.  
@@ -201,7 +201,7 @@ A **colony** of seals lay **basking** in the sun
 **attestation** services.  
 So is this just a Wall Street **trope**?  
 **headmaster**  
-His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
+His **dissolute** life is inconsistent with his **Puritan** upbringing.  
 
 **contractual** agreement.  
 many landlords are reasonable and understand that sometimes tenants need to relocate due to **extenuating** circumstances.  
@@ -223,11 +223,11 @@ What has he done to deserve that **termagant**?
 ### Conversations 
 
 He wasn't the **brightest** guy.  
-My new roommate is **bending over backwards** to **ingratiate himself to me**. -   
+My new roommate is **bending over backwards** to **ingratiate himself to me**.  
 
 As he puts it, omnichannel is the “term **du jour**” right now - but what exactly does it mean?
 I want that **optionality** and I want it to be easy. I think that's the big thing that we have to really be **maniacally** focused on.  
-The customer doesn't **delineate** store versus online, that's Walmart experience. -  
+The customer doesn't **delineate** store versus online, that's Walmart experience.  
 I know those things gonna be **paramount** for us.  
 
 a lots of builders are building **on spec**.  
