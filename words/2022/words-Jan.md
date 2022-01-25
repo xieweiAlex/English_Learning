@@ -1,10 +1,112 @@
 
+
+Slogans petrify our thinking.  
+dyspeptic symptom, dyspeptic vomiting.  
+
+
+## Week 3
+
+**gab** about DFW migration. -  
+His book destroyed the **mystique** of monarchy. -  
+
+The eggs quickly **hatch** into **larvae**. -  
+**dreadful**  
+**hectic**  
+**Scuff** marks from shoes are difficult to remove.  
+
+come out of the **woodwork**.  
+Low earth **orbit**.  
+It's unlikely she could have afforded this little **bauble** herself. -  
+When the rice isn't cooked properly it goes **lumpy** and **gooey**. -  
+A retrofit may involve putting in new door **jambs**. -  
+He takes **umbrage** against anyone who criticizes him. -   
+**unpalatable** but wholesome advice.  
+
+Kevin **capitulated**.  
+Its new deal to buy Activision Blizzard may **garner** it fresh scrutiny from regulators.
+**knapsack** problem  
+She's proud and stubborn, you know, under that **pliant** exterior.  
+As the wedding approached, the whole family went into **overdrive**.  
+Kids soon **glom onto** the latest trend.  
+**amorphous** metal  
+
+They could simply **steamroller** all opposition.  
+As space becomes an increasingly **egalitarian** place, I think we will look back who was the fist people did this?  
+
+The checklist for a superbubble running through its phases is now complete and the wild **rumpus** can begin at any time. -  
+When pessimism returns to markets, we face the largest potential **markdown** of perceived wealth in U.S. history.  
+the broadest and most extreme” bubble ever in global real estate and an “**incipient** bubble in commodity prices. -  
+Grantham is a **dyed-in-the-wool** value manager who’s been investing for 50 years and calling bubbles for almost as long.  
+
+She **importune** her husband for more money. -  
+My room looks very **untidy**.   
+We don't need to **stint** ourselves—have some more!  
+
+The role of **subservient** woman seems to be tied exclusively to Asians, and their “exotic” status tends to turn them into hyper-sexualized beings among other ethnicities.  
+energy **undulation**, **tidal** **undulation**.   
+even if it means I have to **cave in**.  
+I dislike **tardiness**.  
+
+Kate's new boyfriend is a very **couth** youth. -  
+**porcelain** enamel -   
+
+Would you **put away** your toys?   
+**erroneous**  
+Weather: Rain likely and **patchy fog**.  
+COVID pressures pushed the **underfunded** agency **over the edge**. "We’re running out of steam," the revenue agent said.  
+Omicron's **stranglehold** in the U.S. started about a month ago.  
+Its death toll — while almost certain to be smaller than previous waves of the pandemic — is only now starting to **take hold**.  
+The Omicron wave is already **receding** in the places where it first appeared: New cases are slowing down significantly in and around Boston, New York and D.C.  
+Rising rates on the German bund reflect how central banks are now **backing off** on the help.  
+
+A **pipe bomb** is an improvised explosive device, which uses a tightly sealed section of pipe filled with an explosive material.  
+The **containment** provided by the pipe means that simple low explosives can be used to produce a relatively large explosion, and the **fragmentation** of the pipe itself creates potentially lethal **shrapnel**. -  
+I already knew I was **unsightly** but I didn't realize how many things people didn't enjoy about me.  
+Bill Burr making fun of Europeans, meanwhile he's dressed like every **slavic** **hoodlum** I know. -  
+
+I'm notoriously a **cheapskate** most of the time but I did drop the money to buy anki.  
+**accommodative** monetary policy.  
+There's going to be so many **imbeciles** swimming underwater! LOL! -  
+More than a third of the population was **destitute**. -  
+She had a **blackout** and couldn't remember anything about the accident.  
+She was an **industrious** and willing worker.  
+There was nothing **portentous** or solemn about him. He was bubbling with humour. -  
+The hotel had always been run in a **slipshod** way. -  
+Fabricating data is a **heinous** scientific sin. -  
+Tom had finally **badgered** her into going.  
+earth **crust**, upper **crust**, **oceanic crust**  
+They **eke out** a **precarious** existence **foraging** in rubbish **dumps**. -  
+
+Remove **extraneous** connection initialization. -  
+for **courier** delivery.  
+
+Vaccination for smallpox is **efficacious**.  
+**slugfest**.  
+The two men managed to **elude** the police for six weeks. -  
+
+That’s the secret sauce of **worthwhile** change. So, let’s stay **resolute** and keep pushing forward.  
+He became an **unwitting** **accomplice** in the crime.  
+
+An underwater volcano erupted in the Pacific Ocean on Saturday, raining ash on the nearby nation of Tonga and prompting tsunami **advisories** from Japan to California.  
+Malls and **big-box** stores have **proliferated**, while many older urban shopping districts have declined.   
+**Vectors of human diseases**.  
+My new roommate is **bending over backwards** to **ingratiate himself to me**. -   
+**let the chips fall where they may**. -  
+
+She felt **boxed in** by all their petty rules. -   
+You should liberate the mind from **prejudice**.  
+**cellist** -  
+Malcolm looked at her as if she were a **raving** **lunatic**.  
+
+Donald Trump is trashing Ron DeSantis in private as an **ingrate**. -  
+The two are among the most popular Republicans in the country, and as the former president eyes another run in 2024, he's **irked** by DeSantis' popularity and refusal to **rule out** running against him. -  
+"He says DeSantis has no personal **charisma** and has a **dull personality**," the source added.  
+
 ## Week 2 
 
-The coach **admonished** the girls for being lazy. -  
-Schools' COVID **contortions**.  
-Texas **synagogue** safe after 11-hour standoff.  
-The talks ended in (a) **stalemate**.  
+Tcoalescehe coach **admonished** the girls for being lazy. -  
+Schools' COVID **synagogue** safe after 11-hour standoff. -  
+The talks ended in (a) **stalemate**. -  
 **forsake**   
 She **forsook** the glamour of the city and went to live in the wilds of Scotland.  
 She got **huffy** and left, then Wil and I headed out to dinner.  
@@ -116,4 +218,18 @@ Talking too much is one of his **foibles**.
 **electrocute**  
 What has he done to deserve that **termagant**?  
 **cobra**  
+
+
+### Conversations 
+
+He wasn't the **brightest** guy.  
+My new roommate is **bending over backwards** to **ingratiate himself to me**. -   
+
+As he puts it, omnichannel is the “term **du jour**” right now - but what exactly does it mean?
+I want that **optionality** and I want it to be easy. I think that's the big thing that we have to really be **maniacally** focused on.  
+The customer doesn't **delineate** store versus online, that's Walmart experience. -  
+I know those things gonna be **paramount** for us.  
+
+a lots of builders are building **on spec**.  
+I was **intrigued**.  
 

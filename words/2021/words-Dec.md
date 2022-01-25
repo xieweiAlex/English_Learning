@@ -1,4 +1,3 @@
-
 ## Week 5
 
 I could previously type around 80 to 100 WPM—not too **shabby**, but nothing amazing.  
@@ -37,14 +36,14 @@ They are two **streetwise** and **sassy** girls from Queens.
 **head cold**  
 **arthritis**  
 **windpipe**  
-Praise in public, **censure** in private, right? -  
+Praise in public, **censure** in private, right?  
 I'll do anything. I don't care how **menial** the task is.  
 **brass tacks**  
 She is such a **gregarious** and outgoing person.  
 Critics have accused him of **rabble**-rousing.  
 **common divisor**  
 Certain discomforts are **incidental** to the joys of **camping** out.  
-He delivered the speech with his usual **aplomb**. -  
+He delivered the speech with his usual **aplomb**.  
 The traffic lights were **on amber**.  
 **slapstick** comedy  
 Mind that cup, you **clumsy** **oaf**!  
@@ -55,11 +54,11 @@ Users were asked by each app if they are okay with being tracked across other ap
 
 **crude** jokes  
 **reprise** their roles from the previous films.  
-Researchers have found that mental **abstinence** can backfire: trying not to think of something can trigger even more thoughts about it. -  
+Researchers have found that mental **abstinence** can backfire: trying not to think of something can trigger even more thoughts about it.  
 The new “Matrix” film released this holiday season is a bit of a disaster, but while it **falls down on** action, characters, **pacing**, visuals and most other measures, it succeeds on a surprising one: having something **cogent** to say about our relationship with technology.  
 
 
-The first one is a Hamlet **soliloquy**. - 
+The first one is a Hamlet **soliloquy**.  
 After much legal **disputation** our right to resign was established.  
 In the **sweltering** haze of summer-noon.  
 My darling gone for **evermore**!  
@@ -121,11 +120,11 @@ We expect politicians to **defame** each other in an election year.
 
 That calculus looks **demonstrably** worse in many parts of America.  
 I like to **macerate** the food in liqueur for a few minutes before serving.  
-The film **mercilessly** **castigates** the old society. -  
+The film **mercilessly** **castigates** the old society.  
 **tempestuous**  
 He was an **exacting** man to work for.  
 They **contrived** a plan to **defraud** the company.  
-Their quarterly meetings were **anodyne affairs**. -  
+Their quarterly meetings were **anodyne affairs**.  
 **perpetrate**  
 **inglorious**  
 **clavicle** hook.  
@@ -314,9 +313,9 @@ The guy's a **chump**. I could do a better job myself.
 **conducive**  
 
 Apple's Tim Cook signed $27 bln deal with Chinese officals to **placate** China.  
-The housing market is **moribund**. -  
+The housing market is **moribund**.  
 He used striking visuals to **get his point across**.  
-He's a retired lieutenant colonel and a bit of a **martinet**. -  
+He's a retired lieutenant colonel and a bit of a **martinet**.  
 The standards have been raised. The **clarion** has sounded.  
 His **tightfisted** employer is unwilling to give him a raise.  
 

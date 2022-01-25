@@ -6,7 +6,7 @@ Twitter only snagged $3.7 billion in revenue last year, while Meta **raked in** 
 America will be especially reluctant to let the bank **open the taps**, despite the escalating crisis faced by ordinary Afghans.  
 Despite its oil wealth, Russia is increasingly **reliant on** the West.  
 
-He was so **mulish** that my **admonitions** just **flowed over** him. -  
+He was so **mulish** that my **admonitions** just **flowed over** him.  
 **indispensable**  
 The **imbroglio** overshadowed Tesla hitting its production targets for the Model 3 for the first time.  
 It’s impolite to **gibe at** a foreign student’s English.  
@@ -338,7 +338,6 @@ I grew to dislike the people from my background – they were **uptight** and **
 **armistice** day  
 In the **cloister**, hell is accepted in advance as a **post obit** on paradise.  
 The only road access is a **tortuous** mountain route.  
-Malcolm looked at her as if she were a **raving** **lunatic**.  
 Each and every one of these soldiers has proved his **mettle**.  
 In my fever I had a long consistent **delirium**.  
 She wrote in an original and highly **erudite** style.

@@ -336,7 +336,6 @@ return to **normalcy**
 White House **concedes** US lacks enough test kits  
 
 IATA Chief Economist Brian Pearce said that because many airlines are loaded up with debt and barely **eke out** profits as it is, they’re not exactly in **fighting shape**.    
-They **eke out** a **precarious** existence **foraging** in rubbish **dumps**.  
 
 U.N. officials say the current **locust** **infestation** is the worst they've seen in 25 years.  
 FAO and U.N. Secretary-General António Guterres have pointed to climate change as an **underpinning** factor in the locust **outbreak**.  

@@ -3,19 +3,22 @@
 Expanding vocabulary for a non native-speaker is tedious and time-consuming. I try to record the **words or phrases** I encounter everyday with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight, if it can inspire someone else, that's even better 💖.  
 
 
-### Dec/Jan 
+### Jan 
 [Words Review](./words-review.md)
 
-[Words](./words/2021/words-Dec.md) |
-[Special word](./special/2021/special-words-Nov.md) |
-[Phrase](./special/2021/phrase-Nov.md) |
-[Verb](./special/2021/verb-special-Q4.md)
+[Words](./words/2022/words-Jan.md) |
+[Special word](./special/2022/special-words-Jan.md) |
+[Phrase](./special/2022/phrase-Jan.md) |
+[Verb](./special/2022/verb-special-Q1.md)
 
 [SeinField](./media/seinfeld.md)
-
 [Impromptu](./impromptu.md)
 
 ### Prior 
+
+Dec | 
+[Words](./words/2021/words-Dec.md) |
+
 
 Nov | 
 [Words](./words/2021/words-Dec.md) |
