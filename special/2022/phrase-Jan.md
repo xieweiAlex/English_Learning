@@ -1,3 +1,5 @@
+I like to **putter** around in the garden.   
+
 I'm not going to **opine on** who's right or who's wrong on this one.  
 They **eke out** a **precarious** existence **foraging** in rubbish **dumps**. -  
 Rising rates on the German bund reflect how central banks are now **backing off** on the help.  

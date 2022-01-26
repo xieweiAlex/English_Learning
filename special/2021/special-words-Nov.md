@@ -1,10 +1,3 @@
-
-
-
-**flat-out** 
-
-**flipside**
-
 ## Week 5 
 
 **shabby**

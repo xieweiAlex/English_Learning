@@ -1,4 +1,16 @@
 
+When the safes finally open like magic industrial machines, the sight of millions of dollars piled inside is actually an anticlimax.  
+a sense of anticlimax and incipient boredom.  
+
+
+
+you tackle your daily exercise requirements before the hustle and bustle of the day, which helps eliminate excuses.  
+
+the culmination of a six-year effort to turn Zhangjiakou into China’s version of the Alps, creating an upscale winter holiday destination in the hopes of lifting an agricultural region out of poverty.  
+Bitcoin turns 13 this year. It's no longer on the fringes of finance.  
+State of play: Bitcoin’s latest selloff parallels the recent stock market declines stemming from the Federal Reserve’s hawkish pivot (it even rode the same rollercoaster equities did yesterday).  
+That stems from the fact that they tend to have high price-to-earnings ratios and typically pay little in the way of dividends.  
+
 
 Slogans **petrify** our thinking.  
 **dyspeptic** symptom, dyspeptic vomiting.  
@@ -28,7 +40,7 @@ Its new deal to buy Activision Blizzard may **garner** it fresh scrutiny from re
 She's proud and stubborn, you know, under that **pliant** exterior.  
 As the wedding approached, the whole family went into **overdrive**.  
 Kids soon **glom onto** the latest trend.  
-**amorphous** metal  
+**amorphous** metal. -  
 
 They could simply **steamroller** all opposition.  
 As space becomes an increasingly **egalitarian** place, I think we will look back who was the fist people did this?  
@@ -48,7 +60,7 @@ even if it means I have to **cave in**.
 I dislike **tardiness**.  
 
 Kate's new boyfriend is a very **couth** youth. -  
-**porcelain** enamel -   
+**porcelain** enamel  
 
 Would you **put away** your toys?   
 **erroneous**  
@@ -105,7 +117,7 @@ The two are among the most popular Republicans in the country, and as the former
 ## Week 2 
 
 Tcoalescehe coach **admonished** the girls for being lazy.  
-Schools' COVID **synagogue** safe after 11-hour standoff. -  
+Schools' COVID **synagogue** safe after 11-hour standoff.  
 The talks ended in (a) **stalemate**.  
 **forsake**   
 She **forsook** the glamour of the city and went to live in the wilds of Scotland.  
@@ -113,10 +125,10 @@ She got **huffy** and left, then Wil and I headed out to dinner.
 
 > the default was that each day you had a three-hour chunk of time when you were at your best to really move the needle  
 
-**Celiac** (gluten intolerance). - 
+**Celiac** (gluten intolerance).  
 
 hospitals are financially incentivized to **attribute deaths to** Covid and that leaders have “**hypnotized**” the public into believing the vaccines work. -  
-On Wednesday, Nuro debuted its newest—and **eponymous**—delivery robot. -  
+On Wednesday, Nuro debuted its newest—and **eponymous**—delivery robot.  
 It's also acknowledging the president’s approval rating is well **underwater** — just not as deep as Quinnipiac found.  
 The **drumbeat** of war is sounding loud and the rhetoric has gotten rather **shrill**."  
 I'm not going to **opine on** who's right or who's wrong on this one.  
@@ -164,7 +176,7 @@ The **relics** were objects of **veneration**.
 He refused to **give ground** on this issue.  
 The party now has an **unassailable** lead. -  
 
-I like to **putter** around in the garden.  - 
+I like to **putter** around in the garden.  
 The city hosts the **preponderance** of the Chinese headquarters of multinationals. -  
 Hong Kong, meanwhile, is a world **unto** itself. Since the political problems there over the last three years, the central government has made it obvious that it can think of the city only with **exasperation**.  
 Rather than expect it to lead, Beijing is treating Hong Kong as something like an **ulcer**: a problem to manage away with hopefully not much more pain. -  
@@ -232,4 +244,7 @@ I know those things gonna be **paramount** for us.
 
 a lots of builders are building **on spec**.  
 I was **intrigued**.  
+
+These cities really benefited from some of the **frivolous** behavior that occurred in tech.  
+
 
