@@ -1,4 +1,8 @@
 
+**snippy**
+
+**upscale**
+
 **lousy** 
 
 **choppy** 

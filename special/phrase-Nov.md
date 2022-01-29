@@ -15,7 +15,6 @@ My children **stay out of** the **limelight**.
 I'm not trying to **throw a wrench** in the works.  
 You're just afraid I'm gonna **stand you up** again.  
 If I can **get under his skin** in less than an hour, how do you think he'll **hold up** under the press?  
-I gave up my job because I felt I was stuck **in a rut**.   
 She took a **dim view** of my suggestion   
 I’m not **going out on a limb** to advocate significant patience  
 Literally. Because people living near parks or gardens seem to have a **leg up**.  

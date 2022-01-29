@@ -1,20 +1,59 @@
 
-When the safes finally open like magic industrial machines, the sight of millions of dollars piled inside is actually an anticlimax.  
-a sense of anticlimax and incipient boredom.  
+I gave up my job because I felt I was stuck **in a rut**.   
+During the **rutting season** the big boars have the most terrible mating battles.  
+
+Facebook's (FB) grand plan to bring cryptocurrency, or more specifically stablecoins, to the social network's billions of users has reportedly **gone up in smoke**.   
+That has helped drive many of the explosive valuations we see today, however, the prospect of higher interest rates is starting to **weigh on** the sentiment.  
+
+Love this guy, he's honest, straight **to the point**. He doesn't present any bull sh*t.  
+
+**plyos**, Plyometric Training 
+
+That young boy of hers is **quite a handful**. -  
+your **regnal** name.  
+more room in the **crisper**. -  
+
+The newspapers **fulminate** against the crime. -  
+Todd could take it, whereas I'm **harrowed** by it.  
+**Pathologic** **physiology**.  
+**talk to a wall**  
+Targeted violence such as workplace violence isn’t necessarily a **spur-of-the-moment** decision.  
+Vocalizes a **grievance** toward someone else.  
+Peter is going through a challenging divorce, and his behavior at work has been **erratic** day to day. -  
 
 
+Your sense of urgency and **poise** under pressure is supremely appreciated!
+The enemy was put to **rout** all along the line. -  
 
-you tackle your daily exercise requirements before the hustle and bustle of the day, which helps eliminate excuses.  
+He knows his predictions are **fodder** for skeptics. One obvious question: How could the S&P 500 advance 26.9% in 2021 -- its seventh-best performance in 50 years -- if stocks were poised to plummet?  
+Everything has consequences and the consequences this time may or may not include some **intractable**.   inflation.  
 
-the culmination of a six-year effort to turn Zhangjiakou into China’s version of the Alps, creating an upscale winter holiday destination in the hopes of lifting an agricultural region out of poverty.  
-Bitcoin turns 13 this year. It's no longer on the fringes of finance.  
-State of play: Bitcoin’s latest selloff parallels the recent stock market declines stemming from the Federal Reserve’s hawkish pivot (it even rode the same rollercoaster equities did yesterday).  
-That stems from the fact that they tend to have high price-to-earnings ratios and typically pay little in the way of dividends.  
 
+They accused her of an **incestuous** relationship with her father. -  
+a **truculent** speech against the new government. -  
+
+Tesla was also **vague** about the future of its long-delayed electric Cybertruck, only noting it is “making progress on the industrialization” of the vehicle.  
+Alas, that consensus seems **a long way off**.  
+
+She became **neurotic** about keeping the house clean.  
+**borderline** personality disorder  
+Time **blunts** the edge of sorrow.  
+The smallish birds have an **unsavory** habit: they dive-bomb intruders and **defecate** on them as a defense.  
+The **onus** of proof lies with you. -  
+
+
+When the safes finally open like magic industrial machines, the sight of millions of dollars piled inside is actually an **anticlimax**.  
+a sense of **anticlimax** and **incipient** boredom. -  
+
+you tackle your daily exercise requirements before the **hustle and bustle** of the day, which helps eliminate excuses.  
+
+the **culmination** of a six-year effort to turn Zhangjiakou into China’s version of the **Alps**, creating an **upscale** winter holiday destination in the hopes of lifting an agricultural region out of poverty.  
+Bitcoin turns 13 this year. It's no longer **on the fringes of** finance.  
+**State of play**: Bitcoin’s latest selloff **parallels** the recent stock market declines **stemming from** the Federal Reserve’s hawkish pivot (it even rode the same rollercoaster equities did yesterday).  
+That **stems from** the fact that they tend to have high price-to-earnings ratios and typically pay little in the way of dividends.  
 
 Slogans **petrify** our thinking.  
-**dyspeptic** symptom, dyspeptic vomiting.  
-
+**dyspeptic** symptom, dyspeptic vomiting. -  
 
 ## Week 3
 
@@ -54,7 +93,7 @@ She **importune** her husband for more money. -
 My room looks very **untidy**.   
 We don't need to **stint** ourselves—have some more!  
 
-The role of **subservient** woman seems to be tied exclusively to Asians, and their “exotic” status tends to turn them into hyper-sexualized beings among other ethnicities.  
+The role of **subservient** woman seems to be tied exclusively to Asians, and their “exotic” status tends to turn them into hyper-sexualized beings among other ethnicities. -  
 energy **undulation**, **tidal** **undulation**.   
 even if it means I have to **cave in**.  
 I dislike **tardiness**.  
@@ -246,5 +285,12 @@ a lots of builders are building **on spec**.
 I was **intrigued**.  
 
 These cities really benefited from some of the **frivolous** behavior that occurred in tech.  
+I will **refute** you later.  
+don't be **snippy**, I came to see how you're doing.  
 
+**Where were we**?  
+when 30 repetitions of these aren't even able to make your arm **quiver** anymore?  
+well, we still stick with the same theme of **tempo** but we move on to a more challenging exercise 
+
+So please try to avoid wasting her time with female **jibber** **jabber**.  
 

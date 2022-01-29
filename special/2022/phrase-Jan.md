@@ -1,3 +1,7 @@
+That has helped drive many of the explosive valuations we see today, however, the prospect of higher interest rates is starting to **weigh on** the sentiment.  
+Facebook's (FB) grand plan to bring cryptocurrency, or more specifically stablecoins, to the social network's billions of users has reportedly **gone up in smoke**.   
+I gave up my job because I felt I was stuck **in a rut**.   
+That **stems from** the fact that they tend to have high price-to-earnings ratios and typically pay little in the way of dividends.  
 I like to **putter** around in the garden.   
 
 I'm not going to **opine on** who's right or who's wrong on this one.  
