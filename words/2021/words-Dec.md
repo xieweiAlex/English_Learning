@@ -153,7 +153,7 @@ Somewhere **imbued** with calm and resilience.
 
 There is just a bit of **multiplication** and **modulus calculation** going on.  
 She was a **hard-bitten** journalist who was suspicious of all forms of authority.  
-His political **ardor** led him into many arguments. -  
+His political **ardor** led him into many arguments.  
 She displayed great **ardor** for art.  
 He's always **boasting** about how clever his children are.  
 **well-bred**  

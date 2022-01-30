@@ -1,10 +1,22 @@
 
+
+**Topography** of USA.  
+Real estate is one way to make potentially **ephemeral** wealth feel more comparable to other kinds.  
+It is **reductive** to think of Russia as a **petrostate**, but if you do **indulge in** that simplification you must recognize that it is a strategic petrostate more like UAE or Saudi than an Iraq, or **Algeria**.  
+But, in the end, as I **conceded** a year ago, not talking about this **morbid** symptom feels like a **cop out**. So, periodically, you have to. -  
+(You're not going to **cop out** at the last minute, are you?) 
+
+
+He caught them **in the sack** together.  
+Is it a **bona fide**, reputable organization?  
+I do **not** shirk any responsibility in this matter. -  
+Civilian trap in the **beleaguer** city has been **airlifted** to safety.  
+
 I gave up my job because I felt I was stuck **in a rut**.   
 During the **rutting season** the big boars have the most terrible mating battles.  
 
 Facebook's (FB) grand plan to bring cryptocurrency, or more specifically stablecoins, to the social network's billions of users has reportedly **gone up in smoke**.   
 That has helped drive many of the explosive valuations we see today, however, the prospect of higher interest rates is starting to **weigh on** the sentiment.  
-
 Love this guy, he's honest, straight **to the point**. He doesn't present any bull sh*t.  
 
 **plyos**, Plyometric Training 
@@ -21,13 +33,11 @@ Targeted violence such as workplace violence isn’t necessarily a **spur-of-the
 Vocalizes a **grievance** toward someone else.  
 Peter is going through a challenging divorce, and his behavior at work has been **erratic** day to day. -  
 
-
 Your sense of urgency and **poise** under pressure is supremely appreciated!
 The enemy was put to **rout** all along the line. -  
 
 He knows his predictions are **fodder** for skeptics. One obvious question: How could the S&P 500 advance 26.9% in 2021 -- its seventh-best performance in 50 years -- if stocks were poised to plummet?  
-Everything has consequences and the consequences this time may or may not include some **intractable**.   inflation.  
-
+Everything has consequences and the consequences this time may or may not include some **intractable**.   
 
 They accused her of an **incestuous** relationship with her father. -  
 a **truculent** speech against the new government. -  
@@ -40,7 +50,6 @@ She became **neurotic** about keeping the house clean.
 Time **blunts** the edge of sorrow.  
 The smallish birds have an **unsavory** habit: they dive-bomb intruders and **defecate** on them as a defense.  
 The **onus** of proof lies with you. -  
-
 
 When the safes finally open like magic industrial machines, the sight of millions of dollars piled inside is actually an **anticlimax**.  
 a sense of **anticlimax** and **incipient** boredom. -  
@@ -58,7 +67,7 @@ Slogans **petrify** our thinking.
 ## Week 3
 
 **gab** about DFW migration. -  
-His book destroyed the **mystique** of monarchy. -  
+His book destroyed the **mystique** of monarchy.  
 
 The eggs quickly **hatch** into **larvae**. -  
 **dreadful**  
@@ -86,7 +95,7 @@ As space becomes an increasingly **egalitarian** place, I think we will look bac
 
 The checklist for a superbubble running through its phases is now complete and the wild **rumpus** can begin at any time. -  
 When pessimism returns to markets, we face the largest potential **markdown** of perceived wealth in U.S. history.  
-the broadest and most extreme” bubble ever in global real estate and an “**incipient** bubble in commodity prices. -  
+the broadest and most extreme” bubble ever in global real estate and an “**incipient** bubble in commodity prices.  
 Grantham is a **dyed-in-the-wool** value manager who’s been investing for 50 years and calling bubbles for almost as long.  
 
 She **importune** her husband for more money. -  
@@ -111,7 +120,7 @@ The Omicron wave is already **receding** in the places where it first appeared: 
 Rising rates on the German bund reflect how central banks are now **backing off** on the help.  
 
 A **pipe bomb** is an improvised explosive device, which uses a tightly sealed section of pipe filled with an explosive material.  
-The **containment** provided by the pipe means that simple low explosives can be used to produce a relatively large explosion, and the **fragmentation** of the pipe itself creates potentially lethal **shrapnel**. -  
+The **containment** provided by the pipe means that simple low explosives can be used to produce a relatively large explosion, and the **fragmentation** of the pipe itself creates potentially lethal **shrapnel**.  
 I already knew I was **unsightly** but I didn't realize how many things people didn't enjoy about me.  
 Bill Burr making fun of Europeans, meanwhile he's dressed like every **slavic** **hoodlum** I know. -  
 
@@ -123,7 +132,7 @@ She had a **blackout** and couldn't remember anything about the accident.
 She was an **industrious** and willing worker.  
 There was nothing **portentous** or solemn about him. He was bubbling with humour. -  
 The hotel had always been run in a **slipshod** way. -  
-Fabricating data is a **heinous** scientific sin. -  
+Fabricating data is a **heinous** scientific sin.  
 Tom had finally **badgered** her into going.  
 earth **crust**, upper **crust**, **oceanic crust**  
 They **eke out** a **precarious** existence **foraging** in rubbish **dumps**.  
@@ -144,9 +153,9 @@ Malls and **big-box** stores have **proliferated**, while many older urban shopp
 My new roommate is **bending over backwards** to **ingratiate himself to me**.  
 **let the chips fall where they may**.  
 
-She felt **boxed in** by all their petty rules. -   
+She felt **boxed in** by all their petty rules.  
 You should liberate the mind from **prejudice**.  
-**cellist** -  
+**cellist**  
 Malcolm looked at her as if she were a **raving** **lunatic**.  
 
 Donald Trump is trashing Ron DeSantis in private as an **ingrate**. -  
@@ -213,12 +222,12 @@ The **relics** were objects of **veneration**.
 **altar**  
 
 He refused to **give ground** on this issue.  
-The party now has an **unassailable** lead. -  
+The party now has an **unassailable** lead.  
 
 I like to **putter** around in the garden.  
 The city hosts the **preponderance** of the Chinese headquarters of multinationals. -  
 Hong Kong, meanwhile, is a world **unto** itself. Since the political problems there over the last three years, the central government has made it obvious that it can think of the city only with **exasperation**.  
-Rather than expect it to lead, Beijing is treating Hong Kong as something like an **ulcer**: a problem to manage away with hopefully not much more pain. -  
+Rather than expect it to lead, Beijing is treating Hong Kong as something like an **ulcer**: a problem to manage away with hopefully not much more pain.  
 a tropical island with a **splendid** geographic setting, featuring **a ring of** skyscrapers that hug thickly-forested mountains.  
 And there is still an interesting cast of characters, many of whom have adventured on the mainland or the rest of Asia, to **enliven** the city.  
 Therefore I think **there is little excuse** for young people to live in Hong Kong.  
@@ -237,7 +246,7 @@ with the uncertainty of not knowing which might be confiscated by Chinese custom
 We think that's a **vestige** of tech and telecom bubble  
 We cannot simply rip and **replace** legacy assets.  
 
-The meeting **engendered** several quarrels. -  
+The meeting **engendered** several quarrels.  
 Fight against **hypochondria**.  
 They can get **worked up** and irrational sometimes.
 He uses **hypnosis** as part of the treatment.  

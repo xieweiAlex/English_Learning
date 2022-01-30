@@ -1,4 +1,6 @@
 
+* beset vs beleaguer
+
 * groovy
 * sedulous
 * queasy vs nauseous  
