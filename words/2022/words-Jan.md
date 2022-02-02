@@ -1,4 +1,48 @@
 
+**hit the skids**
+The car **skids**, the tires screech.  
+The stone burnishes well.  
+It also helps burnish his public image.  
+Angola is a beautiful, rich yet calamitous country.  
+Chinese zodiac, zodiac sign  
+The president was in a **pugnacious** mood when he spoke to journalists about the rebellion. -  
+
+
+> Our dog passed away few hours before this was taken. -  
+
+
+I am not sure what it is, but I often encounter people who have become obsessed with preparing for the collapse - it is a seductive concept.
+Along with most other companies, GameStop and AMC shares have taken a beating in 2022, and both are down at least 35% year-to-date.  
+But fake snow can have real problems. Remember all that water that goes into making it? It’s putting added strain on water supplies in an already arid region.  
+Athletes going to the Beijing Olympics have been told by cybersecurity firms to use burner phones to avoid getting snooped on.  
+
+
+She is devious and sly and manipulative.  
+If you aren’t in great shape already, choose another workout before taking a stab at this one, which may cause injuries if you’re not used to moves like these.  
+
+Big leveraged buyouts are continuing apace this year as well, with private equity firms Elliott Management and Vista Equity nearing an agreement to purchase Citrix Systems (CTXS) for about $13B.  
+"The buy the dip mentality has been obliterated in the market," declared Bill Gross, the founder and former chief investment officer of PIMCO.  
+
+## Week 4 
+
+**Effeminate** behaviour.  
+
+He didn't get married until he was **well into** his forties. 
+
+As the stock-trading screens turned red, one trader was heard to **quip** that at least some things are falling in price. -  
+The result is 7% inflation that is **sapping** Americans' confidence and Biden’s popularity.  
+
+Foreign athletes will be isolated from almost all locals, **lest** they spread coronavirus and threaten China’s strict zero-covid approach. -  
+his attendance record's a little **spotty**.  
+
+Something gave a loud **discordant** **twang**.  
+It's **alimony** I got from my husband.  
+His lies made her **bristle with rage**.  
+The brush is made of animal **bristles**.  
+Her face showed her **dejection** at missing the party. -  
+Everyone has days when they feel **dejected** or down
+He seemed a bit **subdued** to me. -  
+The lighting was **subdued**.  
 
 **Topography** of USA.  
 Real estate is one way to make potentially **ephemeral** wealth feel more comparable to other kinds.  
@@ -9,7 +53,7 @@ But, in the end, as I **conceded** a year ago, not talking about this **morbid**
 
 He caught them **in the sack** together.  
 Is it a **bona fide**, reputable organization?  
-I do **not** shirk any responsibility in this matter. -  
+I do not **shirk** any responsibility in this matter. -  
 Civilian trap in the **beleaguer** city has been **airlifted** to safety.  
 
 I gave up my job because I felt I was stuck **in a rut**.   
@@ -19,7 +63,7 @@ Facebook's (FB) grand plan to bring cryptocurrency, or more specifically stablec
 That has helped drive many of the explosive valuations we see today, however, the prospect of higher interest rates is starting to **weigh on** the sentiment.  
 Love this guy, he's honest, straight **to the point**. He doesn't present any bull sh*t.  
 
-**plyos**, Plyometric Training 
+**plyos**, **Plyometric** Training 
 
 That young boy of hers is **quite a handful**. -  
 your **regnal** name.  
@@ -93,7 +137,7 @@ Kids soon **glom onto** the latest trend.
 They could simply **steamroller** all opposition.  
 As space becomes an increasingly **egalitarian** place, I think we will look back who was the fist people did this?  
 
-The checklist for a superbubble running through its phases is now complete and the wild **rumpus** can begin at any time. -  
+The checklist for a superbubble running through its phases is now complete and the wild **rumpus** can begin at any time.  
 When pessimism returns to markets, we face the largest potential **markdown** of perceived wealth in U.S. history.  
 the broadest and most extreme” bubble ever in global real estate and an “**incipient** bubble in commodity prices.  
 Grantham is a **dyed-in-the-wool** value manager who’s been investing for 50 years and calling bubbles for almost as long.  
@@ -126,7 +170,7 @@ Bill Burr making fun of Europeans, meanwhile he's dressed like every **slavic** 
 
 I'm notoriously a **cheapskate** most of the time but I did drop the money to buy anki.  
 **accommodative** monetary policy.  
-There's going to be so many **imbeciles** swimming underwater! LOL! -  
+There's going to be so many **imbeciles** swimming underwater! LOL!  
 More than a third of the population was **destitute**. -  
 She had a **blackout** and couldn't remember anything about the accident.  
 She was an **industrious** and willing worker.  
@@ -159,7 +203,7 @@ You should liberate the mind from **prejudice**.
 Malcolm looked at her as if she were a **raving** **lunatic**.  
 
 Donald Trump is trashing Ron DeSantis in private as an **ingrate**. -  
-The two are among the most popular Republicans in the country, and as the former president eyes another run in 2024, he's **irked** by DeSantis' popularity and refusal to **rule out** running against him. -  
+The two are among the most popular Republicans in the country, and as the former president eyes another run in 2024, he's **irked** by DeSantis' popularity and refusal to **rule out** running against him.  
 "He says DeSantis has no personal **charisma** and has a **dull personality**," the source added.  
 
 ## Week 2 
@@ -175,7 +219,7 @@ She got **huffy** and left, then Wil and I headed out to dinner.
 
 **Celiac** (gluten intolerance).  
 
-hospitals are financially incentivized to **attribute deaths to** Covid and that leaders have “**hypnotized**” the public into believing the vaccines work. -  
+hospitals are financially incentivized to **attribute deaths to** Covid and that leaders have “**hypnotized**” the public into believing the vaccines work.  
 On Wednesday, Nuro debuted its newest—and **eponymous**—delivery robot.  
 It's also acknowledging the president’s approval rating is well **underwater** — just not as deep as Quinnipiac found.  
 The **drumbeat** of war is sounding loud and the rhetoric has gotten rather **shrill**."  
@@ -234,7 +278,7 @@ Therefore I think **there is little excuse** for young people to live in Hong Ko
 One shouldn't **overdraw** the differences between these regions.  
 But I will **exaggerate** their differences as part of an exercise to **decompose** the **heterogeneity** behind Chinese growth.  
 When I’m in Beijing, I find myself **sympathizing** with the **Legalist school of philosophy**, which **enjoins** the ruler to govern with a **brutal fist**.  
-I speak from the perspective of a cyclist, an **aggrieved** class everywhere. -  
+I speak from the perspective of a cyclist, an **aggrieved** class everywhere.  
 That is a **messianic** drive, complete with **sacred** texts, elaborate rituals, and the occasional **purge**. -  
 **Politburo**  
 Chen noted that his home region was filled with opportunists who would destroy the social order **for a dime**.  

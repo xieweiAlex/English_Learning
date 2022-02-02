@@ -22,7 +22,7 @@ The **curfew** takes effect at midnight
 The republics want **secession** from the union.    
 This sign **presage** rains. -  
 hold **discourse** with sb  
-a **discourse** on critical theory. -  
+a **discourse** on critical theory.  
 a **pat** of butter  
 I had no idea of the **gaffe** which I was committing  
 **rubble concrete**  
@@ -38,10 +38,10 @@ I found that for some reason I had a **propensity** for Japanese more than other
 a **propensity** for exaggeration  
 There isn't much **prejudice** here.  
 **evil cult**  
-**Gregorian** calendar. -  
+**Gregorian** calendar.  
   
 I eventually got an apartment after 9 months and I left the half-way house to start my 3 years of **mandatory parole**  
-Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.  -  
+Part of me wanted to just give up and **consign** myself to working fastfood and living in a **crappy** apartment.  
 She thought that was funny so we started talking. Dammit! I **digress** again!!!  
 Almost losing her again because she wasn’t gaining weight, feelings of being a fraud and **inadequacy**.  
 So especially if you have a “**checkered**” past and need some help especially with finding a job I can probably help  
@@ -85,12 +85,12 @@ For the first few weeks of a chick’s life, its mother’s **beak** is its **so
 It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
    
 President Donald trump’s decision to brag in a tweet about the size of his “nuclear button” compared with North Korea’s was widely condemned as **bellicose** and **reckless**  
-be in a **bellicose** mood. -  
+be in a **bellicose** mood.  
 Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health. -  
 I've come to believe there should be a role for professional evaluation beyond speculating from **afar**  
   
 ## Week 3  
-**Overture** conditions for a **cease** fire. -  
+**Overture** conditions for a **cease** fire.  
 Their government is making **overtures** for peace  
 The officer **disbanded** the club  
 Reached an **impasses** in the negotiations.  
@@ -109,7 +109,7 @@ adjusting **valve**, air release **valve**, air supply **valve**
 **statutory** holiday, **statutory** law  
 commercial **offshoots** of universities  
 an **offshoot** of a large company  
-A few Arab leaders recognize that water and energy **profligacy** must be **curbed** if ecological disaster is to be avoided. -  
+A few Arab leaders recognize that water and energy **profligacy** must be **curbed** if ecological disaster is to be avoided.  
 **biblical** **theology**  
 the development of **Unitarian** **theology** -  
 The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
@@ -167,7 +167,7 @@ So superior that tests are **inconsequential** to quality -
    
 Guo was a very high-ranking military official, but my next example of somebody **amassing** enough **ill-gotten** cash to fill a truck involves a man who was just a **low-ranking**, very ordinary government official  
 When this guy was **on the run** he pretended to be a farmer going to market with a truck load of vegetables  
-All this cash comes out of the collection plate that is passed among the **congregation** of ordinary people who come to **worship** at the **altar** of power -  
+All this cash comes out of the collection plate that is passed among the **congregation** of ordinary people who come to **worship** at the **altar** of power  
 The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
 There are **toxins** in our baby **formula**  
    
@@ -177,7 +177,7 @@ She **weaned** herself **from** cigarettes.
 The surprise I had planned **backfired** on me  
 His **scheme** to win the girl **backfired** and she went to another guy. -  
 When they tried to cross the **marsh**, their shoes sank into the soft ground  
-**lame duck** -  
+**lame duck**  
 He is **lame** for both legs  
 **pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
 **pander** to the **vulgar** taste -  
@@ -217,9 +217,9 @@ They **hastened** to Kobe to rejoin the ship
 there is a **hitch** somewhere  
 a **radically** different approach  
 **affiliation need**  
-the group has no **affiliation** to any preservation society -  
+the group has no **affiliation** to any preservation society  
 The juggler performed **atop** a **unicycle**  
-The customer service rep is usually a small **cog** in a big machine -  
+The customer service rep is usually a small **cog** in a big machine  
    
    
 this is an **uncertain** time  
@@ -254,7 +254,7 @@ He is in **double jeopardy**, unable to speak either language adequately.
    
 **On the heels** of a **dire** government report published last month about climate change and its devastating impacts, many cities and states are **scrambling** to find ways to curb the greenhouse gas emissions  
    
-He is a **shrewd** businessman man  -  
+He is a **shrewd** businessman man  
 **insolvent liquidation**  
 **liquidation** of debts  
 They lost orders and were **insolvent** within weeks  
@@ -279,7 +279,7 @@ A **regressive** dictatorship
 I **wondered** down the road  
 I always get the **jitters** before exams. -  
 **rigid steel conduit**, underground **conduit**, **concealed conduit**  
-It's **futile** to allocate blame for this. -  
+It's **futile** to allocate blame for this.  
 a child whose welfare is now under the **aegis** of courts -  
 **apocalyptic** literature -   
 The University suspended the most **recalcitrant** demonstrators.  --  
@@ -316,12 +316,12 @@ Importantly, consumer confidence is strong, which indicates that strong employme
 **haste make waste**  
 I have recently had my **appendix** removed  
 Try to **clamp** these two blocks of wood together  
-But the origins of the euro disaster lay less with government **profligacy** than with **excessive** private borrowing --  
+But the origins of the euro disaster lay less with government **profligacy** than with **excessive** private borrowing  
 Tax payers are critical of **spendthrift** **bureaucrats**  
 The **confrontations** of **adversary** politics  
    
 **Leave of absence**  
-Employee may use **accrued** PTO for any reason, including vacation, illness or any other personal matters.  -  
+Employee may use **accrued** PTO for any reason, including vacation, illness or any other personal matters.  
 The interest **accrued** over the months.  
    
    
@@ -409,7 +409,7 @@ I **gobbled** down my breakfast and ran out of the house
    
 I'm a **hokey** **corny** guy --  
 a **hokey** **tear jerker** -  
-Yeah, it's **corny**, but it's kinda good -  
+Yeah, it's **corny**, but it's kinda good  
 the media **aids** and **abet**  
 He's got the **magic wand** when it comes to American manufacturing  -  
 Democrats **stuck** their neck **out**  

@@ -1,3 +1,5 @@
+Love this guy, he's honest, straight **to the point**. He doesn't present any bull sh*t.  
+That has helped drive many of the explosive valuations we see today, however, the prospect of higher interest rates is starting to **weigh on** the sentiment.  
 Bitcoin turns 13 this year. It's no longer **on the fringes of** finance.  
 That has helped drive many of the explosive valuations we see today, however, the prospect of higher interest rates is starting to **weigh on** the sentiment.  
 Facebook's (FB) grand plan to bring cryptocurrency, or more specifically stablecoins, to the social network's billions of users has reportedly **gone up in smoke**.   

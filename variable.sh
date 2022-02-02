@@ -66,6 +66,9 @@ export files=(
   "./words/2019/words-March.md"
   "./words/2019/words-Feb.md"
   "./words/2019/words-Jan.md"
+  "./words/2018/words-Dec.md"
+  "./words/2018/words-Nov.md"
+  "./words/2018/words-Oct.md"
 )
 
 test_files=(
