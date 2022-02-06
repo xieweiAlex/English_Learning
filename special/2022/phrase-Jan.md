@@ -1,5 +1,12 @@
+That's my **two cents**.  
+I thought **we are better than this**, I really did.  
+You **pass yourself off as** **cynical** people, but you still have some faith in the system, don't you?  
+He quickly learned the **ins and outs** of the job.  
+
+
+## Week 3,4
+
 Love this guy, he's honest, straight **to the point**. He doesn't present any bull sh*t.  
-That has helped drive many of the explosive valuations we see today, however, the prospect of higher interest rates is starting to **weigh on** the sentiment.  
 Bitcoin turns 13 this year. It's no longer **on the fringes of** finance.  
 That has helped drive many of the explosive valuations we see today, however, the prospect of higher interest rates is starting to **weigh on** the sentiment.  
 Facebook's (FB) grand plan to bring cryptocurrency, or more specifically stablecoins, to the social network's billions of users has reportedly **gone up in smoke**.   
@@ -11,14 +18,12 @@ I'm not going to **opine on** who's right or who's wrong on this one.
 They **eke out** a **precarious** existence **foraging** in rubbish **dumps**. -  
 Rising rates on the German bund reflect how central banks are now **backing off** on the help.  
 Its death toll — while almost certain to be smaller than previous waves of the pandemic — is only now starting to **take hold**.  
-Would you **put away** your toys?   
 even if it means I have to **cave in**.  
 a lots of builders are building **on spec**.  
 Would you **put away** your toys?   
 
 
 ## Week 1,2 
-
 **bog down**  
 **follow suit**  
 

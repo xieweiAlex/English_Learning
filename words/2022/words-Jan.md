@@ -1,27 +1,74 @@
 
+## Week 1
+
+She keeps asking if this is one of your **crusades**.  
+It doesn't make me wrong. - No, it just makes you a **hypocrite**.  
+You **pass yourself off as** **cynical** people, but you still have some faith in the system, don't you?  
+I'm **not feeling remotely confident** that we're right.  
+Could you please stop being such a **buzzkill**, dude?  
+He looks like the bad guy from **Dune**.  
+**Synthetic** CDO  
+I will call it **improbable**, so where do you have our position marked? -  
+**belly up**  
+I thought **we are better than this**, I really did.  
+That's my **two cents**.  
+they had to **backstop** this.  
+
+Coffee can be particularly beneficial during a fast, as it can **blunt** hunger.  
+
+They may yet turn up some **chicanery**. -  
+Every once in a while , i see **empressement** in your eyes.  
+The wilderness **campsite** had its own **peculiar** **enchantment**. -  
+They have a **cosmopolitan** distribution, with most species found outside of the Americas.  
+**halcyon** days. -  
+**tactile** sensation.  
+The key of modern enterprise system is property right **perspicuity**. -  
+He quickly learned the **ins and outs** of the job.  
+The talks ended in (a) **stalemate**.  
+They're made layers of **tranches**. -  
+The market is in an **itsy-bitsy** little gully right now.  
+The market was **glutted** with **shoddy** goods. -  
+You might describe someone's **dainty** hands if they have small, feminine hands.  
+
+The **coronation** of the new king was a splendid pageant. -  
+A **contemptuous** smile flitted across Injun Joe's face. -  
+**refractory** concrete, **refractory** coating/clay  
+**tabby cat**  
+The prisoner obtained a **commutation** of his sentence from death to life **imprisonment**.  
+She received a mild **reproof** from the teacher. -  
+I don't think we should make **precipitate decisions**.  
+The girl was short and thin and her clothes were **garish**. -  
+
+**Tacit** agreement, **tacit** consent, **tacit** knowledge.  
+
+This week's **wintry** mix is expected to stress the power grid.  
+By 6pm, freezing temperatures will turn that rain into **sleet**. -  
+
+I don’t like his **cheeky** manner. -  
+
+The calls for boycotts, for sponsors to cut ties, and for NBC to include human rights coverage, have put **Olympians** in a difficult spot, leaving some athletes **unnerved** and upset.
+
 **hit the skids**
 The car **skids**, the tires screech.  
-The stone burnishes well.  
-It also helps burnish his public image.  
-Angola is a beautiful, rich yet calamitous country.  
-Chinese zodiac, zodiac sign  
+The stone **burnishes** well.  
+It also helps **burnish** his public image.  
+Angola is a beautiful, rich yet **calamitous** country.  
+Chinese **zodiac**, **zodiac** sign  
 The president was in a **pugnacious** mood when he spoke to journalists about the rebellion. -  
-
 
 > Our dog passed away few hours before this was taken. -  
 
 
-I am not sure what it is, but I often encounter people who have become obsessed with preparing for the collapse - it is a seductive concept.
-Along with most other companies, GameStop and AMC shares have taken a beating in 2022, and both are down at least 35% year-to-date.  
-But fake snow can have real problems. Remember all that water that goes into making it? It’s putting added strain on water supplies in an already arid region.  
-Athletes going to the Beijing Olympics have been told by cybersecurity firms to use burner phones to avoid getting snooped on.  
+I am not sure what it is, but I often encounter people who have become obsessed with preparing for the collapse - it is a **seductive** concept.
+Along with most other companies, GameStop and AMC shares have **taken a beating** in 2022, and both are down at least 35% year-to-date.  
+But fake snow can have real problems. Remember all that water that goes into making it? It’s putting added **strain** on water supplies in an already **arid** region. -  
+Athletes going to the Beijing Olympics have been told by cybersecurity firms to use **burner phones** to avoid getting snooped on.  
 
+She is **devious** and sly and manipulative. -  
+If you aren't in great shape already, choose another workout before **taking a stab** at this one, which may cause injuries if you’re not used to moves like these.  
 
-She is devious and sly and manipulative.  
-If you aren’t in great shape already, choose another workout before taking a stab at this one, which may cause injuries if you’re not used to moves like these.  
-
-Big leveraged buyouts are continuing apace this year as well, with private equity firms Elliott Management and Vista Equity nearing an agreement to purchase Citrix Systems (CTXS) for about $13B.  
-"The buy the dip mentality has been obliterated in the market," declared Bill Gross, the founder and former chief investment officer of PIMCO.  
+Big leveraged **buyouts** are continuing apace this year as well, with private equity firms Elliott Management and Vista Equity nearing an agreement to purchase Citrix Systems (CTXS) for about $13B.  
+"The buy the dip mentality has been **obliterated** in the market," declared Bill Gross, the founder and former chief investment officer of PIMCO.  
 
 ## Week 4 
 
@@ -65,11 +112,11 @@ Love this guy, he's honest, straight **to the point**. He doesn't present any bu
 
 **plyos**, **Plyometric** Training 
 
-That young boy of hers is **quite a handful**. -  
+That young boy of hers is **quite a handful**.  
 your **regnal** name.  
-more room in the **crisper**. -  
+more room in the **crisper**.  
 
-The newspapers **fulminate** against the crime. -  
+The newspapers **fulminate** against the crime.  
 Todd could take it, whereas I'm **harrowed** by it.  
 **Pathologic** **physiology**.  
 **talk to a wall**  
@@ -78,7 +125,7 @@ Vocalizes a **grievance** toward someone else.
 Peter is going through a challenging divorce, and his behavior at work has been **erratic** day to day. -  
 
 Your sense of urgency and **poise** under pressure is supremely appreciated!
-The enemy was put to **rout** all along the line. -  
+The enemy was put to **rout** all along the line.  
 
 He knows his predictions are **fodder** for skeptics. One obvious question: How could the S&P 500 advance 26.9% in 2021 -- its seventh-best performance in 50 years -- if stocks were poised to plummet?  
 Everything has consequences and the consequences this time may or may not include some **intractable**.   
@@ -96,7 +143,7 @@ The smallish birds have an **unsavory** habit: they dive-bomb intruders and **de
 The **onus** of proof lies with you. -  
 
 When the safes finally open like magic industrial machines, the sight of millions of dollars piled inside is actually an **anticlimax**.  
-a sense of **anticlimax** and **incipient** boredom. -  
+a sense of **anticlimax** and **incipient** boredom.  
 
 you tackle your daily exercise requirements before the **hustle and bustle** of the day, which helps eliminate excuses.  
 
@@ -113,7 +160,7 @@ Slogans **petrify** our thinking.
 **gab** about DFW migration. -  
 His book destroyed the **mystique** of monarchy.  
 
-The eggs quickly **hatch** into **larvae**. -  
+The eggs quickly **hatch** into **larvae**.  
 **dreadful**  
 **hectic**  
 **Scuff** marks from shoes are difficult to remove.  
@@ -132,7 +179,7 @@ Its new deal to buy Activision Blizzard may **garner** it fresh scrutiny from re
 She's proud and stubborn, you know, under that **pliant** exterior.  
 As the wedding approached, the whole family went into **overdrive**.  
 Kids soon **glom onto** the latest trend.  
-**amorphous** metal. -  
+**amorphous** metal.  
 
 They could simply **steamroller** all opposition.  
 As space becomes an increasingly **egalitarian** place, I think we will look back who was the fist people did this?  
@@ -210,7 +257,6 @@ The two are among the most popular Republicans in the country, and as the former
 
 Tcoalescehe coach **admonished** the girls for being lazy.  
 Schools' COVID **synagogue** safe after 11-hour standoff.  
-The talks ended in (a) **stalemate**.  
 **forsake**   
 She **forsook** the glamour of the city and went to live in the wilds of Scotland.  
 She got **huffy** and left, then Wil and I headed out to dinner.  
@@ -236,7 +282,7 @@ The storm **wrought** **havoc** in the south.
 This **wishy-washy** statement always made me felt uneasy. -  
 He **bunched** the flowers and sold them.  
 We **bunched** around the fire for warmth.  
-That view is **wrongheaded**.  
+That view is **wrongheaded**. -  
 If I accept the job, it will mean **uprooting** my family and moving to Italy.  
 **Hops** serve to **embitter** beer.  
 The more **taste buds** you have, the more likely you are to **detest** **hoppy** beers. -  
@@ -346,4 +392,8 @@ when 30 repetitions of these aren't even able to make your arm **quiver** anymor
 well, we still stick with the same theme of **tempo** but we move on to a more challenging exercise 
 
 So please try to avoid wasting her time with female **jibber** **jabber**.  
+So many people around the country have **consigned** people's rights to the graveyard.  
+
+
+If this works, we're going back to **wampum**. -  
 

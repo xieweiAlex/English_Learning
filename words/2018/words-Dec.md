@@ -115,12 +115,12 @@ the development of **Unitarian** **theology** -
 The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
 she gave him a **swat** on the head.  
 I've never met such an **ardent** **pacifist** as Terry  
-His father was an **ardent** socialist -  
+His father was an **ardent** socialist  
 a **pacific** era in history, a man of **pacific** **disposition**  
 **sift** the evidence  
 **sift** sugar on to a cake  
 draw water with a **sieve**  
-**scour** a dirty oven -  
+**scour** a dirty oven  
 **scour** grease from a pan  
    
 I saw **nunchucks**(**Nunchaku**), ninja smoke, maybe some hairpulling, but not a gun -  
@@ -233,7 +233,7 @@ A **servo** driving an **eccentric** **cam**.  -
 **forestry** bureau, forestry machinery  
 The **militiaman** walked the spy off. -    
 I **slogged** through the **heather** in the heat - 
-a **bourgeois morality** -  
+a **bourgeois morality**  
 a critique of **bourgeois** ideology  
 **bourgeois** society took for granted the **sanctity** of property  
 A **caricature** of **Sherlock Holmes**  
@@ -277,7 +277,7 @@ he was **jostled** by passengers rushing for the gates
 A **regressive** regime  
 A **regressive** dictatorship  
 I **wondered** down the road  
-I always get the **jitters** before exams. -  
+I always get the **jitters** before exams.  
 **rigid steel conduit**, underground **conduit**, **concealed conduit**  
 It's **futile** to allocate blame for this.  
 a child whose welfare is now under the **aegis** of courts -  
@@ -356,7 +356,7 @@ They asked the **spectators** to keep off.
 But Mr Hvid wouldn't be the first person to get past security and **scale** the ancient landmark  
    
    
-crying is a **cathartic** release. -  
+crying is a **cathartic** release.  
 I think that was a valuable exercise, and maybe it even helped some people. Mostly, though, it was **cathartic**  
 Founders lack a **coherent** way to think about when to shut down  
 It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision -  
@@ -411,7 +411,7 @@ I'm a **hokey** **corny** guy --
 a **hokey** **tear jerker** -  
 Yeah, it's **corny**, but it's kinda good  
 the media **aids** and **abet**  
-He's got the **magic wand** when it comes to American manufacturing  -  
+He's got the **magic wand** when it comes to American manufacturing  
 Democrats **stuck** their neck **out**  
 People in Youngstown and in Detroit got **pink slips**  
 GM is not a person, it didn't **spite** you  

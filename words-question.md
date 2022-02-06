@@ -1,4 +1,6 @@
 
+* heterogeneity
+* empressement vs sincere 
 * beset vs beleaguer
 
 * groovy

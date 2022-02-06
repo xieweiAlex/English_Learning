@@ -312,7 +312,6 @@ During chairman Mao's **heyday**, he sent millions of students down to the count
 He **shuddered** with **revulsion**.  
 
 
-**Tacit** agreement, **tacit** consent, **tacit** knowledge.  
 **acquit** a person of a crime.  
 **sinister** gang  
 **sinister** storm clouds  
