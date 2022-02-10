@@ -1,5 +1,42 @@
 
+a "guide" assigned to his team "at the last moment to follow us everywhere and take back the people we ask questions if they deviate from the official discourse.  
+In 2022, leaders in Beijing seem less interested in garnering approbation from Western democracies and their reporters and more interested in demonstrating that their rules matter most.  
+Demonstrations against vaccine mandates, or a movement that started as the "Freedom Convoy" in Ottawa, has made a landing in the U.S. Pickup trucks.  
+
+
+
+A correspondent in Beijing for Dutch national broadcaster NOS was **manhandled away** from his camera during a live news show shortly before the Winter Olympics opening ceremony.  
+
+**screeching halt**.  
+Religious and **occult** predictions, however, boast no causal logic **whatsoever**. -  
+He just **glowered** without speaking.  
+They laughed at my **puny** efforts. -  
+
+Rooms are stuffed with **lavish** **furnishings**, some have **en suite** spas.   
+She **caressed** his cheek lovingly.  
+He experienced several great social **vicissitudes** in his life.  
+Bill is so **avaricious** that he donates nothing to charity. -  
+We must **stock up** for the winter.  
+
+
 ## Week 1
+
+> However, these studies are so-called observational studies, which can not demonstrate causation.
+
+I have also seen this **rodeo** before - an emerging market and the tell tale signs. I follow the money.  
+You ARE allowed to **fumble around** for a while and get frustrated.  
+Languages were never my **forte**  
+Wait, and it'll all **blow over**.  
+**sepulchre**: a **receptacle** for religious relics especially in an **altar**. -  
+
+This process of **booms and busts** is called the business cycle.  
+Like buses, diplomatic crises **clump** together.  
+The average person releases nearly a pint of **intestinal gas** by **flatulence** every day.  
+
+The odds of war seem **perilously** high, but no one can be sure of Vladimir Putin’s intentions.  
+The **jihadist** group was preparing to mount an offensive in Iraq and Syria.  
+Nuclear talks with Iran enter the **endgame**.  
+Time is running out to **avert** a new crisis in the Middle East.  
 
 She keeps asking if this is one of your **crusades**.  
 It doesn't make me wrong. - No, it just makes you a **hypocrite**.  
@@ -13,6 +50,9 @@ I will call it **improbable**, so where do you have our position marked? -
 I thought **we are better than this**, I really did.  
 That's my **two cents**.  
 they had to **backstop** this.  
+When **all was said and done**, only one single banker went to jail.   
+Now you can **kick them in the teeth**.  
+Mark actually became **gracious** after the collapse and never said "I told you" to anyone.  
 
 Coffee can be particularly beneficial during a fast, as it can **blunt** hunger.  
 
@@ -27,11 +67,11 @@ He quickly learned the **ins and outs** of the job.
 The talks ended in (a) **stalemate**.  
 They're made layers of **tranches**. -  
 The market is in an **itsy-bitsy** little gully right now.  
-The market was **glutted** with **shoddy** goods. -  
+The market was **glutted** with **shoddy** goods.  
 You might describe someone's **dainty** hands if they have small, feminine hands.  
 
-The **coronation** of the new king was a splendid pageant. -  
-A **contemptuous** smile flitted across Injun Joe's face. -  
+The **coronation** of the new king was a splendid pageant.  
+A **contemptuous** smile flitted across Injun Joe's face.  
 **refractory** concrete, **refractory** coating/clay  
 **tabby cat**  
 The prisoner obtained a **commutation** of his sentence from death to life **imprisonment**.  
@@ -100,7 +140,7 @@ But, in the end, as I **conceded** a year ago, not talking about this **morbid**
 
 He caught them **in the sack** together.  
 Is it a **bona fide**, reputable organization?  
-I do not **shirk** any responsibility in this matter. -  
+I do not **shirk** any responsibility in this matter.  
 Civilian trap in the **beleaguer** city has been **airlifted** to safety.  
 
 I gave up my job because I felt I was stuck **in a rut**.   
@@ -130,7 +170,7 @@ The enemy was put to **rout** all along the line.
 He knows his predictions are **fodder** for skeptics. One obvious question: How could the S&P 500 advance 26.9% in 2021 -- its seventh-best performance in 50 years -- if stocks were poised to plummet?  
 Everything has consequences and the consequences this time may or may not include some **intractable**.   
 
-They accused her of an **incestuous** relationship with her father. -  
+They accused her of an **incestuous** relationship with her father.  
 a **truculent** speech against the new government. -  
 
 Tesla was also **vague** about the future of its long-delayed electric Cybertruck, only noting it is “making progress on the industrialization” of the vehicle.  
@@ -169,7 +209,7 @@ come out of the **woodwork**.
 Low earth **orbit**.  
 It's unlikely she could have afforded this little **bauble** herself. -  
 When the rice isn't cooked properly it goes **lumpy** and **gooey**. -  
-A retrofit may involve putting in new door **jambs**. -  
+A retrofit may involve putting in new door **jambs**.  
 He takes **umbrage** against anyone who criticizes him. -   
 **unpalatable** but wholesome advice.  
 
@@ -218,7 +258,7 @@ Bill Burr making fun of Europeans, meanwhile he's dressed like every **slavic** 
 I'm notoriously a **cheapskate** most of the time but I did drop the money to buy anki.  
 **accommodative** monetary policy.  
 There's going to be so many **imbeciles** swimming underwater! LOL!  
-More than a third of the population was **destitute**. -  
+More than a third of the population was **destitute**.  
 She had a **blackout** and couldn't remember anything about the accident.  
 She was an **industrious** and willing worker.  
 There was nothing **portentous** or solemn about him. He was bubbling with humour. -  
@@ -228,12 +268,12 @@ Tom had finally **badgered** her into going.
 earth **crust**, upper **crust**, **oceanic crust**  
 They **eke out** a **precarious** existence **foraging** in rubbish **dumps**.  
 
-Remove **extraneous** connection initialization. -  
+Remove **extraneous** connection initialization.  
 for **courier** delivery.  
 
 Vaccination for smallpox is **efficacious**.  
 **slugfest**.  
-The two men managed to **elude** the police for six weeks. -  
+The two men managed to **elude** the police for six weeks.  
 
 That’s the secret sauce of **worthwhile** change. So, let’s stay **resolute** and keep pushing forward.  
 He became an **unwitting** **accomplice** in the crime.  
@@ -285,7 +325,7 @@ We **bunched** around the fire for warmth.
 That view is **wrongheaded**. -  
 If I accept the job, it will mean **uprooting** my family and moving to Italy.  
 **Hops** serve to **embitter** beer.  
-The more **taste buds** you have, the more likely you are to **detest** **hoppy** beers. -  
+The more **taste buds** you have, the more likely you are to **detest** **hoppy** beers.  
 
 **intestinal** tract  
 **intestine** 
@@ -315,7 +355,7 @@ He refused to **give ground** on this issue.
 The party now has an **unassailable** lead.  
 
 I like to **putter** around in the garden.  
-The city hosts the **preponderance** of the Chinese headquarters of multinationals. -  
+The city hosts the **preponderance** of the Chinese headquarters of multinationals.  
 Hong Kong, meanwhile, is a world **unto** itself. Since the political problems there over the last three years, the central government has made it obvious that it can think of the city only with **exasperation**.  
 Rather than expect it to lead, Beijing is treating Hong Kong as something like an **ulcer**: a problem to manage away with hopefully not much more pain.  
 a tropical island with a **splendid** geographic setting, featuring **a ring of** skyscrapers that hug thickly-forested mountains.  
@@ -325,7 +365,7 @@ One shouldn't **overdraw** the differences between these regions.
 But I will **exaggerate** their differences as part of an exercise to **decompose** the **heterogeneity** behind Chinese growth.  
 When I’m in Beijing, I find myself **sympathizing** with the **Legalist school of philosophy**, which **enjoins** the ruler to govern with a **brutal fist**.  
 I speak from the perspective of a cyclist, an **aggrieved** class everywhere.  
-That is a **messianic** drive, complete with **sacred** texts, elaborate rituals, and the occasional **purge**. -  
+That is a **messianic** drive, complete with **sacred** texts, elaborate rituals, and the occasional **purge**.  
 **Politburo**  
 Chen noted that his home region was filled with opportunists who would destroy the social order **for a dime**.  
 The **apostles** who govern in Beijing know that nothing can be more **venal** than the interests of capitalists, who dominate Shanghai and Shenzhen. -  

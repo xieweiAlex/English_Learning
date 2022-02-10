@@ -1,3 +1,4 @@
+
 That's my **two cents**.  
 I thought **we are better than this**, I really did.  
 You **pass yourself off as** **cynical** people, but you still have some faith in the system, don't you?  

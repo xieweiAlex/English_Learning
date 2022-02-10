@@ -216,7 +216,6 @@ the art of **comeback**
 I've often thought of taking out a series of newspaper ads encouraging the **abolishment** of the handshake.  
    
 **Perseus** **meteor** shower  
-Languages were never my **forte**  
    
 **laminated** glass, **laminated** plate  
 **filet mignon**  

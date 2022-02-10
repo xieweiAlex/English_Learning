@@ -1,8 +1,6 @@
 ## seinfeld.md ## 
 media/seinfeld.md
-Maybe the **dingo** ate your baby. -  
 it'll look like I'm abandoning him because of his condition. I'll be **ostracized** from the community. -  
-**Mutt**? I'll **wager** his parents are more pure than yours. -  
 
 ## words-Jan.md ## 
 words/2022/words-Jan.md
@@ -12,9 +10,6 @@ The wilderness **campsite** had its own **peculiar** **enchantment**. -
 **halcyon** days. -  
 The key of modern enterprise system is property right **perspicuity**. -  
 They're made layers of **tranches**. -  
-The market was **glutted** with **shoddy** goods. -  
-The **coronation** of the new king was a splendid pageant. -  
-A **contemptuous** smile flitted across Injun Joe's face. -  
 She received a mild **reproof** from the teacher. -  
 The girl was short and thin and her clothes were **garish**. -  
 By 6pm, freezing temperatures will turn that rain into **sleet**. -  
@@ -27,33 +22,24 @@ Foreign athletes will be isolated from almost all locals, **lest** they spread c
 Her face showed her **dejection** at missing the party. -  
 He seemed a bit **subdued** to me. -  
 But, in the end, as I **conceded** a year ago, not talking about this **morbid** symptom feels like a **cop out**. So, periodically, you have to. -  
-I do not **shirk** any responsibility in this matter. -  
 Peter is going through a challenging divorce, and his behavior at work has been **erratic** day to day. -  
-They accused her of an **incestuous** relationship with her father. -  
 a **truculent** speech against the new government. -  
 The **onus** of proof lies with you. -  
 **dyspeptic** symptom, dyspeptic vomiting. -  
 **gab** about DFW migration. -  
 It's unlikely she could have afforded this little **bauble** herself. -  
 When the rice isn't cooked properly it goes **lumpy** and **gooey**. -  
-A retrofit may involve putting in new door **jambs**. -  
 He takes **umbrage** against anyone who criticizes him. -   
 She **importune** her husband for more money. -  
 The role of **subservient** woman seems to be tied exclusively to Asians, and their “exotic” status tends to turn them into hyper-sexualized beings among other ethnicities. -  
 Kate's new boyfriend is a very **couth** youth. -  
 Bill Burr making fun of Europeans, meanwhile he's dressed like every **slavic** **hoodlum** I know. -  
-More than a third of the population was **destitute**. -  
 There was nothing **portentous** or solemn about him. He was bubbling with humour. -  
 The hotel had always been run in a **slipshod** way. -  
-Remove **extraneous** connection initialization. -  
-The two men managed to **elude** the police for six weeks. -  
 Donald Trump is trashing Ron DeSantis in private as an **ingrate**. -  
 This **wishy-washy** statement always made me felt uneasy. -  
 That view is **wrongheaded**. -  
-The more **taste buds** you have, the more likely you are to **detest** **hoppy** beers. -  
 He **beguiled** me into signing this contract. -  
-The city hosts the **preponderance** of the Chinese headquarters of multinationals. -  
-That is a **messianic** drive, complete with **sacred** texts, elaborate rituals, and the occasional **purge**. -  
 The **apostles** who govern in Beijing know that nothing can be more **venal** than the interests of capitalists, who dominate Shanghai and Shenzhen. -  
 If this works, we're going back to **wampum**. -  
 
@@ -67,11 +53,7 @@ This sign **presage** rains. -
 But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition. -  
 he was one hell of a **snappy** dresser. -  
 **canny** investors will switch banks if they think they are getting a **raw deal**. -  
-Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard. -  
-and as an adult, he kept an **aquarium** in his home. -  
-For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food. -  
 It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
-Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health. -  
 Christmas **revels** with feasting and dancing were common in England. -  
 the development of **Unitarian** **theology** -  
 The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
@@ -81,22 +63,17 @@ The **glint** from all the gold paid in bribes **sheds** some light on China’s
 The malware itself is relatively **underwhelming** -  
 His **scheme** to win the girl **backfired** and she went to another guy. -  
 **pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
-**pander** to the **vulgar** taste -  
 **aboriginal** **inhabitants** -  
 A **servo** driving an **eccentric** **cam**.  -  
 The **militiaman** walked the spy off. -    
 I **slogged** through the **heather** in the heat - 
 a child whose welfare is now under the **aegis** of courts -  
-**apocalyptic** literature -   
 The University suspended the most **recalcitrant** demonstrators.  --  
 Were your Amazon packages stolen? **Porch** pirates run **rampant** this holiday season  -  
-The case is **adjourned** to June 4, the judge said -  
-The rule is **inapplicable** to this case -  
 It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision -  
 This delicious chilled bowl features medium rare grilled **tri-tip**, **quinoa** vegetable medley (onion, radish, carrot, **celery**, eggplant) tossed in creamy **chive dressing**, vegan crunch salad (kale, **garbanzo beans**, parsley, mint, celery, cucumber, zucchini, carrots, red bell peppers), red and golden **beets**, and roasted **pepitas**. Served with a side **citrus** **vinaigrette**. --  
 The theme of the **sermon** was **reverence**  -  
 He **reviled** his opponent unmercifully  -  
-The election was a **farce**, for it was fixed  -  
 I'm a **hokey** **corny** guy --  
 a **hokey** **tear jerker** -  
 they get all these **tax breaks** and all these **subsidies** -   
@@ -105,6 +82,3 @@ Home to Japanese soul food, **unbridled** creativity and -
 Beef muscles **simmered** in many hours until it becomes tender  -  
 They **allured** her into a **snare**.  -  
 evil deeds **perpetrated** by **wicked** people  -  
-China says violators would be banned from issuing bonds or other financing tools, and participating in government **procurement** -  
-(government **procurement**, **procurement contract**) -  
-And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  

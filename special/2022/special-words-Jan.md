@@ -1,4 +1,12 @@
 
+**retrofit** 
+
+**outweigh**
+
+**arcane**
+
+## Week 3,4
+
 **spotty**
 
 **rout**
@@ -22,4 +30,5 @@
 ## Week 5 
 
 **shabby**
+**shoddy**
 

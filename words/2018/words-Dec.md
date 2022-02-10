@@ -78,15 +78,15 @@ Apple is being **tight-lipped** about the amount of RAM inside each phone
 We tend to define the quality of **wit** as merely being **deft** with a clever **comeback**  
 But **true wit** is richer, **cannier**, more riddling  
 **canny** investors will switch banks if they think they are getting a **raw deal**. -  
-Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard. -  
-and as an adult, he kept an **aquarium** in his home. -  
+Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard.  
+and as an adult, he kept an **aquarium** in his home.  
 They dropped their heads and raised their **dorsal fins**, a posture normally assumed only in the presence of a rival male   
-For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food. -  
+For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food.  
 It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
    
 President Donald trump’s decision to brag in a tweet about the size of his “nuclear button” compared with North Korea’s was widely condemned as **bellicose** and **reckless**  
 be in a **bellicose** mood.  
-Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health. -  
+Trump’s **grandiosity** and **impulsivity** have made him a constant subject of **speculation** among those concerned with his mental health.  
 I've come to believe there should be a role for professional evaluation beyond speculating from **afar**  
   
 ## Week 3  
@@ -180,7 +180,7 @@ When they tried to cross the **marsh**, their shoes sank into the soft ground
 **lame duck**  
 He is **lame** for both legs  
 **pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
-**pander** to the **vulgar** taste -  
+**pander** to the **vulgar** taste  
 He **panders** to her every **whim**   
 the cat **bristled** in annoyance  
 a brush with stiff **bristles**  
@@ -281,7 +281,7 @@ I always get the **jitters** before exams.
 **rigid steel conduit**, underground **conduit**, **concealed conduit**  
 It's **futile** to allocate blame for this.  
 a child whose welfare is now under the **aegis** of courts -  
-**apocalyptic** literature -   
+**apocalyptic** literature  
 The University suspended the most **recalcitrant** demonstrators.  --  
 **petrochemical** engineering, **petrochemical** industry, petrochemical **plant**  
 **blood stain**, **oil stain**  
@@ -326,7 +326,7 @@ The interest **accrued** over the months.
    
    
 Zhou was arrested **on the spot** and was released on **bail** the next day.  
-The case is **adjourned** to June 4, the judge said -  
+The case is **adjourned** to June 4, the judge said  
 This is as comprehensive as it gets, and at seven and a half hours does cover it very comprehensively. I did it in three **instalments** and never got bored on any occasion  
 It was **factual**, with actual footage of the trail, and is updated with **commentary** provided by many who were involved  
 I'm not gonna **take sides** and **slam** or praise anyone but be **assured**, you will  
@@ -341,7 +341,7 @@ The **sting operation** targets the most **at-risk** areas in the city identifie
 (In law enforcement, a **sting operation** is a **deceptive** operation designed to catch a person committing a crime)  
 On the other hand, Apple News could be a **lifeline** for the industry.  
    
-The rule is **inapplicable** to this case -  
+The rule is **inapplicable** to this case  
    
 **boilerplate**  
    
@@ -390,7 +390,7 @@ They **manoeuvred** his resignation
 **protection racket**  
 He was known for running a brutal **extortion racket**.  
 He **reviled** his opponent unmercifully  -  
-The election was a **farce**, for it was fixed  -  
+The election was a **farce**, for it was fixed  
 a **stampede** of **bargain hunters**.  
 The crowd **panicked** and **stampeded** for the exit.  
 **domestic sewage**, **industrial sewage**, **municipal sewage**  
@@ -446,8 +446,8 @@ We standardize questions using written **rubrics** that define exactly how to ru
    
    
 Great stress relief for when you start to get **testy**  
-China says violators would be banned from issuing bonds or other financing tools, and participating in government **procurement** -  
-(government **procurement**, **procurement contract**) -  
+China says violators would be banned from issuing bonds or other financing tools, and participating in government **procurement**  
+(government **procurement**, **procurement contract**)  
    
 This week has seen the **hype** for 5G, the creatively titled **successor** to 4G mobile internet connectivity  
 **Dubbed** Waymo One, this milestone for the company and **nascent** self-driving technology industry comes with **caveats**.  
@@ -479,7 +479,7 @@ A Global Software **Sweatshop**
 Tryba has been the **right-hand** man of Joe Liemandt, one of the most mysterious and innovative figures in technology  
 The debate was eventually settled with Volta's **groundbreaking** experiment.  
 You pay an artist to design a **Maserati**; you pay a mechanic to change its oil  
-And as a sweetener, he began assembling a **patent-litigation** **war chest**  -  
+And as a sweetener, he began assembling a **patent-litigation** **war chest**  
 His preference for **anonymity** is no surprise. Liemandt’s **metamorphosis** has transformed him from every **dorm-room** coder’s hero to an **ominous** force in tech as his expanding global cloud-force pushes down wages and turns computer programming into factory work  
 **Inspirational** computer programmers like Bill Gates, Marc Andreessen and young Liemandt were the new **masters of the universe**  
    
