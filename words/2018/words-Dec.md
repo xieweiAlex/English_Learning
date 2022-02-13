@@ -77,7 +77,7 @@ Apple is being **tight-lipped** about the amount of RAM inside each phone
 
 We tend to define the quality of **wit** as merely being **deft** with a clever **comeback**  
 But **true wit** is richer, **cannier**, more riddling  
-**canny** investors will switch banks if they think they are getting a **raw deal**. -  
+**canny** investors will switch banks if they think they are getting a **raw deal**.  
 Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond in his backyard.  
 and as an adult, he kept an **aquarium** in his home.  
 They dropped their heads and raised their **dorsal fins**, a posture normally assumed only in the presence of a rival male   

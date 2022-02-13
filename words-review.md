@@ -2,15 +2,16 @@
 media/seinfeld.md
 it'll look like I'm abandoning him because of his condition. I'll be **ostracized** from the community. -  
 
+## HOC4.md ## 
+media/houseOfCards/HOC4.md
+People **girding** themselves for a tragedy. -  
+
 ## words-Jan.md ## 
 words/2022/words-Jan.md
 I will call it **improbable**, so where do you have our position marked? -  
 They may yet turn up some **chicanery**. -  
 The wilderness **campsite** had its own **peculiar** **enchantment**. -  
-**halcyon** days. -  
 The key of modern enterprise system is property right **perspicuity**. -  
-They're made layers of **tranches**. -  
-She received a mild **reproof** from the teacher. -  
 The girl was short and thin and her clothes were **garish**. -  
 By 6pm, freezing temperatures will turn that rain into **sleet**. -  
 I don’t like his **cheeky** manner. -  
@@ -19,9 +20,7 @@ But fake snow can have real problems. Remember all that water that goes into mak
 She is **devious** and sly and manipulative. -  
 As the stock-trading screens turned red, one trader was heard to **quip** that at least some things are falling in price. -  
 Foreign athletes will be isolated from almost all locals, **lest** they spread coronavirus and threaten China’s strict zero-covid approach. -  
-Her face showed her **dejection** at missing the party. -  
 He seemed a bit **subdued** to me. -  
-But, in the end, as I **conceded** a year ago, not talking about this **morbid** symptom feels like a **cop out**. So, periodically, you have to. -  
 Peter is going through a challenging divorce, and his behavior at work has been **erratic** day to day. -  
 a **truculent** speech against the new government. -  
 The **onus** of proof lies with you. -  
@@ -52,7 +51,6 @@ words/2018/words-Dec.md
 This sign **presage** rains. -  
 But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition. -  
 he was one hell of a **snappy** dresser. -  
-**canny** investors will switch banks if they think they are getting a **raw deal**. -  
 It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
 Christmas **revels** with feasting and dancing were common in England. -  
 the development of **Unitarian** **theology** -  

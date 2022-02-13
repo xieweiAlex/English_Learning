@@ -1,4 +1,9 @@
 
+## E4, E 5
+**flipism**, flip a coin.  
+**worked up**.  
+
+
 ## E 13  
 Ttravel logs are not hard evidence, these quotes are **circumstantial**.  
 There people **with an ax to grind**, no hard evidence and some travel logs?  
@@ -11,7 +16,7 @@ Or I head back to New York and watch you **squirm**.
 There those who would use this incident to justify **draconian** measures, ... who would **espouse** hatred or even violence, The moment **bigotry** becomes a form of **patriotism**, America is no longer America.  
 If I do this to him, I don't survive, I'm **villified**.  
 worse than terror, **dread**.  
-People **girding** themselves for a tragedy.  
+People **girding** themselves for a tragedy. -  
 Oh, I **got under your skin** the first time we met.  
 
 

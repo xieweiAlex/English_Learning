@@ -1,4 +1,6 @@
 
+
+
 a "guide" assigned to his team "at the last moment to follow us everywhere and take back the people we ask questions if they deviate from the official discourse.  
 In 2022, leaders in Beijing seem less interested in garnering approbation from Western democracies and their reporters and more interested in demonstrating that their rules matter most.  
 Demonstrations against vaccine mandates, or a movement that started as the "Freedom Convoy" in Ottawa, has made a landing in the U.S. Pickup trucks.  
@@ -60,7 +62,7 @@ They may yet turn up some **chicanery**. -
 Every once in a while , i see **empressement** in your eyes.  
 The wilderness **campsite** had its own **peculiar** **enchantment**. -  
 They have a **cosmopolitan** distribution, with most species found outside of the Americas.  
-**halcyon** days. -  
+**halcyon** days.  
 **tactile** sensation.  
 The key of modern enterprise system is property right **perspicuity**. -  
 He quickly learned the **ins and outs** of the job.  
@@ -126,7 +128,7 @@ Something gave a loud **discordant** **twang**.
 It's **alimony** I got from my husband.  
 His lies made her **bristle with rage**.  
 The brush is made of animal **bristles**.  
-Her face showed her **dejection** at missing the party. -  
+Her face showed her **dejection** at missing the party.  
 Everyone has days when they feel **dejected** or down
 He seemed a bit **subdued** to me. -  
 The lighting was **subdued**.  
@@ -134,7 +136,7 @@ The lighting was **subdued**.
 **Topography** of USA.  
 Real estate is one way to make potentially **ephemeral** wealth feel more comparable to other kinds.  
 It is **reductive** to think of Russia as a **petrostate**, but if you do **indulge in** that simplification you must recognize that it is a strategic petrostate more like UAE or Saudi than an Iraq, or **Algeria**.  
-But, in the end, as I **conceded** a year ago, not talking about this **morbid** symptom feels like a **cop out**. So, periodically, you have to. -  
+But, in the end, as I **conceded** a year ago, not talking about this **morbid** symptom feels like a **cop out**. So, periodically, you have to.  
 (You're not going to **cop out** at the last minute, are you?) 
 
 
@@ -433,7 +435,6 @@ well, we still stick with the same theme of **tempo** but we move on to a more c
 
 So please try to avoid wasting her time with female **jibber** **jabber**.  
 So many people around the country have **consigned** people's rights to the graveyard.  
-
 
 If this works, we're going back to **wampum**. -  
 
