@@ -3,7 +3,7 @@ After all, both of you are so smart and **accomplished**
 Nothing says you've “made it” like being able to afford a **down payment**. Besides, San Bruno is “**up and coming**,” and YouTube has an office there  
 Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken. -  
 (**regale** the honoured guests with a feast)  
-You order a vegan donut and very clearly ask the **barista** for three Splendas -  
+You order a vegan donut and very clearly ask the **barista** for three Splendas  
 You do the **grunt work** and analysis, and finish it just **in time** for him to breathe a sigh of relief and tell you what an “Excel ninja” you are -  
 Your mind briefly **drifts off**, and you ask yourself  
 If you move to Austin, you could somehow **get by**  
@@ -17,7 +17,7 @@ Under the **unfailing** **aegis** of law
 **antique** book paper, **antique** furniture  
 A typically **gritty** performance by the British player  
 **implant** hope in the mind  
-A **venerable** statesman -  
+A **venerable** statesman  
 The **appropriation** of **parish** funds  
 A **parish** church  
 He made himself **indispensable** to the parish priest  
@@ -26,7 +26,7 @@ He made himself **indispensable** to the parish priest
 **asymptotic** **slope**  
 the **bumpy** road in front of my house caused by construction  
 We all showed **deference** to his skill  
-an outburst of **profanity** / laughter  -  
+an outburst of **profanity** laughter    
 she had to **bear** the **brunt** of the criticisms  
 **bore** the **brunt** of the household **chores**  
 Don't ask such **daft** questions  
@@ -36,7 +36,7 @@ Don't ask such **daft** questions
   
 My grandfather loved to **rove** the countryside  
 Their **profligate** lifestyle resulted in bankruptcy  
-**anatomy** of a sale -  
+**anatomy** of a sale  
 **anatomy and physiology**  
 **provisional** account, **provisional** regulation  
   
@@ -51,13 +51,13 @@ Second choice general **Bernard Montgomery**
 Montgomery **shatters** the myths of **Rommel**  
 The ultimate war aim is **spell out** to Nazism, it's to be **unconditional surrender**  
 **turning point**  
-After the **last-ditch** defense of Moscow, Russian **counter-attacks** through the snows of winter have **stemmed** the tide of German **conquest** -  
-The soft **underbelly** of the axis.  -  
+After the **last-ditch** defense of Moscow, Russian **counter-attacks** through the snows of winter have **stemmed** the tide of German **conquest**  
+The soft **underbelly** of the axis.  
 **Improvisor**, **quick thinker**  
 Montgomery was called the master of the **set-piece**  
 believed in **painstaking** planning and preparation  
 Rommel was summoned from **sick leave** to the battle  
-The effect of the British victory was **electrifying**  -  
+The effect of the British victory was **electrifying**  
 American and British force made **amphibious** landings in North Africa in **Morocco**  
 **Vichy regime**  
 **Dwight Eisenhower**  
@@ -261,7 +261,7 @@ An island once owned by his **forebears**
    
 **as if** she was scoping out who lives here.  
    
-He got a bit **feisty** by trying to hit me back. -  
+He got a bit **feisty** by trying to hit me back.  
 A **bogus** insurance claim.  
 The plates have a **gilt** edge.  
 **malnutrition**  
@@ -293,7 +293,7 @@ Soviet representatives attended the conference but later declined to **ratify** 
 On 15 August 1971, the United States **unilaterally** terminated **convertibility** of the US dollar to gold.  
 An **indemnity** is an obligation by a person (**indemnitor**) to provide compensation for a particular loss suffered by another person (**indemnitee**).  
 **vigilant**  
-(the **burglar** was spotted by **vigilant** neighbours.) -  
+(the **burglar** was spotted by **vigilant** neighbours.)  
 General speaking and simply put, Democrats got **clobbered** in the digital space.  
 Digital programs - both **tactical** and messaging, failed to actively listen to and engage the online grassroots universe.  
 Facebook, meanwhile has changed its newsfeed algorithm, **ostensibly** to combat “fake news,” causing a precipitous decline in traffic for many conservative sites.  

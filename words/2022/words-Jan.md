@@ -1,117 +1,3 @@
-
-
-
-a "guide" assigned to his team "at the last moment to follow us everywhere and take back the people we ask questions if they deviate from the official discourse.  
-In 2022, leaders in Beijing seem less interested in garnering approbation from Western democracies and their reporters and more interested in demonstrating that their rules matter most.  
-Demonstrations against vaccine mandates, or a movement that started as the "Freedom Convoy" in Ottawa, has made a landing in the U.S. Pickup trucks.  
-
-
-
-A correspondent in Beijing for Dutch national broadcaster NOS was **manhandled away** from his camera during a live news show shortly before the Winter Olympics opening ceremony.  
-
-**screeching halt**.  
-Religious and **occult** predictions, however, boast no causal logic **whatsoever**. -  
-He just **glowered** without speaking.  
-They laughed at my **puny** efforts. -  
-
-Rooms are stuffed with **lavish** **furnishings**, some have **en suite** spas.   
-She **caressed** his cheek lovingly.  
-He experienced several great social **vicissitudes** in his life.  
-Bill is so **avaricious** that he donates nothing to charity. -  
-We must **stock up** for the winter.  
-
-
-## Week 1
-
-> However, these studies are so-called observational studies, which can not demonstrate causation.
-
-I have also seen this **rodeo** before - an emerging market and the tell tale signs. I follow the money.  
-You ARE allowed to **fumble around** for a while and get frustrated.  
-Languages were never my **forte**  
-Wait, and it'll all **blow over**.  
-**sepulchre**: a **receptacle** for religious relics especially in an **altar**. -  
-
-This process of **booms and busts** is called the business cycle.  
-Like buses, diplomatic crises **clump** together.  
-The average person releases nearly a pint of **intestinal gas** by **flatulence** every day.  
-
-The odds of war seem **perilously** high, but no one can be sure of Vladimir Putin’s intentions.  
-The **jihadist** group was preparing to mount an offensive in Iraq and Syria.  
-Nuclear talks with Iran enter the **endgame**.  
-Time is running out to **avert** a new crisis in the Middle East.  
-
-She keeps asking if this is one of your **crusades**.  
-It doesn't make me wrong. - No, it just makes you a **hypocrite**.  
-You **pass yourself off as** **cynical** people, but you still have some faith in the system, don't you?  
-I'm **not feeling remotely confident** that we're right.  
-Could you please stop being such a **buzzkill**, dude?  
-He looks like the bad guy from **Dune**.  
-**Synthetic** CDO  
-I will call it **improbable**, so where do you have our position marked? -  
-**belly up**  
-I thought **we are better than this**, I really did.  
-That's my **two cents**.  
-they had to **backstop** this.  
-When **all was said and done**, only one single banker went to jail.   
-Now you can **kick them in the teeth**.  
-Mark actually became **gracious** after the collapse and never said "I told you" to anyone.  
-
-Coffee can be particularly beneficial during a fast, as it can **blunt** hunger.  
-
-They may yet turn up some **chicanery**. -  
-Every once in a while , i see **empressement** in your eyes.  
-The wilderness **campsite** had its own **peculiar** **enchantment**. -  
-They have a **cosmopolitan** distribution, with most species found outside of the Americas.  
-**halcyon** days.  
-**tactile** sensation.  
-The key of modern enterprise system is property right **perspicuity**. -  
-He quickly learned the **ins and outs** of the job.  
-The talks ended in (a) **stalemate**.  
-They're made layers of **tranches**. -  
-The market is in an **itsy-bitsy** little gully right now.  
-The market was **glutted** with **shoddy** goods.  
-You might describe someone's **dainty** hands if they have small, feminine hands.  
-
-The **coronation** of the new king was a splendid pageant.  
-A **contemptuous** smile flitted across Injun Joe's face.  
-**refractory** concrete, **refractory** coating/clay  
-**tabby cat**  
-The prisoner obtained a **commutation** of his sentence from death to life **imprisonment**.  
-She received a mild **reproof** from the teacher. -  
-I don't think we should make **precipitate decisions**.  
-The girl was short and thin and her clothes were **garish**. -  
-
-**Tacit** agreement, **tacit** consent, **tacit** knowledge.  
-
-This week's **wintry** mix is expected to stress the power grid.  
-By 6pm, freezing temperatures will turn that rain into **sleet**. -  
-
-I don’t like his **cheeky** manner. -  
-
-The calls for boycotts, for sponsors to cut ties, and for NBC to include human rights coverage, have put **Olympians** in a difficult spot, leaving some athletes **unnerved** and upset.
-
-**hit the skids**
-The car **skids**, the tires screech.  
-The stone **burnishes** well.  
-It also helps **burnish** his public image.  
-Angola is a beautiful, rich yet **calamitous** country.  
-Chinese **zodiac**, **zodiac** sign  
-The president was in a **pugnacious** mood when he spoke to journalists about the rebellion. -  
-
-> Our dog passed away few hours before this was taken. -  
-
-
-I am not sure what it is, but I often encounter people who have become obsessed with preparing for the collapse - it is a **seductive** concept.
-Along with most other companies, GameStop and AMC shares have **taken a beating** in 2022, and both are down at least 35% year-to-date.  
-But fake snow can have real problems. Remember all that water that goes into making it? It’s putting added **strain** on water supplies in an already **arid** region. -  
-Athletes going to the Beijing Olympics have been told by cybersecurity firms to use **burner phones** to avoid getting snooped on.  
-
-She is **devious** and sly and manipulative. -  
-If you aren't in great shape already, choose another workout before **taking a stab** at this one, which may cause injuries if you’re not used to moves like these.  
-
-Big leveraged **buyouts** are continuing apace this year as well, with private equity firms Elliott Management and Vista Equity nearing an agreement to purchase Citrix Systems (CTXS) for about $13B.  
-"The buy the dip mentality has been **obliterated** in the market," declared Bill Gross, the founder and former chief investment officer of PIMCO.  
-
 ## Week 4 
 
 **Effeminate** behaviour.  
@@ -121,7 +7,7 @@ He didn't get married until he was **well into** his forties.
 As the stock-trading screens turned red, one trader was heard to **quip** that at least some things are falling in price. -  
 The result is 7% inflation that is **sapping** Americans' confidence and Biden’s popularity.  
 
-Foreign athletes will be isolated from almost all locals, **lest** they spread coronavirus and threaten China’s strict zero-covid approach. -  
+Foreign athletes will be isolated from almost all locals, **lest** they spread coronavirus and threaten China’s strict zero-covid approach.  
 his attendance record's a little **spotty**.  
 
 Something gave a loud **discordant** **twang**.  
@@ -130,7 +16,7 @@ His lies made her **bristle with rage**.
 The brush is made of animal **bristles**.  
 Her face showed her **dejection** at missing the party.  
 Everyone has days when they feel **dejected** or down
-He seemed a bit **subdued** to me. -  
+He seemed a bit **subdued** to me.  
 The lighting was **subdued**.  
 
 **Topography** of USA.  
@@ -164,7 +50,7 @@ Todd could take it, whereas I'm **harrowed** by it.
 **talk to a wall**  
 Targeted violence such as workplace violence isn’t necessarily a **spur-of-the-moment** decision.  
 Vocalizes a **grievance** toward someone else.  
-Peter is going through a challenging divorce, and his behavior at work has been **erratic** day to day. -  
+Peter is going through a challenging divorce, and his behavior at work has been **erratic** day to day.  
 
 Your sense of urgency and **poise** under pressure is supremely appreciated!
 The enemy was put to **rout** all along the line.  
@@ -173,7 +59,7 @@ He knows his predictions are **fodder** for skeptics. One obvious question: How 
 Everything has consequences and the consequences this time may or may not include some **intractable**.   
 
 They accused her of an **incestuous** relationship with her father.  
-a **truculent** speech against the new government. -  
+a **truculent** speech against the new government.  
 
 Tesla was also **vague** about the future of its long-delayed electric Cybertruck, only noting it is “making progress on the industrialization” of the vehicle.  
 Alas, that consensus seems **a long way off**.  
@@ -182,7 +68,7 @@ She became **neurotic** about keeping the house clean.
 **borderline** personality disorder  
 Time **blunts** the edge of sorrow.  
 The smallish birds have an **unsavory** habit: they dive-bomb intruders and **defecate** on them as a defense.  
-The **onus** of proof lies with you. -  
+The **onus** of proof lies with you.  
 
 When the safes finally open like magic industrial machines, the sight of millions of dollars piled inside is actually an **anticlimax**.  
 a sense of **anticlimax** and **incipient** boredom.  
@@ -199,7 +85,7 @@ Slogans **petrify** our thinking.
 
 ## Week 3
 
-**gab** about DFW migration. -  
+**gab** about DFW migration.  
 His book destroyed the **mystique** of monarchy.  
 
 The eggs quickly **hatch** into **larvae**.  
@@ -231,11 +117,11 @@ When pessimism returns to markets, we face the largest potential **markdown** of
 the broadest and most extreme” bubble ever in global real estate and an “**incipient** bubble in commodity prices.  
 Grantham is a **dyed-in-the-wool** value manager who’s been investing for 50 years and calling bubbles for almost as long.  
 
-She **importune** her husband for more money. -  
+She **importune** her husband for more money.  
 My room looks very **untidy**.   
 We don't need to **stint** ourselves—have some more!  
 
-The role of **subservient** woman seems to be tied exclusively to Asians, and their “exotic” status tends to turn them into hyper-sexualized beings among other ethnicities. -  
+The role of **subservient** woman seems to be tied exclusively to Asians, and their “exotic” status tends to turn them into hyper-sexualized beings among other ethnicities.  
 energy **undulation**, **tidal** **undulation**.   
 even if it means I have to **cave in**.  
 I dislike **tardiness**.  
@@ -263,8 +149,8 @@ There's going to be so many **imbeciles** swimming underwater! LOL!
 More than a third of the population was **destitute**.  
 She had a **blackout** and couldn't remember anything about the accident.  
 She was an **industrious** and willing worker.  
-There was nothing **portentous** or solemn about him. He was bubbling with humour. -  
-The hotel had always been run in a **slipshod** way. -  
+There was nothing **portentous** or solemn about him. He was bubbling with humour.  
+The hotel had always been run in a **slipshod** way.  
 Fabricating data is a **heinous** scientific sin.  
 Tom had finally **badgered** her into going.  
 earth **crust**, upper **crust**, **oceanic crust**  
@@ -291,7 +177,7 @@ You should liberate the mind from **prejudice**.
 **cellist**  
 Malcolm looked at her as if she were a **raving** **lunatic**.  
 
-Donald Trump is trashing Ron DeSantis in private as an **ingrate**. -  
+Donald Trump is trashing Ron DeSantis in private as an **ingrate**.  
 The two are among the most popular Republicans in the country, and as the former president eyes another run in 2024, he's **irked** by DeSantis' popularity and refusal to **rule out** running against him.  
 "He says DeSantis has no personal **charisma** and has a **dull personality**," the source added.  
 
@@ -321,17 +207,17 @@ Throat **swabs** will be required daily. In Tokyo, participants spit into **vial
 
 
 The storm **wrought** **havoc** in the south.  
-This **wishy-washy** statement always made me felt uneasy. -  
+This **wishy-washy** statement always made me felt uneasy.  
 He **bunched** the flowers and sold them.  
 We **bunched** around the fire for warmth.  
-That view is **wrongheaded**. -  
+That view is **wrongheaded**.  
 If I accept the job, it will mean **uprooting** my family and moving to Italy.  
 **Hops** serve to **embitter** beer.  
 The more **taste buds** you have, the more likely you are to **detest** **hoppy** beers.  
 
 **intestinal** tract  
 **intestine** 
-He **beguiled** me into signing this contract. -  
+He **beguiled** me into signing this contract.  
 **fitful** bursts of energy.  
 a few hours' **fitful** sleep.  
 financial **tsunami**  
@@ -436,5 +322,5 @@ well, we still stick with the same theme of **tempo** but we move on to a more c
 So please try to avoid wasting her time with female **jibber** **jabber**.  
 So many people around the country have **consigned** people's rights to the graveyard.  
 
-If this works, we're going back to **wampum**. -  
+If this works, we're going back to **wampum**.  
 

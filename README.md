@@ -6,15 +6,18 @@ Expanding vocabulary for a non native-speaker is tedious and time-consuming. I t
 ### Jan 
 [Words Review](./words-review.md)
 
-[Words](./words/2022/words-Jan.md) |
+[Words](./words/2022/words-Feb.md) |
 [Special word](./special/2022/special-words-Jan.md) |
 [Phrase](./special/2022/phrase-Jan.md) |
 [Verb](./special/2022/verb-special-Q1.md)
 
-[SeinField](./media/seinfeld.md)
+[SeinField](./media/seinfeld.md) |
 [Impromptu](./impromptu.md)
 
 ### Prior 
+
+Jan | 
+[Words](./words/2022/words-Jan.md) |
 
 Dec | 
 [Words](./words/2021/words-Dec.md) |

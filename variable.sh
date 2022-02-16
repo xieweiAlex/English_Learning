@@ -29,6 +29,7 @@ export files=(
   "./media/GOT/GOT3.md"
   "./media/GOT/GOT2.md"
   "./media/GOT/GOT1.md"
+  "./words/2022/words-Feb.md"
   "./words/2022/words-Jan.md"
   "./words/2021/words-Dec.md"
   "./words/2021/words-Nov.md"

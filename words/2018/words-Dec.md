@@ -66,7 +66,7 @@ Amazon acquired the popular Indian payment platform Tapzo for $40 million, and t
   
   
 All three are exceptionally fast and comfortably **snappier** than the majority of Android phones, perhaps with the exception of the Huawei Mate 20 Pro  
-he was one hell of a **snappy** dresser. -  
+he was one hell of a **snappy** dresser.  
 Apple is being **tight-lipped** about the amount of RAM inside each phone  
    
 > Even **neurons** are formed by habit. When continuously exposed to a fixed **stimulus**, neurons become steadily less sensitive to that stimulus—until they eventually stop responding to it altogether  
@@ -112,7 +112,7 @@ an **offshoot** of a large company
 A few Arab leaders recognize that water and energy **profligacy** must be **curbed** if ecological disaster is to be avoided.  
 **biblical** **theology**  
 the development of **Unitarian** **theology** -  
-The **Puritans** were **Protestants** who did not agree with the **Anglican** Church. --  
+The **Puritans** were **Protestants** who did not agree with the **Anglican** Church.  
 she gave him a **swat** on the head.  
 I've never met such an **ardent** **pacifist** as Terry  
 His father was an **ardent** socialist  
@@ -123,7 +123,7 @@ draw water with a **sieve**
 **scour** a dirty oven  
 **scour** grease from a pan  
    
-I saw **nunchucks**(**Nunchaku**), ninja smoke, maybe some hairpulling, but not a gun -  
+I saw **nunchucks**(**Nunchaku**), ninja smoke, maybe some hairpulling, but not a gun  
    
 United States **Securities** and Exchange **Commission** (**SEC**)  
    
@@ -162,7 +162,7 @@ By testing it on real people a company can discover whether users feel like they
 > “It’s not good enough to just say ‘we told you,'” he said.  
 > as a good **millennial**, I knew that people have very loose definitions of the word "friend"  
 
-So superior that tests are **inconsequential** to quality -  
+So superior that tests are **inconsequential** to quality  
 **appendicitis**  
    
 Guo was a very high-ranking military official, but my next example of somebody **amassing** enough **ill-gotten** cash to fill a truck involves a man who was just a **low-ranking**, very ordinary government official  
@@ -171,15 +171,15 @@ All this cash comes out of the collection plate that is passed among the **congr
 The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
 There are **toxins** in our baby **formula**  
    
-The malware itself is relatively **underwhelming** -  
+The malware itself is relatively **underwhelming**  
 Like much else in your life, that apology was **underwhelming**  
 She **weaned** herself **from** cigarettes.  
 The surprise I had planned **backfired** on me  
-His **scheme** to win the girl **backfired** and she went to another guy. -  
+His **scheme** to win the girl **backfired** and she went to another guy.  
 When they tried to cross the **marsh**, their shoes sank into the soft ground  
 **lame duck**  
 He is **lame** for both legs  
-**pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**)) -  
+**pander** (someone who **procures** customers for whores (in England they call a **pimp** a **ponce**))  
 **pander** to the **vulgar** taste  
 He **panders** to her every **whim**   
 the cat **bristled** in annoyance  
@@ -282,7 +282,7 @@ I always get the **jitters** before exams.
 It's **futile** to allocate blame for this.  
 a child whose welfare is now under the **aegis** of courts -  
 **apocalyptic** literature  
-The University suspended the most **recalcitrant** demonstrators.  --  
+The University suspended the most **recalcitrant** demonstrators.  
 **petrochemical** engineering, **petrochemical** industry, petrochemical **plant**  
 **blood stain**, **oil stain**  
 She had a strong and **malign** influence  
@@ -370,7 +370,7 @@ We assume the device is n **Standby** mode until we check.
    
 ## Week 1  
    
-This delicious chilled bowl features medium rare grilled **tri-tip**, **quinoa** vegetable medley (onion, radish, carrot, **celery**, eggplant) tossed in creamy **chive dressing**, vegan crunch salad (kale, **garbanzo beans**, parsley, mint, celery, cucumber, zucchini, carrots, red bell peppers), red and golden **beets**, and roasted **pepitas**. Served with a side **citrus** **vinaigrette**. --  
+This delicious chilled bowl features medium rare grilled **tri-tip**, **quinoa** vegetable medley (onion, radish, carrot, **celery**, eggplant) tossed in creamy **chive dressing**, vegan crunch salad (kale, **garbanzo beans**, parsley, mint, celery, cucumber, zucchini, carrots, red bell peppers), red and golden **beets**, and roasted **pepitas**. Served with a side **citrus** **vinaigrette**.  
    
 Huawei operated Skycom as an unofficial **subsidiary** to conduct business in Iran while **concealing** Skycom’s link to Huawei  
 Former employees of Skycom have **stated**, in **sum and substance**, that Skycom was not distinct from Huawei  
@@ -407,8 +407,8 @@ We're here to **nab** him, not **spook** him
 I **gobbled** down my breakfast and ran out of the house  
    
    
-I'm a **hokey** **corny** guy --  
-a **hokey** **tear jerker** -  
+I'm a **hokey** **corny** guy  
+a **hokey** **tear jerker**  
 Yeah, it's **corny**, but it's kinda good  
 the media **aids** and **abet**  
 He's got the **magic wand** when it comes to American manufacturing  
@@ -431,14 +431,14 @@ The government might try to block a **merger**, but the **rationale** was invari
    
    
 xx and xx were good hand, but they **disdained** the game and those who played.  
-They **allured** her into a **snare**.  -  
+They **allured** her into a **snare**.  
 The medicine is used to **assuage** pain  
 The desperate **bandit** is fighting at the police  
 **profess** Catholicism  
 They try to **forestall** their questions.  
 A **clampdown** on crime    
 The **ridged** sand of the beach  
-evil deeds **perpetrated** by **wicked** people  -  
+evil deeds **perpetrated** by **wicked** people  
    
 Nearly **quadrupled** the size of our engineering team  
 Our questions seek to understand how people approach real world problems, rather than testing for **esoteric** skills you might demonstrate on a whiteboard  
