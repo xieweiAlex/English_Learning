@@ -452,7 +452,7 @@ Modal editors make the **undergarments** drop
    
 He **snuggled down** and went to sleep.  
 Every night before bed, Henry likes to find something soft to **snuggle** with ❤️  
-Don't make yourself a **nuisance** to others -  
+Don't make yourself a **nuisance** to others  
 employers sometimes make **erroneous** assumptions  
 Since new technologies and tools continuously **crop up** on the Devops landscape  
    

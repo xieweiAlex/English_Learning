@@ -1,9 +1,46 @@
 
-The 2 year old was "screaming and bleeding profusely." She was given first aid by a medic on-site.  
 
-Practice human interaction and social comportment.  
-The British charachter is often said to be phlegmatic. -   
-The four temperaments are: choleric, melancholic, phlegmatic and sanguine. -  
+
+However, it’s important to mention that intermittent fasting and/or skipping breakfast does not **suit** everyone. The effects vary by individual.  
+
+
+His favourite tipple was rum and lemon.  
+They saw the gleam of a lamp ahead.  
+Why are people so full of gloom and doom?  
+He never allowed his work to impinge on his private life.  
+She is the most vocal and pertinacious of all the critics of the policy.  
+We knew we were in for a pretty long, jejune evening.  
+
+I wasn't actually sick but I felt **lousy**.  
+
+How the **righteous** love to **bemoan** their role in middle management, and condemn those who actually might have an effect on the world. 
+
+CEO and founder Anthony Wood has always **turned a blind eye** to the market in favor of building a great long-term business, and today is no different.  
+
+He was wearing a **burgundy** polyester jacket. -  
+I tossed my husband's dishes into the **sudsy** water. -  
+You need manual **dexterity** to be good at video games.  
+Markets appeared to get some **respite** overnight as S&P 500 futures climbed 0.5%.  
+Yet these gains are **tactical**. Even as Mr Putin has won them, in a longer-lasting and more **strategic** sense he has lost ground, by **galvanizing** NATO, pushing Ukraine and the West together and driving Russia further into **autarky** and **repression**. -  
+War would make all these things worse, and turn Ukraine into a **running sore**, bleeding Russia of money and men.  
+
+Your lips had a **dalliance** with the lips of another woman. -  
+The **stone-hearted** **miser** **plagued** by the ghost of Christmas past. -  
+
+He lived on the street as a **vagrant**. -  
+She **affixes** her real name to her writings.  
+
+She's very **thorough** and **conscientious**.  
+Meanwhile, vulnerable narcissists can be quiet and **reserved**.  
+
+The answer was lost in **a shout of** **ribald** laughter. -  
+**glutinous** rice. -
+I think you guys are blowing this **out of proportion**.  
+The 2 year old was "screaming and bleeding **profusely**." She was given first aid by a medic on-site.  
+
+Practice human interaction and social **comportment**. -  
+The British charachter is often said to be **phlegmatic**.  
+The four temperaments are: **choleric**, melancholic, **phlegmatic** and sanguine. -  
 
 **orgiastic** festivity  
 **stoniness** in politics.  
@@ -18,10 +55,10 @@ After a long sleep, he still felt **torpid**.
 You should not **palter with** the truth. -  
 
 ## Week 2 
-par for the course.  
+**par for the course**.  
 
-The crowd went absolutely mad. It was bedlam.  
-Two other looming stories could come to the fore.  
+The crowd went absolutely mad. It was **bedlam**. -  
+Two other looming stories could **come to the fore**.  
 
 he was a **redoubtable** debater with a caustic tongue.  
 Let us cut the **baloney** on this subject. -  
@@ -31,16 +68,16 @@ She received a mild **reproof** from the teacher. -
 **Credulous** people are easily misled by false advertisements.  
 There was a nice **write-up** in the paper, even a **laudatory** editorial.  
 
-**Capital punishment** is a highly **emotive** issue. -  
+**Capital punishment** is a highly **emotive** issue.  
 It's in-your-**face** feminism, and it's meant to shock.  
 
-Several magnificent oil paintings **adorn** the walls. -  
+Several magnificent oil paintings **adorn** the walls.  
 They swear, they are ill-mannered and aggressive, **willful** as two-years-olds and utterly selfish.   
 a **tiddly** little pool.  
 
 It was a **squalid affair** involving prostitutes and drugs.  
 She was not sick; it was just a **subterfuge**. -  
-Try not to **slouch** when you are sitting down. -  
+Try not to **slouch** when you are sitting down.  
 
 
 But this bubble will burst **in due time**, no matter how hard the Fed tries to support it.  
@@ -114,9 +151,9 @@ Mark actually became **gracious** after the collapse and never said "I told you"
 
 Coffee can be particularly beneficial during a fast, as it can **blunt** hunger.  
 
-They may yet turn up some **chicanery**. -  
+They may yet turn up some **chicanery**.  
 Every once in a while , i see **empressement** in your eyes.  
-The wilderness **campsite** had its own **peculiar** **enchantment**. -  
+The wilderness **campsite** had its own **peculiar** **enchantment**.  
 They have a **cosmopolitan** distribution, with most species found outside of the Americas.  
 **halcyon** days.  
 **tactile** sensation.  
@@ -134,14 +171,14 @@ A **contemptuous** smile flitted across Injun Joe's face.
 **tabby cat**  
 The prisoner obtained a **commutation** of his sentence from death to life **imprisonment**.  
 I don't think we should make **precipitate decisions**.  
-The girl was short and thin and her clothes were **garish**. -  
+The girl was short and thin and her clothes were **garish**.  
 
 **Tacit** agreement, **tacit** consent, **tacit** knowledge.  
 
 This week's **wintry** mix is expected to stress the power grid.  
 By 6pm, freezing temperatures will turn that rain into **sleet**. -  
 
-I don’t like his **cheeky** manner. -  
+I don’t like his **cheeky** manner.  
 
 The calls for boycotts, for sponsors to cut ties, and for NBC to include human rights coverage, have put **Olympians** in a difficult spot, leaving some athletes **unnerved** and upset.
 
@@ -166,4 +203,16 @@ If you aren't in great shape already, choose another workout before **taking a s
 
 Big leveraged **buyouts** are continuing apace this year as well, with private equity firms Elliott Management and Vista Equity nearing an agreement to purchase Citrix Systems (CTXS) for about $13B.  
 "The buy the dip mentality has been **obliterated** in the market," declared Bill Gross, the founder and former chief investment officer of PIMCO.  
+
+### Conversation 
+I **envy** Leonard for growing up without that **anguish**.   
+I'm extremely uncomfortable with dance loud music and most other forms of alcohol-**induced** **frivolity**.  
+
+**Never have I had** so much business from one client. 
+**I second that**. 
+
+That's not **hyperbole**, I will be making changes because of what you just witnessed, I hope it hit you as hard as it hit me.  
+
+That sounds like a **grind**. 
+
 

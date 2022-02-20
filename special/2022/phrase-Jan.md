@@ -1,3 +1,4 @@
+**par for the course**.  
 
 That's my **two cents**.  
 I thought **we are better than this**, I really did.  

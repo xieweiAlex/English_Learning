@@ -186,7 +186,7 @@ the **precursor** of modern mathematics
 The village **seethed** with life 
 Water **seethed** in the **caldron** 
 
-I was super **pumped**. -   
+I was super **pumped**.  
 **cold turkey**
 (Gotta go **cold turkey**. - Can we talk about this)
 **self-esteem**
@@ -282,7 +282,7 @@ Her **rebuff** thoroughly **deflated** him
 **creep rupture**, eyeball rupture, **fatigue rupture**  
 
 The **tyrant** was **deposed** by popular demonstrations
-he had been **deposed** by a military **coup** -  
+he had been **deposed** by a military **coup**  
 
 Dollar **Hegemony**
 the shift from **Soviet-American hegemony** to a **polycentric** world
@@ -354,7 +354,7 @@ China also build a $526 million **dam** in **Guinea**
 **General Assembly**
 China **touts** the fact that their foreign investment and aid is "**no strings attached**".  
 
-Trump’s greatest superpower is his ability to **wield** **victimhood**. -   
+Trump’s greatest superpower is his ability to **wield** **victimhood**.  
 
 **Catcalled**
 (Street harassment is a form of sexual harassment that consists of unwanted comments, wolf-whistlings, "catcalling", and other actions by strangers in public areas.)
@@ -374,7 +374,7 @@ Nothing like a steamy bowl of udon to power your afternoon. This **Tonkotsu** **
    
 
 It's using **wedge issues** like trading tariffs to **advance** Beijing's political influence.  
-We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**. -   
+We will continue to stand strong until Beijing stop the **predatory** practice of **forced technology transfer**.  
 (**predatory** bird)
 Beijing's **malign** influence and **interference** in American politics and policy.  
 **Follow suit**  

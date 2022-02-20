@@ -303,7 +303,7 @@ While the trade war with the United States provides a handy **scapegoat**, publi
 Beijing’s efforts in the spring to **wean** the economy **off** debt, a major cause of the slowdown, are now being **reversed**  
    
    
-Were your Amazon packages stolen? **Porch** pirates run **rampant** this holiday season  -  
+Were your Amazon packages stolen? **Porch** pirates run **rampant** this holiday season  
 That area is full of **rampant** **lawlessness**  
 **rampant sex**  
 The **rebranding** was characterized by the media as an effort to **sidestep** the negativity of the Comcast brand  
@@ -416,12 +416,12 @@ Democrats **stuck** their neck **out**
 People in Youngstown and in Detroit got **pink slips**  
 GM is not a person, it didn't **spite** you  
 Amazon got these **sweetheart deals** in Virginia and New York  
-they get all these **tax breaks** and all these **subsidies** -   
+they get all these **tax breaks** and all these **subsidies**  
    
 **contrarian**  
-the comment came more from a **contrarian** **disposition** than moral conviction -  
+the comment came more from a **contrarian** **disposition** than moral conviction  
 Home to Japanese soul food, **unbridled** creativity and -  
-Beef muscles **simmered** in many hours until it becomes tender  -  
+Beef muscles **simmered** in many hours until it becomes tender  
 It's **baffling** to me that Osaka is so often **overlooked** by visitors to Japan  
 **inexorably** drawn in by Tokyo's overwhelming **gravitational pull**  
 Smoking in Japan may catch a lot of you **off-guard**  

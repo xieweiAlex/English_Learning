@@ -246,7 +246,7 @@ Essentially, this is the **acid test**.
 **affectionate**  
 
 He refused to **give ground** on this issue.  
-I knew his help wouldn't be given **gratis**. -  
+I knew his help wouldn't be given **gratis**.  
 **nozzle**  
 **fall behind**  
 **mescaline**  
