@@ -111,7 +111,7 @@ commercial **offshoots** of universities
 an **offshoot** of a large company  
 A few Arab leaders recognize that water and energy **profligacy** must be **curbed** if ecological disaster is to be avoided.  
 **biblical** **theology**  
-the development of **Unitarian** **theology** -  
+the development of **Unitarian** **theology**  
 The **Puritans** were **Protestants** who did not agree with the **Anglican** Church.  
 she gave him a **swat** on the head.  
 I've never met such an **ardent** **pacifist** as Terry  
@@ -384,12 +384,12 @@ UK boy **cheats death** twice after being hit by learner driver
 **Alligator bellowing**  
    
 I've been to about 20 **prefectures** in Japan  
-The theme of the **sermon** was **reverence**  -  
+The theme of the **sermon** was **reverence**  
 The Russian vessel was **on manoeuvres**.  
 They **manoeuvred** his resignation  
 **protection racket**  
 He was known for running a brutal **extortion racket**.  
-He **reviled** his opponent unmercifully  -  
+He **reviled** his opponent unmercifully  
 The election was a **farce**, for it was fixed  
 a **stampede** of **bargain hunters**.  
 The crowd **panicked** and **stampeded** for the exit.  

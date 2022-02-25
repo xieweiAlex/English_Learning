@@ -35,7 +35,7 @@ Oh, wait a second, I believe we have a **heckler** ladies and gentlemen. Hey Dic
 Maybe the **dingo** ate your baby.  
 the last time a woman said that to me I **wound up** apologizing to her.  
 Every time I pass her desk, I have to plan a little **patter**.  
-it'll look like I'm abandoning him because of his condition. I'll be **ostracized** from the community. -  
+it'll look like I'm abandoning him because of his condition. I'll be **ostracized** from the community.  
 But if I get the **sniffles**, you better be there.  
 The woman has my papers you told her she's **pretentious**?  
 

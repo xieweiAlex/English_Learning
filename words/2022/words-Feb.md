@@ -1,16 +1,73 @@
 
 
+Still hard for me to imagine Putin has simply lost his **marbles**, but these are important questions..   
+
+If Russia is **drawn into** a long-lasting **partisan** war, so will the Russian people. -  
+It is important that we **dovetail** our respective interests. -  
+
+Do **heredity** and environment determine a man’s character?  
+She spoke in a slow southern **drawl**.  
+I'd rather die than allow you to **defile** the Church. -  
+
+Some words are really too **esoteric** for this dictionary. -  
+I think a maze design is a very **esoteric** art.  
+He reported the speech **verbatim**.  
+
+This is a **wily** politician.  
+I dreamt that my hair was **kempt**. -  
+**comb**  
+
+The future of the **ventless** storage of **cryogenic** liquid has been expected. -  
+While the accounts are now in the process of being **unfrozen**, organizers of the Freedom Convoy **dubbed** the move **financial warfare**, saying it would "**sow** mistrust in both the banking system and the government and the **repercussions** will be felt **for years to come**." -  
+
+He gave Robin a mildly **quizzical** glance.  
+The network has a **gateway** into the hospital mainframe.  
+Vladimir Putin is already **battering** Ukraine economically.  
+Germany **mothballs** the Nord Stream 2 pipeline, to the surprise of many. -  
+He **enjoined** obedience on the soldiers. -  
+I was appalled by the **loutish** behaviour. -  
+Is the current food crisis just another market **vagary**? -  
+
+### Week 3 
+
+I'm no stranger to the **Crimson** **scourge** that's **dermatitis**. -  
+I was ready to waste the last of my good **hemorrhoid** cream on you. -  
+He is actually quite **sassy** and funny when he is getting comfortable with a woman so **no wonder**.  
+Troops into two **breakaway** regions.  
+The top 10% or so of the US income spectrum benefited from this policy at the expense of the bottom **deciles**.  
+Fed officials aren't the only government **bigwigs** being forced to change their investing habits.  
+
+There is also a little more complex **shoehorned** in there like storage, persistence is also a thing. 
+There are still some **warts** when it comes to matching up Kubernetes thought-experiment land.  
+Beyond that, watch for a **perennial** story. I checked our historical archive and found we mentioned Argentina back in 1844, then first wrote about the IMF in Argentina in 1965. The country has long offered a **lamentable** tale of economic mismanagement. -  
+Forgiving others means leaving space for your own heart in case **turnabout**.  
+
+A move that threatened to **scuttle** negotiations with the West over the future security of eastern Europe and that could be used to justify an **incursion** into the territories. -   
+
+**countervailing** duties 
+**barf bag**  
+That effort will be **bootless**.  
+**plausible deniability** 
+Raj: Hey look at me.I don't have a **foreskin**. 😂  
+
+**dribs and drabs**.  
+The city, **drab and dour** by day, is transformed at night.  
+**Exalt** the Lord our God and worship at his footstool; he is holy. -  
+I want to be **cognizant** about people's time.  
+He displayed determination as well as powerful **oratory**. -  
+The most furious **anarchist** become the most **barefaced** **apostate**. -  
+many of our viewers have owned and unfortunately have **ridden down** so far. 
+I was surprised at his **candor**.  
+
+"The passion for stretching yourself and sticking to it, even (or especially) when it’s not going well, is the **hallmark** of the growth mindset. This is the mindset that allows people to **thrive** during some of the most challenging times in their lives.  
 
 However, it’s important to mention that intermittent fasting and/or skipping breakfast does not **suit** everyone. The effects vary by individual.  
-
-
-His favourite tipple was rum and lemon.  
-They saw the gleam of a lamp ahead.  
-Why are people so full of gloom and doom?  
-He never allowed his work to impinge on his private life.  
-She is the most vocal and pertinacious of all the critics of the policy.  
-We knew we were in for a pretty long, jejune evening.  
-
+His favourite **tipple** was rum and lemon. -  
+They saw the **gleam** of a lamp ahead.  
+Why are people so full of gloom and **doom**?  
+He never allowed his work to **impinge** on his private life. -  
+She is the most vocal and **pertinacious** of all the critics of the policy. -  
+We knew we were in for a pretty long, **jejune** evening. -  
 I wasn't actually sick but I felt **lousy**.  
 
 How the **righteous** love to **bemoan** their role in middle management, and condemn those who actually might have an effect on the world. 
@@ -21,7 +78,7 @@ He was wearing a **burgundy** polyester jacket. -
 I tossed my husband's dishes into the **sudsy** water. -  
 You need manual **dexterity** to be good at video games.  
 Markets appeared to get some **respite** overnight as S&P 500 futures climbed 0.5%.  
-Yet these gains are **tactical**. Even as Mr Putin has won them, in a longer-lasting and more **strategic** sense he has lost ground, by **galvanizing** NATO, pushing Ukraine and the West together and driving Russia further into **autarky** and **repression**. -  
+Yet these gains are **tactical**. Even as Mr Putin has won them, in a longer-lasting and more **strategic** sense he has lost ground, by **galvanizing** NATO, pushing Ukraine and the West together and driving Russia further into **autarky** and **repression**.  
 War would make all these things worse, and turn Ukraine into a **running sore**, bleeding Russia of money and men.  
 
 Your lips had a **dalliance** with the lips of another woman. -  
@@ -40,11 +97,11 @@ The 2 year old was "screaming and bleeding **profusely**." She was given first a
 
 Practice human interaction and social **comportment**. -  
 The British charachter is often said to be **phlegmatic**.  
-The four temperaments are: **choleric**, melancholic, **phlegmatic** and sanguine. -  
+The four temperaments are: **choleric**, melancholic, **phlegmatic** and sanguine.  
 
 **orgiastic** festivity  
 **stoniness** in politics.  
-Our boat **foundered** on a **reef**. -  
+Our boat **foundered** on a **reef**.  
 The island is **encircled** by a **coral reef**.  
 Democrats called the legislation a **boon** to the rich.  
 The poor boy **beseeched** only with his eyes.  
@@ -52,7 +109,7 @@ Human **innately** compare themselves to the people around them.
 
 Nvidia-Arm is officially **kaput**. -  
 After a long sleep, he still felt **torpid**.  
-You should not **palter with** the truth. -  
+You should not **palter with** the truth.  
 
 ## Week 2 
 **par for the course**.  
@@ -64,7 +121,7 @@ he was a **redoubtable** debater with a caustic tongue.
 Let us cut the **baloney** on this subject. -  
 
 You're such a **prude**.  
-She received a mild **reproof** from the teacher. -  
+She received a mild **reproof** from the teacher.  
 **Credulous** people are easily misled by false advertisements.  
 There was a nice **write-up** in the paper, even a **laudatory** editorial.  
 
@@ -140,7 +197,7 @@ I'm **not feeling remotely confident** that we're right.
 Could you please stop being such a **buzzkill**, dude?  
 He looks like the bad guy from **Dune**.  
 **Synthetic** CDO  
-I will call it **improbable**, so where do you have our position marked? -  
+I will call it **improbable**, so where do you have our position marked?  
 **belly up**  
 I thought **we are better than this**, I really did.  
 That's my **two cents**.  
@@ -188,17 +245,17 @@ The stone **burnishes** well.
 It also helps **burnish** his public image.  
 Angola is a beautiful, rich yet **calamitous** country.  
 Chinese **zodiac**, **zodiac** sign  
-The president was in a **pugnacious** mood when he spoke to journalists about the rebellion. -  
+The president was in a **pugnacious** mood when he spoke to journalists about the rebellion.  
 
 > Our dog passed away few hours before this was taken. -  
 
 
 I am not sure what it is, but I often encounter people who have become obsessed with preparing for the collapse - it is a **seductive** concept.
 Along with most other companies, GameStop and AMC shares have **taken a beating** in 2022, and both are down at least 35% year-to-date.  
-But fake snow can have real problems. Remember all that water that goes into making it? It’s putting added **strain** on water supplies in an already **arid** region. -  
+But fake snow can have real problems. Remember all that water that goes into making it? It’s putting added **strain** on water supplies in an already **arid** region.  
 Athletes going to the Beijing Olympics have been told by cybersecurity firms to use **burner phones** to avoid getting snooped on.  
 
-She is **devious** and sly and manipulative. -  
+She is **devious** and sly and manipulative.  
 If you aren't in great shape already, choose another workout before **taking a stab** at this one, which may cause injuries if you’re not used to moves like these.  
 
 Big leveraged **buyouts** are continuing apace this year as well, with private equity firms Elliott Management and Vista Equity nearing an agreement to purchase Citrix Systems (CTXS) for about $13B.  
@@ -215,4 +272,9 @@ That's not **hyperbole**, I will be making changes because of what you just witn
 
 That sounds like a **grind**. 
 
-
+excuse me, can I **interject** something?  
+You used my **loofah**?  
+right, you're Howard's **entourage**. -  
+I asked if you were in the shower but that's **moot** now. -  
+Based on a **cursory** reading, it doesn't look you've much of a case, Sheldon.  
+Your expectations have been **subverted**, haha.  

@@ -62,7 +62,7 @@ American and British force made **amphibious** landings in North Africa in **Mor
 **Vichy regime**  
 **Dwight Eisenhower**  
 19,000 US **marines** and the **naval force** of three aircraft carriers made the first assault  
-The Americans landed **unopposed** -  
+The Americans landed **unopposed**  
 The **bulk** of the force were Canadian soldiers, nearly 1000 Canadians were killed and 1500 taken prisoner  
 There was poor **reconnaissance** and intelligence  
 **The RAF**  
@@ -136,7 +136,7 @@ I let the water **buoy** up my weight.
   
   
 Ricky Jay, who is perhaps the most gifted **leight-of-hand** artist alive, was performing magic with a deck of cards.  
-The trick is done simply by **sleight of hand** -  
+The trick is done simply by **sleight of hand**  
 turn out to be a **clumsy** **sleight of hand**  
   
   

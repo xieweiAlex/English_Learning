@@ -4,7 +4,7 @@
 
 He didn't get married until he was **well into** his forties. 
 
-As the stock-trading screens turned red, one trader was heard to **quip** that at least some things are falling in price. -  
+As the stock-trading screens turned red, one trader was heard to **quip** that at least some things are falling in price.  
 The result is 7% inflation that is **sapping** Americans' confidence and Biden’s popularity.  
 
 Foreign athletes will be isolated from almost all locals, **lest** they spread coronavirus and threaten China’s strict zero-covid approach.  
@@ -95,7 +95,7 @@ The eggs quickly **hatch** into **larvae**.
 
 come out of the **woodwork**.  
 Low earth **orbit**.  
-It's unlikely she could have afforded this little **bauble** herself. -  
+It's unlikely she could have afforded this little **bauble** herself.  
 When the rice isn't cooked properly it goes **lumpy** and **gooey**. -  
 A retrofit may involve putting in new door **jambs**.  
 He takes **umbrage** against anyone who criticizes him. -   
@@ -256,7 +256,7 @@ I speak from the perspective of a cyclist, an **aggrieved** class everywhere.
 That is a **messianic** drive, complete with **sacred** texts, elaborate rituals, and the occasional **purge**.  
 **Politburo**  
 Chen noted that his home region was filled with opportunists who would destroy the social order **for a dime**.  
-The **apostles** who govern in Beijing know that nothing can be more **venal** than the interests of capitalists, who dominate Shanghai and Shenzhen. -  
+The **apostles** who govern in Beijing know that nothing can be more **venal** than the interests of capitalists, who dominate Shanghai and Shenzhen.  
 with the uncertainty of not knowing which might be confiscated by Chinese customs—that **heightens** the physical **ecstasy** of holding a book in one’s hands.  
 
 **impermissible** behavior.  

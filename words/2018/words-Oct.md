@@ -13,7 +13,7 @@ The new year brought no **respite**
 Indonesia was attacked by Japanese **paratroopers** again 
 The **morale** amongst the US forces is high 
 Singapore was the **mythology** of the British Empire built into actuality  
-a center of **maritime trade**, a **conduit** for wealth  - 
+a center of **maritime trade**, a **conduit** for wealth  
 (the office acts as a **conduit** for ideas to flow throughout the organization)
 battle must be fought to the **bitter end** 
 Japanese general Yamashita **achieve** the victory with less than 2000 **casualties**.  
@@ -86,7 +86,7 @@ He became **entangled** in legal disputes
 
 A **spate** of attacks on holidaymakers 
 potato **crisp**, **crisp bacon**.
-You **mobsters** all suffer from such **hubris** - 
+You **mobsters** all suffer from such **hubris**  
 **diminutive** in **stature**
 She'd bring real **stature** to the office
 
