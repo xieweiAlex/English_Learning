@@ -82,7 +82,7 @@ Tinbergen was fascinated by the fish and **fowl** **inhabiting** the little pond
 and as an adult, he kept an **aquarium** in his home.  
 They dropped their heads and raised their **dorsal fins**, a posture normally assumed only in the presence of a rival male   
 For the first few weeks of a chick’s life, its mother’s **beak** is its **sole** food source. That orange spot is a good target for chicks to aim at when they peck at their mother to prompt her to **regurgitate** food.  
-It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote. -  
+It occurred to him that it might be possible to **one-up** nature, to “make a dummy that would stimulate the chick still more than the natural object,” he wrote.  
    
 President Donald trump’s decision to brag in a tweet about the size of his “nuclear button” compared with North Korea’s was widely condemned as **bellicose** and **reckless**  
 be in a **bellicose** mood.  
@@ -231,7 +231,7 @@ Some are pretty **lavish** and **cheesy**.
 **eccentric** motion  
 A **servo** driving an **eccentric** **cam**.  -  
 **forestry** bureau, forestry machinery  
-The **militiaman** walked the spy off. -    
+The **militiaman** walked the spy off.  
 I **slogged** through the **heather** in the heat - 
 a **bourgeois morality**  
 a critique of **bourgeois** ideology  

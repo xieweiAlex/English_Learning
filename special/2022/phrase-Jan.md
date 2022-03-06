@@ -1,3 +1,10 @@
+
+If Russia is **drawn into** a long-lasting **partisan** war, so will the Russian people.   
+It has just **struck me that** I still owe you for the concert tickets.  
+That's when **it hit me that** my life would never be the same again.   
+You know my science teacher! **It's a small world**!   
+**Speak of the devil**, we were just talking about you.  
+Don't take it personally. It's mostly just because you **creep me out**.  
 **par for the course**.  
 
 That's my **two cents**.  

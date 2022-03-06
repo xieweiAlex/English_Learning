@@ -1,10 +1,47 @@
 
+## Week 1
 
+Urban housing **provident fund**.  
+Anything can happen, and any **flub** will be amplified beyond recognition. -  
+The book is a **diatribe** against the academic left. -  
+It was a period of rest and **recuperation**. -  
+
+I'm not gonna be Conway's **patsy**. -  
+Our backgrounds are different, but we're both **hardscrabble** boys **at heart**.  
+He becomes **obstreperous** when he's had a few drinks. -  
+Her **carriage** and **diction** were always **faultless**. -  
+
+heartless **vulture** capitalists.  
+Some have referred to Zuckerberg as "Zuckerborg" for his communications skills that can sometimes come of as **rehearsed** or **impersonal**.  
+During sleep, colon **motility** generally stops.  
+
+You kinda have to put your **blinders** on and focus on fundamentals. 
+**Recumbent** bicycle equipped with very comfortable office chair.
+**somatic** cell  
+
+Putin's war was **premeditated** and **unprovoked**. He rejected efforts at diplomacy.  
+Russia is said to **derive** a significant amount of money from the fees it imposes to use its airspace, or to land at one of its airports.  
+**In the hot seat**.  
+Powell has to **thread** a pretty thin needle.   
+Moscow already **chafes** at being beholden to a country that was once its protege during Soviet times, and it's uncomfortable with China's growing presence in Central Asia, which Russia regards as its backyard.  
+China's leaders aren't willing to **indelibly** tie themselves to "Putin's **chariot**," Sun said. "For China, this is a **calculus**. There is benefit and cost. -   
+Seniors swoop **in** as young chicks enter their first year in college.  
+The Chinese government is **swooping in** to assist Hong Kong as COVID cases overwhelm hospitals and testing facilities.  
+
+He seemed **aloof** and detached. -  
+He applied **varnish** to the table.  
+But the Russian **despot** has told his lie so many times that he apparently believes it himself.  
+
+## Week 4
+
+Howard wasn't **entitled** to an apology. The FBI were **entitled** to know about the Mars Rover incident, which proved he really was **irresponsible**.  
+I agree with your thesis as **enunciated** at the end of this video.  
+Excessive pressure can lead to **perforation** of the stomach wall. -  
+Do not let the discussion fragment into a **desultory** conversation with no clear direction.  
+The poor old man is beginning to **dodder**.  
 Still hard for me to imagine Putin has simply lost his **marbles**, but these are important questions..   
-
-If Russia is **drawn into** a long-lasting **partisan** war, so will the Russian people. -  
-It is important that we **dovetail** our respective interests. -  
-
+If Russia is **drawn into** a long-lasting **partisan** war, so will the Russian people.  
+It is important that we **dovetail** our respective interests.  
 Do **heredity** and environment determine a man’s character?  
 She spoke in a slow southern **drawl**.  
 I'd rather die than allow you to **defile** the Church. -  
@@ -19,19 +56,18 @@ I dreamt that my hair was **kempt**. -
 
 The future of the **ventless** storage of **cryogenic** liquid has been expected. -  
 While the accounts are now in the process of being **unfrozen**, organizers of the Freedom Convoy **dubbed** the move **financial warfare**, saying it would "**sow** mistrust in both the banking system and the government and the **repercussions** will be felt **for years to come**." -  
-
 He gave Robin a mildly **quizzical** glance.  
 The network has a **gateway** into the hospital mainframe.  
 Vladimir Putin is already **battering** Ukraine economically.  
-Germany **mothballs** the Nord Stream 2 pipeline, to the surprise of many. -  
+Germany **mothballs** the Nord Stream 2 pipeline, to the surprise of many.  
 He **enjoined** obedience on the soldiers. -  
-I was appalled by the **loutish** behaviour. -  
+I was appalled by the **loutish** behavior. -  
 Is the current food crisis just another market **vagary**? -  
 
 ### Week 3 
 
 I'm no stranger to the **Crimson** **scourge** that's **dermatitis**. -  
-I was ready to waste the last of my good **hemorrhoid** cream on you. -  
+I was ready to waste the last of my good **hemorrhoid** cream on you.  
 He is actually quite **sassy** and funny when he is getting comfortable with a woman so **no wonder**.  
 Troops into two **breakaway** regions.  
 The top 10% or so of the US income spectrum benefited from this policy at the expense of the bottom **deciles**.  
@@ -39,7 +75,7 @@ Fed officials aren't the only government **bigwigs** being forced to change thei
 
 There is also a little more complex **shoehorned** in there like storage, persistence is also a thing. 
 There are still some **warts** when it comes to matching up Kubernetes thought-experiment land.  
-Beyond that, watch for a **perennial** story. I checked our historical archive and found we mentioned Argentina back in 1844, then first wrote about the IMF in Argentina in 1965. The country has long offered a **lamentable** tale of economic mismanagement. -  
+Beyond that, watch for a **perennial** story. I checked our historical archive and found we mentioned Argentina back in 1844, then first wrote about the IMF in Argentina in 1965. The country has long offered a **lamentable** tale of economic mismanagement.  
 Forgiving others means leaving space for your own heart in case **turnabout**.  
 
 A move that threatened to **scuttle** negotiations with the West over the future security of eastern Europe and that could be used to justify an **incursion** into the territories. -   
@@ -62,10 +98,10 @@ I was surprised at his **candor**.
 "The passion for stretching yourself and sticking to it, even (or especially) when it’s not going well, is the **hallmark** of the growth mindset. This is the mindset that allows people to **thrive** during some of the most challenging times in their lives.  
 
 However, it’s important to mention that intermittent fasting and/or skipping breakfast does not **suit** everyone. The effects vary by individual.  
-His favourite **tipple** was rum and lemon. -  
+His favourite **tipple** was rum and lemon.  
 They saw the **gleam** of a lamp ahead.  
 Why are people so full of gloom and **doom**?  
-He never allowed his work to **impinge** on his private life. -  
+He never allowed his work to **impinge** on his private life.  
 She is the most vocal and **pertinacious** of all the critics of the policy. -  
 We knew we were in for a pretty long, **jejune** evening. -  
 I wasn't actually sick but I felt **lousy**.  
@@ -133,7 +169,7 @@ They swear, they are ill-mannered and aggressive, **willful** as two-years-olds 
 a **tiddly** little pool.  
 
 It was a **squalid affair** involving prostitutes and drugs.  
-She was not sick; it was just a **subterfuge**. -  
+She was not sick; it was just a **subterfuge**.  
 Try not to **slouch** when you are sitting down.  
 
 
@@ -179,7 +215,7 @@ I have also seen this **rodeo** before - an emerging market and the tell tale si
 You ARE allowed to **fumble around** for a while and get frustrated.  
 Languages were never my **forte**  
 Wait, and it'll all **blow over**.  
-**sepulchre**: a **receptacle** for religious relics especially in an **altar**. -  
+**sepulchre**: a **receptacle** for religious relics especially in an **altar**.  
 
 This process of **booms and busts** is called the business cycle.  
 Like buses, diplomatic crises **clump** together.  
@@ -214,7 +250,7 @@ The wilderness **campsite** had its own **peculiar** **enchantment**.
 They have a **cosmopolitan** distribution, with most species found outside of the Americas.  
 **halcyon** days.  
 **tactile** sensation.  
-The key of modern enterprise system is property right **perspicuity**. -  
+The key of modern enterprise system is property right **perspicuity**.  
 He quickly learned the **ins and outs** of the job.  
 The talks ended in (a) **stalemate**.  
 They're made layers of **tranches**.  
@@ -233,7 +269,7 @@ The girl was short and thin and her clothes were **garish**.
 **Tacit** agreement, **tacit** consent, **tacit** knowledge.  
 
 This week's **wintry** mix is expected to stress the power grid.  
-By 6pm, freezing temperatures will turn that rain into **sleet**. -  
+By 6pm, freezing temperatures will turn that rain into **sleet**.  
 
 I don’t like his **cheeky** manner.  
 
@@ -271,10 +307,13 @@ I'm extremely uncomfortable with dance loud music and most other forms of alcoho
 That's not **hyperbole**, I will be making changes because of what you just witnessed, I hope it hit you as hard as it hit me.  
 
 That sounds like a **grind**. 
-
 excuse me, can I **interject** something?  
 You used my **loofah**?  
-right, you're Howard's **entourage**. -  
-I asked if you were in the shower but that's **moot** now. -  
+right, you're Howard's **entourage**.  
+I asked if you were in the shower but that's **moot** now.  
 Based on a **cursory** reading, it doesn't look you've much of a case, Sheldon.  
 Your expectations have been **subverted**, haha.  
+Would you **characterize** him as responsible?  
+
+I find being cast in the role of bad girl oddly **titillating**. -  
+

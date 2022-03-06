@@ -96,7 +96,7 @@ The eggs quickly **hatch** into **larvae**.
 come out of the **woodwork**.  
 Low earth **orbit**.  
 It's unlikely she could have afforded this little **bauble** herself.  
-When the rice isn't cooked properly it goes **lumpy** and **gooey**. -  
+When the rice isn't cooked properly it goes **lumpy** and **gooey**.  
 A retrofit may involve putting in new door **jambs**.  
 He takes **umbrage** against anyone who criticizes him. -   
 **unpalatable** but wholesome advice.  
@@ -126,7 +126,7 @@ energy **undulation**, **tidal** **undulation**.
 even if it means I have to **cave in**.  
 I dislike **tardiness**.  
 
-Kate's new boyfriend is a very **couth** youth. -  
+Kate's new boyfriend is a very **couth** youth.  
 **porcelain** enamel  
 
 Would you **put away** your toys?   

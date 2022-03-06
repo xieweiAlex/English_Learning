@@ -1,4 +1,8 @@
 
+**lockstep** 
+
+## Week 3,4
+
 **necessity**
 
 **innately**
