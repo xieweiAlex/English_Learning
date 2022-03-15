@@ -280,7 +280,7 @@ I **wondered** down the road
 I always get the **jitters** before exams.  
 **rigid steel conduit**, underground **conduit**, **concealed conduit**  
 It's **futile** to allocate blame for this.  
-a child whose welfare is now under the **aegis** of courts -  
+a child whose welfare is now under the **aegis** of courts  
 **apocalyptic** literature  
 The University suspended the most **recalcitrant** demonstrators.  
 **petrochemical** engineering, **petrochemical** industry, petrochemical **plant**  

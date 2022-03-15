@@ -1,4 +1,5 @@
 
+* gleam, glint 
 * heterogeneity
 * empressement vs sincere 
 * beset vs beleaguer

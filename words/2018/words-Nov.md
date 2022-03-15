@@ -4,7 +4,7 @@ Nothing says you've “made it” like being able to afford a **down payment**. 
 Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken. -  
 (**regale** the honoured guests with a feast)  
 You order a vegan donut and very clearly ask the **barista** for three Splendas  
-You do the **grunt work** and analysis, and finish it just **in time** for him to breathe a sigh of relief and tell you what an “Excel ninja” you are -  
+You do the **grunt work** and analysis, and finish it just **in time** for him to breathe a sigh of relief and tell you what an “Excel ninja” you are  
 Your mind briefly **drifts off**, and you ask yourself  
 If you move to Austin, you could somehow **get by**  
   
@@ -99,7 +99,7 @@ the Mediterranean has been **overrun** by tourists
 he mustn't **overrun** his budget.  
 He was in an **agony** of **remorse**  
 Take **precautions** against fire!  
-The prime minister was **supplanted** by his rival. -   
+The prime minister was **supplanted** by his rival.  
 Hot and **arid** conditions  
   
   
@@ -190,7 +190,7 @@ Don't be such a **goody-goody**!
 **tit for tat**  
 (**stunt coordinator**, **stunt girl**, **stunt wards**)  
 an **ill-fated** **expedition**.  
-To **espouse** the idea of freedom -   
+To **espouse** the idea of freedom  
 Edward had **espoused** the lady Grey  
 Wherever there is **oppression**, there is resistance.  
   
@@ -442,7 +442,7 @@ acting as a **liaison** between product teams and infrastructure teams
 Modern hyper-growth Internet companies have (in my opinion) an **egregiously** large amount of **burnout**, primarily due to the **grueling** product demands coupled with a lack of investment in operational infrastructure  
 (an **egregious** lie, an **egregious** mistake )  
 I believe it is possible for engineering leadership to **buck the trend** by getting ahead of operations before it becomes a major **impediment** to organizational stability.  
-an **impediment** to reform, he has an **impediment** in speech. -    
+an **impediment** to reform, he has an **impediment** in speech.  
    
    
 People with heart or lung disease should remain indoors and avoid heavy **exertion**.  

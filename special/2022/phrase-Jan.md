@@ -1,3 +1,7 @@
+FedEx (NYSE:FDX) is the most notable company to **head off into** the earnings confessional.  
+Fun at work is becoming a business **in its own right**.  
+
+Another **curveball** could be **on tap** for today as the Labor Department publishes fresh Consumer Price Index data.  
 
 If Russia is **drawn into** a long-lasting **partisan** war, so will the Russian people.   
 It has just **struck me that** I still owe you for the concert tickets.  

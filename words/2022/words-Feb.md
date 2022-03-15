@@ -1,37 +1,3 @@
-
-## Week 1
-
-Urban housing **provident fund**.  
-Anything can happen, and any **flub** will be amplified beyond recognition. -  
-The book is a **diatribe** against the academic left. -  
-It was a period of rest and **recuperation**. -  
-
-I'm not gonna be Conway's **patsy**. -  
-Our backgrounds are different, but we're both **hardscrabble** boys **at heart**.  
-He becomes **obstreperous** when he's had a few drinks. -  
-Her **carriage** and **diction** were always **faultless**. -  
-
-heartless **vulture** capitalists.  
-Some have referred to Zuckerberg as "Zuckerborg" for his communications skills that can sometimes come of as **rehearsed** or **impersonal**.  
-During sleep, colon **motility** generally stops.  
-
-You kinda have to put your **blinders** on and focus on fundamentals. 
-**Recumbent** bicycle equipped with very comfortable office chair.
-**somatic** cell  
-
-Putin's war was **premeditated** and **unprovoked**. He rejected efforts at diplomacy.  
-Russia is said to **derive** a significant amount of money from the fees it imposes to use its airspace, or to land at one of its airports.  
-**In the hot seat**.  
-Powell has to **thread** a pretty thin needle.   
-Moscow already **chafes** at being beholden to a country that was once its protege during Soviet times, and it's uncomfortable with China's growing presence in Central Asia, which Russia regards as its backyard.  
-China's leaders aren't willing to **indelibly** tie themselves to "Putin's **chariot**," Sun said. "For China, this is a **calculus**. There is benefit and cost. -   
-Seniors swoop **in** as young chicks enter their first year in college.  
-The Chinese government is **swooping in** to assist Hong Kong as COVID cases overwhelm hospitals and testing facilities.  
-
-He seemed **aloof** and detached. -  
-He applied **varnish** to the table.  
-But the Russian **despot** has told his lie so many times that he apparently believes it himself.  
-
 ## Week 4
 
 Howard wasn't **entitled** to an apology. The FBI were **entitled** to know about the Mars Rover incident, which proved he really was **irresponsible**.  
@@ -44,9 +10,9 @@ If Russia is **drawn into** a long-lasting **partisan** war, so will the Russian
 It is important that we **dovetail** our respective interests.  
 Do **heredity** and environment determine a man’s character?  
 She spoke in a slow southern **drawl**.  
-I'd rather die than allow you to **defile** the Church. -  
+I'd rather die than allow you to **defile** the Church.  
 
-Some words are really too **esoteric** for this dictionary. -  
+Some words are really too **esoteric** for this dictionary.  
 I think a maze design is a very **esoteric** art.  
 He reported the speech **verbatim**.  
 
@@ -54,7 +20,7 @@ This is a **wily** politician.
 I dreamt that my hair was **kempt**. -  
 **comb**  
 
-The future of the **ventless** storage of **cryogenic** liquid has been expected. -  
+The future of the **ventless** storage of **cryogenic** liquid has been expected.  
 While the accounts are now in the process of being **unfrozen**, organizers of the Freedom Convoy **dubbed** the move **financial warfare**, saying it would "**sow** mistrust in both the banking system and the government and the **repercussions** will be felt **for years to come**." -  
 He gave Robin a mildly **quizzical** glance.  
 The network has a **gateway** into the hospital mainframe.  
@@ -82,7 +48,7 @@ A move that threatened to **scuttle** negotiations with the West over the future
 
 **countervailing** duties 
 **barf bag**  
-That effort will be **bootless**.  
+That effort will be **bootless**. -  
 **plausible deniability** 
 Raj: Hey look at me.I don't have a **foreskin**. 😂  
 
@@ -90,7 +56,7 @@ Raj: Hey look at me.I don't have a **foreskin**. 😂
 The city, **drab and dour** by day, is transformed at night.  
 **Exalt** the Lord our God and worship at his footstool; he is holy. -  
 I want to be **cognizant** about people's time.  
-He displayed determination as well as powerful **oratory**. -  
+He displayed determination as well as powerful **oratory**.  
 The most furious **anarchist** become the most **barefaced** **apostate**. -  
 many of our viewers have owned and unfortunately have **ridden down** so far. 
 I was surprised at his **candor**.  
@@ -118,8 +84,7 @@ Yet these gains are **tactical**. Even as Mr Putin has won them, in a longer-las
 War would make all these things worse, and turn Ukraine into a **running sore**, bleeding Russia of money and men.  
 
 Your lips had a **dalliance** with the lips of another woman. -  
-The **stone-hearted** **miser** **plagued** by the ghost of Christmas past. -  
-
+The **stone-hearted** **miser** **plagued** by the ghost of Christmas past.  
 He lived on the street as a **vagrant**. -  
 She **affixes** her real name to her writings.  
 
@@ -154,7 +119,7 @@ The crowd went absolutely mad. It was **bedlam**. -
 Two other looming stories could **come to the fore**.  
 
 he was a **redoubtable** debater with a caustic tongue.  
-Let us cut the **baloney** on this subject. -  
+Let us cut the **baloney** on this subject.  
 
 You're such a **prude**.  
 She received a mild **reproof** from the teacher.  
@@ -180,12 +145,12 @@ It seemed **prudent** to exit at the time, but for three years we underperformed
 A bubble that is beginning to look like a real **humdinger**. -  
 She **penned** a June 2020 article about how businesses can protect themselves from cybercriminals.    
 Due to low inventory, fewer people want to list their home. This pushes inventory down further, making even more owners **reticent** to list.  
-Where the quality of humor, are smart **perspicacious**. -  
+Where the quality of humor, are smart **perspicacious**.  
 Opponents said this would **contravene** international **treaties**.  
 His **insolent** manner really got my **blood up**.  
 The desire for revenge can be **overpowering**.  
 Because of all the **oozing** **gunk**!  
-He had a **premonition** that he would never see her again. -  
+He had a **premonition** that he would never see her again.  
 Edgar was a **martyr** to his sense of honour and responsibility.  
 **old chap**.  
 
@@ -264,7 +229,6 @@ A **contemptuous** smile flitted across Injun Joe's face.
 **tabby cat**  
 The prisoner obtained a **commutation** of his sentence from death to life **imprisonment**.  
 I don't think we should make **precipitate decisions**.  
-The girl was short and thin and her clothes were **garish**.  
 
 **Tacit** agreement, **tacit** consent, **tacit** knowledge.  
 
@@ -314,6 +278,13 @@ I asked if you were in the shower but that's **moot** now.
 Based on a **cursory** reading, it doesn't look you've much of a case, Sheldon.  
 Your expectations have been **subverted**, haha.  
 Would you **characterize** him as responsible?  
+I find being cast in the role of bad girl oddly **titillating**.  
 
-I find being cast in the role of bad girl oddly **titillating**. -  
+you little **ray of sunshine** is ready to **beam** again. 
+You rub every man on the planet but **draw the line** the me?  
+you know when you're sick, you're allowed to be **cranky** and say whatever you want, and other people's feelings don't matter?  
+Probably because I **exude** confidence, people are **drawn to** that, you know.  
+
+
+
 
