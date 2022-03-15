@@ -85,7 +85,7 @@ War would make all these things worse, and turn Ukraine into a **running sore**,
 
 Your lips had a **dalliance** with the lips of another woman. -  
 The **stone-hearted** **miser** **plagued** by the ghost of Christmas past.  
-He lived on the street as a **vagrant**. -  
+He lived on the street as a **vagrant**.  
 She **affixes** her real name to her writings.  
 
 She's very **thorough** and **conscientious**.  
@@ -284,7 +284,5 @@ you little **ray of sunshine** is ready to **beam** again.
 You rub every man on the planet but **draw the line** the me?  
 you know when you're sick, you're allowed to be **cranky** and say whatever you want, and other people's feelings don't matter?  
 Probably because I **exude** confidence, people are **drawn to** that, you know.  
-
-
 
 

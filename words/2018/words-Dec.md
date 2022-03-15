@@ -168,7 +168,7 @@ So superior that tests are **inconsequential** to quality
 Guo was a very high-ranking military official, but my next example of somebody **amassing** enough **ill-gotten** cash to fill a truck involves a man who was just a **low-ranking**, very ordinary government official  
 When this guy was **on the run** he pretended to be a farmer going to market with a truck load of vegetables  
 All this cash comes out of the collection plate that is passed among the **congregation** of ordinary people who come to **worship** at the **altar** of power  
-The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  --  
+The **glint** from all the gold paid in bribes **sheds** some light on China’s very **peculiar** reality  
 There are **toxins** in our baby **formula**  
    
 The malware itself is relatively **underwhelming**  

@@ -1,3 +1,4 @@
+This is a **sea change** in job definition.  
 FedEx (NYSE:FDX) is the most notable company to **head off into** the earnings confessional.  
 Fun at work is becoming a business **in its own right**.  
 

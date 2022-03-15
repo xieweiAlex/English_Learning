@@ -1,11 +1,10 @@
 
-They use opium as a sedative, rather than as a narcotic.  
+They use opium as a sedative, rather than as a **narcotic**.  
 
-
-He employs an irreverent humour to salt his observation.  
-YOoou're witty & irreverent but still a kind person.  
-I've lived off only Soylent, and I've lived off only on Huel.  
-The price is horrid no doubt but I had one shake this morning and felt really good and now one shake at night also feeling very good now.  
+He employs an **irreverent** humor to salt his observation.  
+You're witty & **irreverent** but still a kind person.  
+I've **lived off** only Soylent, and I've lived off only on Huel.  
+The price is **horrid** no doubt but I had one shake this morning and felt really good and now one shake at night also feeling very good now.  
 
 ## Week 2 
 
@@ -34,14 +33,12 @@ two years of **feckless** negotiations.
 Her husband was a charming, but lazy and **feckless** man. -  
 Another **curveball** could be **on tap** for today as the Labor Department publishes fresh Consumer Price Index data.  
 
-
 In the first days of war, Russia’s armoured might **shrivelled** before the courage of the nation it had attacked.   
 I'm not **uptight**, man.  
 Oil makes up about 45% of gas prices, which is why President Biden is playing **footsie** with the Iranians, Saudis and Venezuelans.  They have oil. Biden wants cheaper gas. -   
-Makeshift arms are pouring out of Ukraine’s **ateliers**.  
+**Makeshift** arms are **pouring out of** Ukraine’s **ateliers**. -  
 
-
-"They tried to depict the U.S., the West and NATO as not trustworthy and people in Taiwan as delusional to think the U.S. will protect Taiwan at all," Doublethink Lab CEO Min Hsuan Wu told Axios.
+"They tried to **depict** the U.S., the West and NATO as not trustworthy and people in Taiwan as delusional to think the U.S. will protect Taiwan at all," Doublethink Lab CEO Min Hsuan Wu told Axios.
 **Burn pits** were used during the U.S. wars in Iraq and Afghanistan to dispose of all manner of waste, including metal, plastics, rubber, and human **excrement**.  
 Could some broader peace talks **beckon**? Probably not. It’s more in Mr Putin’s nature to double down, not **back down**. -   
 
@@ -62,7 +59,7 @@ His **vacuity** was a handicap in these debates.
 This color is bright but not **garish**.  
 The girl was short and thin and her clothes were **garish**.  
 You spend too much time **moping around** the house. -  
-Only then did I learn the **unpalatable** truth. -  
+Only then did I learn the **unpalatable** truth.  
 
 Urban housing **provident fund**.  
 Anything can happen, and any **flub** will be amplified beyond recognition. -  
@@ -94,4 +91,7 @@ The Chinese government is **swooping in** to assist Hong Kong as COVID cases ove
 He seemed **aloof** and detached. -  
 He applied **varnish** to the table.  
 But the Russian **despot** has told his lie so many times that he apparently believes it himself.  
+
+
+## Conversation 
 

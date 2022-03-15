@@ -98,7 +98,7 @@ Low earth **orbit**.
 It's unlikely she could have afforded this little **bauble** herself.  
 When the rice isn't cooked properly it goes **lumpy** and **gooey**.  
 A retrofit may involve putting in new door **jambs**.  
-He takes **umbrage** against anyone who criticizes him. -   
+He takes **umbrage** against anyone who criticizes him.  
 **unpalatable** but wholesome advice.  
 
 Kevin **capitulated**.  
@@ -141,7 +141,7 @@ Rising rates on the German bund reflect how central banks are now **backing off*
 A **pipe bomb** is an improvised explosive device, which uses a tightly sealed section of pipe filled with an explosive material.  
 The **containment** provided by the pipe means that simple low explosives can be used to produce a relatively large explosion, and the **fragmentation** of the pipe itself creates potentially lethal **shrapnel**.  
 I already knew I was **unsightly** but I didn't realize how many things people didn't enjoy about me.  
-Bill Burr making fun of Europeans, meanwhile he's dressed like every **slavic** **hoodlum** I know. -  
+Bill Burr making fun of Europeans, meanwhile he's dressed like every **slavic** **hoodlum** I know.  
 
 I'm notoriously a **cheapskate** most of the time but I did drop the money to buy anki.  
 **accommodative** monetary policy.  
