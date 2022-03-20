@@ -1,27 +1,27 @@
 ## words-Mar.md ## 
 words/2022/words-Mar.md  
-**Knead** the dough to the right **consistency**. -    
-FedEx (NYSE:FDX) is the most notable company to **head off into** the earnings **confessional**. -  
+As if that wasn’t enough, poor sleep can lead to negative moods, less productivity, and **unseemly** behavior at work. -  
+More than 400 multinational companies have **vamoosed** out of Russia in the three weeks since it launched its unprovoked invasion of Ukraine. -  
+Common health risks of swimming in winter or extremely cold water include **hypothermia** and cold-water shock. -  
+Tom suddenly changed from a well - behaved child into a **loutish** adolescent. -  
+the **Stygian** **crypt**. -  
+His words were a mixture of pity and **reproof**. -  
+The area has also **sprouted** critic darlings like St. Vincent, Charley Crockett and Joshua Ray Walker. -  
+They use opium as a sedative, rather than as a **narcotic**. -  
 Senate Minority Leader Mitch McConnell (R-Ky.), one of America's most **inscrutable** power players, has made the surprising decision to open his archive to a journalist and sit for long interviews. -  
-Western governments need to respond to the commodity threat as **determinedly** as to the **senseless** aggression of the 21st-century Stalin. -  
 To **desecrate** a holy spring is considered profanity. -  
 Unfortunately, the fans aren't all that **rapacious**. -  
 Her husband was a charming, but lazy and **feckless** man. -  
-Oil makes up about 45% of gas prices, which is why President Biden is playing **footsie** with the Iranians, Saudis and Venezuelans.  They have oil. Biden wants cheaper gas. -   
 **Makeshift** arms are **pouring out of** Ukraine’s **ateliers**. -  
-Could some broader peace talks **beckon**? Probably not. It’s more in Mr Putin’s nature to double down, not **back down**. -   
 I have been nothing but a **truant** and a **vagabond**. -  
 The **mousse** helps shape my hair. -  
 If you fly much, you see these things and learn to act **blase** about them. -  
-You spend too much time **moping around** the house. -  
-Anything can happen, and any **flub** will be amplified beyond recognition. -  
 The book is a **diatribe** against the academic left. -  
 It was a period of rest and **recuperation**. -  
 I'm not gonna be Conway's **patsy**. -  
 He becomes **obstreperous** when he's had a few drinks. -  
 Moscow already **chafes** at being beholden to a country that was once its **protege** during Soviet times, and it's uncomfortable with China's growing presence in Central Asia, which Russia regards as its backyard. -  
-China's leaders aren't willing to **indelibly** tie themselves to "Putin's **chariot**," Sun said. "For China, this is a **calculus**. There is benefit and cost. -   
-He seemed **aloof** and detached. -  
+You're **peeping**. -  
 
 ## words-Feb.md ## 
 words/2022/words-Feb.md  
@@ -33,9 +33,6 @@ I was appalled by the **loutish** behavior. -
 Is the current food crisis just another market **vagary**? -  
 I'm no stranger to the **Crimson** **scourge** that's **dermatitis**. -  
 A move that threatened to **scuttle** negotiations with the West over the future security of eastern Europe and that could be used to justify an **incursion** into the territories. -   
-That effort will be **bootless**. -  
-**Exalt** the Lord our God and worship at his footstool; he is holy. -  
-The most furious **anarchist** become the most **barefaced** **apostate**. -  
 She is the most vocal and **pertinacious** of all the critics of the policy. -  
 We knew we were in for a pretty long, **jejune** evening. -  
 He was wearing a **burgundy** polyester jacket. -  

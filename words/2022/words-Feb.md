@@ -48,16 +48,16 @@ A move that threatened to **scuttle** negotiations with the West over the future
 
 **countervailing** duties 
 **barf bag**  
-That effort will be **bootless**. -  
+That effort will be **bootless**.  
 **plausible deniability** 
 Raj: Hey look at me.I don't have a **foreskin**. 😂  
 
 **dribs and drabs**.  
 The city, **drab and dour** by day, is transformed at night.  
-**Exalt** the Lord our God and worship at his footstool; he is holy. -  
+**Exalt** the Lord our God and worship at his footstool; he is holy.  
 I want to be **cognizant** about people's time.  
 He displayed determination as well as powerful **oratory**.  
-The most furious **anarchist** become the most **barefaced** **apostate**. -  
+The most furious **anarchist** become the most **barefaced** **apostate**.  
 many of our viewers have owned and unfortunately have **ridden down** so far. 
 I was surprised at his **candor**.  
 
