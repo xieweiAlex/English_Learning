@@ -1,8 +1,14 @@
+
+His already **infirm** body was **racked** by high fever. -  
+Copernicus, the Earth revolves around the sun.  
+It was a knotty question.   
+
+
 ## Week 4
 
 Howard wasn't **entitled** to an apology. The FBI were **entitled** to know about the Mars Rover incident, which proved he really was **irresponsible**.  
 I agree with your thesis as **enunciated** at the end of this video.  
-Excessive pressure can lead to **perforation** of the stomach wall. -  
+Excessive pressure can lead to **perforation** of the stomach wall.  
 Do not let the discussion fragment into a **desultory** conversation with no clear direction.  
 The poor old man is beginning to **dodder**.  
 Still hard for me to imagine Putin has simply lost his **marbles**, but these are important questions..   
@@ -21,13 +27,13 @@ I dreamt that my hair was **kempt**. -
 **comb**  
 
 The future of the **ventless** storage of **cryogenic** liquid has been expected.  
-While the accounts are now in the process of being **unfrozen**, organizers of the Freedom Convoy **dubbed** the move **financial warfare**, saying it would "**sow** mistrust in both the banking system and the government and the **repercussions** will be felt **for years to come**." -  
+While the accounts are now in the process of being **unfrozen**, organizers of the Freedom Convoy **dubbed** the move **financial warfare**, saying it would "**sow** mistrust in both the banking system and the government and the **repercussions** will be felt **for years to come**."  
 He gave Robin a mildly **quizzical** glance.  
 The network has a **gateway** into the hospital mainframe.  
 Vladimir Putin is already **battering** Ukraine economically.  
 Germany **mothballs** the Nord Stream 2 pipeline, to the surprise of many.  
 He **enjoined** obedience on the soldiers. -  
-I was appalled by the **loutish** behavior. -  
+I was appalled by the **loutish** behavior.  
 Is the current food crisis just another market **vagary**? -  
 
 ### Week 3 
@@ -77,13 +83,13 @@ How the **righteous** love to **bemoan** their role in middle management, and co
 CEO and founder Anthony Wood has always **turned a blind eye** to the market in favor of building a great long-term business, and today is no different.  
 
 He was wearing a **burgundy** polyester jacket. -  
-I tossed my husband's dishes into the **sudsy** water. -  
+I tossed my husband's dishes into the **sudsy** water.  
 You need manual **dexterity** to be good at video games.  
 Markets appeared to get some **respite** overnight as S&P 500 futures climbed 0.5%.  
 Yet these gains are **tactical**. Even as Mr Putin has won them, in a longer-lasting and more **strategic** sense he has lost ground, by **galvanizing** NATO, pushing Ukraine and the West together and driving Russia further into **autarky** and **repression**.  
 War would make all these things worse, and turn Ukraine into a **running sore**, bleeding Russia of money and men.  
 
-Your lips had a **dalliance** with the lips of another woman. -  
+Your lips had a **dalliance** with the lips of another woman.  
 The **stone-hearted** **miser** **plagued** by the ghost of Christmas past.  
 He lived on the street as a **vagrant**.  
 She **affixes** her real name to her writings.  
@@ -155,7 +161,7 @@ Edgar was a **martyr** to his sense of honour and responsibility.
 **old chap**.  
 
 a "guide" assigned to his team "at the last moment to follow us everywhere and take back the people we ask questions if they **deviate** from the official discourse.  
-In 2022, leaders in Beijing seem less interested in **garnering** **approbation** from Western democracies and their reporters and more interested in demonstrating that their rules matter most. -  
+In 2022, leaders in Beijing seem less interested in **garnering** **approbation** from Western democracies and their reporters and more interested in demonstrating that their rules matter most.  
 Demonstrations against vaccine mandates, or a movement that started as the "Freedom **Convoy**" in **Ottawa**, has made a landing in the U.S. Pickup trucks.  
 
 A correspondent in Beijing for Dutch national broadcaster NOS was **manhandled away** from his camera during a live news show shortly before the Winter Olympics opening ceremony.  

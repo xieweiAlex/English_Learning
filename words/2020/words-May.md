@@ -320,7 +320,6 @@ blue **ribbon**
 **Belarus**  
 This mistake has **undone** all our good work.  
 she **undid** the string round the parcel  
-**racquet** / racket  
 With all of us at your **beck and call**  
 straight **lunge**  
 main **shaft**, **shaft lining**  

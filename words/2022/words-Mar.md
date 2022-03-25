@@ -1,4 +1,24 @@
 
+**tectonic change**.  
+
+Waymo is set to make its ride-hailing service fully driverless on the **hilly streets** of San Francisco.  
+A grim and **unsightly** picture met his eye.  
+Not flow to small and small moving **pathos**.  
+illegal **Interlope**  
+
+
+## Week 3 
+
+This combination brought a massive amount of **untapped** labor into global markets within a rather short period of time, which allowed corporations to **geographically** arbitrage their operations.  
+But it did also help hundreds of millions of people rise out of **abject** poverty in these developing countries. -  
+Some of these had their roots in the early 20th century manufacturing revolution (via Ford, Toyota, and others), but they were basically rediscovered, **expounded** upon, and brought to a new level in the 1980s, 1990s, and 2000s across the entire manufacturing sector. -  
+Companies basically **traded away** resilience **in favor of** efficiency, while pretending that there was minimal downside, and yet this type of approach only works under a **benign** global environment.  
+
+**Excavate** is a term that means to dig out and remove soil. -  
+**racquet** / racket  
+A walk in the fresh air will **pep you up**.   
+Zelensky to seize the **bully pulpit**, calling on the U.S. to behave like a superpower.  
+
 **psychomotor** speed.  
 > More than that, especially longer than 30 minutes, is likely to leave you feeling **sluggish**, **groggy**, and more tired than before you closed your eyes.  
 
@@ -72,7 +92,7 @@ I have been nothing but a **truant** and a **vagabond**. -
 The **mousse** helps shape my hair. -  
 It was like eating butter **redolent** with raw garlic.  
 
-If you fly much, you see these things and learn to act **blase** about them. -  
+If you fly much, you see these things and learn to act **blase** about them.  
 Ukraine took heavier losses **at the outset**, but Russia’s losses are considerably greater thereafter.  
 Russian assets have become toxic, **for a lack of better expression**.  
 **Onshore markets** are **barricaded** and basically uninvestable, while offshore markets have been **hammered**.  
@@ -90,7 +110,7 @@ Anything can happen, and any **flub** will be amplified beyond recognition.
 The book is a **diatribe** against the academic left. -  
 It was a period of rest and **recuperation**. -  
 
-I'm not gonna be Conway's **patsy**. -  
+I'm not gonna be Conway's **patsy**.  
 Our backgrounds are different, but we're both **hardscrabble** boys **at heart**.  
 He becomes **obstreperous** when he's had a few drinks. -  
 Her **carriage** and **diction** were always **faultless**.  
@@ -123,4 +143,12 @@ You're **peeping**. -
 You **wound up** in traffic court.  
 He's **grown on** me.  
 I'm single **on my own merits**.  
+
+so how are you **holding up**?  
+Oh, who are kidding? She is **breathtaking**.  
+It's actually Thai, you're **slipping**.  
+
+You think you have me **stymied**, don't you?  
+**be a lamb** and open the door for me.  
+
 

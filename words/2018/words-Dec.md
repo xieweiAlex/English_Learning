@@ -53,7 +53,7 @@ So especially if you have a “**checkered**” past and need some help especial
 IN 1994, soon after Jeff Bezos **incorporated** what would become Amazon, the entrepreneur briefly **contemplated** changing the company’s name  
 Twenty-four years later, perhaps no **adjective** better describes Bezos’ empire than the name he once wanted to give it  
 The company is known as the “everything store,” but in its **dogged** pursuit of growth, Amazon has come to dominate more than just ecommerce  
-But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition. -  
+But few other companies can claim leadership in sectors as **disparate** as videogame streaming, online fabric sales, and facial recognition.  
 Amazon Web Services, is the **cash cow**  
 Amazon can use its cloud cash to **subsidize** the goods it ships to customers, helping to **undercut** retail competitors who don’t have similar **adjunct** revenue streams  
 (**adjunct professor**)  
@@ -420,7 +420,7 @@ they get all these **tax breaks** and all these **subsidies**
    
 **contrarian**  
 the comment came more from a **contrarian** **disposition** than moral conviction  
-Home to Japanese soul food, **unbridled** creativity and -  
+Home to Japanese soul food, **unbridled** creativity and  
 Beef muscles **simmered** in many hours until it becomes tender  
 It's **baffling** to me that Osaka is so often **overlooked** by visitors to Japan  
 **inexorably** drawn in by Tokyo's overwhelming **gravitational pull**  
