@@ -1,9 +1,4 @@
 
-His already **infirm** body was **racked** by high fever. -  
-Copernicus, the Earth revolves around the sun.  
-It was a knotty question.   
-
-
 ## Week 4
 
 Howard wasn't **entitled** to an apology. The FBI were **entitled** to know about the Mars Rover incident, which proved he really was **irresponsible**.  
@@ -82,7 +77,7 @@ How the **righteous** love to **bemoan** their role in middle management, and co
 
 CEO and founder Anthony Wood has always **turned a blind eye** to the market in favor of building a great long-term business, and today is no different.  
 
-He was wearing a **burgundy** polyester jacket. -  
+He was wearing a **burgundy** polyester jacket.  
 I tossed my husband's dishes into the **sudsy** water.  
 You need manual **dexterity** to be good at video games.  
 Markets appeared to get some **respite** overnight as S&P 500 futures climbed 0.5%.  
@@ -97,12 +92,12 @@ She **affixes** her real name to her writings.
 She's very **thorough** and **conscientious**.  
 Meanwhile, vulnerable narcissists can be quiet and **reserved**.  
 
-The answer was lost in **a shout of** **ribald** laughter. -  
+The answer was lost in **a shout of** **ribald** laughter.  
 **glutinous** rice. -
 I think you guys are blowing this **out of proportion**.  
 The 2 year old was "screaming and bleeding **profusely**." She was given first aid by a medic on-site.  
 
-Practice human interaction and social **comportment**. -  
+Practice human interaction and social **comportment**.  
 The British charachter is often said to be **phlegmatic**.  
 The four temperaments are: **choleric**, melancholic, **phlegmatic** and sanguine.  
 
@@ -121,7 +116,7 @@ You should not **palter with** the truth.
 ## Week 2 
 **par for the course**.  
 
-The crowd went absolutely mad. It was **bedlam**. -  
+The crowd went absolutely mad. It was **bedlam**.  
 Two other looming stories could **come to the fore**.  
 
 he was a **redoubtable** debater with a caustic tongue.  

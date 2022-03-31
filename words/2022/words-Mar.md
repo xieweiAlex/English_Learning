@@ -1,4 +1,50 @@
 
+In a performant way with low overhead.  
+
+
+
+Not only would the claim be the biggest among airplane lessors, but it could be one of the largest single claims ever submitted. 
+AerCap has only managed to repossess 22 aircraft and three engines located in Russia, out of a total of 135 planes and 14 engines on lease in the country.  
+
+
+Their much **vaunted** reforms did not materialize.  
+insurance **indemnity**. - 
+
+> The Humorous contest will be first (I am contestant #5) followed by the International Speech contest.
+
+**Didn't see that coming**. 
+**that was unexpected**.  
+**I never thought about that**. 
+
+
+Local **whiz** kid wins national science prize.  
+Plus, they’re often competitively priced — some CSAs start at around $10 per box — and offer **scrumptious** fruits and veggies like turnips, chayote squash, and unique melon varieties.  
+
+
+## Week 4 
+**peppercorn rent**.  
+This was abosolutely **crucible** of China's economic boom. -  
+
+It’s going to take a while to **sort out**.  
+His already **infirm** body was **racked** by high fever. -  
+**Copernicus**, the Earth revolves around the sun.  
+It was a **knotty** question.   
+
+Honey and sugar are both carbohydrates composed primarily of **glucose** and **fructose**. -  
+Many of the **antioxidants** found in honey are classified as **flavonoids**. Flavonoids have **anti-inflammatory** properties, which may provide some health benefits.  
+For example, **buckwheat** honey is a popular dark honey known for its **malty** taste. **Fireweed** honey is a light variety that’s nearly translucent in color and has a tea-like flavor.  
+Raw, **unpasteurized** honey contains trace amounts of local pollen, which may help **desensitize** allergic reaction. -  
+When used as a **salve** in **gel form**, it may help promote healing of wounds and minor burns. -  
+China has insistently **sought to** shift the focus to the question of U.S. biological weapons labs in Ukraine.  
+White House spokesperson Jen Psaki on Twitter called the claims "**preposterous**."  
+China **churns out** billionaires.  
+
+You **sold me**. 
+you **sold me out**.  
+I'm **all over you**.  
+**I'm over you**.  
+**There you go**.  
+
 **tectonic change**.  
 
 Waymo is set to make its ride-hailing service fully driverless on the **hilly streets** of San Francisco.  
@@ -10,11 +56,11 @@ illegal **Interlope**
 ## Week 3 
 
 This combination brought a massive amount of **untapped** labor into global markets within a rather short period of time, which allowed corporations to **geographically** arbitrage their operations.  
-But it did also help hundreds of millions of people rise out of **abject** poverty in these developing countries. -  
+But it did also help hundreds of millions of people rise out of **abject** poverty in these developing countries.  
 Some of these had their roots in the early 20th century manufacturing revolution (via Ford, Toyota, and others), but they were basically rediscovered, **expounded** upon, and brought to a new level in the 1980s, 1990s, and 2000s across the entire manufacturing sector. -  
 Companies basically **traded away** resilience **in favor of** efficiency, while pretending that there was minimal downside, and yet this type of approach only works under a **benign** global environment.  
 
-**Excavate** is a term that means to dig out and remove soil. -  
+**Excavate** is a term that means to dig out and remove soil.  
 **racquet** / racket  
 A walk in the fresh air will **pep you up**.   
 Zelensky to seize the **bully pulpit**, calling on the U.S. to behave like a superpower.  
@@ -43,7 +89,7 @@ The area has also **sprouted** critic darlings like St. Vincent, Charley Crocket
 Beijing's **tacit support** for Putin during Russia's invasion of Ukraine hasn't been lost on Europeans, who are viewing the Chinese government with growing skepticism.  
 Chinese officials and state media have widely **disseminated** pro-Russia disinformation and government censors have scrubbed the Chinese internet of pro-Ukraine views.
 There was **audible** **booing** and **jeering** going on from the Chinese students **partway** through her question, and during the answer, they started to get up and just walked out of the room.  
-They use opium as a sedative, rather than as a **narcotic**. -  
+They use opium as a sedative, rather than as a **narcotic**.  
 
 He employs an **irreverent** humor to salt his observation.  
 You're witty & **irreverent** but still a kind person.  
@@ -64,20 +110,20 @@ Amazon, meanwhile, has kept on expanding its own e-commerce platform to include 
 Fun at work is becoming a business **in its own right**.  
 A long time horizon can turn even **modest** savings into life-changing wealth.  
 
-Senate Minority Leader Mitch McConnell (R-Ky.), one of America's most **inscrutable** power players, has made the surprising decision to open his archive to a journalist and sit for long interviews. -  
+Senate Minority Leader Mitch McConnell (R-Ky.), one of America's most **inscrutable** power players, has made the surprising decision to open his archive to a journalist and sit for long interviews.  
 The **trove** includes everything from childhood mementos to official papers.  
 Western governments need to respond to the commodity threat as **determinedly** as to the **senseless** aggression of the 21st-century Stalin.  
 
 
 Nina Conti the best **ventriloquist** performance.  
 To **desecrate** a holy spring is considered profanity. -  
-Unfortunately, the fans aren't all that **rapacious**. -  
+Unfortunately, the fans aren't all that **rapacious**.  
 
 two years of **feckless** negotiations.  
-Her husband was a charming, but lazy and **feckless** man. -  
+Her husband was a charming, but lazy and **feckless** man.  
 Another **curveball** could be **on tap** for today as the Labor Department publishes fresh Consumer Price Index data.  
 
-In the first days of war, Russia’s armoured might **shrivelled** before the courage of the nation it had attacked.   
+In the first days of war, Russia’s armored might **shrivelled** before the courage of the nation it had attacked.   
 I'm not **uptight**, man.  
 Oil makes up about 45% of gas prices, which is why President Biden is playing **footsie** with the Iranians, Saudis and Venezuelans.  They have oil. Biden wants cheaper gas.  
 **Makeshift** arms are **pouring out of** Ukraine’s **ateliers**. -  
@@ -112,7 +158,7 @@ It was a period of rest and **recuperation**. -
 
 I'm not gonna be Conway's **patsy**.  
 Our backgrounds are different, but we're both **hardscrabble** boys **at heart**.  
-He becomes **obstreperous** when he's had a few drinks. -  
+He becomes **obstreperous** when he's had a few drinks.  
 Her **carriage** and **diction** were always **faultless**.  
 
 heartless **vulture** capitalists.  
@@ -139,7 +185,7 @@ But the Russian **despot** has told his lie so many times that he apparently bel
 ## Conversation 
 How do we **square** this?  
 This is a **race to the bottom**.  
-You're **peeping**. -  
+You're **peeping**.  
 You **wound up** in traffic court.  
 He's **grown on** me.  
 I'm single **on my own merits**.  
@@ -151,4 +197,5 @@ It's actually Thai, you're **slipping**.
 You think you have me **stymied**, don't you?  
 **be a lamb** and open the door for me.  
 
+what do the two of you talk about after the **coitus**.  
 

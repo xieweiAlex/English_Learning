@@ -81,7 +81,7 @@ Bitcoin turns 13 this year. It's no longer **on the fringes of** finance.
 That **stems from** the fact that they tend to have high price-to-earnings ratios and typically pay little in the way of dividends.  
 
 Slogans **petrify** our thinking.  
-**dyspeptic** symptom, dyspeptic vomiting. -  
+**dyspeptic** symptom, dyspeptic vomiting.  
 
 ## Week 3
 

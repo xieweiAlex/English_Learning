@@ -1,7 +1,7 @@
 ## Week 4  
 After all, both of you are so smart and **accomplished**  
 Nothing says you've “made it” like being able to afford a **down payment**. Besides, San Bruno is “**up and coming**,” and YouTube has an office there  
-Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken. -  
+Your 27-year-old CEO calls an **ad-hoc** all-hands meeting and **regales** about company culture and how your mission is to “kill e-mail because it’s broken.  
 (**regale** the honoured guests with a feast)  
 You order a vegan donut and very clearly ask the **barista** for three Splendas  
 You do the **grunt work** and analysis, and finish it just **in time** for him to breathe a sigh of relief and tell you what an “Excel ninja” you are  

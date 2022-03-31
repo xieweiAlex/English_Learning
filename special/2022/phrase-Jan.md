@@ -1,5 +1,10 @@
-FedEx (NYSE:FDX) is the most notable company to **head off into** the earnings **confessional**. -  
 
+FedEx (NYSE:FDX) is the most notable company to **head off into** the earnings **confessional**. -  
+You **sold me**. 
+you **sold me out**.  
+I'm **all over you**.  
+**I'm over you**.  
+**There you go**.  
 
 
 
