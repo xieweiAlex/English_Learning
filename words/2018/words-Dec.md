@@ -20,7 +20,7 @@ The **fledgling** democracies of eastern Europe
 The crisis led to the **downfall** of the government.    
 The **curfew** takes effect at midnight  
 The republics want **secession** from the union.    
-This sign **presage** rains. -  
+This sign **presage** rains.  
 hold **discourse** with sb  
 a **discourse** on critical theory.  
 a **pat** of butter  
@@ -359,7 +359,7 @@ But Mr Hvid wouldn't be the first person to get past security and **scale** the 
 crying is a **cathartic** release.  
 I think that was a valuable exercise, and maybe it even helped some people. Mostly, though, it was **cathartic**  
 Founders lack a **coherent** way to think about when to shut down  
-It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision -  
+It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision  
    
 I am sure this is a **non-exhaustive** list  
 **exhaustive method**  

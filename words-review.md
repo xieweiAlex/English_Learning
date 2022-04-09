@@ -1,15 +1,27 @@
 ## words-Mar.md ## 
 words/2022/words-Mar.md
+In fact, he sounded **somber** and **contrite**. -  
+Tesla held an event, billed as a “Cyber Rodeo,” to which it invited 15,000 people to listen to live music, eat food, and **pay homage to** Elon Musk and his company. -  
+I don't know whether we have **discursion** in this market. -  
+**Credulous** people are easily misled by false advertisements. -  
+He gets very **maudlin** when he's **in his cups**. -  
+She is too free with her tongue and is rather **impertinent** to people. -  
+a **gossamer** justification, **gossamer** wings. -  
+What was it like day after day in their **fetid** cargo bay? -  
+It is a **quaint** and **marvellous** thought! -  
+She was looking very **haggard** and worn. -  
+**libelous** action. -  
+In this market, trading in your vehicle will fetch more money than ever. It will help **defray** the costs of buying another car, whether a new or used vehicle. -  
+Disruptive innovation is **inexorable**. - 
+If I sought only pleasure, I would stay on my couch and **inadvertently** deny myself enjoyment, settling for a comfort that is animal and **evanescent**. It is a bad trade. -  
+When we say to our kids, “Turn off the computer and go play outside,” we are **exhorting** them to choose enjoyment by doing something that requires more **voluntary effort**, does not create a dependency, and has more enduring benefits. -  
+The evening was charming, full of **prattle**, of dreams together. -  
 insurance **indemnity**. - 
-This was abosolutely **crucible** of China's economic boom. -  
-His already **infirm** body was **racked** by high fever. -  
 Honey and sugar are both carbohydrates composed primarily of **glucose** and **fructose**. -  
 Raw, **unpasteurized** honey contains trace amounts of local pollen, which may help **desensitize** allergic reaction. -  
 When used as a **salve** in **gel form**, it may help promote healing of wounds and minor burns. -  
 Some of these had their roots in the early 20th century manufacturing revolution (via Ford, Toyota, and others), but they were basically rediscovered, **expounded** upon, and brought to a new level in the 1980s, 1990s, and 2000s across the entire manufacturing sector. -  
-As if that wasn’t enough, poor sleep can lead to negative moods, less productivity, and **unseemly** behavior at work. -  
 More than 400 multinational companies have **vamoosed** out of Russia in the three weeks since it launched its unprovoked invasion of Ukraine. -  
-Common health risks of swimming in winter or extremely cold water include **hypothermia** and cold-water shock. -  
 Tom suddenly changed from a well - behaved child into a **loutish** adolescent. -  
 the **Stygian** **crypt**. -  
 His words were a mixture of pity and **reproof**. -  
@@ -38,13 +50,7 @@ Bill is so **avaricious** that he donates nothing to charity. -
 
 ## words-Dec.md ## 
 words/2018/words-Dec.md
-This sign **presage** rains. -  
 Christmas **revels** with feasting and dancing were common in England. -  
 **aboriginal** **inhabitants** -  
 A **servo** driving an **eccentric** **cam**.  -  
 I **slogged** through the **heather** in the heat - 
-It’s a personal decision. It’s a hard and painful decision. It’s an emotional, **fraught** decision -  
-
-## words-Nov.md ## 
-words/2018/words-Nov.md
-(the seemingly **inexorable** march of new technology) -  
