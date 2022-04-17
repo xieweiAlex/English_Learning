@@ -3,6 +3,7 @@
 Expanding vocabulary for a non native-speaker is tedious and time-consuming. I try to record the **words or phrases** I encounter everyday with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight, if it can inspire someone else, that's even better 💖.  
 
 
+
 ### Jan 
 [Words Review](./words-review.md)
 

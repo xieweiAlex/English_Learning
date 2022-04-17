@@ -1,4 +1,18 @@
 
+**leap of faith**
+
+**granular**
+
+**asymmetry**
+
+**Litmus Test**
+
+**level-headed**
+
+**regimen**
+
+## March 
+
 **lockstep** 
 
 ## Week 3,4

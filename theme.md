@@ -9,11 +9,14 @@
 
 ## Finance and Stock market  
 
+
 ## Kitchen 
+* Diary 
 
 ## Weather 
 
 ## Real Estate  
+* Cycles 
 
 ## Color  
 

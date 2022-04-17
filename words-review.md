@@ -1,9 +1,11 @@
 ## words-Mar.md ## 
 words/2022/words-Mar.md
+Cold brew coffee is very different from iced coffee, as it is **steeped** for up to 24 hours, compared to just a few minutes when brewing hot coffee. -  
+Try to get them from your diet by eating fish — **broiled** or baked, not fried.   
+You also may experience **spasms** in the ring of muscle at the end of your **anus**. -  
 In fact, he sounded **somber** and **contrite**. -  
-Tesla held an event, billed as a “Cyber Rodeo,” to which it invited 15,000 people to listen to live music, eat food, and **pay homage to** Elon Musk and his company. -  
+She got **huffy** and left, then Wil and I headed out to dinner. -  
 I don't know whether we have **discursion** in this market. -  
-**Credulous** people are easily misled by false advertisements. -  
 He gets very **maudlin** when he's **in his cups**. -  
 She is too free with her tongue and is rather **impertinent** to people. -  
 a **gossamer** justification, **gossamer** wings. -  
@@ -17,13 +19,11 @@ If I sought only pleasure, I would stay on my couch and **inadvertently** deny m
 When we say to our kids, “Turn off the computer and go play outside,” we are **exhorting** them to choose enjoyment by doing something that requires more **voluntary effort**, does not create a dependency, and has more enduring benefits. -  
 The evening was charming, full of **prattle**, of dreams together. -  
 insurance **indemnity**. - 
-Honey and sugar are both carbohydrates composed primarily of **glucose** and **fructose**. -  
-Raw, **unpasteurized** honey contains trace amounts of local pollen, which may help **desensitize** allergic reaction. -  
+Honey and sugar are both carbohydrates composed primarily of **glucose** and **fructose**.   
 When used as a **salve** in **gel form**, it may help promote healing of wounds and minor burns. -  
 Some of these had their roots in the early 20th century manufacturing revolution (via Ford, Toyota, and others), but they were basically rediscovered, **expounded** upon, and brought to a new level in the 1980s, 1990s, and 2000s across the entire manufacturing sector. -  
 More than 400 multinational companies have **vamoosed** out of Russia in the three weeks since it launched its unprovoked invasion of Ukraine. -  
 Tom suddenly changed from a well - behaved child into a **loutish** adolescent. -  
-the **Stygian** **crypt**. -  
 His words were a mixture of pity and **reproof**. -  
 The area has also **sprouted** critic darlings like St. Vincent, Charley Crockett and Joshua Ray Walker. -  
 To **desecrate** a holy spring is considered profanity. -  
@@ -42,7 +42,7 @@ Is the current food crisis just another market **vagary**? -
 I'm no stranger to the **Crimson** **scourge** that's **dermatitis**. -  
 A move that threatened to **scuttle** negotiations with the West over the future security of eastern Europe and that could be used to justify an **incursion** into the territories. -   
 She is the most vocal and **pertinacious** of all the critics of the policy. -  
-We knew we were in for a pretty long, **jejune** evening. -  
+We knew we were in for a pretty long, **jejune** evening.   
 Nvidia-Arm is officially **kaput**. -  
 A bubble that is beginning to look like a real **humdinger**. -  
 Religious and **occult** predictions, however, boast no causal logic **whatsoever**. -  
