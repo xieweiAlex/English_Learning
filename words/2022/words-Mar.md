@@ -53,7 +53,7 @@ His already **infirm** body was **racked** by high fever.
 **Copernicus**, the Earth revolves around the sun.  
 It was a **knotty** question.   
 
-Honey and sugar are both carbohydrates composed primarily of **glucose** and **fructose**. -  
+Honey and sugar are both carbohydrates composed primarily of **glucose** and **fructose**.  
 Many of the **antioxidants** found in honey are classified as **flavonoids**. Flavonoids have **anti-inflammatory** properties, which may provide some health benefits.  
 For example, **buckwheat** honey is a popular dark honey known for its **malty** taste. **Fireweed** honey is a light variety that’s nearly translucent in color and has a tea-like flavor.  
 Raw, **unpasteurized** honey contains trace amounts of local pollen, which may help **desensitize** allergic reaction.  
