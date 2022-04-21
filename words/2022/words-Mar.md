@@ -57,7 +57,7 @@ Honey and sugar are both carbohydrates composed primarily of **glucose** and **f
 Many of the **antioxidants** found in honey are classified as **flavonoids**. Flavonoids have **anti-inflammatory** properties, which may provide some health benefits.  
 For example, **buckwheat** honey is a popular dark honey known for its **malty** taste. **Fireweed** honey is a light variety that’s nearly translucent in color and has a tea-like flavor.  
 Raw, **unpasteurized** honey contains trace amounts of local pollen, which may help **desensitize** allergic reaction.  
-When used as a **salve** in **gel form**, it may help promote healing of wounds and minor burns. -  
+When used as a **salve** in **gel form**, it may help promote healing of wounds and minor burns.  
 China has insistently **sought to** shift the focus to the question of U.S. biological weapons labs in Ukraine.  
 White House spokesperson Jen Psaki on Twitter called the claims "**preposterous**."  
 China **churns out** billionaires.  
@@ -98,7 +98,7 @@ More than 400 multinational companies have **vamoosed** out of Russia in the thr
 The Dallas **Arboretum** and Botanical Gardens is the jewel of North Texas.  
 other random topics and events **pertaining** to my life.  
 Common health risks of swimming in winter or extremely cold water include **hypothermia** and cold-water shock.  
-Tom suddenly changed from a well - behaved child into a **loutish** adolescent. -  
+Tom suddenly changed from a well - behaved child into a **loutish** adolescent.  
 the **Stygian** **crypt**.  
 His words were a mixture of pity and **reproof**. -  
 I think open military aid is entirely off the table, still wouldn't rule out the **surrepitious**.  
@@ -149,7 +149,7 @@ Another **curveball** could be **on tap** for today as the Labor Department publ
 In the first days of war, Russia’s armored might **shrivelled** before the courage of the nation it had attacked.   
 I'm not **uptight**, man.  
 Oil makes up about 45% of gas prices, which is why President Biden is playing **footsie** with the Iranians, Saudis and Venezuelans.  They have oil. Biden wants cheaper gas.  
-**Makeshift** arms are **pouring out of** Ukraine’s **ateliers**. -  
+**Makeshift** arms are **pouring out of** Ukraine’s **ateliers**.  
 
 "They tried to **depict** the U.S., the West and NATO as not trustworthy and people in Taiwan as delusional to think the U.S. will protect Taiwan at all," Doublethink Lab CEO Min Hsuan Wu told Axios.
 **Burn pits** were used during the U.S. wars in Iraq and Afghanistan to dispose of all manner of waste, including metal, plastics, rubber, and human **excrement**.  
@@ -176,7 +176,7 @@ Only then did I learn the **unpalatable** truth.
 
 Urban housing **provident fund**.  
 Anything can happen, and any **flub** will be amplified beyond recognition.  
-The book is a **diatribe** against the academic left. -  
+The book is a **diatribe** against the academic left.  
 It was a period of rest and **recuperation**. -  
 
 I'm not gonna be Conway's **patsy**.  

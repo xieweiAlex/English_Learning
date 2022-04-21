@@ -1,28 +1,44 @@
 
-If you put off things today, they don’t magically disappear tomorrow. They just get added to the list of things you want to do.  
+Google Docs could soon get a purple **squiggly** line that will help you become a better writer. Expect Dickens-level prose in the Brew soon enough. -  
 
+Some students **called off** tonight.  
 
-I feel as though I'd eaten a spool of thread.  
-variable orifice, Atomizer orifice.  
+I'm feeling a bit **peckish**.  
+She was offended by the **vulgarity** of their jokes. -  
+He opened his mouth to make a **caustic** **retort**. -  
+That leaves us in a bit of a **quandary**. -  
+
+Boeing had to **scale back** its ambitions.  
+**scaler**.  
+
+> From the start, he had the natural **inclination** to be an **impresario**, to convince people to pursue a goal that often only he could see, and then to coordinate and push them toward the creation of that goal.  
+
+Time to **limber up**.  
+He likes girls that play the **coquette**. -  
+
+If you **put off** things today, they don’t magically disappear tomorrow. They just get added to the list of things you want to do.  
+
+I feel as though I'd eaten a **spool** of thread.  
+**variable orifice**, **atomizer orifice**.  
 At that time the country was in the **slough** of despond. -  
 
+Nothing **shady** or **underhanded**.  
 
-Nothing shaddy or underhanded.  
+## Week 2
 
 > People with the Architect personality type derive much of their self-esteem from their knowledge and mental **acuity**.
 
-sentimental
+**sentimental**
 
-The president abrogated an old law.  
-congenial neighbors, congenial tastes  
+The president **abrogated** an old law. -  
+**congenial neighbors**, **congenial tastes**  
 She exhorts me to accept that new position although that position reward is not **munificent**. -  
-Mord's strap licked out, but it was a halfhearted, desultory swing, slow and contemptuous.  
+Mord's strap **licked out**, but it was a halfhearted, **desultory swing**, slow and **contemptuous**. -  
 
-
-Even though the wrist is a small part of the body, it’s comprised of eight bones, as well as ligaments and tendons, making it a somewhat delicate area. 
+Even though the wrist is a small part of the body, it’s comprised of eight bones, as well as **ligaments** and **tendons**, making it a somewhat **delicate** area. 
 He is not here to **take a dip**. 
 
-**Fermented** foods like pickles, **sauerkraut** and kimchi are also gut **glorifying**. -  
+**Fermented** foods like pickles, **sauerkraut** and kimchi are also gut **glorifying**.  
 **Hymn** for the weekend. 
 
 Consume **citric** juices, whether lime juice squeezed into water, lemon juice on food, or a beverage like the citrus **kombucha** I had. -  
@@ -71,18 +87,17 @@ One **unobtrusive** building.
 **buckle down**  
 **sanctimonious**  
 
-Try to get them from your diet by eating fish — **broiled** or baked, not fried. -  
+Try to get them from your diet by eating fish — **broiled** or baked, not fried.  
 He is eighty, but still hale and **hearty**.  
 
 An anal **fissure** may occur when you pass hard or large stools during a bowel movement.  
 
-You also may experience **spasms** in the ring of muscle at the end of your **anus**. -  
+You also may experience **spasms** in the ring of muscle at the end of your **anus**.  
 Wars **upend** the dominance of currencies and serve as a **doula** to **the birth of** new monetary systems.  
 
 In fact, he sounded **somber** and **contrite**. -  
 The talks ended in (a) **stalemate**.  
 She got **huffy** and left, then Wil and I headed out to dinner. -  
-
 
 I'm **a sucker for** ice cream.  
 **suck it in**.  

@@ -99,7 +99,7 @@ His war poetry struck a **chord** with people who remembered that period.
 **veto** power, **pocket veto**  
 The government can **override** all opposition.  
 **override** one's **commission**  
-Christmas **revels** with feasting and dancing were common in England. -  
+Christmas **revels** with feasting and dancing were common in England.  
 His disappearance **overshadowed** the family.  
 He **overshadowed** all his **comrades**   
 our **comrades** who made the supreme sacrifice.  

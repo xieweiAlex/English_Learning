@@ -143,7 +143,7 @@ But this bubble will burst **in due time**, no matter how hard the Fed tries to 
 These events can easily **outlast** the patience of most clients.  
 **As I like to say**, there is nothing more **supremely** irritating than watching your neighbors get rich.  
 It seemed **prudent** to exit at the time, but for three years we underperformed painfully as the Japanese market went to 65x earnings.  
-A bubble that is beginning to look like a real **humdinger**. -  
+A bubble that is beginning to look like a real **humdinger**.  
 She **penned** a June 2020 article about how businesses can protect themselves from cybercriminals.    
 Due to low inventory, fewer people want to list their home. This pushes inventory down further, making even more owners **reticent** to list.  
 Where the quality of humor, are smart **perspicacious**.  
@@ -162,7 +162,7 @@ Demonstrations against vaccine mandates, or a movement that started as the "Free
 A correspondent in Beijing for Dutch national broadcaster NOS was **manhandled away** from his camera during a live news show shortly before the Winter Olympics opening ceremony.  
 
 **screeching halt**.  
-Religious and **occult** predictions, however, boast no causal logic **whatsoever**. -  
+Religious and **occult** predictions, however, boast no causal logic **whatsoever**.  
 He just **glowered** without speaking.  
 They laughed at my **puny** efforts.  
 

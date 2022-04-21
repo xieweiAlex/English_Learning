@@ -1,4 +1,17 @@
 
+Masoyoshi Son has reportedly told Softbank execs to **pump the brakes** on investments.  
+
+**good call**. 
+**no hard feelings**.  
+**You want a piece of me**? 
+
+**buckle up**
+**buckle down**  
+
+If you **put off** things today, they don’t magically disappear tomorrow. They just get added to the list of things you want to do.  
+Nothing **shady** or **underhanded**.  
+
+
 **That explains it**.  
 **What's the fuss**.  
 **Don't play possum**.  

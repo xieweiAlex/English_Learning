@@ -86,7 +86,6 @@ He was not a **prepossessing** in first sight.
 **effeminate** behavior    
 **arthritis**  
 
-He likes girls that play the **coquette**.  
 He is a big, **ham-handed** man who used to be a football player.  
 **corridor**  
 He was seen **canoodling** with his new girlfriend.  
