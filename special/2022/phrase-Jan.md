@@ -1,4 +1,20 @@
 
+
+**Dont' take it out on me**.  
+
+Now I'm gonna **put the kibosh on you**.  
+
+**In the wake of** devastating loss, a united community carries on.  
+
+**trick of the trade**.  
+
+Don't be such a **goodie-goodie**.  
+This book is **light years ahead of its time**.  
+What **struck me the most** while reading the book "Jane Eyre" was how the book so ahead of its time. -  
+
+They witnessed the world **turn on its head**.  
+
+
 Masoyoshi Son has reportedly told Softbank execs to **pump the brakes** on investments.  
 
 **good call**. 

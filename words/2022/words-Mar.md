@@ -1,12 +1,12 @@
 ### Week 5
 
-In this market, trading in your vehicle will fetch more money than ever. It will help **defray** the costs of buying another car, whether a new or used vehicle. -  
+In this market, trading in your vehicle will fetch more money than ever. It will help **defray** the costs of buying another car, whether a new or used vehicle.  
 That's a market **gimmick**.  
-Disruptive innovation is **inexorable**. - 
+Disruptive innovation is **inexorable**.  
 
 Pleasure is addictive and **animal**; enjoyment is **elective** and human.   
 Pleasure and enjoyment do not even have to **coincide**.  
-If I sought only pleasure, I would stay on my couch and **inadvertently** deny myself enjoyment, settling for a comfort that is animal and **evanescent**. It is a bad trade. -  
+If I sought only pleasure, I would stay on my couch and **inadvertently** deny myself enjoyment, settling for a comfort that is animal and **evanescent**. It is a bad trade.  
 When we say to our kids, “Turn off the computer and go play outside,” we are **exhorting** them to choose enjoyment by doing something that requires more **voluntary effort**, does not create a dependency, and has more enduring benefits. -  
 Read: How hobbies **infiltrated** American life.  
 > Enjoyment means refusing to be managed by pleasures, nor subjugated by joyless drudgery. Pursuing it is a declaration of independence from your base impulses, be they licentious or despotic. It is a key ingredient in creating the life you truly want
@@ -139,7 +139,7 @@ Western governments need to respond to the commodity threat as **determinedly** 
 
 
 Nina Conti the best **ventriloquist** performance.  
-To **desecrate** a holy spring is considered profanity. -  
+To **desecrate** a holy spring is considered profanity.  
 Unfortunately, the fans aren't all that **rapacious**.  
 
 two years of **feckless** negotiations.  
@@ -158,7 +158,7 @@ Could some broader peace talks **beckon**? Probably not. It’s more in Mr Putin
 **butterscotch**
 This is a **sea change** in job definition.  
 I have been nothing but a **truant** and a **vagabond**. -  
-The **mousse** helps shape my hair. -  
+The **mousse** helps shape my hair.  
 It was like eating butter **redolent** with raw garlic.  
 
 If you fly much, you see these things and learn to act **blase** about them.  
@@ -177,7 +177,7 @@ Only then did I learn the **unpalatable** truth.
 Urban housing **provident fund**.  
 Anything can happen, and any **flub** will be amplified beyond recognition.  
 The book is a **diatribe** against the academic left.  
-It was a period of rest and **recuperation**. -  
+It was a period of rest and **recuperation**.  
 
 I'm not gonna be Conway's **patsy**.  
 Our backgrounds are different, but we're both **hardscrabble** boys **at heart**.  
@@ -196,7 +196,7 @@ Putin's war was **premeditated** and **unprovoked**. He rejected efforts at dipl
 Russia is said to **derive** a significant amount of money from the fees it imposes to use its airspace, or to land at one of its airports.  
 **In the hot seat**.  
 Powell has to **thread** a pretty thin needle.   
-Moscow already **chafes** at being beholden to a country that was once its **protege** during Soviet times, and it's uncomfortable with China's growing presence in Central Asia, which Russia regards as its backyard. -  
+Moscow already **chafes** at being beholden to a country that was once its **protege** during Soviet times, and it's uncomfortable with China's growing presence in Central Asia, which Russia regards as its backyard.  
 China's leaders aren't willing to **indelibly** tie themselves to "Putin's **chariot**," Sun said. "For China, this is a **calculus**. There is benefit and cost.  
 Seniors **swoop in** as young chicks enter their first year in college.  
 The Chinese government is **swooping in** to assist Hong Kong as COVID cases overwhelm hospitals and testing facilities.  

@@ -185,7 +185,7 @@ He **panders** to her every **whim**
 the cat **bristled** in annoyance  
 a brush with stiff **bristles**  
 The United Nations High Commission for Human Rights has **lambasted** certain European leaders for **xenophobia** and racism.  
-**aboriginal** **inhabitants** -  
+**aboriginal** **inhabitants**  
 The Indians are the **aboriginal** Americans  
    
 A **platinum** **wig**  
@@ -229,7 +229,7 @@ Some are pretty **lavish** and **cheesy**.
    
 **recruit depot**, **ammunition** depot  
 **eccentric** motion  
-A **servo** driving an **eccentric** **cam**.  -  
+A **servo** driving an **eccentric** **cam**.  
 **forestry** bureau, forestry machinery  
 The **militiaman** walked the spy off.  
 I **slogged** through the **heather** in the heat - 

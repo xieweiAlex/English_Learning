@@ -1,4 +1,6 @@
 
+* inexorable vs inevitable 
+* subterfuge vs excuse 
 * gleam, glint 
 * heterogeneity
 * empressement vs sincere 

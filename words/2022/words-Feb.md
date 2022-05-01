@@ -27,9 +27,9 @@ He gave Robin a mildly **quizzical** glance.
 The network has a **gateway** into the hospital mainframe.  
 Vladimir Putin is already **battering** Ukraine economically.  
 Germany **mothballs** the Nord Stream 2 pipeline, to the surprise of many.  
-He **enjoined** obedience on the soldiers. -  
+He **enjoined** obedience on the soldiers.  
 I was appalled by the **loutish** behavior.  
-Is the current food crisis just another market **vagary**? -  
+Is the current food crisis just another market **vagary**?  
 
 ### Week 3 
 
@@ -45,7 +45,7 @@ There are still some **warts** when it comes to matching up Kubernetes thought-e
 Beyond that, watch for a **perennial** story. I checked our historical archive and found we mentioned Argentina back in 1844, then first wrote about the IMF in Argentina in 1965. The country has long offered a **lamentable** tale of economic mismanagement.  
 Forgiving others means leaving space for your own heart in case **turnabout**.  
 
-A move that threatened to **scuttle** negotiations with the West over the future security of eastern Europe and that could be used to justify an **incursion** into the territories. -   
+A move that threatened to **scuttle** negotiations with the West over the future security of eastern Europe and that could be used to justify an **incursion** into the territories.  
 
 **countervailing** duties 
 **barf bag**  
@@ -151,7 +151,6 @@ Opponents said this would **contravene** international **treaties**.
 His **insolent** manner really got my **blood up**.  
 The desire for revenge can be **overpowering**.  
 Because of all the **oozing** **gunk**!  
-He had a **premonition** that he would never see her again.  
 Edgar was a **martyr** to his sense of honour and responsibility.  
 **old chap**.  
 
