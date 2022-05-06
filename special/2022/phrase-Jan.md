@@ -1,3 +1,19 @@
+We have this sort of information **on tap**.  
+
+## April 
+
+**You want a piece of me**? 
+**no hard feelings**.  
+**good call**. 
+If you **put off** things today, they don’t magically disappear tomorrow. They just get added to the list of things you want to do.  
+Time to **limber up**.  
+Some students **called off** tonight.  
+**If only** I had gone by taxi.  
+Don't be such a **goodie-goodie**.  
+Great **soap opera** acting tonight, everybody.  
+**trick of the trade**.  
+**In the wake of** devastating loss, a united community carries on.  
+They witnessed the world **turn on its head**.  
 
 
 **Dont' take it out on me**.  
@@ -35,6 +51,11 @@ Nothing **shady** or **underhanded**.
 I'm **a sucker for** ice cream.  
 **suck it in**.  
 You've to **suck it up**.  
+
+**What's the fuss**.  
+**Don't play possum**.  
+
+**That explains it**.  
 
 ## March
 

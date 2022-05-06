@@ -25,7 +25,7 @@ His pretentiousness will only expose his **vacuity**. -
 Unlike **acne vulgaris**, which is commonly caused by underlying hormonal changes, **acne mechanica** is directly caused by “mechanical” means. -  
 Speed up the pace to a full run or sprint to encourage better **peristalsis**. -  
 Google Docs could soon get a purple **squiggly** line that will help you become a better writer. Expect Dickens-level prose in the Brew soon enough. -  
-He opened his mouth to make a **caustic** **retort**. -  
+He opened his mouth to make a **caustic** **retort**.   
 He likes girls that play the **coquette**. -  
 At that time the country was in the **slough** of despond. -  
 The president **abrogated** an old law. -  
@@ -34,7 +34,7 @@ Mord's strap **licked out**, but it was a halfhearted, **desultory swing**, slow
 Consume **citric** juices, whether lime juice squeezed into water, lemon juice on food, or a beverage like the citrus **kombucha** I had. -  
 Emily got into the car wearing jeans and a **skimpy** **tanktop**. -  
 What's all the **palaver** about? -  
-**Sleet**, ice and snow canceling thousands of flights. -  
+**Sleet**, ice and snow canceling thousands of flights.   
 Cold brew coffee is very different from iced coffee, as it is **steeped** for up to 24 hours, compared to just a few minutes when brewing hot coffee. -  
 In fact, he sounded **somber** and **contrite**. -  
 I don't know whether we have **discursion** in this market. -  

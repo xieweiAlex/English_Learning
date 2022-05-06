@@ -1,13 +1,31 @@
 
+He was bamboozled into joining the club. -  
+Kimchi adds a nice bit of crunchy texture and spicy-tart flavor to any kind of fritter or savory pancake.  
+
+
+The dog bared its teeth in a snarl. -  
+The jester brandished his bauble. -  
+Bored cats tend to act up.  
+
+
+They're like a **English garden**. - They're **gardenias**, mostly. -  
+I thought I smelt **lilac**. - Yes, there are a few of those, too. -  
+The only meal left is a **kosher** meal.  
+
+Banks agreed to offer $13B in loans secured against Twitter - but the lenders **balked at** offering more than that because of the company's limited cash flow. -  
+Don't **palter** with the truth. -  
+
+We have this sort of information **on tap**.  
+Presumably the intention was to humiliate his **interlocutor** and to show how ineffective the international body has been in this conflict. -  
+And sip your water throughout the day instead of **chugging** it.  
+I'm reaching for fewer processed snacks and no longer **mistaking** thirst for hunger.  
+
 
 ## Week 4 
 
 The boy remained as dismal as a **hearse**. - 
-
 I blame my Argentina **lineage**. -  
-
 **Stevia** is another natural alternative to sugar and sugar substitutes. -  
-
 The fermentation process produces **acetic** acid (also found in vinegar) and several other **acidic compounds**, trace levels of alcohol and gases that make it carbonated.  
 
 > So it gives me enormous satisfaction when one of my geeky hobbies **intersects** my professional interests.  
@@ -25,7 +43,7 @@ For social reasons, I'll **elide** naming him or the company, but statistically 
 
 
 I had to **pry myself away** from .. it's a **Havanese**, right? 
-> It was a wonderful investment, it continues to pay dividents to this day.  
+> It was a wonderful investment, it continues to pay divident to this day.  
 > eat food, not too much, most plants 
 
 Candies and other **confectionery**. -  
@@ -36,19 +54,8 @@ The lake’s water is **turbid**. -
 I'm feeling a bit **peckish**. -  
 Arthritis and **rheumatism** are prominent crippling diseases. -  
 
-The silence is **deafening**.  
-After such a **protracted**, confusing, frankly, chaotic election, we deserve clarify.  
-This was nothing more or less than a **attempted coup**, **plain and simple**.  
-
 **remediate**.
-The **balky** engine **sputtered** and stopped.  
-
-Are you very **fussy** about your pants?  
-It's not like **spotting** a **toupee**. -  
-I had green light, you **jaywalked**.  
-You'll **drag me into the sewer** with you.  
-Nothing, I was just giving her **the straight dope**.   
-Another couple of coffee with you, she'll **wind up** in a **convent**. -  
+The **balky** engine **sputtered** and stopped. -  
 
 **Dont' take it out on me**.  
 
@@ -60,7 +67,6 @@ What does it take to **lay him low**?
 His palms were **excoriated** by the hard labor of shoveling. -  
 Still **nursing** a hangover from Twitter accepting Elon Musk’s buyout offer? Well, the only cure, they say, is to imbibe more. Here’s the latest on the deal that rocked the world.
 Tesla shares **cratered**. Shares of the EV company **helmed** by Musk fell more than 12% yesterday, erasing more than $125 billion in market value.  
-
 The trial highlighted the issue as a major **vagary** of doing business in China. -  
 
 Russia, in obvious anticipation of becoming a **Pariah state**, had already been liquidating its reserves of USD, Euros and Pounds in exchange for Gold and Yuan over recent years.  
@@ -87,7 +93,6 @@ You **didn't read this book either**?
 Don't be such a **goodie-goodie**.  
 This book is **light years ahead of its time**.  
 What **struck me the most** while reading the book "Jane Eyre" was how the book so ahead of its time.  
-
 
 They witnessed the world **turn on its head**.  
 Lord of the Flies **turns this trope on its head**.  

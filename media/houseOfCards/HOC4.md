@@ -1,4 +1,9 @@
 
+The silence is **deafening**.  
+After such a **protracted**, confusing, frankly, chaotic election, we deserve clarify.  
+This was nothing more or less than a **attempted coup**, **plain and simple**.  
+
+
 ## E4, E 5
 **flipism**, flip a coin.  
 **worked up**.  
