@@ -80,7 +80,7 @@ illegal **Interlope**
 
 This combination brought a massive amount of **untapped** labor into global markets within a rather short period of time, which allowed corporations to **geographically** arbitrage their operations.  
 But it did also help hundreds of millions of people rise out of **abject** poverty in these developing countries.  
-Some of these had their roots in the early 20th century manufacturing revolution (via Ford, Toyota, and others), but they were basically rediscovered, **expounded** upon, and brought to a new level in the 1980s, 1990s, and 2000s across the entire manufacturing sector. -  
+Some of these had their roots in the early 20th century manufacturing revolution (via Ford, Toyota, and others), but they were basically rediscovered, **expounded** upon, and brought to a new level in the 1980s, 1990s, and 2000s across the entire manufacturing sector.  
 Companies basically **traded away** resilience **in favor of** efficiency, while pretending that there was minimal downside, and yet this type of approach only works under a **benign** global environment.  
 
 **Excavate** is a term that means to dig out and remove soil.  
@@ -93,14 +93,14 @@ Zelensky to seize the **bully pulpit**, calling on the U.S. to behave like a sup
 
 As if that wasn’t enough, poor sleep can lead to negative moods, less productivity, and **unseemly** behavior at work.  
 Hong Kong, once **famed** for its low covid-19 count, is now recording the world’s highest death rate from the virus.  
-More than 400 multinational companies have **vamoosed** out of Russia in the three weeks since it launched its unprovoked invasion of Ukraine. -  
+More than 400 multinational companies have **vamoosed** out of Russia in the three weeks since it launched its unprovoked invasion of Ukraine.  
 
 The Dallas **Arboretum** and Botanical Gardens is the jewel of North Texas.  
 other random topics and events **pertaining** to my life.  
 Common health risks of swimming in winter or extremely cold water include **hypothermia** and cold-water shock.  
 Tom suddenly changed from a well - behaved child into a **loutish** adolescent.  
 the **Stygian** **crypt**.  
-His words were a mixture of pity and **reproof**. -  
+His words were a mixture of pity and **reproof**.  
 I think open military aid is entirely off the table, still wouldn't rule out the **surrepitious**.  
 
 She got a bit **tiddly** down the pub.  
@@ -108,7 +108,7 @@ In fact, one study showed that **blanching** and freezing vegetables for up to 2
 uncooked kale contained a higher amount of **antioxidants** than fresh kale, suggesting that freezing may even increase the antioxidant content of certain vegetables.  
 This is the **regale** of the thought. -
 
-The area has also **sprouted** critic darlings like St. Vincent, Charley Crockett and Joshua Ray Walker. -  
+The area has also **sprouted** critic darlings like St. Vincent, Charley Crockett and Joshua Ray Walker.  
 Beijing's **tacit support** for Putin during Russia's invasion of Ukraine hasn't been lost on Europeans, who are viewing the Chinese government with growing skepticism.  
 Chinese officials and state media have widely **disseminated** pro-Russia disinformation and government censors have scrubbed the Chinese internet of pro-Ukraine views.
 There was **audible** **booing** and **jeering** going on from the Chinese students **partway** through her question, and during the answer, they started to get up and just walked out of the room.  
@@ -157,7 +157,7 @@ Could some broader peace talks **beckon**? Probably not. It’s more in Mr Putin
 
 **butterscotch**
 This is a **sea change** in job definition.  
-I have been nothing but a **truant** and a **vagabond**. -  
+I have been nothing but a **truant** and a **vagabond**.  
 The **mousse** helps shape my hair.  
 It was like eating butter **redolent** with raw garlic.  
 

@@ -2,6 +2,12 @@
 
 ## Season 4 
 
+Are you very **fussy** about your pants?  
+It's not like **spotting** a **toupee**. -  
+I had green light, you **jaywalked**.  
+You'll **drag me into the sewer** with you.  
+Nothing, I was just giving her **the straight dope**.   
+Another couple of coffee with you, she'll **wind up** in a **convent**. -  
 
 ## Season 3 
 KRAMER: (**debonair** smile) Well, it’d be our little secret.  

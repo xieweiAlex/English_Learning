@@ -1,11 +1,36 @@
 
-He was bamboozled into joining the club. -  
-Kimchi adds a nice bit of crunchy texture and spicy-tart flavor to any kind of fritter or savory pancake.  
+
+Stripe co-founder and CEO, Patrick Collison, is a **voracious** reader. -  
+I'm kinda **wimpy**, I'm a hedonist **by nature**.  
+
+20:4 can also be leveraged for those special occasions — whether you’re heading out for an evening meal, or about to feast on a delicious, **banquet** with friends and family.  
+
+It feared that e-lending was **cannibalising** print sales.
+Not just **exorcise** it or send it back to hell. -  
+Tom's boss is **upbraiding** him for his always being late for work. -  
+
+One or two companies have managed to **buck the trend** of the recession. 
+In the United States, it is legal to give a **bovine** GH to dairy cows to increase milk production, and is legal to use GH in raising cows for beef.  
+
+> Should a trade secret be made public, the competitive value of this information is gone.
 
 
-The dog bared its teeth in a snarl. -  
-The jester brandished his bauble. -  
-Bored cats tend to act up.  
+Note that many systems **degrade** in performance before they achieve 100% utilization, so having a utilization target is essential.  
+Our house cats are **fastidious** creatures.  
+
+**Belay** device.  
+The cheapest way to rock climb long term is to buy a pair of durable climbing shoes and some crash pads and go bouldering outdoors at your nearest **crag**. -  
+One time $10 rental gear fee to **mooch** off of us for life. -  
+
+
+The **guerrillas** **exude** confidence. Every town, they say, is under their control. -  
+
+He was **bamboozled** into joining the club.  
+Kimchi adds a nice bit of crunchy texture and **spicy-tart** flavor to any kind of **fritter** or savory pancake.  
+
+The dog **bared** its teeth in a **snarl**.  
+The **jester** **brandished** his **bauble**. -  
+Bored cats tend to **act up**.  
 
 
 They're like a **English garden**. - They're **gardenias**, mostly. -  
@@ -24,7 +49,7 @@ I'm reaching for fewer processed snacks and no longer **mistaking** thirst for h
 ## Week 4 
 
 The boy remained as dismal as a **hearse**. - 
-I blame my Argentina **lineage**. -  
+I blame my Argentina **lineage**.  
 **Stevia** is another natural alternative to sugar and sugar substitutes. -  
 The fermentation process produces **acetic** acid (also found in vinegar) and several other **acidic compounds**, trace levels of alcohol and gases that make it carbonated.  
 
@@ -51,7 +76,7 @@ Candies and other **confectionery**. -
 gravitational eneregy to **kinetic energy**. -  
 
 The lake’s water is **turbid**. -   
-I'm feeling a bit **peckish**. -  
+I'm feeling a bit **peckish**.  
 Arthritis and **rheumatism** are prominent crippling diseases. -  
 
 **remediate**.
@@ -67,7 +92,7 @@ What does it take to **lay him low**?
 His palms were **excoriated** by the hard labor of shoveling. -  
 Still **nursing** a hangover from Twitter accepting Elon Musk’s buyout offer? Well, the only cure, they say, is to imbibe more. Here’s the latest on the deal that rocked the world.
 Tesla shares **cratered**. Shares of the EV company **helmed** by Musk fell more than 12% yesterday, erasing more than $125 billion in market value.  
-The trial highlighted the issue as a major **vagary** of doing business in China. -  
+The trial highlighted the issue as a major **vagary** of doing business in China.  
 
 Russia, in obvious anticipation of becoming a **Pariah state**, had already been liquidating its reserves of USD, Euros and Pounds in exchange for Gold and Yuan over recent years.  
 
@@ -112,11 +137,11 @@ Similar to peanuts, tree nuts are most often linked to **anaphylaxis**. -
 
 This is because some foods are **more prone to** **harboring** **pathogens** like bacteria or **toxins** that could make you sick.   
 
-The medical term for **hives** is **urticaria**, and it describes a condition that produces raised itchy areas on the skin. -  
+The medical term for **hives** is **urticaria**, and it describes a condition that produces raised itchy areas on the skin.  
 the **characteristic** **musty** smell associated with bed bugs.  
-His pretentiousness will only expose his **vacuity**. -  
+His pretentiousness will only expose his **vacuity**.  
 
-Unlike **acne vulgaris**, which is commonly caused by underlying hormonal changes, **acne mechanica** is directly caused by “mechanical” means. -  
+Unlike **acne vulgaris**, which is commonly caused by underlying hormonal changes, **acne mechanica** is directly caused by “mechanical” means.  
 
 a youth **debauched** by drugs and drink.  
 **If only** I had gone by taxi.  
@@ -137,7 +162,7 @@ Some students **called off** tonight.
 
 I'm feeling a bit **peckish**.  
 She was offended by the **vulgarity** of their jokes.  
-He opened his mouth to make a **caustic** **retort**. -  
+He opened his mouth to make a **caustic** **retort**.  
 That leaves us in a bit of a **quandary**.  
 
 Boeing had to **scale back** its ambitions.  
@@ -173,14 +198,14 @@ He is not here to **take a dip**.
 **Fermented** foods like pickles, **sauerkraut** and kimchi are also gut **glorifying**.  
 **Hymn** for the weekend. 
 
-Consume **citric** juices, whether lime juice squeezed into water, lemon juice on food, or a beverage like the citrus **kombucha** I had. -  
+Consume **citric** juices, whether lime juice squeezed into water, lemon juice on food, or a beverage like the citrus **kombucha** I had.  
 
 Emily got into the car wearing jeans and a **skimpy** **tanktop**. -  
 What's all the **palaver** about? -  
 Her **tact** and intuition never failed.  
 The final stage of **waxing** left it with a **satin** **sheen**.  
 
-**Sleet**, ice and snow canceling thousands of flights. -  
+**Sleet**, ice and snow canceling thousands of flights.  
 Lisa was **rankled** by his assertion.  
 
 Success brings an **asymmetry**: you now have a lot more to lose than to gain. You are **hence** fragile.  
@@ -206,7 +231,7 @@ La Frontera Fund founder Rockie Gonzalez told Reuters Herrera "miscarried at a h
 He **resents** criticism.  
 
 The flavor is **full-bodied** and not as sweet as cold brew.  
-Cold brew coffee is very different from iced coffee, as it is **steeped** for up to 24 hours, compared to just a few minutes when brewing hot coffee. -  
+Cold brew coffee is very different from iced coffee, as it is **steeped** for up to 24 hours, compared to just a few minutes when brewing hot coffee.  
 
 **You want a piece of me**? 
 
@@ -243,7 +268,7 @@ I don't know whether we have **discursion** in this market. -
 The threat will force greater **dispersion** of their forces.  
 
 **Credulous** people are easily misled by false advertisements.  
-He gets very **maudlin** when he's **in his cups**. -  
+He gets very **maudlin** when he's **in his cups**.  
 She is too free with her tongue and is rather **impertinent** to people. -  
 
 a **gossamer** justification, **gossamer** wings. -  
@@ -257,7 +282,7 @@ He was accused of lies and **deceit**.
 
 The conqueror tried to make the natives **abjure** their religion. -  
 So wasteful and **contemptible**.  
-She was looking very **haggard** and worn. -  
+She was looking very **haggard** and worn.  
 **libelous** action.  
 
 Masoyoshi Son has reportedly told Softbank execs to **pump the brakes** on investments.  
@@ -270,7 +295,7 @@ More and more of my guests have been touting a de-risking strategy and advocatin
 **That explains it**.  
 
 When the TTL controller cleans up the Job, it will delete the Job **cascadingly**, i.e. delete its dependent objects, such as Pods, together with the Job.  
-Taiwan and Ukraine face similar threats from China and Russia, **respectively**, which have publicly known intentions to **subsume** some or all of their territory. -  
+Taiwan and Ukraine face similar threats from China and Russia, **respectively**, which have publicly known intentions to **subsume** some or all of their territory.  
 Both Ukraine and Taiwan have long endured the **perils** of living next to a belligerent, authoritarian neighbor.  
 
 But defence spending is rising relatively slowly in America and **haphazardly** in Europe. -  

@@ -1,3 +1,4 @@
+One or two companies have managed to **buck the trend** of the recession. 
 We have this sort of information **on tap**.  
 
 ## April 

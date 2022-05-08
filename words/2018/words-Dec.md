@@ -232,7 +232,7 @@ Some are pretty **lavish** and **cheesy**.
 A **servo** driving an **eccentric** **cam**.  
 **forestry** bureau, forestry machinery  
 The **militiaman** walked the spy off.  
-I **slogged** through the **heather** in the heat - 
+I **slogged** through the **heather** in the heat  
 a **bourgeois morality**  
 a critique of **bourgeois** ideology  
 **bourgeois** society took for granted the **sanctity** of property  

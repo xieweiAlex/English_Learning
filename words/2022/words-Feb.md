@@ -33,7 +33,7 @@ Is the current food crisis just another market **vagary**?
 
 ### Week 3 
 
-I'm no stranger to the **Crimson** **scourge** that's **dermatitis**. -  
+I'm no stranger to the **Crimson** **scourge** that's **dermatitis**.  
 I was ready to waste the last of my good **hemorrhoid** cream on you.  
 He is actually quite **sassy** and funny when he is getting comfortable with a woman so **no wonder**.  
 Troops into two **breakaway** regions.  
