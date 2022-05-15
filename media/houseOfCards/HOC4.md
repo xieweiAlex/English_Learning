@@ -1,10 +1,22 @@
 
+## E ?? 
+
+Thanks you for your **unending** and **unwavering** support. Your steady hand kept this country running this past month.  
+Take a breath, Doug. We've only just **landed on our feet** here.  
+Reach out to the people who don't like us, they'll be **prime** to go with it. -  
+She showed some very poor judgements, I'm trusting you to be **discreet**. -  
+Our agenda, that's very **presumptuous**.  
+The way you say that sounds so... **rote**.  
+Alex **feeds off** **retribution**.  
+There is no **neutrality**, I expect total loyalty, or you are an enemy.  
+
+## E 6 
+
 The silence is **deafening**.  
 After such a **protracted**, confusing, frankly, chaotic election, we deserve clarify.  
 This was nothing more or less than a **attempted coup**, **plain and simple**.  
 
-
-## E4, E 5
+## E 4, E 5
 **flipism**, flip a coin.  
 **worked up**.  
 

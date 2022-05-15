@@ -1,3 +1,13 @@
+
+
+You should be confident, honey. **Don't sell yourself short**.   
+
+There's gotta be something that gets you **choked up**.  
+Help me, Chandler, all the other puppies **pick on** me.  
+
+Take a breath, Doug. We've only just **landed on our feet** here.  
+One time $10 rental gear fee to **mooch off** of us for life. -  
+
 One or two companies have managed to **buck the trend** of the recession. 
 We have this sort of information **on tap**.  
 
@@ -6,10 +16,13 @@ We have this sort of information **on tap**.
 **You want a piece of me**? 
 **no hard feelings**.  
 **good call**. 
+
 If you **put off** things today, they don’t magically disappear tomorrow. They just get added to the list of things you want to do.  
 Time to **limber up**.  
+
 Some students **called off** tonight.  
 **If only** I had gone by taxi.  
+
 Don't be such a **goodie-goodie**.  
 Great **soap opera** acting tonight, everybody.  
 **trick of the trade**.  

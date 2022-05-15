@@ -1,4 +1,10 @@
 
+**dictate**
+
+**toss**
+
+**counteract**
+
 **scrap**
 
 **reign**

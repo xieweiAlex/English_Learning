@@ -1,21 +1,51 @@
 
+**afraid not**.  
+**afraid so** 
+Now I have to be real, that's when it all **falls apart**.  
+
+I think I'm **better off going** one on one.  
+It's too **trendy**, no Isabellas.  
+
+I **talked him into** it.  
+after **consummation**.  
+
+But **between you and me**, you would've **paid through the nose**.  
+He was dark, **disturbed**.  
+**Hasta la vista**.  
+he **snubbed** at me.  
+
+
+I will buy you popcorn and soda and we'll **call it even**.  
+George, you're **sapping** my strength.  
+Jerry, we're **riffing**. No, I'm not riffing, I'm ignoring.  
+I'm **getting the hang** of it.  
+
+It's a **crapshoot**.  
+
+**bad-mouth**  
+Now I'm gonna **put the kibosh on you**.  
+Where is the **rush**?  
+I'm just gonna **pop-in**. - Good, men love that.  
+My home is a... **shrine** to you.  
+
 
 ## Season 4 
 
 Are you very **fussy** about your pants?  
 It's not like **spotting** a **toupee**. -  
+**diaphragm**
 I had green light, you **jaywalked**.  
 You'll **drag me into the sewer** with you.  
 Nothing, I was just giving her **the straight dope**.   
 Another couple of coffee with you, she'll **wind up** in a **convent**. -  
 
 ## Season 3 
-KRAMER: (**debonair** smile) Well, it’d be our little secret.  
+KRAMER: (**debonair** smile) Well, it’d be our little secret. -  
 
 A car just bashed into a parked car, and **sped off**, right on my **block**!  
 What are you, **yellow**?  
 They both smile **flirtatiously** at each other.  
-Look, she slammed into a parked car! She took no responsibility for **mutilating** the property of a stranger, then she **sped off** like a criminal!  
+Look, she slammed into a parked car! She took no responsibility for **mutilating** the property of a stranger, then she **sped off** like a criminal! -  
 What kind of a sick **lowlife** would do a thing like that? You know those people, you know they're **mentally disturbed**.  
 (Michael throws down his **serviette**), Michael: You think you're so damn special because you say 'God bless you'?  
 The **intercom** buzzes, Jerry walks over and presses the button  

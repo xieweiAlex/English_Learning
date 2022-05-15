@@ -1,4 +1,54 @@
 
+## Week 2 
+
+A **meandering** river / story.  
+He'd got his revenge now, and **in spades**.
+
+There's gotta be something that gets you **choked up**.  
+Help me, Chandler, all the other puppies **pick on** me.  
+
+Try to get them from your diet by eating fish — **broiled** or baked, not fried. 
+A TFCC tear is split into two types. A Type 1 tear occurs when you fall and land on an **outstretched** hand, and a Type 2 tear is caused by the slow breakdown of **cartilage** in the TFCC. 
+If you put pressure on your wrists and pull on **sloper** holds, you risk suffering this injury. -  
+
+The crypto infrastructure **cracks**
+A **vicious** sell-off in risky assets **jolts** stablecoins. -
+
+The headline sent shares of Twitter (TWTR) into a **tailspin**, collapsing 25% to around $34, with the stock still trading violently at the time of writing.  
+
+If you don't **blandish** your wife now, you will try to marry a good woman tomorrow. -   
+We are hoping for an early **resumption** of peace talks. 
+
+
+That's a **relex**. **Cleavage, poke**, **cleavage, poke**. -  
+If **it had anything at all to do with** what you perceived as me **leering** at your daughter, I really have to take issue with that.  
+I did not **leer**. -  
+
+**capricious** government. -  
+
+They seem **destitute** of ordinary human feelings. -  
+As with **Sisyphus**, the boulder was **painstakingly** rolled upwards only to tumble back down again in an absurd **exercise of futility**.  
+The darkness of a **diabolic** world.  
+It’s unlikely that this **gully** was produced by nature.  
+In the **sweltering** haze of summer-noon. -  
+She was shouting and **raving** at them. -  
+
+The **pathos** of the situation brought tears to our eyes.  
+
+A persistent **dull ache**.  
+**Gout** is a type of inflammatory arthritis that is typically caused by a **buildup** of **uric acid**. Uric acid is a chemical produced when your body breaks down foods that contain organic compounds called purines.  
+It's a little, brown **circular** **protuberance**. What's the big deal?  
+You're very **lithe**, aren't you? Very graceful.  
+They really worked on your **pectorals**. -  
+
+The depressing reality is that the last 30 years of [relative peacetime] might just be an **aberration**. -  
+Will you stop **making light of it**?  
+
+## Week 1 
+
+What about Shelden's fiance, she seems a bit **dour**. -  
+Why is London so attractive to **tainted** foreign money? -  
+
 
 Stripe co-founder and CEO, Patrick Collison, is a **voracious** reader. -  
 I'm kinda **wimpy**, I'm a hedonist **by nature**.  
@@ -14,14 +64,12 @@ In the United States, it is legal to give a **bovine** GH to dairy cows to incre
 
 > Should a trade secret be made public, the competitive value of this information is gone.
 
-
 Note that many systems **degrade** in performance before they achieve 100% utilization, so having a utilization target is essential.  
 Our house cats are **fastidious** creatures.  
 
 **Belay** device.  
 The cheapest way to rock climb long term is to buy a pair of durable climbing shoes and some crash pads and go bouldering outdoors at your nearest **crag**. -  
-One time $10 rental gear fee to **mooch** off of us for life. -  
-
+One time $10 rental gear fee to **mooch off** of us for life.   
 
 The **guerrillas** **exude** confidence. Every town, they say, is under their control. -  
 
@@ -87,7 +135,7 @@ The **balky** engine **sputtered** and stopped. -
 He loves entertaining his friends with **ribald stories**. -  
 **ribald** jokes.  
 
-Stronger legs and **well-oiled** knee and hip joints from squatting make you less **brittle**.
+Stronger legs and **well-oiled** knee and hip joints from squatting make you less **brittle**. -
 What does it take to **lay him low**?  
 His palms were **excoriated** by the hard labor of shoveling. -  
 Still **nursing** a hangover from Twitter accepting Elon Musk’s buyout offer? Well, the only cure, they say, is to imbibe more. Here’s the latest on the deal that rocked the world.
@@ -95,13 +143,6 @@ Tesla shares **cratered**. Shares of the EV company **helmed** by Musk fell more
 The trial highlighted the issue as a major **vagary** of doing business in China.  
 
 Russia, in obvious anticipation of becoming a **Pariah state**, had already been liquidating its reserves of USD, Euros and Pounds in exchange for Gold and Yuan over recent years.  
-
-**bad-mouth**  
-Now I'm gonna **put the kibosh on you**.  
-Where is the **rush**?  
-I'm just gonna **pop-in**. Good, men love that.  
-My home is a... **shrine** to you.  
-
 Apparently Musk’s ability to come up with $46.5 billion in financing changed leadership’s thinking from **vehemently** opposed to “OK, maybe we should negotiate.”
 It's a **cutthroat** world, and I wasn't performing well.  
 
@@ -122,7 +163,6 @@ What **struck me the most** while reading the book "Jane Eyre" was how the book 
 They witnessed the world **turn on its head**.  
 Lord of the Flies **turns this trope on its head**.  
 Don't talk the anything **impertinent** with the main issue. -  
-
 A dynamic warmup is done at the start of your workout routine. It’s meant to **prime** your body to work at a higher intensity.  
 
 The stickers improved their aim and significantly reduced “**spillage**” around the urinals.  
@@ -138,7 +178,7 @@ Similar to peanuts, tree nuts are most often linked to **anaphylaxis**. -
 This is because some foods are **more prone to** **harboring** **pathogens** like bacteria or **toxins** that could make you sick.   
 
 The medical term for **hives** is **urticaria**, and it describes a condition that produces raised itchy areas on the skin.  
-the **characteristic** **musty** smell associated with bed bugs.  
+the **characteristic** **musty** smell associated with bed bugs. -  
 His pretentiousness will only expose his **vacuity**.  
 
 Unlike **acne vulgaris**, which is commonly caused by underlying hormonal changes, **acne mechanica** is directly caused by “mechanical” means.  
@@ -155,9 +195,7 @@ While we have a **high regard** for Netflix’s management and the remarkable co
 
 Squatting encourages the **peristalsis** that keeps your food moving through your **digestive tract**.  
 Speed up the pace to a full run or sprint to encourage better **peristalsis**. -  
-
 Google Docs could soon get a purple **squiggly** line that will help you become a better writer. Expect Dickens-level prose in the Brew soon enough. -  
-
 Some students **called off** tonight.  
 
 I'm feeling a bit **peckish**.  
@@ -297,6 +335,54 @@ More and more of my guests have been touting a de-risking strategy and advocatin
 When the TTL controller cleans up the Job, it will delete the Job **cascadingly**, i.e. delete its dependent objects, such as Pods, together with the Job.  
 Taiwan and Ukraine face similar threats from China and Russia, **respectively**, which have publicly known intentions to **subsume** some or all of their territory.  
 Both Ukraine and Taiwan have long endured the **perils** of living next to a belligerent, authoritarian neighbor.  
-
 But defence spending is rising relatively slowly in America and **haphazardly** in Europe. -  
+
+
+## Conversation  
+
+I do hope you'll be careful with Bernard, he has a sensitive **disposition**. -  
+
+**That explains it**.  
+
+**What's the fuss**.  
+**Don't play possum**.  
+
+Can't believe you **caved**.  
+Don't let others' behavior **dictate** your emotion.  
+
+I'm **getting the hang** of it.  
+
+**afraid not**.  
+**afraid so** 
+Now I have to be real, that's when it all **falls apart**.  
+I think I'm **better off going** one on one.  
+I **talked him into** it.  
+But **between you and me**, you would've **paid through the nose**.  
+If **it had anything at all to do with** what you perceived as me **leering** at your daughter, I really have to take issue with that.  
+I will buy you popcorn and soda and we'll **call it even**.  
+
+Will you stop **making light of it**?  
+
+I'm kinda **wimpy**, I'm a hedonist **by nature**.  
+**Dont' take it out on me**.  
+
+I'll ask you nicely, please, **don't get in my way**.  
+**Did it occur to you** that was by design?  
+
+Don't fixate on it.  
+I was so torn between you two.  
+
+I'm caught on between a rock and a hard place.  
+
+Now I'm gonna **put the kibosh on you**.  
+
+**trick of the trade**.  
+Great **soap opera** acting tonight, everybody.  
+What **struck me the most** while reading the book "Jane Eyre" was how the book so ahead of its time.  
+They witnessed the world **turn on its head**.  
+Some students **called off** tonight.  
+Boeing had to **scale back** its ambitions.  
+
+
+
 
