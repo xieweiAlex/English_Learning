@@ -1,4 +1,6 @@
 
+He is **gypping** us. -  
+
 **afraid not**.  
 **afraid so** 
 Now I have to be real, that's when it all **falls apart**.  
@@ -8,6 +10,12 @@ It's too **trendy**, no Isabellas.
 
 I **talked him into** it.  
 after **consummation**.  
+
+
+That's a **relex**. **Cleavage, poke**, **cleavage, poke**. -  
+If **it had anything at all to do with** what you perceived as me **leering** at your daughter, I really have to take issue with that.  
+I did not **leer**. -  
+
 
 But **between you and me**, you would've **paid through the nose**.  
 He was dark, **disturbed**.  
@@ -37,10 +45,10 @@ It's not like **spotting** a **toupee**. -
 I had green light, you **jaywalked**.  
 You'll **drag me into the sewer** with you.  
 Nothing, I was just giving her **the straight dope**.   
-Another couple of coffee with you, she'll **wind up** in a **convent**. -  
+Another couple of coffee with you, she'll **wind up** in a **convent**.  
 
 ## Season 3 
-KRAMER: (**debonair** smile) Well, it’d be our little secret. -  
+KRAMER: (**debonair** smile) Well, it’d be our little secret.  
 
 A car just bashed into a parked car, and **sped off**, right on my **block**!  
 What are you, **yellow**?  

@@ -1,99 +1,3 @@
-
-## Week 2 
-
-A **meandering** river / story.  
-He'd got his revenge now, and **in spades**.
-
-There's gotta be something that gets you **choked up**.  
-Help me, Chandler, all the other puppies **pick on** me.  
-
-Try to get them from your diet by eating fish — **broiled** or baked, not fried. 
-A TFCC tear is split into two types. A Type 1 tear occurs when you fall and land on an **outstretched** hand, and a Type 2 tear is caused by the slow breakdown of **cartilage** in the TFCC. 
-If you put pressure on your wrists and pull on **sloper** holds, you risk suffering this injury. -  
-
-The crypto infrastructure **cracks**
-A **vicious** sell-off in risky assets **jolts** stablecoins. -
-
-The headline sent shares of Twitter (TWTR) into a **tailspin**, collapsing 25% to around $34, with the stock still trading violently at the time of writing.  
-
-If you don't **blandish** your wife now, you will try to marry a good woman tomorrow. -   
-We are hoping for an early **resumption** of peace talks. 
-
-
-That's a **relex**. **Cleavage, poke**, **cleavage, poke**. -  
-If **it had anything at all to do with** what you perceived as me **leering** at your daughter, I really have to take issue with that.  
-I did not **leer**. -  
-
-**capricious** government. -  
-
-They seem **destitute** of ordinary human feelings. -  
-As with **Sisyphus**, the boulder was **painstakingly** rolled upwards only to tumble back down again in an absurd **exercise of futility**.  
-The darkness of a **diabolic** world.  
-It’s unlikely that this **gully** was produced by nature.  
-In the **sweltering** haze of summer-noon. -  
-She was shouting and **raving** at them. -  
-
-The **pathos** of the situation brought tears to our eyes.  
-
-A persistent **dull ache**.  
-**Gout** is a type of inflammatory arthritis that is typically caused by a **buildup** of **uric acid**. Uric acid is a chemical produced when your body breaks down foods that contain organic compounds called purines.  
-It's a little, brown **circular** **protuberance**. What's the big deal?  
-You're very **lithe**, aren't you? Very graceful.  
-They really worked on your **pectorals**. -  
-
-The depressing reality is that the last 30 years of [relative peacetime] might just be an **aberration**. -  
-Will you stop **making light of it**?  
-
-## Week 1 
-
-What about Shelden's fiance, she seems a bit **dour**. -  
-Why is London so attractive to **tainted** foreign money? -  
-
-
-Stripe co-founder and CEO, Patrick Collison, is a **voracious** reader. -  
-I'm kinda **wimpy**, I'm a hedonist **by nature**.  
-
-20:4 can also be leveraged for those special occasions — whether you’re heading out for an evening meal, or about to feast on a delicious, **banquet** with friends and family.  
-
-It feared that e-lending was **cannibalising** print sales.
-Not just **exorcise** it or send it back to hell. -  
-Tom's boss is **upbraiding** him for his always being late for work. -  
-
-One or two companies have managed to **buck the trend** of the recession. 
-In the United States, it is legal to give a **bovine** GH to dairy cows to increase milk production, and is legal to use GH in raising cows for beef.  
-
-> Should a trade secret be made public, the competitive value of this information is gone.
-
-Note that many systems **degrade** in performance before they achieve 100% utilization, so having a utilization target is essential.  
-Our house cats are **fastidious** creatures.  
-
-**Belay** device.  
-The cheapest way to rock climb long term is to buy a pair of durable climbing shoes and some crash pads and go bouldering outdoors at your nearest **crag**. -  
-One time $10 rental gear fee to **mooch off** of us for life.   
-
-The **guerrillas** **exude** confidence. Every town, they say, is under their control. -  
-
-He was **bamboozled** into joining the club.  
-Kimchi adds a nice bit of crunchy texture and **spicy-tart** flavor to any kind of **fritter** or savory pancake.  
-
-The dog **bared** its teeth in a **snarl**.  
-The **jester** **brandished** his **bauble**. -  
-Bored cats tend to **act up**.  
-
-
-They're like a **English garden**. - They're **gardenias**, mostly. -  
-I thought I smelt **lilac**. - Yes, there are a few of those, too. -  
-The only meal left is a **kosher** meal.  
-
-Banks agreed to offer $13B in loans secured against Twitter - but the lenders **balked at** offering more than that because of the company's limited cash flow. -  
-Don't **palter** with the truth. -  
-
-We have this sort of information **on tap**.  
-Presumably the intention was to humiliate his **interlocutor** and to show how ineffective the international body has been in this conflict. -  
-And sip your water throughout the day instead of **chugging** it.  
-I'm reaching for fewer processed snacks and no longer **mistaking** thirst for hunger.  
-
-
 ## Week 4 
 
 The boy remained as dismal as a **hearse**. - 
@@ -125,14 +29,14 @@ gravitational eneregy to **kinetic energy**. -
 
 The lake’s water is **turbid**. -   
 I'm feeling a bit **peckish**.  
-Arthritis and **rheumatism** are prominent crippling diseases. -  
+Arthritis and **rheumatism** are prominent crippling diseases.  
 
 **remediate**.
 The **balky** engine **sputtered** and stopped. -  
 
 **Dont' take it out on me**.  
 
-He loves entertaining his friends with **ribald stories**. -  
+He loves entertaining his friends with **ribald stories**.  
 **ribald** jokes.  
 
 Stronger legs and **well-oiled** knee and hip joints from squatting make you less **brittle**. -
@@ -194,7 +98,7 @@ A **sliver** of light showed under the door.
 While we have a **high regard** for Netflix’s management and the remarkable company they have built, **in light of** the enormous **operating leverage** inherent in the company’s business model, changes in the company’s future subscriber growth can have an **outsized** impact on our estimate of intrinsic value.  
 
 Squatting encourages the **peristalsis** that keeps your food moving through your **digestive tract**.  
-Speed up the pace to a full run or sprint to encourage better **peristalsis**. -  
+Speed up the pace to a full run or sprint to encourage better **peristalsis**.  
 Google Docs could soon get a purple **squiggly** line that will help you become a better writer. Expect Dickens-level prose in the Brew soon enough. -  
 Some students **called off** tonight.  
 
@@ -209,7 +113,7 @@ Boeing had to **scale back** its ambitions.
 > From the start, he had the natural **inclination** to be an **impresario**, to convince people to pursue a goal that often only he could see, and then to coordinate and push them toward the creation of that goal.  
 
 Time to **limber up**.  
-He likes girls that play the **coquette**. -  
+He likes girls that play the **coquette**.   
 
 If you **put off** things today, they don’t magically disappear tomorrow. They just get added to the list of things you want to do.  
 
@@ -229,7 +133,6 @@ The president **abrogated** an old law. -
 **congenial neighbors**, **congenial tastes**  
 She exhorts me to accept that new position although that position reward is not **munificent**. -  
 Mord's strap **licked out**, but it was a halfhearted, **desultory swing**, slow and **contemptuous**. -  
-
 Even though the wrist is a small part of the body, it’s comprised of eight bones, as well as **ligaments** and **tendons**, making it a somewhat **delicate** area. 
 He is not here to **take a dip**. 
 
@@ -334,16 +237,14 @@ More and more of my guests have been touting a de-risking strategy and advocatin
 
 When the TTL controller cleans up the Job, it will delete the Job **cascadingly**, i.e. delete its dependent objects, such as Pods, together with the Job.  
 Taiwan and Ukraine face similar threats from China and Russia, **respectively**, which have publicly known intentions to **subsume** some or all of their territory.  
-Both Ukraine and Taiwan have long endured the **perils** of living next to a belligerent, authoritarian neighbor.  
-But defence spending is rising relatively slowly in America and **haphazardly** in Europe. -  
-
+Both Ukraine and Taiwan have long endured the **perils** of living next to a **belligerent**, **authoritarian** neighbor.  
+But defence spending is rising relatively slowly in America and **haphazardly** in Europe.  
 
 ## Conversation  
 
-I do hope you'll be careful with Bernard, he has a sensitive **disposition**. -  
+I do hope you'll be careful with Bernard, he has a sensitive **disposition**.  
 
 **That explains it**.  
-
 **What's the fuss**.  
 **Don't play possum**.  
 
@@ -369,10 +270,9 @@ I'm kinda **wimpy**, I'm a hedonist **by nature**.
 I'll ask you nicely, please, **don't get in my way**.  
 **Did it occur to you** that was by design?  
 
-Don't fixate on it.  
-I was so torn between you two.  
-
-I'm caught on between a rock and a hard place.  
+Don't **fixate on it**.  
+I **was so torn between** you two.  
+I'm caught on **between a rock and a hard place**.  
 
 Now I'm gonna **put the kibosh on you**.  
 
@@ -382,7 +282,5 @@ What **struck me the most** while reading the book "Jane Eyre" was how the book 
 They witnessed the world **turn on its head**.  
 Some students **called off** tonight.  
 Boeing had to **scale back** its ambitions.  
-
-
 
 

@@ -7,7 +7,7 @@ Disruptive innovation is **inexorable**.
 Pleasure is addictive and **animal**; enjoyment is **elective** and human.   
 Pleasure and enjoyment do not even have to **coincide**.  
 If I sought only pleasure, I would stay on my couch and **inadvertently** deny myself enjoyment, settling for a comfort that is animal and **evanescent**. It is a bad trade.  
-When we say to our kids, “Turn off the computer and go play outside,” we are **exhorting** them to choose enjoyment by doing something that requires more **voluntary effort**, does not create a dependency, and has more enduring benefits. -  
+When we say to our kids, “Turn off the computer and go play outside,” we are **exhorting** them to choose enjoyment by doing something that requires more **voluntary effort**, does not create a dependency, and has more enduring benefits.  
 Read: How hobbies **infiltrated** American life.  
 > Enjoyment means refusing to be managed by pleasures, nor subjugated by joyless drudgery. Pursuing it is a declaration of independence from your base impulses, be they licentious or despotic. It is a key ingredient in creating the life you truly want
 

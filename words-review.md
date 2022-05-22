@@ -1,38 +1,42 @@
 ## seinfeld.md ## 
 media/seinfeld.md
+That's a **relex**. **Cleavage, poke**, **cleavage, poke**. -  
+I did not **leer**. -  
 It's not like **spotting** a **toupee**. -  
-Another couple of coffee with you, she'll **wind up** in a **convent**. -  
+Look, she slammed into a parked car! She took no responsibility for **mutilating** the property of a stranger, then she **sped off** like a criminal! -  
 
 ## HOC4.md ## 
 media/houseOfCards/HOC4.md
 Reach out to the people who don't like us, they'll be **prime** to go with it. -  
-She showed some very poor judgements, I'm trusting you to be **discreet**. -  
 
-## words-April.md ## 
-words/2022/words-April.md
+## words-May.md ## 
+words/2022/words-May.md
+She is **indisposed** with a headache. -  
+Be **judicious** about what you share with suppliers to avoid any allegations of “facilitating” **improper** antitrust agreements. -  
+The ocean storm seems to **veer away** from you. -  
+She will face a local **magistrate** on Tuesday. -  
+he was an **inveterate** gambler. -  
+**hexagon** bolt. -  
+One **ballad** in every album. -  
+Eve **persuaded** by the **serpent**, persuades Adam to do what was forbidden by God. -  
+I was trying to climb the robe, Jerry was **spotting** me. -  
+Vim is only one tool among many for editing text and no one cares about it beyond our little **coterie**. -  
+An inviting smell of coffee **wafted** into the room. -  
 If you put pressure on your wrists and pull on **sloper** holds, you risk suffering this injury. -  
 If you don't **blandish** your wife now, you will try to marry a good woman tomorrow. -   
-That's a **relex**. **Cleavage, poke**, **cleavage, poke**. -  
-I did not **leer**. -  
 **capricious** government. -  
 They seem **destitute** of ordinary human feelings. -  
 In the **sweltering** haze of summer-noon. -  
-She was shouting and **raving** at them. -  
 They really worked on your **pectorals**. -  
-The depressing reality is that the last 30 years of [relative peacetime] might just be an **aberration**. -  
-What about Shelden's fiance, she seems a bit **dour**. -  
-Why is London so attractive to **tainted** foreign money? -  
 Stripe co-founder and CEO, Patrick Collison, is a **voracious** reader. -  
 Not just **exorcise** it or send it back to hell. -  
 Tom's boss is **upbraiding** him for his always being late for work. -  
 The cheapest way to rock climb long term is to buy a pair of durable climbing shoes and some crash pads and go bouldering outdoors at your nearest **crag**. -  
-The **guerrillas** **exude** confidence. Every town, they say, is under their control. -  
 The **jester** **brandished** his **bauble**. -  
-They're like a **English garden**. - They're **gardenias**, mostly. -  
-I thought I smelt **lilac**. - Yes, there are a few of those, too. -  
-Banks agreed to offer $13B in loans secured against Twitter - but the lenders **balked at** offering more than that because of the company's limited cash flow. -  
 Don't **palter** with the truth. -  
-Presumably the intention was to humiliate his **interlocutor** and to show how ineffective the international body has been in this conflict. -  
+
+## words-April.md ## 
+words/2022/words-April.md
 The boy remained as dismal as a **hearse**. - 
 **Stevia** is another natural alternative to sugar and sugar substitutes. -  
 This was **resoundingly** not true in the **run-up** to the global financial crisis, which resulted in large government bailouts and a sort of **quasi-nationalization** of them. -  
@@ -41,18 +45,14 @@ Candies and other **confectionery**. -
 **Margarine** and other ultra-processed **spreads** such as sweetened cream cheese. -  
 gravitational eneregy to **kinetic energy**. -  
 The lake’s water is **turbid**. -   
-Arthritis and **rheumatism** are prominent crippling diseases. -  
 The **balky** engine **sputtered** and stopped. -  
-He loves entertaining his friends with **ribald stories**. -  
 His palms were **excoriated** by the hard labor of shoveling. -  
 nobody walks with their arms **pronated** like that. - 
 Don't talk the anything **impertinent** with the main issue. -  
 The **custom** **impound** the whole cargo. -  
 Similar to peanuts, tree nuts are most often linked to **anaphylaxis**. -  
 the **characteristic** **musty** smell associated with bed bugs. -  
-Speed up the pace to a full run or sprint to encourage better **peristalsis**. -  
 Google Docs could soon get a purple **squiggly** line that will help you become a better writer. Expect Dickens-level prose in the Brew soon enough. -  
-He likes girls that play the **coquette**. -  
 At that time the country was in the **slough** of despond. -  
 The president **abrogated** an old law. -  
 She exhorts me to accept that new position although that position reward is not **munificent**. -  
@@ -65,12 +65,9 @@ She is too free with her tongue and is rather **impertinent** to people. -
 a **gossamer** justification, **gossamer** wings. -  
 What was it like day after day in their **fetid** cargo bay? -  
 The conqueror tried to make the natives **abjure** their religion. -  
-But defence spending is rising relatively slowly in America and **haphazardly** in Europe. -  
-I do hope you'll be careful with Bernard, he has a sensitive **disposition**. -  
 
 ## words-Mar.md ## 
 words/2022/words-Mar.md
-When we say to our kids, “Turn off the computer and go play outside,” we are **exhorting** them to choose enjoyment by doing something that requires more **voluntary effort**, does not create a dependency, and has more enduring benefits. -  
 The evening was charming, full of **prattle**, of dreams together. -  
 insurance **indemnity**. - 
 
