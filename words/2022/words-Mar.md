@@ -14,7 +14,7 @@ Read: How hobbies **infiltrated** American life.
 And that’s why when women **put down** other women, it’s even more **maddening** than any group of virgin basement men who try to tell me that my efforts to bring more women into bitcoin are considered sexist.  
 She **flipped out** and then she left.  
 **caveat emptor**.  
-The evening was charming, full of **prattle**, of dreams together. -  
+The evening was charming, full of **prattle**, of dreams together.  
 
 
 the **almighty** dollar.  

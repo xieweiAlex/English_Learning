@@ -251,7 +251,6 @@ Investors may be **wagering**, in my view, that a Republican-controlled Senate m
 
 I've never had **pesto** sauce before.  
 On Apple's **Piss-Poor** Documentation  
-Overall, the markets have been **on a tear**  
 Europe seems to find itself in one **predicament** after another  
 The 2020 U.S. presidential election has been a **slog** for just about everyone, no matter what your political orientation  
 

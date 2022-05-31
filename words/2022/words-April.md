@@ -77,12 +77,12 @@ The **custom** **impound** the whole cargo. -
 > The third factor is **rumination**, our tendency to keep thinking about bad experiences.
 
 Still, Ukrainian leaders are playing the world’s smallest violin, **contending** that Germany has a moral imperative to stop the flow of Russian energy.  
-Similar to peanuts, tree nuts are most often linked to **anaphylaxis**. -  
+Similar to peanuts, tree nuts are most often linked to **anaphylaxis**.  
 
 This is because some foods are **more prone to** **harboring** **pathogens** like bacteria or **toxins** that could make you sick.   
 
 The medical term for **hives** is **urticaria**, and it describes a condition that produces raised itchy areas on the skin.  
-the **characteristic** **musty** smell associated with bed bugs. -  
+the **characteristic** **musty** smell associated with bed bugs.  
 His pretentiousness will only expose his **vacuity**.  
 
 Unlike **acne vulgaris**, which is commonly caused by underlying hormonal changes, **acne mechanica** is directly caused by “mechanical” means.  
@@ -99,7 +99,7 @@ While we have a **high regard** for Netflix’s management and the remarkable co
 
 Squatting encourages the **peristalsis** that keeps your food moving through your **digestive tract**.  
 Speed up the pace to a full run or sprint to encourage better **peristalsis**.  
-Google Docs could soon get a purple **squiggly** line that will help you become a better writer. Expect Dickens-level prose in the Brew soon enough. -  
+Google Docs could soon get a purple **squiggly** line that will help you become a better writer. Expect Dickens-level prose in the Brew soon enough.  
 Some students **called off** tonight.  
 
 I'm feeling a bit **peckish**.  
@@ -129,9 +129,9 @@ Nothing **shady** or **underhanded**.
 
 **sentimental**
 
-The president **abrogated** an old law. -  
+The president **abrogated** an old law.  
 **congenial neighbors**, **congenial tastes**  
-She exhorts me to accept that new position although that position reward is not **munificent**. -  
+She exhorts me to accept that new position although that position reward is not **munificent**.  
 Mord's strap **licked out**, but it was a halfhearted, **desultory swing**, slow and **contemptuous**. -  
 Even though the wrist is a small part of the body, it’s comprised of eight bones, as well as **ligaments** and **tendons**, making it a somewhat **delicate** area. 
 He is not here to **take a dip**. 
@@ -193,7 +193,7 @@ An anal **fissure** may occur when you pass hard or large stools during a bowel 
 You also may experience **spasms** in the ring of muscle at the end of your **anus**.  
 Wars **upend** the dominance of currencies and serve as a **doula** to **the birth of** new monetary systems.  
 
-In fact, he sounded **somber** and **contrite**. -  
+In fact, he sounded **somber** and **contrite**.  
 The talks ended in (a) **stalemate**.  
 She got **huffy** and left, then Wil and I headed out to dinner.  
 
@@ -212,7 +212,7 @@ The threat will force greater **dispersion** of their forces.
 He gets very **maudlin** when he's **in his cups**.  
 She is too free with her tongue and is rather **impertinent** to people. -  
 
-a **gossamer** justification, **gossamer** wings. -  
+a **gossamer** justification, **gossamer** wings.  
 What was it like day after day in their **fetid** cargo bay? -  
 
 **What's the fuss**.  
@@ -221,7 +221,7 @@ What was it like day after day in their **fetid** cargo bay? -
 It is a **quaint** and **marvellous** thought!  
 He was accused of lies and **deceit**.  
 
-The conqueror tried to make the natives **abjure** their religion. -  
+The conqueror tried to make the natives **abjure** their religion.  
 So wasteful and **contemptible**.  
 She was looking very **haggard** and worn.  
 **libelous** action.  

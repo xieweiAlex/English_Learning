@@ -1,4 +1,11 @@
 
+
+This is **found money**. I want to **parlay** it. I want to make a big score. -  
+He is Okay. In fact, he and Elaine are getting pretty **chummy**.  
+We could be **tried for murder**.  
+**Prognosis**... Negative. He is not doing well, the doctor doesn't know what it is. They're **baffled**. -   
+
+
 He is **gypping** us. -  
 
 **afraid not**.  
@@ -11,8 +18,11 @@ It's too **trendy**, no Isabellas.
 I **talked him into** it.  
 after **consummation**.  
 
+I was trying to climb the robe, Jerry was **spotting** me. -  
+**I beg to differ**.  
 
-That's a **relex**. **Cleavage, poke**, **cleavage, poke**. -  
+
+That's a **relex**. **Cleavage, poke**, **cleavage, poke**.  
 If **it had anything at all to do with** what you perceived as me **leering** at your daughter, I really have to take issue with that.  
 I did not **leer**. -  
 
@@ -53,7 +63,7 @@ KRAMER: (**debonair** smile) Well, it’d be our little secret.
 A car just bashed into a parked car, and **sped off**, right on my **block**!  
 What are you, **yellow**?  
 They both smile **flirtatiously** at each other.  
-Look, she slammed into a parked car! She took no responsibility for **mutilating** the property of a stranger, then she **sped off** like a criminal! -  
+Look, she slammed into a parked car! She took no responsibility for **mutilating** the property of a stranger, then she **sped off** like a criminal!  
 What kind of a sick **lowlife** would do a thing like that? You know those people, you know they're **mentally disturbed**.  
 (Michael throws down his **serviette**), Michael: You think you're so damn special because you say 'God bless you'?  
 The **intercom** buzzes, Jerry walks over and presses the button  

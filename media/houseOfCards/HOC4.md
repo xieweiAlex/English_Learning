@@ -1,4 +1,7 @@
 
+Romero was **privy to** information. Someone from within the party.  
+that's **conditional on** the president doing the right thing.  
+People who have been with you through **thick and thin**, who you thought would never fail you, they fail you.  
 
 He seems **on edge**.  
 There is **a bite to your tongue** that we might need to discuss.  
@@ -11,7 +14,7 @@ He is **tenacious**, he reminds me of you.
 
 Thanks you for your **unending** and **unwavering** support. Your steady hand kept this country running this past month.  
 Take a breath, Doug. We've only just **landed on our feet** here.  
-Reach out to the people who don't like us, they'll be **prime** to go with it. -  
+Reach out to the people who don't like us, they'll be **prime** to go with it.  
 She showed some very poor judgements, I'm trusting you to be **discreet**.  
 Our agenda, that's very **presumptuous**.  
 The way you say that sounds so... **rote**.  

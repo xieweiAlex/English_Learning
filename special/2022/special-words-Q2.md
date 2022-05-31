@@ -1,4 +1,9 @@
 
+fastidious
+
+**voracious**
+
+**judicious**
 
 **unwavering**
 
