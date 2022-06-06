@@ -1,4 +1,46 @@
 
+Mm, this varnish. It's so decadent. 
+
+
+
+## Week 1 
+
+His bathroom is a brilliant **pastiche** of expensive interior design. -  
+**skulk**  
+
+One of the significant discoveries of cognitive psychologists in recent decades is that switching from one task to another is **effortful**, especially under time pressure.
+
+They are holding out hope for victory despite the **grim reality** of their struggle’s mounting cost, and successfully holding the line in many places to make the Russian fight a painful slog.
+
+**primacy effect**  
+I'm gonna have to take a **biopsy** on this.  
+I was really **percolating**.  
+How about we **let bygones be bygones**.  
+
+**Chastity** before marriage is still demanded in some societies. -  
+
+She is perceived as vain, spoiled, and **promiscuous**. -  
+He regarded the young man as **feckless** and irresponsible. -  
+
+
+Honey is a sweet, syrup-like substance that bees produce from the **nectar** of flowering plants. -  
+The **Almanac** of Naval Ravikant. -  
+
+It's Time To **Pound The Table** On Roku.  
+
+It will be a **forggone** conclusion.  
+
+After a peanut flower is pollinated, the flower **wilts** and curves down. -
+
+His sharp **retort** clearly made an impact. -  
+The style was hurried, the tone **intemperate**. -  
+He taught me to edit and **splice** film.  
+
+Importantly, the majority of fats in peanut butter are **unsaturated fats**. Research consistently indicates that replacing **saturated fats** found in animal products with more unsaturated fats (like those in peanut butter) may lower cholesterol and improve heart health.  
+Not as **loquacious** as you. -  
+
+This guy's got quite a **racket**. I take you to dinner, and then drop you off at his apartment.  
+
 The water was full of **flotsam** and refuse. -  
 You have no reason to be **apprehensive** of the future. -  
 We looked out upon a scene of **desolation** and ruin. -  
@@ -184,34 +226,7 @@ Don't let others' behavior **dictate** your emotion.
 
 I'm **getting the hang** of it.  
 
-**afraid not**.  
-**afraid so** 
-Now I have to be real, that's when it all **falls apart**.  
-I think I'm **better off going** one on one.  
-I **talked him into** it.  
-But **between you and me**, you would've **paid through the nose**.  
-If **it had anything at all to do with** what you perceived as me **leering** at your daughter, I really have to take issue with that.  
-I will buy you popcorn and soda and we'll **call it even**.  
 
-Will you stop **making light of it**?  
-
-I'm kinda **wimpy**, I'm a hedonist **by nature**.  
-**Dont' take it out on me**.  
-
-I'll ask you nicely, please, **don't get in my way**.  
-**Did it occur to you** that was by design?  
-
-Don't **fixate on it**.  
-I **was so torn between** you two.  
-I'm caught on **between a rock and a hard place**.  
-
-Now I'm gonna **put the kibosh on you**.  
-
-**trick of the trade**.  
-Great **soap opera** acting tonight, everybody.  
-What **struck me the most** while reading the book "Jane Eyre" was how the book so ahead of its time.  
-They witnessed the world **turn on its head**.  
-Some students **called off** tonight.  
-Boeing had to **scale back** its ambitions.  
+Why do you constant feel the need to **put down** my husband?  
 
 

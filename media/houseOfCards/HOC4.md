@@ -1,7 +1,28 @@
 
+## E 11 
+
+> **Censure**: Less severe than **expulsion**, a censure (sometimes referred to as condemnation or denouncement) does not remove a senator from office. It is a formal statement of disapproval, however, that can have a powerful psychological effect on a member and his/her relationships in the Senate.
+
+He went back on his deal because he's as **pliable** as his testimony.  
+
+Can you **for once** just take something **at face value** instead of fighting for it?  
+- **As if** I can be washed clean of past sins.  
+
+We're in **damage control**.  
+
+What **gets you off**, Doug? Anything?   
+That's why you're here to give me the **cold, hard** facts.  
+
+
+## E 10 
+
 Romero was **privy to** information. Someone from within the party.  
 that's **conditional on** the president doing the right thing.  
+Walker gonna plead the faith, Romero won't rock the boat.  
 People who have been with you through **thick and thin**, who you thought would never fail you, they fail you.  
+
+
+## E 9 
 
 He seems **on edge**.  
 There is **a bite to your tongue** that we might need to discuss.  
@@ -10,7 +31,7 @@ She is a **loose end** and an addict. That's a bad combination.
 He is **tenacious**, he reminds me of you. 
 
 
-## E ?? 
+## E 8 
 
 Thanks you for your **unending** and **unwavering** support. Your steady hand kept this country running this past month.  
 Take a breath, Doug. We've only just **landed on our feet** here.  
