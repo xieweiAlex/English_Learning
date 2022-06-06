@@ -3,7 +3,7 @@
 This is **found money**. I want to **parlay** it. I want to make a big score. -  
 He is Okay. In fact, he and Elaine are getting pretty **chummy**.  
 We could be **tried for murder**.  
-**Prognosis**... Negative. He is not doing well, the doctor doesn't know what it is. They're **baffled**. -   
+**Prognosis**... Negative. He is not doing well, the doctor doesn't know what it is. They're **baffled**.  
 
 
 He is **gypping** us. -  
@@ -18,7 +18,7 @@ It's too **trendy**, no Isabellas.
 I **talked him into** it.  
 after **consummation**.  
 
-I was trying to climb the robe, Jerry was **spotting** me. -  
+I was trying to climb the robe, Jerry was **spotting** me.  
 **I beg to differ**.  
 
 
@@ -50,7 +50,7 @@ My home is a... **shrine** to you.
 ## Season 4 
 
 Are you very **fussy** about your pants?  
-It's not like **spotting** a **toupee**. -  
+It's not like **spotting** a **toupee**.  
 **diaphragm**
 I had green light, you **jaywalked**.  
 You'll **drag me into the sewer** with you.  

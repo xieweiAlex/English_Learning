@@ -37,7 +37,7 @@ The style was hurried, the tone **intemperate**. -
 He taught me to edit and **splice** film.  
 
 Importantly, the majority of fats in peanut butter are **unsaturated fats**. Research consistently indicates that replacing **saturated fats** found in animal products with more unsaturated fats (like those in peanut butter) may lower cholesterol and improve heart health.  
-Not as **loquacious** as you. -  
+Not as **loquacious** as you.  
 
 This guy's got quite a **racket**. I take you to dinner, and then drop you off at his apartment.  
 
@@ -72,7 +72,7 @@ This **conundrum** is burning a hole in my head.
 This involved **herculean** cross functional effort of 300+ Engineers, Product Managers, User Experience, Merchants, Program Managers and Leaders across Sam’s Organization. -  
 
 He became the **doyen** of British physicists.  
-There was nothing **portentous** or solemn about him. He was bubbling with humour. -  
+There was nothing **portentous** or solemn about him. He was bubbling with humour.  
 **endocrine** disrupter: **pesticides**, herbicides, **insecticides**.  
 
 I leaned forward to **rumple** his hair, but he jerked out of the way. -
@@ -96,7 +96,7 @@ SpaceX took the issue to a mediator, and the woman signed a restrictive non-disc
 The ceiling suddenly **caved in** on top of them.  
 Be **judicious** about what you share with suppliers to avoid any allegations of “facilitating” **improper** antitrust agreements.  
 The ocean storm seems to **veer away** from you.  
-She will face a local **magistrate** on Tuesday. -  
+She will face a local **magistrate** on Tuesday.  
 he was an **inveterate** gambler. -  
 **hexagon** bolt. -  
 
@@ -122,7 +122,7 @@ A liquidity crisis that continues to plague China's **highly leveraged** real es
 ## Week 2 
 
 Yes. The baked fish was **out of this world**.  
-An inviting smell of coffee **wafted** into the room. -  
+An inviting smell of coffee **wafted** into the room.  
 How To Repair **Upholstery** Holes.  
 
 A **meandering** river / story.  

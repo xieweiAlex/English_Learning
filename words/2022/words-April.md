@@ -32,7 +32,7 @@ I'm feeling a bit **peckish**.
 Arthritis and **rheumatism** are prominent crippling diseases.  
 
 **remediate**.
-The **balky** engine **sputtered** and stopped. -  
+The **balky** engine **sputtered** and stopped.  
 
 **Dont' take it out on me**.  
 
