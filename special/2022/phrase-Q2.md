@@ -1,3 +1,9 @@
+
+
+He refused to **give ground** on this issue.  
+
+## May 
+
 It's Time To **Pound The Table** On Roku.  
 Overall, the markets have been **on a tear**  
 
@@ -9,6 +15,11 @@ Help me, Chandler, all the other puppies **pick on** me.
 
 Take a breath, Doug. We've only just **landed on our feet** here.  
 One time $10 rental gear fee to **mooch off** of us for life. -  
+
+Yes. The baked fish was **out of this world**.  
+Will you stop **making light of it**?  
+
+I'm kinda **wimpy**, I'm a hedonist **by nature**.  
 
 One or two companies have managed to **buck the trend** of the recession. 
 We have this sort of information **on tap**.  

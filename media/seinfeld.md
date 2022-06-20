@@ -1,6 +1,29 @@
 
 
-This is **found money**. I want to **parlay** it. I want to make a big score. -  
+## Season 5 
+
+**Bologna** sandwiches.  
+I can not have this constant **bickering**.  
+Stress is very damaging to the **epidermis**. -  
+My hands have got to be in **tip-top** shape.  
+**Keep the television down** and the conversation to a minimum.  
+
+
+The apples are mealy, the oranges are dry. I don't what's going on with the **papayas**! 
+What the hell is **plantain**?  
+God isn't **out to get you**, George.  
+She is extremely **dainty**.  
+It's nice to see such fine, **upstanding** women, in **gainful** employment, Mr. Visaki.  
+
+Jerry, this peach is **subpar**.  
+
+I'm gonna have to take a **biopsy** on this.  
+I was really **percolating**.  
+How about we **let bygones be bygones**.  
+
+This guy's got quite a **racket**. I take you to dinner, and then drop you off at his apartment.  
+
+This is **found money**. I want to **parlay** it. I want to make a big score.  
 He is Okay. In fact, he and Elaine are getting pretty **chummy**.  
 We could be **tried for murder**.  
 **Prognosis**... Negative. He is not doing well, the doctor doesn't know what it is. They're **baffled**.  

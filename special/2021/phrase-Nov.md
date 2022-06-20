@@ -8,7 +8,6 @@ Suddenly, I saw the Officer's face **light up**.
 You'd **be better off** doing something   
 you said LA is a **tar pit**  
 Many in Japan **shrug off** the problem of ageing.  
-He refused to **give ground** on this issue.  
 
 ## Week 1,2
 

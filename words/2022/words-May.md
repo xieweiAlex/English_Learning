@@ -1,50 +1,3 @@
-
-Mm, this varnish. It's so decadent. 
-
-
-
-## Week 1 
-
-His bathroom is a brilliant **pastiche** of expensive interior design. -  
-**skulk**  
-
-One of the significant discoveries of cognitive psychologists in recent decades is that switching from one task to another is **effortful**, especially under time pressure.
-
-They are holding out hope for victory despite the **grim reality** of their struggle’s mounting cost, and successfully holding the line in many places to make the Russian fight a painful slog.
-
-**primacy effect**  
-I'm gonna have to take a **biopsy** on this.  
-I was really **percolating**.  
-How about we **let bygones be bygones**.  
-
-**Chastity** before marriage is still demanded in some societies. -  
-
-She is perceived as vain, spoiled, and **promiscuous**. -  
-He regarded the young man as **feckless** and irresponsible. -  
-
-
-Honey is a sweet, syrup-like substance that bees produce from the **nectar** of flowering plants. -  
-The **Almanac** of Naval Ravikant. -  
-
-It's Time To **Pound The Table** On Roku.  
-
-It will be a **forggone** conclusion.  
-
-After a peanut flower is pollinated, the flower **wilts** and curves down. -
-
-His sharp **retort** clearly made an impact. -  
-The style was hurried, the tone **intemperate**. -  
-He taught me to edit and **splice** film.  
-
-Importantly, the majority of fats in peanut butter are **unsaturated fats**. Research consistently indicates that replacing **saturated fats** found in animal products with more unsaturated fats (like those in peanut butter) may lower cholesterol and improve heart health.  
-Not as **loquacious** as you.  
-
-This guy's got quite a **racket**. I take you to dinner, and then drop you off at his apartment.  
-
-The water was full of **flotsam** and refuse. -  
-You have no reason to be **apprehensive** of the future. -  
-We looked out upon a scene of **desolation** and ruin. -  
-
 ## Week 4 
 
 We schedule every minute of our day, pride ourselves on **forgoing** breaks, and **berate** ourselves for the slightest moment of distraction. 
@@ -55,7 +8,7 @@ They are also both **avid** coffee drinkers.
 Skewers, also known as **kabobs**, are a perfect choice for a tailgate party. They’re versatile, easy to make, and are sure to please a crowd with different taste preferences.  
 
 Ukraine needs support, not **timorous** advice. - No time to go **wobbly**.  
-This is an Indian **teepee**. -  
+This is an Indian **teepee**.  
 Romania badly needs aid to modernize its **outmoded** industries. 
 
 All whole grains are made up of three major components (3): **bran**, **germ**, **endosperm**. -
@@ -78,30 +31,28 @@ There was nothing **portentous** or solemn about him. He was bubbling with humou
 I leaned forward to **rumple** his hair, but he jerked out of the way. -
 Most people continue to use good old-fashioned locks and keys to access their humble **abodes**. -  
 
-
 ## Week 3 
 
 > The comfort of the **discontented** **status quo** is much less scary than the potential of the unknown.  
 
-Rethinking the hiring process, automating away the **cruft**, and making it easy to do the part that matters
+Rethinking the hiring process, automating away the **cruft**, and making it easy to do the part that matters.
 
 Target (NYSE:TGT) and Walmart (WMT) that **precipitated** broad selling across sectors. Costco (COST), Best Buy (NYSE:BBY).  
 
 She is **indisposed** with a headache.  
 The front windshield was **misting** over.  
 The main **psychoactive** ingredient in alcoholic beverages is **ethanol**. -  
-SpaceX took the issue to a mediator, and the woman signed a restrictive non-disclosure and **non-disparagement** clause that included a promise to never discuss the **severance payment** or **divulge** any information of any kind about Musk and his businesses. -  
-
+SpaceX took the issue to a mediator, and the woman signed a restrictive non-disclosure and **non-disparagement** clause that included a promise to never discuss the **severance payment** or **divulge** any information of any kind about Musk and his businesses.  
 
 The ceiling suddenly **caved in** on top of them.  
 Be **judicious** about what you share with suppliers to avoid any allegations of “facilitating” **improper** antitrust agreements.  
 The ocean storm seems to **veer away** from you.  
 She will face a local **magistrate** on Tuesday.  
-he was an **inveterate** gambler. -  
-**hexagon** bolt. -  
+he was an **inveterate** gambler.  
+**hexagon** bolt.  
 
 You live too long, you **wear out** your welcome.  
-One **ballad** in every album. -  
+One **ballad** in every album.  
 
 It was launched in 1990 in England by movie **buff** Col Needham to catalog the films he liked, according to a blog post on Amazon.  
 Eve **persuaded** by the **serpent**, persuades Adam to do what was forbidden by God. -  
@@ -143,7 +94,7 @@ The headline sent shares of Twitter (TWTR) into a **tailspin**, collapsing 25% t
 If you don't **blandish** your wife now, you will try to marry a good woman tomorrow. -   
 We are hoping for an early **resumption** of peace talks. 
 
-**capricious** government. -  
+**capricious** government.  
 
 They seem **destitute** of ordinary human feelings. -  
 As with **Sisyphus**, the boulder was **painstakingly** rolled upwards only to tumble back down again in an absurd **exercise of futility**.  
@@ -175,7 +126,7 @@ I'm kinda **wimpy**, I'm a hedonist **by nature**.
 20:4 can also be leveraged for those special occasions — whether you’re heading out for an evening meal, or about to feast on a delicious, **banquet** with friends and family.  
 
 It feared that e-lending was **cannibalising** print sales.
-Not just **exorcise** it or send it back to hell. -  
+Not just **exorcise** it or send it back to hell.  
 Tom's boss is **upbraiding** him for his always being late for work. -  
 
 One or two companies have managed to **buck the trend** of the recession. 
@@ -196,7 +147,7 @@ He was **bamboozled** into joining the club.
 Kimchi adds a nice bit of crunchy texture and **spicy-tart** flavor to any kind of **fritter** or savory pancake.  
 
 The dog **bared** its teeth in a **snarl**.  
-The **jester** **brandished** his **bauble**. -  
+The **jester** **brandished** his **bauble**.  
 Bored cats tend to **act up**.  
 
 
@@ -225,8 +176,8 @@ Can't believe you **caved**.
 Don't let others' behavior **dictate** your emotion.  
 
 I'm **getting the hang** of it.  
-
-
 Why do you constant feel the need to **put down** my husband?  
+
+Let's **probe**, but keep it subtle, so she doesn't notice. 
 
 

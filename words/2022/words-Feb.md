@@ -168,7 +168,7 @@ They laughed at my **puny** efforts.
 Rooms are stuffed with **lavish** **furnishings**, some have **en suite** spas.   
 She **caressed** his cheek lovingly.  
 He experienced several great social **vicissitudes** in his life.  
-Bill is so **avaricious** that he donates nothing to charity. -  
+Bill is so **avaricious** that he donates nothing to charity.  
 We must **stock up** for the winter.  
 
 

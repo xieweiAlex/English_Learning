@@ -1,4 +1,14 @@
 
+* prebiotic
+
+* broach 
+* seeth 
+* behoove  
+* oaf 
+* sluice 
+* parfait  
+* risotto 
+
 * inexorable vs inevitable 
 * subterfuge vs excuse 
 * gleam, glint 

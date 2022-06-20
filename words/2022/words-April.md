@@ -2,7 +2,7 @@
 
 The boy remained as dismal as a **hearse**. - 
 I blame my Argentina **lineage**.  
-**Stevia** is another natural alternative to sugar and sugar substitutes. -  
+**Stevia** is another natural alternative to sugar and sugar substitutes.  
 The fermentation process produces **acetic** acid (also found in vinegar) and several other **acidic compounds**, trace levels of alcohol and gases that make it carbonated.  
 
 > So it gives me enormous satisfaction when one of my geeky hobbies **intersects** my professional interests.  
@@ -11,7 +11,7 @@ You can lose many, many hours watching extremely talented people break down exac
 This is a **materially** incorrect **worldview**.  
 It **incidentally** happens to involve a house and a loan, but those two facts do not drive most behaviors of the mortgage industry.  
 This will include a **backbreaking** amount of passing documents to... 
-This was **resoundingly** not true in the **run-up** to the global financial crisis, which resulted in large government bailouts and a sort of **quasi-nationalization** of them. -  
+This was **resoundingly** not true in the **run-up** to the global financial crisis, which resulted in large government bailouts and a sort of **quasi-nationalization** of them.  
 The Big Short: Inside the **Doomsday** Machine Paperback.  
 My **quixotic** level of interest in electronic flow meters is on account of my best salaryman friend working at the company which makes the best electronic flow meters.  
 For social reasons, I'll **elide** naming him or the company, but statistically speaking you are overwhelmingly likely to be... **downstream** of their work. -  
@@ -41,7 +41,7 @@ He loves entertaining his friends with **ribald stories**.
 
 Stronger legs and **well-oiled** knee and hip joints from squatting make you less **brittle**. -
 What does it take to **lay him low**?  
-His palms were **excoriated** by the hard labor of shoveling. -  
+His palms were **excoriated** by the hard labor of shoveling.  
 Still **nursing** a hangover from Twitter accepting Elon Musk’s buyout offer? Well, the only cure, they say, is to imbibe more. Here’s the latest on the deal that rocked the world.
 Tesla shares **cratered**. Shares of the EV company **helmed** by Musk fell more than 12% yesterday, erasing more than $125 billion in market value.  
 The trial highlighted the issue as a major **vagary** of doing business in China.  
@@ -71,7 +71,7 @@ A dynamic warmup is done at the start of your workout routine. It’s meant to *
 
 The stickers improved their aim and significantly reduced “**spillage**” around the urinals.  
 He had a **premonition** that he would never see her again.  
-The **custom** **impound** the whole cargo. -  
+The **custom** **impound** the whole cargo.  
 
 > Our ancestors worked harder and strove further because they evolved to be **perpetually** **perturbed**, and so we remain today.  
 > The third factor is **rumination**, our tendency to keep thinking about bad experiences.
@@ -261,8 +261,6 @@ I **talked him into** it.
 But **between you and me**, you would've **paid through the nose**.  
 If **it had anything at all to do with** what you perceived as me **leering** at your daughter, I really have to take issue with that.  
 I will buy you popcorn and soda and we'll **call it even**.  
-
-Will you stop **making light of it**?  
 
 I'm kinda **wimpy**, I'm a hedonist **by nature**.  
 **Dont' take it out on me**.  

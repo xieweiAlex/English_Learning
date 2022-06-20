@@ -1,4 +1,16 @@
 
+**nondescript**
+
+**resounding**
+
+**nuance**
+
+**cupboard** 
+
+**scrappy**
+
+https://medium.com/mind-munchies/stay-scrappy-32674e26fc7
+
 ## May 
 
 **fastidious**
