@@ -1,4 +1,22 @@
 
+**invaluable**
+
+**tailspin**
+
+## June 
+
+**frivolous**
+
+**circumstantial**
+
+**outspoken**
+
+**subsequent**
+
+**holdout**
+
+**instinctively**
+
 **nondescript**
 
 **resounding**

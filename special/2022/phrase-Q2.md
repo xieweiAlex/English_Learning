@@ -1,4 +1,7 @@
 
+You're **better off** down there than here.  
+
+In **stamping out** Covid, China has **stomped on** confidence.   
 
 He refused to **give ground** on this issue.  
 
@@ -7,14 +10,13 @@ He refused to **give ground** on this issue.
 It's Time To **Pound The Table** On Roku.  
 Overall, the markets have been **on a tear**  
 
-
 You should be confident, honey. **Don't sell yourself short**.   
 
 There's gotta be something that gets you **choked up**.  
 Help me, Chandler, all the other puppies **pick on** me.  
 
 Take a breath, Doug. We've only just **landed on our feet** here.  
-One time $10 rental gear fee to **mooch off** of us for life. -  
+One time $10 rental gear fee to **mooch off** of us for life.   
 
 Yes. The baked fish was **out of this world**.  
 Will you stop **making light of it**?  

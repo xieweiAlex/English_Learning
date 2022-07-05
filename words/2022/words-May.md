@@ -1,5 +1,6 @@
 ## Week 4 
 
+
 We schedule every minute of our day, pride ourselves on **forgoing** breaks, and **berate** ourselves for the slightest moment of distraction. 
 They are also both **avid** coffee drinkers. 
 
@@ -41,7 +42,7 @@ Target (NYSE:TGT) and Walmart (WMT) that **precipitated** broad selling across s
 
 She is **indisposed** with a headache.  
 The front windshield was **misting** over.  
-The main **psychoactive** ingredient in alcoholic beverages is **ethanol**. -  
+The main **psychoactive** ingredient in alcoholic beverages is **ethanol**.  
 SpaceX took the issue to a mediator, and the woman signed a restrictive non-disclosure and **non-disparagement** clause that included a promise to never discuss the **severance payment** or **divulge** any information of any kind about Musk and his businesses.  
 
 The ceiling suddenly **caved in** on top of them.  
@@ -127,7 +128,7 @@ I'm kinda **wimpy**, I'm a hedonist **by nature**.
 
 It feared that e-lending was **cannibalising** print sales.
 Not just **exorcise** it or send it back to hell.  
-Tom's boss is **upbraiding** him for his always being late for work. -  
+Tom's boss is **upbraiding** him for his always being late for work.  
 
 One or two companies have managed to **buck the trend** of the recession. 
 In the United States, it is legal to give a **bovine** GH to dairy cows to increase milk production, and is legal to use GH in raising cows for beef.  

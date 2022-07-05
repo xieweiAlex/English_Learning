@@ -2,6 +2,7 @@
 export WORDS_REVIEW="words-review.md"
 
 export files=(
+  "./media/f-family.md"
   "./media/seinfeld.md"
   "./media/WWII/ww01.md"
   "./media/houseOfCards/HOC4.md"

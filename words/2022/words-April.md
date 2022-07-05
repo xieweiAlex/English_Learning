@@ -24,7 +24,7 @@ I had to **pry myself away** from .. it's a **Havanese**, right?
 > eat food, not too much, most plants 
 
 Candies and other **confectionery**. -  
-**Margarine** and other ultra-processed **spreads** such as sweetened cream cheese. -  
+**Margarine** and other ultra-processed **spreads** such as sweetened cream cheese.  
 gravitational eneregy to **kinetic energy**. -  
 
 The lake’s water is **turbid**. -   
@@ -53,7 +53,7 @@ It's a **cutthroat** world, and I wasn't performing well.
 ## Week 3 
 
 The **spigot** of capital are going to flood into this sector like you've never seen.  
-nobody walks with their arms **pronated** like that. - 
+nobody walks with their arms **pronated** like that.  
 it gives a pleasing **grippy** texture in the hand.  
 **In the wake of** devastating loss, a united community carries on.  
 

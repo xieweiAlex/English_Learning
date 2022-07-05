@@ -1,13 +1,33 @@
 
+Isn't there a better way to spend your **twilight** years?  
+I might be old, but I'm **spry**.  
+They say they never saw anybody **go after** balls with such **gusto**. -  
+
 
 ## Season 5 
+
+The woman is absolutely **mesmerizing**. -  
+You're really **smitten**.  
+
+I'm **on a roll**! I'm just **willing** these great parking spots.  
+The most important thing is you help with the **bris**.  
+Why are all those people **milling** around my car?  
+**mohel**
+You know, you should **call that off**, Elaine. It's a **barbaric** ritual!  
+It's been a very **trying** couple of days around the hospital.  
+Oh look, a man is flying, a man is flying! And then ... **splat**. -  
+The damage unfortunately, has **marred** an otherwise fine automobile, rendering it virtually **undrivable**. -  
+You greedily, **callously** want to profit from it?  
+Listen to me, you **quack**.  
+Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    
+One more peep, I'll **slice** you like a smoked **sturgeon**! -  
+
 
 **Bologna** sandwiches.  
 I can not have this constant **bickering**.  
 Stress is very damaging to the **epidermis**. -  
 My hands have got to be in **tip-top** shape.  
 **Keep the television down** and the conversation to a minimum.  
-
 
 The apples are mealy, the oranges are dry. I don't what's going on with the **papayas**! 
 What the hell is **plantain**?  
@@ -47,7 +67,7 @@ I was trying to climb the robe, Jerry was **spotting** me.
 
 That's a **relex**. **Cleavage, poke**, **cleavage, poke**.  
 If **it had anything at all to do with** what you perceived as me **leering** at your daughter, I really have to take issue with that.  
-I did not **leer**. -  
+I did not **leer**.  
 
 
 But **between you and me**, you would've **paid through the nose**.  

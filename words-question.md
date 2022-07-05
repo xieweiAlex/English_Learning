@@ -1,4 +1,10 @@
 
+* ensconce  
+
+* Plaudit 
+* fetid  
+
+* unqualified
 * prebiotic
 
 * broach 

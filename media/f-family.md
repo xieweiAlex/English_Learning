@@ -1,4 +1,79 @@
 
+We got a **mutiny** going on here?  
+Frank, this is all **substandard**.  
+Looks a bit **warped**, too.  
+How dare you invade the **sanctity** of my garbage **pail**!  
+I put my heart and soul into the Forkoontula, and she just **tossed** it in with the coffee grounds.   
+That's my plane, you want to **take a spin**?  
+
+
+Don't be **mopey**, we'll do something later.  
+It works fine, just **giggle** it.  
+
+I met her after my **squadron** bombed her village.  
+Son, you don't know how close you just came to having your **nutsack** **stapled** to your forehead.  
+
+You might wanna to get a **penicillin** shot. -  
+Made you **flinch**, you **freckled** fairy.  
+
+An absolute animal **in the sack**.  
+Those butchers are already **maiming** hostages.  
+
+
+## E 8 
+Jimmy Fitzsimmons is gonna kill you for **fingering** him for that hockey stick you stole.  
+How did you know that? Can you **read minds**, too?  
+Take **baby steps**, no one's expecting you to **bare your soul**.  
+There is something I need to tell you guys, it's been really **weighing on** me.  
+I'm a good-looking **broad** and make a decent deviled egg. The end!   
+I threw a **hissy fit** at Frank for working a few extra shifts while I abandoned my children just to follow my dream of drying the world's lettuce.  
+That's the first step towards healing, allowing us to see that **beneath** your **gruff** exterior, you're actually quite sensitive.  
+My **torment** would never end, because I hurt a friend.  
+
+
+## E 7 
+
+Aw, Christ, another kid **down the drain**.  
+I got a job and keep this family fed when **you weren't pulling your weight**.   
+You **hocked** our **locket** for your little salad thing? -   
+
+I'm being the cool dad now! It's all **groovy**!  
+What if we build a **decoy** airport, the same exact size as ours, with plane and everything.  
+Christ, she's threatening to take us to a **shrink**!  
+Don't do it Kevin, there are so much to **live for**.  
+There are 12, one for each **apostle**!   
+
+
+
+
+## E 6 
+Come in, and invite your **chauffeur** in too. -  
+I sold a precious **locket** that my husband gave me to pay for this prototype that you have the **gall** to say I don't have passion for!  
+Cutie Pie makes my heart **race**. She makes me sweat a lot.  
+
+## E 5 
+You've got a lot of **nerve** coming back here, You fucking **turncoat**. 
+**where's that ever gotten me**?  
+You **chipped** my tooth, what the fuck is wrong with you?  
+How many of you have to ever had to lie in a **latrine**, pretending to be died?  
+Did you drop a **glazed** doughnut on your lap?  
+
+## E 4 
+
+Now, go put on your **crotchless** **apron**, turn on Scooby Doo, and I will be right back to **hop in** your Mystery Machine.  
+You're **better off** down there than here.  
+Come and get your **slop**.  
+
+## E 3 
+
+I'm pretty sure he **went through** his entire **rolodex**.  
+In my experience, the product line is a bit **long in the tooth**, and I believe our customer would embrace an innovative, new product.  
+I'm not trying to be a **square**. My kids happen to think I'm cool, but enough is enough. I'm not gonna take any more of this.   
+I can make this work, Frank. **Rig up** some wiring, spray some **asbestos**, **slap on** some **lead paint**. Kevin, you will be in heaven **in no time**.  
+My mom says that weeds are the **desperadoes** of the garden.  
+You give me **the third degree** in front of my children.  
+
+
 ## E 2 
 
 Hey Bill, **don't mind us**.  

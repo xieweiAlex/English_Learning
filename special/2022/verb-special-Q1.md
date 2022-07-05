@@ -1,5 +1,13 @@
 
 
+## Q 2 
+
+**maul**
+
+**snuff**
+
+**imperil**
+
 **pinpoint**
 
 **dictate**

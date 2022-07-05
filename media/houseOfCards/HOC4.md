@@ -1,4 +1,7 @@
 
+
+Whatever the Herald has is **circumstantial**.  
+
 ## E 11 
 
 > **Censure**: Less severe than **expulsion**, a censure (sometimes referred to as condemnation or denouncement) does not remove a senator from office. It is a formal statement of disapproval, however, that can have a powerful psychological effect on a member and his/her relationships in the Senate.

@@ -1,13 +1,74 @@
 
-Stop ducking the tough decisions.  
-> One of my favorite maxims from one of my favorite business books is: "If you are going to eat shit, don’t nibble."
+Although you’ve probably heard that breakfast is the most important meal of the day, being attuned to your hunger cues can be more beneficial to your health than forcing yourself to eat when you’re not hungry.  
 
 
+## Week 4 
 
-It was in the corner of a nondescript strip mall simply decorated with photos of menu items on the wall and soy sauce bottles on the tables.  
+Every time you roll over, adjust your covers, **shoo** the dog off the bed, or fluff your pillow, you’re sending fresh clouds of **allergens** into your airways.  
 
-Their large, black and hairy appearance, with those eight eyes staring back at you… 
-the huntsman spiders suffer so much hatred and fear due to their nightmarish looks and size. In reality, they aren’t as scary as they are often made out to be.  
+They're not back by FDIC and FED, as a result, they can go out of business and leave the US mortgage market **in a lurch**. 
+Now that the Fed is no longer MBS buying, problems are **cropping up**.  
+
+
+When we use old to do list, all those tasks look **ginormous**. -  
+Don't **get caught up** which pull up grip is the best, simply go out there find a grip that feels comfortable for you.  
+
+Hiding in fake **niceties**. -  
+The Supreme Court has **defanged** one of the most sweeping tools the Biden White House needed to meet its climate targets.  
+
+He asserted his innocence and his financial **probity**.  -  
+Times of national turmoil generally **roil** a country's financial markets. -  
+The news of his death produced an instant **outpouring** of grief.
+
+This is pretty much the farthest thing from a **fly-by-night** operation.  
+Modern applications are typically architected as distributed collections of microservices, with each collection of microservices performing some **discrete** business function. -  
+
+Because Marie's first reaction is to **prevaricate**, I have a hard time believing anything she says. -  
+
+If you say that someone has **fire in their belly**, you are expressing approval of them because they are energetic, enthusiastic, and have very strong feelings.
+The Kremlin has already been making some serious **dough** from surging prices of its commodity exports, which have helped the government weather a continuous slew of hefty sanctions.  
+
+This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy. -  
+To do this, we knew we would need to be intolerant of **jackasses** and **mischief-makers**, but also come up with mechanisms to spread trust.  
+One of the hardest but best things we do is take questions anonymously every Monday, read them **verbatim** even if it hurts, and answer forthrightly and non-defensively.  
+My initial reaction was annoyance — and then a **fleeting thought** that we needed to stop being so transparent.  
+
+As the war **drags out**, Ukraine is **beseeching** Western nations for heavy weapons, but is also angling for stronger ties with the European Union to "preserve its freedom and unity."  
+Michael Jordan famously looked for any **slight** by another player to manufacture motivation, knowing it provides a tiny extra edge. He was maniacal about it, but the trick does work.  
+
+The highest **plaudit** Mr Jarre could give a director was that he was "entrusting", and left him to it. -  
+Shopify's shares have been **trounced** this year, falling almost 80% from their 52-week high. -  
+
+Our **overarching** focus is using our tools to bring inflation back down to our 2 percent goal and to keep longer-term inflation expectations well **anchored**.  
+this seems to be **paradoxical**.  
+
+they **hastily** made that recommendation to avoid eating too much fat, and too much dietary fat.    
+
+We often wonder, What is the meaning of life? Though answers vary, many share a common thread: love. There are many types of love – familial, **platonic**, romantic.  
+If the hen does not **prate**, she will not lay. -  
+How fighting inflation could **imperil** the euro zone. -  
+
+Almost all **idiomatic** expressions are colloquial language. -  
+C-suite executives feel as **frazzled** and depressed as the workers who report to them.  
+76% of **higher-ups** said the pandemic has negatively affected their overall health.  
+
+This was "an **abject failure**, and **antithetical** to everything we've learned over the last two decades since the Columbine **massacre**,"  
+An officer onsite said he had a "**hooligan**" **crowbar** that could breach a door. Officers opted to wait for keys. -  
+And don't fall for the **slew** of "detox" or "weight loss" teas that are **peddled** on Instagram and Facebook. - 
+
+In **stamping out** covid, China has **stomped on** confidence.   
+
+And Nietzsche were Kings of the **aphorism**. -  
+
+## Week 3 
+
+Stop **ducking** the tough decisions.  
+> One of my favorite **maxims** from one of my favorite business books is: "If you are going to eat shit, don’t nibble."
+
+It was in the corner of a **nondescript** strip mall simply decorated with photos of menu items on the wall and soy sauce bottles on the tables.  
+
+Their large, black and hairy appearance, with those eight eyes **staring back at you**… 
+the huntsman spiders suffer so much **hatred** and fear due to their **nightmarish** looks and size. In reality, they aren't as scary as they are often made out to be.  
 
 Peter, **knock it off**.  
 
@@ -30,20 +91,20 @@ They are likely first drawn to the trash can from the variety of smells that **e
 
 **Nigh** impossible.  
 
-Even when he was awake he was completely **torpid**. -  
+Even when he was awake he was completely **torpid**.  
 but we have reason to cool our **raging** motions , our **carnal** stings , our **unbitted** **lusts**. -  
 
 ## Week 2
 
-He'd offered to **caulk** the windows. -  
+He'd offered to **caulk** the windows.  
 He had an unshakable **premonition** that he would die. -  
 She listened to the speaker with **rapt attention**. -  
 
 It's **all in the eyes of beholder**.  
 
-**warring** states. -  
+**warring** states.  
 
-Your identity is literally your “repeated **beingness**.” -  
+Your identity is literally your “repeated **beingness**.”  
 
 It's nice to be told that you're smart, creative, resourceful or **driven**. But if you really want to offer the ultimate compliment to a successful person…the word you're looking for is “**scrappy**.”  
 
@@ -55,11 +116,11 @@ Speaking of her love, has become a romantic **balderdash**. -
 The young soldier **flouted** his officer's orders.  
 
 I would spend hours every night I was alone going through needless self **flagellation**.  
-I’ll write it down and think of it when I can do so productively, but I’m no longer allowed to **wallow** in my past pain.  
+I’ll write it down and think of it when I can do so productively, but I’m no longer allowed to **wallow** in my past pain. -  
 
 some sort of **lichen**. Is that normal in cave?   
 
-I'm actually finding **your** tenuous grasp of the English language folksy and charming today.  
+I'm actually finding your **tenuous** grasp of the English language folksy and charming today.  
 
 The ignorance is **willful**.  
 
@@ -79,15 +140,15 @@ They are holding out hope for victory despite the **grim reality** of their stru
 
 **Chastity** before marriage is still demanded in some societies. -  
 
-She is perceived as vain, spoiled, and **promiscuous**. -  
+She is perceived as vain, spoiled, and **promiscuous**.  
 He regarded the young man as **feckless** and irresponsible. -  
 
 Honey is a sweet, syrup-like substance that bees produce from the **nectar** of flowering plants. -  
-The **Almanac** of Naval Ravikant. -  
+The **Almanac** of Naval Ravikant.  
 
 It's Time To **Pound The Table** On Roku.  
 
-It will be a **forggone** conclusion.  
+It will be a **forgone** conclusion.  
 
 After a peanut flower is **pollinated**, the flower **wilts** and curves down. -
 
@@ -98,12 +159,9 @@ He taught me to edit and **splice** film.
 Importantly, the majority of fats in peanut butter are **unsaturated fats**. Research consistently indicates that replacing **saturated fats** found in animal products with more unsaturated fats (like those in peanut butter) may lower cholesterol and improve heart health.  
 Not as **loquacious** as you.  
 
-
 The water was full of **flotsam** and refuse. -  
 You have no reason to be **apprehensive** of the future. -  
 We looked out upon a scene of **desolation** and ruin. -  
-
-
 
 ## Conversation  
 
@@ -112,6 +170,24 @@ I'm actually finding your **tenuous** grasp of the English language **folksy** a
 Help me, Chandler, all the other puppies **pick on** me.  
 
 Peter, **knock it off**.  
+Attention, **deadbeat** dinners!  
+Whatever the Herald has is **circumstantial**.  
+
+
+Why are all those people **milling** around my car?  
+It's been a very **trying** couple of days around the hospital.  
+I can not have this constant **bickering**.  
+My hands have got to be in **tip-top** shape.  
+
+Don't **get caught up** which pull up grip is the best, simply go out there find a grip that feels comfortable for you.  
+That's my plane, you want to **take a spin**?  
+
+They're not back by FDIC and FED, as a result, they can go out of business and leave the US mortgage market **in a lurch**. 
+
+**I beg to differ**.  
+**What brought you here**? 
+
+
 
 ## Interesting 
 
@@ -127,4 +203,14 @@ It was launched in 1990 in England by movie **buff** Col Needham to catalog the 
 
 They took me to a **sleazy** back-street hotel.  
 The equity strategy team led by Jan Hatzius cut its end-2022 target for the S&P 500 (SP500) to 4,300 from 4,700, noting investors have been "**mauled**" since the Jan. 3 peak for the index. 
+
+**blessing in disguise**.  
+It's **all in the eyes of beholder**.  
+He won the election **hands down**.  
+
+Our **overarching** focus is using our tools to bring inflation back down to our 2 percent goal and to keep longer-term inflation expectations well **anchored**.  
+
+This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy. -  
+How fighting inflation could **imperil** the euro zone. -  
+In **stamping out** covid, China has **stomped on** confidence.   
 
