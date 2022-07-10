@@ -1,5 +1,10 @@
 
 
+
+Look, I understand if you feel **broadsided**. -  
+But we can't deny his testimony **struck a chord**.  
+Klein would be the strongest **bulwark** against calls for your impeachment.  
+
 Whatever the Herald has is **circumstantial**.  
 
 ## E 11 
@@ -21,7 +26,7 @@ That's why you're here to give me the **cold, hard** facts.
 
 Romero was **privy to** information. Someone from within the party.  
 that's **conditional on** the president doing the right thing.  
-Walker gonna plead the faith, Romero won't rock the boat.  
+Walker gonna plead the faith, Romero won't **rock the boat**.  
 People who have been with you through **thick and thin**, who you thought would never fail you, they fail you.  
 
 

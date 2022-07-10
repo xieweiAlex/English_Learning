@@ -1,11 +1,29 @@
 
+
+You're **grounded** forever.  
+It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
+**Buster**, I love that little **rascal** with all my heart.  
+
+Avoid loud and aggressive person, they're **vexations** to the spirit. -  
+I couldn't help noticing her **udders**. -  
+
+Just a little **good-natured** **ribbing**, Frank.  
+I got **indigestion** from that truck tire you called a steak.  
+
+
+Why don't you just drive him up to the Make-out Mountain and **queer off** with each other?  
+He was probably just **letting off** some **steam**.  
+You really do know these guys, I thought you were **full of shit**.  
+No, he didn't! He's acting like a **goon**!  
+Well, you were **showboating** around like a smack-ass Cuban!  
+
+
 We got a **mutiny** going on here?  
 Frank, this is all **substandard**.  
 Looks a bit **warped**, too.  
 How dare you invade the **sanctity** of my garbage **pail**!  
 I put my heart and soul into the Forkoontula, and she just **tossed** it in with the coffee grounds.   
 That's my plane, you want to **take a spin**?  
-
 
 Don't be **mopey**, we'll do something later.  
 It works fine, just **giggle** it.  
@@ -47,7 +65,7 @@ There are 12, one for each **apostle**!
 
 
 ## E 6 
-Come in, and invite your **chauffeur** in too. -  
+Come in, and invite your **chauffeur** in too.  
 I sold a precious **locket** that my husband gave me to pay for this prototype that you have the **gall** to say I don't have passion for!  
 Cutie Pie makes my heart **race**. She makes me sweat a lot.  
 
@@ -83,7 +101,7 @@ When they found me, I was trying to **lactate** myself. -
 
 Looks like your boy **dinged** my **dangler**. -  
 He is really **down in the dumps**. He is usually so **full of life**.  
-Now take these off my check, you bunch of **chiselers**! -  
+Now take these off my check, you bunch of **chiselers**!  
 
 ## E 6 
 

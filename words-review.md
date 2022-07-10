@@ -1,23 +1,38 @@
 ## f-family.md ## 
 media/f-family.md
+It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
+Avoid loud and aggressive person, they're **vexations** to the spirit. -  
+I couldn't help noticing her **udders**. -  
+You might wanna to get a **penicillin** shot. -  
 You **hocked** our **locket** for your little salad thing? -   
-Come in, and invite your **chauffeur** in too.   
 When they found me, I was trying to **lactate** myself. -  
 Looks like your boy **dinged** my **dangler**. -  
-Now take these off my check, you bunch of **chiselers**!   
 
 ## seinfeld.md ## 
 media/seinfeld.md
+They say they never saw anybody **go after** balls with such **gusto**. -  
+The woman is absolutely **mesmerizing**. -  
+Oh look, a man is flying, a man is flying! And then ... **splat**. -  
+The damage unfortunately, has **marred** an otherwise fine automobile, rendering it virtually **undrivable**. -  
+Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    
+One more peep, I'll **slice** you like a smoked **sturgeon**! -  
 Stress is very damaging to the **epidermis**. -  
 He is **gypping** us. -  
 
+## HOC4.md ## 
+media/houseOfCards/HOC4.md
+Look, I understand if you feel **broadsided**. -  
+
 ## words-June.md ## 
 words/2022/words-June.md
+He was a **devout** Christian. -  
+She **shrieked** **in fright**. -  
+When we use old to do list, all those tasks look **ginormous**. -  
+Hiding in fake **niceties**. -  
 He asserted his innocence and his financial **probity**.  -  
 Times of national turmoil generally **roil** a country's financial markets. -  
 Modern applications are typically architected as distributed collections of microservices, with each collection of microservices performing some **discrete** business function. -  
 Because Marie's first reaction is to **prevaricate**, I have a hard time believing anything she says. -  
-You might wanna to get a **penicillin** shot. -  
 This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy. -  
 The highest **plaudit** Mr Jarre could give a director was that he was "entrusting", and left him to it. -  
 Shopify's shares have been **trounced** this year, falling almost 80% from their 52-week high. -  
@@ -42,6 +57,8 @@ Honey is a sweet, syrup-like substance that bees produce from the **nectar** of 
 The water was full of **flotsam** and refuse. -  
 You have no reason to be **apprehensive** of the future. -  
 We looked out upon a scene of **desolation** and ruin. -  
+This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy. -  
+How fighting inflation could **imperil** the euro zone. -  
 
 ## words-May.md ## 
 words/2022/words-May.md

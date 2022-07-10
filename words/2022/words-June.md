@@ -1,5 +1,22 @@
 
-Although you’ve probably heard that breakfast is the most important meal of the day, being attuned to your hunger cues can be more beneficial to your health than forcing yourself to eat when you’re not hungry.  
+You won't let ambition cloud your judgement.  
+
+
+Go cut off an hour or two at each end of your eating period and before you know it, it's down to 8 hours, 6 hours, 4 hours, then it's a cinch to go down one meal a day.  
+If Charles was the father, he would never have shirked his responsibilities.  
+The police subjected him to an inquisition that lasted two hours.  
+
+
+Most store-bought dressings are **brimming** with added sugar, preservatives, and artificial flavorings that can diminish the potential health benefits of your salad.  
+It's fascinating. How can someone as **enlightened** as Sheldon come from someone like you? 
+
+It would be like **weaning off** drug.  
+
+He was a **devout** Christian. -  
+She **shrieked** **in fright**. -  
+A perfect **retort**.  
+
+Although you've probably heard that breakfast is the most important meal of the day, being **attuned** to your hunger **cues** can be more beneficial to your health than forcing yourself to eat when you’re not hungry.  
 
 
 ## Week 4 
@@ -8,7 +25,6 @@ Every time you roll over, adjust your covers, **shoo** the dog off the bed, or f
 
 They're not back by FDIC and FED, as a result, they can go out of business and leave the US mortgage market **in a lurch**. 
 Now that the Fed is no longer MBS buying, problems are **cropping up**.  
-
 
 When we use old to do list, all those tasks look **ginormous**. -  
 Don't **get caught up** which pull up grip is the best, simply go out there find a grip that feels comfortable for you.  
@@ -86,7 +102,7 @@ As for books, think massive **tomes** like Harry Potter and the Order of the Pho
 
 They are likely first drawn to the trash can from the variety of smells that **emanate** from it.  
 
-> I've always been extremely driven—
+> I've always been extremely driven
 > I've always been in this constant cycle of wanting more.
 
 **Nigh** impossible.  
@@ -184,10 +200,20 @@ That's my plane, you want to **take a spin**?
 
 They're not back by FDIC and FED, as a result, they can go out of business and leave the US mortgage market **in a lurch**. 
 
+### July 
+
 **I beg to differ**.  
 **What brought you here**? 
 
+Ten years. It works **like a charm**.
 
+You think you gonna get out of this on a **technicality**.  
+You're the one who **bailed on** us, Ok. 
+
+Han's **on the prowl**, I got to keep this body tight.  
+My team, my people here can **back me up** on this.  
+
+Just a little **good-natured** **ribbing**, Frank.  
 
 ## Interesting 
 

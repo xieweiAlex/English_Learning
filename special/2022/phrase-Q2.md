@@ -1,4 +1,6 @@
 
+Walker gonna plead the faith, Romero won't **rock the boat**.  
+
 You're **better off** down there than here.  
 
 In **stamping out** Covid, China has **stomped on** confidence.   
