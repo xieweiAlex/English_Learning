@@ -31,7 +31,7 @@ It works fine, just **giggle** it.
 I met her after my **squadron** bombed her village.  
 Son, you don't know how close you just came to having your **nutsack** **stapled** to your forehead.  
 
-You might wanna to get a **penicillin** shot. -  
+You might wanna to get a **penicillin** shot.  
 Made you **flinch**, you **freckled** fairy.  
 
 An absolute animal **in the sack**.  
@@ -95,11 +95,11 @@ You give me **the third degree** in front of my children.
 ## E 2 
 
 Hey Bill, **don't mind us**.  
-When they found me, I was trying to **lactate** myself. -  
+When they found me, I was trying to **lactate** myself.  
 
 ## E 1 
 
-Looks like your boy **dinged** my **dangler**. -  
+Looks like your boy **dinged** my **dangler**.  
 He is really **down in the dumps**. He is usually so **full of life**.  
 Now take these off my check, you bunch of **chiselers**!  
 

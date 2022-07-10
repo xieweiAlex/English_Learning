@@ -13,7 +13,7 @@ This is an Indian **teepee**.
 Romania badly needs aid to modernize its **outmoded** industries. 
 
 All whole grains are made up of three major components (3): **bran**, **germ**, **endosperm**. -
-Red rice is a type of naturally **pigmented** rice grain known for its rich nutritional properties. -  
+Red rice is a type of naturally **pigmented** rice grain known for its rich nutritional properties.  
 
 More troubling, she said, is what Google's flub may **portend** for the future. -  
 
@@ -23,7 +23,7 @@ Given the past pattern of policymaking and the attitudes of Republicans, I don't
 Sookie, has he done something **untoward**? -  
 Overall, the markets have been **on a tear**  
 This **conundrum** is burning a hole in my head. 
-This involved **herculean** cross functional effort of 300+ Engineers, Product Managers, User Experience, Merchants, Program Managers and Leaders across Sam’s Organization. -  
+This involved **herculean** cross functional effort of 300+ Engineers, Product Managers, User Experience, Merchants, Program Managers and Leaders across Sam’s Organization.  
 
 He became the **doyen** of British physicists.  
 There was nothing **portentous** or solemn about him. He was bubbling with humour.  
@@ -56,7 +56,7 @@ You live too long, you **wear out** your welcome.
 One **ballad** in every album.  
 
 It was launched in 1990 in England by movie **buff** Col Needham to catalog the films he liked, according to a blog post on Amazon.  
-Eve **persuaded** by the **serpent**, persuades Adam to do what was forbidden by God. -  
+Eve **persuaded** by the **serpent**, persuades Adam to do what was forbidden by God.  
 
 Executive pay has come under the **microscope** in recent years, with **top brass** increasingly making hundreds of times the pay of the average worker.   
 **Rip off** the Band-Aid
@@ -100,7 +100,7 @@ We are hoping for an early **resumption** of peace talks.
 They seem **destitute** of ordinary human feelings. -  
 As with **Sisyphus**, the boulder was **painstakingly** rolled upwards only to tumble back down again in an absurd **exercise of futility**.  
 The darkness of a **diabolic** world.   
-It’s unlikely that this **gully** was produced by nature. -  
+It’s unlikely that this **gully** was produced by nature.  
 In the **sweltering** haze of summer-noon.  
 She was shouting and **raving** at them.  
 

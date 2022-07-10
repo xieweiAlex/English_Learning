@@ -18,7 +18,7 @@ I think a maze design is a very **esoteric** art.
 He reported the speech **verbatim**.  
 
 This is a **wily** politician.  
-I dreamt that my hair was **kempt**. -  
+I dreamt that my hair was **kempt**.  
 **comb**  
 
 The future of the **ventless** storage of **cryogenic** liquid has been expected.  

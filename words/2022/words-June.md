@@ -62,9 +62,9 @@ they **hastily** made that recommendation to avoid eating too much fat, and too 
 
 We often wonder, What is the meaning of life? Though answers vary, many share a common thread: love. There are many types of love – familial, **platonic**, romantic.  
 If the hen does not **prate**, she will not lay. -  
-How fighting inflation could **imperil** the euro zone. -  
+How fighting inflation could **imperil** the euro zone.  
 
-Almost all **idiomatic** expressions are colloquial language. -  
+Almost all **idiomatic** expressions are colloquial language.  
 C-suite executives feel as **frazzled** and depressed as the workers who report to them.  
 76% of **higher-ups** said the pandemic has negatively affected their overall health.  
 
@@ -74,7 +74,7 @@ And don't fall for the **slew** of "detox" or "weight loss" teas that are **pedd
 
 In **stamping out** covid, China has **stomped on** confidence.   
 
-And Nietzsche were Kings of the **aphorism**. -  
+And Nietzsche were Kings of the **aphorism**.  
 
 ## Week 3 
 
@@ -89,7 +89,7 @@ the huntsman spiders suffer so much **hatred** and fear due to their **nightmari
 Peter, **knock it off**.  
 
 Steel cuts oats are slightly higher in fiber than rolled and quick oats. They also have the lowest **glycemic** index of the three types of oats, potentially making them the best choice for blood sugar control.  
-They accepted the offer with **alacrity**. -  
+They accepted the offer with **alacrity**.  
 
 This blanket smells a bit **fusty**. -  
 the **asperity** of northern winters.  
@@ -154,7 +154,7 @@ They are holding out hope for victory despite the **grim reality** of their stru
 
 **primacy effect**  
 
-**Chastity** before marriage is still demanded in some societies. -  
+**Chastity** before marriage is still demanded in some societies.  
 
 She is perceived as vain, spoiled, and **promiscuous**.  
 He regarded the young man as **feckless** and irresponsible. -  
@@ -176,7 +176,7 @@ Importantly, the majority of fats in peanut butter are **unsaturated fats**. Res
 Not as **loquacious** as you.  
 
 The water was full of **flotsam** and refuse. -  
-You have no reason to be **apprehensive** of the future. -  
+You have no reason to be **apprehensive** of the future.  
 We looked out upon a scene of **desolation** and ruin. -  
 
 ## Conversation  
@@ -237,6 +237,6 @@ He won the election **hands down**.
 Our **overarching** focus is using our tools to bring inflation back down to our 2 percent goal and to keep longer-term inflation expectations well **anchored**.  
 
 This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy. -  
-How fighting inflation could **imperil** the euro zone. -  
+How fighting inflation could **imperil** the euro zone.  
 In **stamping out** covid, China has **stomped on** confidence.   
 

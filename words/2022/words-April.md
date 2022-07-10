@@ -23,7 +23,7 @@ I had to **pry myself away** from .. it's a **Havanese**, right?
 > It was a wonderful investment, it continues to pay divident to this day.  
 > eat food, not too much, most plants 
 
-Candies and other **confectionery**. -  
+Candies and other **confectionery**.  
 **Margarine** and other ultra-processed **spreads** such as sweetened cream cheese.  
 gravitational eneregy to **kinetic energy**. -  
 
