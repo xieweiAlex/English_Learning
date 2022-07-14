@@ -13,7 +13,6 @@ The damage unfortunately, has **marred** an otherwise fine automobile, rendering
 Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    
 One more peep, I'll **slice** you like a smoked **sturgeon**! -  
 Stress is very damaging to the **epidermis**. -  
-He is **gypping** us. -  
 
 ## HOC4.md ## 
 media/houseOfCards/HOC4.md
@@ -26,7 +25,6 @@ She **shrieked** **in fright**. -
 When we use old to do list, all those tasks look **ginormous**. -  
 Hiding in fake **niceties**. -  
 He asserted his innocence and his financial **probity**.  -  
-Times of national turmoil generally **roil** a country's financial markets. -  
 Modern applications are typically architected as distributed collections of microservices, with each collection of microservices performing some **discrete** business function. -  
 Because Marie's first reaction is to **prevaricate**, I have a hard time believing anything she says. -  
 This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy. -  
@@ -57,7 +55,6 @@ Most people continue to use good old-fashioned locks and keys to access their hu
 If you don't **blandish** your wife now, you will try to marry a good woman tomorrow. -   
 They seem **destitute** of ordinary human feelings. -  
 They really worked on your **pectorals**. -  
-The depressing reality is that the last 30 years of [relative peacetime] might just be an **aberration**. -  
 The cheapest way to rock climb long term is to buy a pair of durable climbing shoes and some crash pads and go bouldering outdoors at your nearest **crag**. -  
 Don't **palter** with the truth. -  
 
@@ -80,3 +77,4 @@ What was it like day after day in their **fetid** cargo bay? -
 words/2022/words-Feb.md
 She is the most vocal and **pertinacious** of all the critics of the policy. -  
 Nvidia-Arm is officially **kaput**. -  
+

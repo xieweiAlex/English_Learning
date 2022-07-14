@@ -1,10 +1,26 @@
 
-You won't let ambition cloud your judgement.  
+Plant **nurseries** in the U.S. saw sales jump 10%-15% in 2020, according to a Garden Center survey.  
+Rapeseed oil.  
 
 
-Go cut off an hour or two at each end of your eating period and before you know it, it's down to 8 hours, 6 hours, 4 hours, then it's a cinch to go down one meal a day.  
-If Charles was the father, he would never have shirked his responsibilities.  
-The police subjected him to an inquisition that lasted two hours.  
+Investors are strapping on their seatbelts as they prepare for some wild trading in the week ahead.  
+
+
+Would it to kill you to give me an **attaboy**.  
+Something would always **set him off**.  
+Look at you, a **dead ringer** for your father.  
+
+
+ Life's short. Let's **lean on** friends! 
+It’s also made with a **percale weave**, which means it’s super lightweight and crisp. -  
+If the gas is below 1/4 tank, use the gas card in the visor to fill up, or you'll be charged a $30 fee. -  
+
+They fell **prostrate** in worship. -
+You won't let ambition **cloud** your judgement.  
+
+Go cut off an hour or two at each end of your eating period and before you know it, it's down to 8 hours, 6 hours, 4 hours, then it's a **cinch** to go down one meal a day. -  
+If Charles was the father, he would never have **shirked** his responsibilities.  
+The police **subjected** him to an **inquisition** that lasted two hours.  
 
 
 Most store-bought dressings are **brimming** with added sugar, preservatives, and artificial flavorings that can diminish the potential health benefits of your salad.  
@@ -33,7 +49,7 @@ Hiding in fake **niceties**. -
 The Supreme Court has **defanged** one of the most sweeping tools the Biden White House needed to meet its climate targets.  
 
 He asserted his innocence and his financial **probity**.  -  
-Times of national turmoil generally **roil** a country's financial markets. -  
+Times of national turmoil generally **roil** a country's financial markets.  
 The news of his death produced an instant **outpouring** of grief.
 
 This is pretty much the farthest thing from a **fly-by-night** operation.  

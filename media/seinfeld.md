@@ -49,7 +49,7 @@ We could be **tried for murder**.
 **Prognosis**... Negative. He is not doing well, the doctor doesn't know what it is. They're **baffled**.  
 
 
-He is **gypping** us. -  
+He is **gypping** us.  
 
 **afraid not**.  
 **afraid so** 
