@@ -17,6 +17,34 @@ Stress is very damaging to the **epidermis**. -
 media/houseOfCards/HOC4.md
 Look, I understand if you feel **broadsided**. -  
 
+## words-July.md ## 
+words/2022/words-July.md
+She **underwent** dilation and **curettage**, or D&C, to remove the pregnancy tissue from her uterus per her doctor's recommendation. -  
+**Aspartame** is an artificial sweetener used in many sugar-free products. -  
+The news was a win for the EV maker, which over the last two years has experienced executive departures, an SEC probe, and investor skepticism, resulting in a **paltry** stock performance since it went public via SPAC in 2020. -  
+Capitol Police said 35 people were arrested for "Crowding, **Obstructing** or **Incommoding**," including 17 members of Congress. -  
+The company can only go to hell **in a handbasket** with this **dead-cat bounce**. -  
+I don't believe it's either merely **picayune** or **inappropriate** to point out Ellen/Elliot who is quite good actor/actress, is also a ritual model for emulation. -   
+May **trample** over those who are weaker-willed. -  
+The **jubilation** that many Chinese nationalist netizens expressed over last week's assassination of former Japanese Prime Minister Shinzo Abe underscores the depth of anti-Japan sentiment in China. -  
+The Chinese government distanced itself from the online **revelry**. -  
+The merge will end Proof-of-Work mining on the Ethereum network, which will **obviate** the need for consumer graphics cards (GPUs) used for mining today. -  
+Think f-words and middle fingers. Get him talking about **rare cars**, broken motors or physics, and he was **off-the-charts** smart — an **unalloyed** nerd. -  
+Because she is like the jury, she's gotta to be **sequestered**. -  
+So you're going to hear rumors. You're going to hear **innuendos**. You will need to stick to your talking points. -   
+Not get **lured** **off-track** with, what, **salacious** questions. -  
+My role is to be **sly**, **obsequious** and without **scruples**. I'm a good actor, My Lord. Huh. Can you free me from this pit? -  
+Hello, my hateful **shrew**. -  
+He was actually **on the verge of** deciding to go off to an **ashram** in India, **chucking it all**. -  
+That's pure **lye**. -  
+You're an **ignoramus** a bumbling liquor thief. -  
+It’s also made with a **percale weave**, which means it’s super lightweight and crisp. -  
+If the gas is below 1/4 tank, use the gas card in the **visor** to fill up, or you'll be charged a $30 fee. -  
+Go cut off an hour or two at each end of your eating period and before you know it, it's down to 8 hours, 6 hours, 4 hours, then it's a **cinch** to go down one meal a day. -  
+He was a **devout** Christian. -  
+She **shrieked** **in fright**.   
+This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy. -  
+
 ## words-June.md ## 
 words/2022/words-June.md
 When we use old to do list, all those tasks look **ginormous**. -  
