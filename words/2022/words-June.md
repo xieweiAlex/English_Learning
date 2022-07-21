@@ -1,40 +1,4 @@
 
-Plant **nurseries** in the U.S. saw sales jump 10%-15% in 2020, according to a Garden Center survey.  
-Rapeseed oil.  
-
-
-Investors are strapping on their seatbelts as they prepare for some wild trading in the week ahead.  
-
-
-Would it to kill you to give me an **attaboy**.  
-Something would always **set him off**.  
-Look at you, a **dead ringer** for your father.  
-
-
- Life's short. Let's **lean on** friends! 
-It’s also made with a **percale weave**, which means it’s super lightweight and crisp. -  
-If the gas is below 1/4 tank, use the gas card in the visor to fill up, or you'll be charged a $30 fee. -  
-
-They fell **prostrate** in worship. -
-You won't let ambition **cloud** your judgement.  
-
-Go cut off an hour or two at each end of your eating period and before you know it, it's down to 8 hours, 6 hours, 4 hours, then it's a **cinch** to go down one meal a day. -  
-If Charles was the father, he would never have **shirked** his responsibilities.  
-The police **subjected** him to an **inquisition** that lasted two hours.  
-
-
-Most store-bought dressings are **brimming** with added sugar, preservatives, and artificial flavorings that can diminish the potential health benefits of your salad.  
-It's fascinating. How can someone as **enlightened** as Sheldon come from someone like you? 
-
-It would be like **weaning off** drug.  
-
-He was a **devout** Christian. -  
-She **shrieked** **in fright**. -  
-A perfect **retort**.  
-
-Although you've probably heard that breakfast is the most important meal of the day, being **attuned** to your hunger **cues** can be more beneficial to your health than forcing yourself to eat when you’re not hungry.  
-
-
 ## Week 4 
 
 Every time you roll over, adjust your covers, **shoo** the dog off the bed, or fluff your pillow, you’re sending fresh clouds of **allergens** into your airways.  
@@ -60,7 +24,7 @@ Because Marie's first reaction is to **prevaricate**, I have a hard time believi
 If you say that someone has **fire in their belly**, you are expressing approval of them because they are energetic, enthusiastic, and have very strong feelings.
 The Kremlin has already been making some serious **dough** from surging prices of its commodity exports, which have helped the government weather a continuous slew of hefty sanctions.  
 
-This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy. -  
+This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy.  
 To do this, we knew we would need to be intolerant of **jackasses** and **mischief-makers**, but also come up with mechanisms to spread trust.  
 One of the hardest but best things we do is take questions anonymously every Monday, read them **verbatim** even if it hurts, and answer forthrightly and non-defensively.  
 My initial reaction was annoyance — and then a **fleeting thought** that we needed to stop being so transparent.  
@@ -157,7 +121,7 @@ I'm actually finding your **tenuous** grasp of the English language folksy and c
 The ignorance is **willful**.  
 
 
-The police **subjected** him to an **inquisition** that lasted two hours. -  
+The police **subjected** him to an **inquisition** that lasted two hours.  
 
 ## Week 1 
 
@@ -175,7 +139,7 @@ They are holding out hope for victory despite the **grim reality** of their stru
 She is perceived as vain, spoiled, and **promiscuous**.  
 He regarded the young man as **feckless** and irresponsible. -  
 
-Honey is a sweet, syrup-like substance that bees produce from the **nectar** of flowering plants. -  
+Honey is a sweet, syrup-like substance that bees produce from the **nectar** of flowering plants.  
 The **Almanac** of Naval Ravikant.  
 
 It's Time To **Pound The Table** On Roku.  
@@ -216,20 +180,6 @@ That's my plane, you want to **take a spin**?
 
 They're not back by FDIC and FED, as a result, they can go out of business and leave the US mortgage market **in a lurch**. 
 
-### July 
-
-**I beg to differ**.  
-**What brought you here**? 
-
-Ten years. It works **like a charm**.
-
-You think you gonna get out of this on a **technicality**.  
-You're the one who **bailed on** us, Ok. 
-
-Han's **on the prowl**, I got to keep this body tight.  
-My team, my people here can **back me up** on this.  
-
-Just a little **good-natured** **ribbing**, Frank.  
 
 ## Interesting 
 
@@ -243,16 +193,4 @@ Rethinking the hiring process, automating away the **cruft**, and making it easy
 Be **judicious** about what you share with suppliers to avoid any allegations of “facilitating” **improper** antitrust agreements.  
 It was launched in 1990 in England by movie **buff** Col Needham to catalog the films he liked, according to a blog post on Amazon.  
 
-They took me to a **sleazy** back-street hotel.  
-The equity strategy team led by Jan Hatzius cut its end-2022 target for the S&P 500 (SP500) to 4,300 from 4,700, noting investors have been "**mauled**" since the Jan. 3 peak for the index. 
-
-**blessing in disguise**.  
-It's **all in the eyes of beholder**.  
-He won the election **hands down**.  
-
-Our **overarching** focus is using our tools to bring inflation back down to our 2 percent goal and to keep longer-term inflation expectations well **anchored**.  
-
-This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy. -  
-How fighting inflation could **imperil** the euro zone.  
-In **stamping out** covid, China has **stomped on** confidence.   
 

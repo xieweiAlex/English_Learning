@@ -1,4 +1,7 @@
 
+**obviate**
+
+**Corroborate**
 
 ## Q 2 
 

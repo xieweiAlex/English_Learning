@@ -6,7 +6,7 @@ They say they never saw anybody **go after** balls with such **gusto**. -
 
 ## Season 5 
 
-The woman is absolutely **mesmerizing**. -  
+The woman is absolutely **mesmerizing**.  
 You're really **smitten**.  
 
 I'm **on a roll**! I'm just **willing** these great parking spots.  

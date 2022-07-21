@@ -20,7 +20,7 @@ More troubling, she said, is what Google's flub may **portend** for the future. 
 An **emboldened** Fed.  
 Given the past pattern of policymaking and the attitudes of Republicans, I don't expect to see more than familiar **platitudes** and **deflection** to vague future actions.  
 
-Sookie, has he done something **untoward**? -  
+Sookie, has he done something **untoward**?  
 Overall, the markets have been **on a tear**  
 This **conundrum** is burning a hole in my head. 
 This involved **herculean** cross functional effort of 300+ Engineers, Product Managers, User Experience, Merchants, Program Managers and Leaders across Sam’s Organization.  
@@ -97,7 +97,7 @@ We are hoping for an early **resumption** of peace talks.
 
 **capricious** government.  
 
-They seem **destitute** of ordinary human feelings. -  
+They seem **destitute** of ordinary human feelings.  
 As with **Sisyphus**, the boulder was **painstakingly** rolled upwards only to tumble back down again in an absurd **exercise of futility**.  
 The darkness of a **diabolic** world.   
 It’s unlikely that this **gully** was produced by nature.  

@@ -27,7 +27,7 @@ Candies and other **confectionery**.
 **Margarine** and other ultra-processed **spreads** such as sweetened cream cheese.  
 gravitational eneregy to **kinetic energy**. -  
 
-The lake’s water is **turbid**. -   
+The lake’s water is **turbid**.  
 I'm feeling a bit **peckish**.  
 Arthritis and **rheumatism** are prominent crippling diseases.  
 
@@ -132,7 +132,7 @@ Nothing **shady** or **underhanded**.
 The president **abrogated** an old law.  
 **congenial neighbors**, **congenial tastes**  
 She exhorts me to accept that new position although that position reward is not **munificent**.  
-Mord's strap **licked out**, but it was a halfhearted, **desultory swing**, slow and **contemptuous**. -  
+Mord's strap **licked out**, but it was a halfhearted, **desultory swing**, slow and **contemptuous**.  
 Even though the wrist is a small part of the body, it’s comprised of eight bones, as well as **ligaments** and **tendons**, making it a somewhat **delicate** area. 
 He is not here to **take a dip**. 
 
@@ -141,7 +141,7 @@ He is not here to **take a dip**.
 
 Consume **citric** juices, whether lime juice squeezed into water, lemon juice on food, or a beverage like the citrus **kombucha** I had.  
 
-Emily got into the car wearing jeans and a **skimpy** **tanktop**. -  
+Emily got into the car wearing jeans and a **skimpy** **tanktop**.  
 What's all the **palaver** about? -  
 Her **tact** and intuition never failed.  
 The final stage of **waxing** left it with a **satin** **sheen**.  
