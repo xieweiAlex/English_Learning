@@ -1,5 +1,24 @@
 
 
+Stop **bottling up** your feeling.  
+She is **jumpy** today.  
+Do you think Kevin's song **has what it takes**?  
+I was **head over heals** about her.  
+But to this date, I thank my father for **looking out for me**.  
+He saved me from **throwing my life away** for some silly **infatuation**. -  
+My father **turned me in** to the **Gestapo**. - Oh, year, that's the winner. -  
+Got to **put another fire out**.  
+
+
+That's pure **lye**. -  
+He's been **grouch** ever since Grandpa came around and started buying us ice cream every day.  
+She will be **upstate** with a **distended** belly by next summer.  
+You're an **ignoramus** a **bumbling** liquor thief. -  
+
+Would it to kill you to give me an **attaboy**.  
+Something would always **set him off**.  
+Look at you, a **dead ringer** for your father.  
+
 You're **grounded** forever.  
 It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
 **Buster**, I love that little **rascal** with all my heart.  

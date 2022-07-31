@@ -1,10 +1,15 @@
 
+## July 
 
+**cinch**
+
+**uncomplicated** 
+
+**pressing** 
 
 **sloppy**
 
 **involuntarily**
-
 
 **enlightened**
 

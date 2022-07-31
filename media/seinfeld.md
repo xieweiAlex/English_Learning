@@ -1,4 +1,12 @@
 
+I want you to have this job, but of course... **sodomy** is a prerequisite.  
+**Rest stop** supply.  
+Gino, you've **outdone** yourself this time. This is the best haircut I've ever had. -  
+If I don't have the job, by the time he comes back, I'm **ensconced**. - 
+I'd like to have **shoehorn** hands.  
+Look at him, he is **grotesque**. - You think?  - Do I think? He is **repugnant**.  
+It was a **cinch**.  
+
 Isn't there a better way to spend your **twilight** years?  
 I might be old, but I'm **spry**.  
 They say they never saw anybody **go after** balls with such **gusto**. -  

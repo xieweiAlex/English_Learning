@@ -9,7 +9,7 @@ Now that the Fed is no longer MBS buying, problems are **cropping up**.
 When we use old to do list, all those tasks look **ginormous**. -  
 Don't **get caught up** which pull up grip is the best, simply go out there find a grip that feels comfortable for you.  
 
-Hiding in fake **niceties**. -  
+Hiding in fake **niceties**.  
 The Supreme Court has **defanged** one of the most sweeping tools the Biden White House needed to meet its climate targets.  
 
 He asserted his innocence and his financial **probity**.  -  
@@ -17,7 +17,7 @@ Times of national turmoil generally **roil** a country's financial markets.
 The news of his death produced an instant **outpouring** of grief.
 
 This is pretty much the farthest thing from a **fly-by-night** operation.  
-Modern applications are typically architected as distributed collections of microservices, with each collection of microservices performing some **discrete** business function. -  
+Modern applications are typically architected as distributed collections of microservices, with each collection of microservices performing some **discrete** business function.  
 
 Because Marie's first reaction is to **prevaricate**, I have a hard time believing anything she says. -  
 
@@ -41,7 +41,7 @@ this seems to be **paradoxical**.
 they **hastily** made that recommendation to avoid eating too much fat, and too much dietary fat.    
 
 We often wonder, What is the meaning of life? Though answers vary, many share a common thread: love. There are many types of love – familial, **platonic**, romantic.  
-If the hen does not **prate**, she will not lay. -  
+If the hen does not **prate**, she will not lay.  
 How fighting inflation could **imperil** the euro zone.  
 
 Almost all **idiomatic** expressions are colloquial language.  
@@ -71,7 +71,7 @@ Peter, **knock it off**.
 Steel cuts oats are slightly higher in fiber than rolled and quick oats. They also have the lowest **glycemic** index of the three types of oats, potentially making them the best choice for blood sugar control.  
 They accepted the offer with **alacrity**.  
 
-This blanket smells a bit **fusty**. -  
+This blanket smells a bit **fusty**.  
 the **asperity** of northern winters.  
 
 But his arrest at the **behest** of Serbia will damage its relations with Bosnia.  
@@ -94,7 +94,7 @@ but we have reason to cool our **raging** motions , our **carnal** stings , our 
 
 He'd offered to **caulk** the windows.  
 He had an unshakable **premonition** that he would die. -  
-She listened to the speaker with **rapt attention**. -  
+She listened to the speaker with **rapt attention**.  
 
 It's **all in the eyes of beholder**.  
 
@@ -155,7 +155,7 @@ He taught me to edit and **splice** film.
 Importantly, the majority of fats in peanut butter are **unsaturated fats**. Research consistently indicates that replacing **saturated fats** found in animal products with more unsaturated fats (like those in peanut butter) may lower cholesterol and improve heart health.  
 Not as **loquacious** as you.  
 
-The water was full of **flotsam** and refuse. -  
+The water was full of **flotsam** and refuse.  
 You have no reason to be **apprehensive** of the future.  
 We looked out upon a scene of **desolation** and ruin. -  
 

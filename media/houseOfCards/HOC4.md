@@ -1,7 +1,12 @@
 
+Let me talk to him, I will **circle back**.  
+I'm going to **recant**.  
+Because you're going to have **recuse** yourself, so your testify could against me.  
+So you're going to hear rumors. You're going to hear **innuendos**. You will need to stick to your talking points. -   
+Not get **lured** **off-track** with, what, **salacious** questions. -  
+It's really only **dawning** on me now, the sacrifice you made.  
 
-
-Look, I understand if you feel **broadsided**. -  
+Look, I understand if you feel **broadsided**.  
 But we can't deny his testimony **struck a chord**.  
 Klein would be the strongest **bulwark** against calls for your impeachment.  
 
@@ -12,12 +17,9 @@ Whatever the Herald has is **circumstantial**.
 > **Censure**: Less severe than **expulsion**, a censure (sometimes referred to as condemnation or denouncement) does not remove a senator from office. It is a formal statement of disapproval, however, that can have a powerful psychological effect on a member and his/her relationships in the Senate.
 
 He went back on his deal because he's as **pliable** as his testimony.  
-
 Can you **for once** just take something **at face value** instead of fighting for it?  
-- **As if** I can be washed clean of past sins.  
-
+**As if** I can be washed clean of past sins. -  
 We're in **damage control**.  
-
 What **gets you off**, Doug? Anything?   
 That's why you're here to give me the **cold, hard** facts.  
 

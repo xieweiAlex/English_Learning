@@ -30,7 +30,7 @@ There was nothing **portentous** or solemn about him. He was bubbling with humou
 **endocrine** disrupter: **pesticides**, herbicides, **insecticides**.  
 
 I leaned forward to **rumple** his hair, but he jerked out of the way. -
-Most people continue to use good old-fashioned locks and keys to access their humble **abodes**. -  
+Most people continue to use good old-fashioned locks and keys to access their humble **abodes**.  
 
 ## Week 3 
 

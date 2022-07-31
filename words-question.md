@@ -1,4 +1,5 @@
 
+* Sea change
 * ensconce  
 
 * Plaudit 
@@ -92,7 +93,6 @@
 * in the offing
 * marooned
 * onus vs responsibility, obligation 
-* ingratiating
 * discern
 * silver lining
 * stopgap 
