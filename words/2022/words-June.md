@@ -6,7 +6,7 @@ Every time you roll over, adjust your covers, **shoo** the dog off the bed, or f
 They're not back by FDIC and FED, as a result, they can go out of business and leave the US mortgage market **in a lurch**. 
 Now that the Fed is no longer MBS buying, problems are **cropping up**.  
 
-When we use old to do list, all those tasks look **ginormous**. -  
+When we use old to do list, all those tasks look **ginormous**.  
 Don't **get caught up** which pull up grip is the best, simply go out there find a grip that feels comfortable for you.  
 
 Hiding in fake **niceties**.  

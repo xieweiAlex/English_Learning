@@ -1,4 +1,14 @@
 
+
+Slow down, **slugger**. I'm still trying to get **acquainted** here.  
+You saw my little **outburst**. - I enjoyed it.    
+Let her at least looks like the president. I'll **scuttle** thee nomination if it comes to that later. -  
+My brother George, **incurious** George.  
+But George, he got all **high-minded** about it. Thought we were bending too many laws.   
+Well, the last time I saw Cathy, she looked **at death's door**.  
+It's an **embolism**, they're saying, connected to her fall.  
+
+
 Let me talk to him, I will **circle back**.  
 I'm going to **recant**.  
 Because you're going to have **recuse** yourself, so your testify could against me.  

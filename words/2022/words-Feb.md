@@ -69,7 +69,7 @@ His favourite **tipple** was rum and lemon.
 They saw the **gleam** of a lamp ahead.  
 Why are people so full of gloom and **doom**?  
 He never allowed his work to **impinge** on his private life.  
-She is the most vocal and **pertinacious** of all the critics of the policy. -  
+She is the most vocal and **pertinacious** of all the critics of the policy.  
 We knew we were in for a pretty long, **jejune** evening.  
 I wasn't actually sick but I felt **lousy**.  
 

@@ -1,23 +1,42 @@
 
+So the next time you’re craving candy or sweets, consider munching on some raisins to satisfy your yearning. Your body will reap the healthy benefits.  
+
+
+
+snake oil scam.  
+
+
+We never saw a reduction in government **outlays** since 70s.  
+Insults alone cannot **defile** a person's honour.
+The air in the garden was warm and **fragrant**. 
+
+
+Well, get **pissy** if you want mom, I've enjoyed the time we've had as a family.   
+
+**carol** singer 
+Give them a **quid** and tell them to **bugger off**.  
+
+"Making macroeconomic **prognostications** is a recipe for disaster," but Musk estimates "we are past peak inflation" and likely to see a "relatively mild recession for something like 18 months.
+
+Quote: "The U.S. will certainly **shoulder the responsibility** and pay the price for undermining China's sovereignty and security interest," declared Hua Chunying, spokeswoman at China's foreign ministry.  
+**disciplinary actions**.  
+
+People were **bunched** up at all the exits.  
+**Keynesian**
+
+> Cling **tooth and nail** to the following rule: not to give in to adversity, never to trust prosperity and always take full note of fortune’s habit of behaving just as she pleases, treating her as if she were actually going to do everything that is in her power. 
+
+So-and-so was **carted off** to prison.
+Emperors were **Deities**, ordinary men with direct access to unlimited wealth and **adulation**. -  
+Before you jump to the conclusion that the Stoics were **dour** and sad men, ask yourself, if you were a dictator, what would your diary look like?  
+
 ## Week 4
 
 Why you should be satisfied with being **ordinary**.  
-I saw him making a deal with some **seedy**, **middle-aged** woman in dark glasses. 
+I saw him making a deal with some **seedy**, **middle-aged** woman in dark glasses. - 
 
-I didn't get discouraged. I played by the rules, and I bided my time.  
-Frank, gently massage Sue's belly, like a dolphin twirling with the current.  
-I knew those crooks would cook up a way to fuck me out of this election.  
-
-Isn't there maybe some other ways, that isn't so... I don't know, barbaric?  
-voodoo. 
-Sorry for that nutjob.  
-Remember to keep your head up, you redhead fag!  
-He's getting all flustered. He's the angriest person I've ever seen.  
-
-
-Vladimir Putin is in thrall to a distinctive brand of Russian fascism.  
-Reminiscences of a financial columnist: There is nothing new on Wall Street.  
-
+Vladimir Putin is **in thrall to** a distinctive brand of Russian fascism.  
+**Reminiscences** of a financial columnist: There is nothing new on Wall Street.  
 
 He also **expounded** on why the recently rebranded Facebook-turned-Meta would be freezing hiring in many areas.  
 Before the floor opened to employees’ up-voted questions, Mr Zuckerberg had just finished **laying into** his staff, warning with intense vigour about how the economy was heading into one of the “worst downturns that we’ve seen in recent history.”
@@ -48,15 +67,14 @@ I was in Iraq 2005, 2006, I was on got **mortared** pretty much daily.
 
 **Land expropriation**.  
 The 7-foot-1, 15-time NBA all-star has been **out and about**, **ingratiating** himself in his new community. -
-
-To avoid the **energy-zapping** effect of sugar-filled cereals, opt for varieties without added sugar that contain at least 4–5 grams of fiber per serving. - 
+To avoid the **energy-zapping** effect of sugar-filled cereals, opt for varieties without added sugar that contain at least 4–5 grams of fiber per serving.  
 
 Formerly a manager in Coinbase’s Asset and Investing Products division, the employee appears to have **tipped off** his brother and a close friend about not only the cryptoassets that Coinbase planned to list, but also the timing.  
 the listing of the cryptoassets on Coinbase led to higher prices, generating more than $1 million in profits for the **perpetrators** between June 2021 and April 2022.  
 
 Animals don't set out to teach us anything at all, but we all have a lot to learn from out interaction with them **nevertheless**. -   
 But none of the **mayhem** is of any concern to one friend **waiting by the door** **uncomplicatedly** pleased to see us. 
-Here at last is **someone** wholly indifferent to almost everything about us except for our **dexterity** at ball throwing. -  
+Here at last is **someone** wholly indifferent to almost everything about us except for our **dexterity** at ball throwing.  
 One of the most **consoling** aspect of animals and it might be a dog, a sheep, a lizard or a **beetle** is that their priority have nothing whatsoever to do with our own **perilous and tortured agendas**.  
 They're **redemptively** **unconcern** with everything we are and want, they implicitly **mock** **self-importance** and absorption. -  
 It simply **ambles** towards the path we're on and look curiously at us then takes a lazy mouthful of grass.   
@@ -79,7 +97,7 @@ That's another **kettle of fish**.
 Though shipping strains may finally be **on the mend**, weak demand is the next pressing problem for suppliers.   
 
 She **underwent** dilation and **curettage**, or D&C, to remove the pregnancy tissue from her uterus per her doctor's recommendation. -  
-**Aspartame** is an artificial sweetener used in many sugar-free products. -  
+**Aspartame** is an artificial sweetener used in many sugar-free products.  
 As bananas **ripen**, they produce and release ethylene gas, which causes the yellow pigment in the fruit skin to decay and turn brown.  
 
 His old man left him **high and dry** and soaking wet.  
@@ -98,16 +116,16 @@ Still, it’s often enriched with extra nutrients, and whole-grain or sprouted v
 May **trample** over those who are weaker-willed. -  
 
 The **jubilation** that many Chinese nationalist netizens expressed over last week's assassination of former Japanese Prime Minister Shinzo Abe underscores the depth of anti-Japan sentiment in China.  
-The Chinese government distanced itself from the online **revelry**. -  
+The Chinese government distanced itself from the online **revelry**.  
 
 Tommy was fired for his **sloppy** work. 
 
 New Partnerships At Netflix And Disney **Corroborate** The Shift From Linear to Digital Ad Growth.  
-The merge will end Proof-of-Work mining on the Ethereum network, which will **obviate** the need for consumer graphics cards (GPUs) used for mining today. -  
+The merge will end Proof-of-Work mining on the Ethereum network, which will **obviate** the need for consumer graphics cards (GPUs) used for mining today.  
 
 ## Week 2
 
-Think f-words and middle fingers. Get him talking about **rare cars**, broken motors or physics, and he was **off-the-charts** smart — an **unalloyed** nerd. -  
+Think f-words and middle fingers. Get him talking about **rare cars**, broken motors or physics, and he was **off-the-charts** smart — an **unalloyed** nerd.  
 He was a four-season outdoor wonder. It was **mesmerizing**.  
 
 They'd rather do this than to **get flat-footed**.  
@@ -124,10 +142,10 @@ Probably **clinched** the election for the Republicans.
 
 My role is to be **sly**, **obsequious** and without **scruples**. I'm a good actor, My Lord. Huh. Can you free me from this pit? -  
 **Sycophancy**  
-Hello, my hateful **shrew**. -  
+Hello, my hateful **shrew**.  
 
 **psylocybin**, **psilocybin**
-He was actually **on the verge of** deciding to go off to an **ashram** in India, **chucking it all**. -  
+He was actually **on the verge of** deciding to go off to an **ashram** in India, **chucking it all**.  
 I was fully prepared for a **flat-out** rejection.  
 And I slowly grew into a **sapling**.  
 It's truly **joyous**.  
@@ -145,7 +163,7 @@ If the gas is below 1/4 tank, use the gas card in the **visor** to fill up, or y
 They fell **prostrate** in worship. -
 You won't let ambition **cloud** your judgement.  
 
-Go cut off an hour or two at each end of your eating period and before you know it, it's down to 8 hours, 6 hours, 4 hours, then it's a **cinch** to go down one meal a day. -  
+Go cut off an hour or two at each end of your eating period and before you know it, it's down to 8 hours, 6 hours, 4 hours, then it's a **cinch** to go down one meal a day.  
 If Charles was the father, he would never have **shirked** his responsibilities.  
 The police **subjected** him to an **inquisition** that lasted two hours.  
 
@@ -187,6 +205,9 @@ I think it will be trading at ~$30 when **all is said and done**.
 That's another **kettle of fish**.  
 I saw him making a deal with some **seedy**, **middle-aged** woman in dark glasses. 
 
+I knew those crooks would **cook up** a way to fuck me out of this election.  
+
+I think we both were **rebels**, liked **bucking the system**.  
 
 ## Interesting 
 

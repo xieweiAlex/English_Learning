@@ -1,8 +1,18 @@
 
+Yeah, **dandruff**, **kasha**, **mothball**, **cheap carpeting**. It's **potpourri**, really. -  
+You wanna **lug** it uptown, it's yours.  
+I mean, somebody asks me where is Israel, I don't **fly off the handle**.  
+You're **grounded**.  
+
+I've never met your sister, but obviously these are no **hard-and-fast** rules.  
+Something tells me she's a **knockout**.  
+Every muscle she touches just ... **oozes**...  
+Nothing confrontational. Just two adults sitting down, trying to **clear the air**.  
+
 I want you to have this job, but of course... **sodomy** is a prerequisite.  
 **Rest stop** supply.  
 Gino, you've **outdone** yourself this time. This is the best haircut I've ever had. -  
-If I don't have the job, by the time he comes back, I'm **ensconced**. - 
+If I don't have the job, by the time he comes back, I'm **ensconced**.  
 I'd like to have **shoehorn** hands.  
 Look at him, he is **grotesque**. - You think?  - Do I think? He is **repugnant**.  
 It was a **cinch**.  

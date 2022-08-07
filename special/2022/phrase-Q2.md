@@ -1,17 +1,18 @@
 
+Nothing confrontational. Just two adults sitting down, trying to **clear the air**.  
+I've never met your sister, but obviously these are no **hard-and-fast** rules.  
+
+## July 
 
 I was **head over heals** about her.  
 But to this date, I thank my father for **looking out for me**.  
-
 
 ## June 
 
 Walker gonna plead the faith, Romero won't **rock the boat**.  
 
 You're **better off** down there than here.  
-
 In **stamping out** Covid, China has **stomped on** confidence.   
-
 He refused to **give ground** on this issue.  
 
 ## May 
