@@ -1,8 +1,8 @@
 
 ## Week 1,2 
 
-You may be described as ditzy or scatterbrained.  
-26 You are unnerved by uncertainty and the unknown.  
+You may be described as **ditzy** or **scatterbrained**. -  
+You are **unnerved** by uncertainty and the unknown.  
 
 
 I can't keep up this clever **charade** any longer.   
@@ -13,21 +13,17 @@ Did you throw yourself a big **shindig**?
 
 
 I was happy enough to **laze** about on the beach.
-I'm her Uber driver, your nanny still in the car. She dozed off on the way here.  
-
-
+I'm her Uber driver, your nanny still in the car. She **dozed off** on the way here.  
 This comes in **full cycle**. 
 
 We don't need to **stint** ourselves—have some more!  
 He did a **stint** abroad early in his career.  
 
 
-Love is debauch thing, people are frustrated can not play. -  
+Love is **debauch** thing, people are frustrated can not play. -  
 
-Wall Street saw a stampede of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring.  
-Following a three-week trial and more than eight days of deliberations, two former JPMorgan (JPM) employees have been found guilty in a landmark case over futures market manipulation.  
-
-
+Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring. -  
+Following a three-week trial and more than eight days of **deliberations**, two former JPMorgan (JPM) employees have been found guilty in a landmark case over futures market manipulation.  
 Sometimes I'd like to **chuck it all** and go fishing. 
 
 In typical PR fashion, Musk **overlaid** the recent selling with a host of product announcements.
@@ -122,6 +118,7 @@ Sometimes I'd like to **chuck it all** and go fishing.
 Let me talk to him, I will **circle back**.  
 I can't keep up this clever **charade** any longer.   
 
+I'm her Uber driver, your nanny still in the car. She **dozed off** on the way here.  
 
 
 ## Interesting 

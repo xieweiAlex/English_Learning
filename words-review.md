@@ -30,6 +30,9 @@ Klein would be the strongest **bulwark** against calls for your impeachment. -
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
+You may be described as **ditzy** or **scatterbrained**. -  
+Love is **debauch** thing, people are frustrated can not play. -  
+Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring. -  
 The air in the garden was warm and **fragrant**. - 
 Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting that employees who found themselves unable to keep up with the company’s fastening pace might also find that they’re without a job. -  
 Security video shows a Dallas police officer walk over after hearing the **commotion** and tell the woman to drop the weapon. -  
