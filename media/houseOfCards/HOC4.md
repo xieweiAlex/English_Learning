@@ -18,7 +18,7 @@ It's really only **dawning** on me now, the sacrifice you made.
 
 Look, I understand if you feel **broadsided**.  
 But we can't deny his testimony **struck a chord**.  
-Klein would be the strongest **bulwark** against calls for your impeachment.  
+Klein would be the strongest **bulwark** against calls for your impeachment. -  
 
 Whatever the Herald has is **circumstantial**.  
 
@@ -28,7 +28,7 @@ Whatever the Herald has is **circumstantial**.
 
 He went back on his deal because he's as **pliable** as his testimony.  
 Can you **for once** just take something **at face value** instead of fighting for it?  
-**As if** I can be washed clean of past sins. -  
+**As if** I can be washed clean of past sins.  
 We're in **damage control**.  
 What **gets you off**, Doug? Anything?   
 That's why you're here to give me the **cold, hard** facts.  

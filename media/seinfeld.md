@@ -1,4 +1,16 @@
 
+
+Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
+He is a male **bimbo**. -  
+**Horning in** my rock climbing trip today.  
+He asked me. - You put him **on the spot**.  
+
+Doctor? He is a **podiatrist**.  
+I was merely speaking **extemporaneously**. -  
+
+I like your place, it's very **unassuming**.  
+George doesn't work, he is **bum**. That's why he lives with us.  
+
 Yeah, **dandruff**, **kasha**, **mothball**, **cheap carpeting**. It's **potpourri**, really. -  
 You wanna **lug** it uptown, it's yours.  
 I mean, somebody asks me where is Israel, I don't **fly off the handle**.  

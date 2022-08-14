@@ -169,8 +169,6 @@ To be clear, I blame Larry Nassar, but I also blame an entire system that enable
 This has brought back a **modicum** of stability.  
 A front camera that doesn't **take a back seat**.  
 Take a great photo without **lifting a finger**.  
-We don't need to **stint** ourselves—have some more!  
-He did a **stint** abroad early in his career.  
 It was a heavy **affliction** to them to see the beloved prince so **stricken**.  
 Her life was **sedate**, almost **mundane**.  
 Human nature is **frail**.  

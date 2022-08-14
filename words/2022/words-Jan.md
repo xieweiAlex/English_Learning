@@ -119,7 +119,6 @@ Grantham is a **dyed-in-the-wool** value manager who’s been investing for 50 y
 
 She **importune** her husband for more money.  
 My room looks very **untidy**.   
-We don't need to **stint** ourselves—have some more!  
 
 The role of **subservient** woman seems to be tied exclusively to Asians, and their “exotic” status tends to turn them into hyper-sexualized beings among other ethnicities.  
 energy **undulation**, **tidal** **undulation**.   

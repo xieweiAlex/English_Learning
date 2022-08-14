@@ -3,7 +3,7 @@ You're full of **shimmering** energy.
 There will be a brief **intermission**.  
 Do you mean it? You better not be **joshing** me. Oh, we're gonna have fun, Frank. -  
 
-I didn't get discouraged. I played by the rules, and I **bided** my time. -  
+I didn't get discouraged. I played by the rules, and I **bided** my time.  
 Frank, gently massage Sue's belly, like a dolphin **twirling** with the current.  
 I knew those crooks would **cook up** a way to fuck me out of this election.  
 
@@ -18,7 +18,7 @@ She is **jumpy** today.
 Do you think Kevin's song **has what it takes**?  
 I was **head over heals** about her.  
 But to this date, I thank my father for **looking out for me**.  
-He saved me from **throwing my life away** for some silly **infatuation**. -  
+He saved me from **throwing my life away** for some silly **infatuation**.  
 My father **turned me in** to the **Gestapo**. - Oh, year, that's the winner.  
 Got to **put another fire out**.  
 

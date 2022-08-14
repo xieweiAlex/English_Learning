@@ -1,4 +1,8 @@
 
+**picayune**
+
+**ingenious**
+
 ## July 
 
 **cinch**
@@ -36,6 +40,7 @@
 **resounding**
 
 **nuance**
+**nusance**
 
 **cupboard** 
 

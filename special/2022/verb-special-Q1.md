@@ -1,13 +1,16 @@
 
+**lug**
+
 **shoulder**
 
 **waft**
 
 **fiddle**
+**twirl**
 
 **obviate**
 
-**Corroborate**
+**corroborate**
 
 ## Q 2 
 

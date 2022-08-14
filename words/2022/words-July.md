@@ -1,39 +1,7 @@
-
-So the next time you’re craving candy or sweets, consider munching on some raisins to satisfy your yearning. Your body will reap the healthy benefits.  
-
-
-
-snake oil scam.  
-
-
-We never saw a reduction in government **outlays** since 70s.  
-Insults alone cannot **defile** a person's honour.
-The air in the garden was warm and **fragrant**. 
-
-
-Well, get **pissy** if you want mom, I've enjoyed the time we've had as a family.   
-
-**carol** singer 
-Give them a **quid** and tell them to **bugger off**.  
-
-"Making macroeconomic **prognostications** is a recipe for disaster," but Musk estimates "we are past peak inflation" and likely to see a "relatively mild recession for something like 18 months.
-
-Quote: "The U.S. will certainly **shoulder the responsibility** and pay the price for undermining China's sovereignty and security interest," declared Hua Chunying, spokeswoman at China's foreign ministry.  
-**disciplinary actions**.  
-
-People were **bunched** up at all the exits.  
-**Keynesian**
-
-> Cling **tooth and nail** to the following rule: not to give in to adversity, never to trust prosperity and always take full note of fortune’s habit of behaving just as she pleases, treating her as if she were actually going to do everything that is in her power. 
-
-So-and-so was **carted off** to prison.
-Emperors were **Deities**, ordinary men with direct access to unlimited wealth and **adulation**. -  
-Before you jump to the conclusion that the Stoics were **dour** and sad men, ask yourself, if you were a dictator, what would your diary look like?  
-
 ## Week 4
 
 Why you should be satisfied with being **ordinary**.  
-I saw him making a deal with some **seedy**, **middle-aged** woman in dark glasses. - 
+I saw him making a deal with some **seedy**, **middle-aged** woman in dark glasses.  
 
 Vladimir Putin is **in thrall to** a distinctive brand of Russian fascism.  
 **Reminiscences** of a financial columnist: There is nothing new on Wall Street.  
@@ -59,7 +27,7 @@ I've been so **adamant** about not allowing it to define me, that it's like slow
 **mescaline**.  
 **Tuning in**, turning on, and dropping out, 1985.  
 You learn mechanism to **dampen** that fear response, and to overcome and **put to bed** those issues.  
-It increases of release of **oxytocin**, and oxytocin is a hormone that's released from the brains of **breastfeeding** mothers, which **engenders** this sense of connectivity and empathy. -  
+It increases of release of **oxytocin**, and oxytocin is a hormone that's released from the brains of **breastfeeding** mothers, which **engenders** this sense of connectivity and empathy.  
 You done you bit, now **sod off**.  
 **Sea change**  
 I think we both were **rebels**, liked **bucking the system**.  
@@ -72,7 +40,7 @@ To avoid the **energy-zapping** effect of sugar-filled cereals, opt for varietie
 Formerly a manager in Coinbase’s Asset and Investing Products division, the employee appears to have **tipped off** his brother and a close friend about not only the cryptoassets that Coinbase planned to list, but also the timing.  
 the listing of the cryptoassets on Coinbase led to higher prices, generating more than $1 million in profits for the **perpetrators** between June 2021 and April 2022.  
 
-Animals don't set out to teach us anything at all, but we all have a lot to learn from out interaction with them **nevertheless**. -   
+Animals don't set out to teach us anything at all, but we all have a lot to learn from out interaction with them **nevertheless**.  
 But none of the **mayhem** is of any concern to one friend **waiting by the door** **uncomplicatedly** pleased to see us. 
 Here at last is **someone** wholly indifferent to almost everything about us except for our **dexterity** at ball throwing.  
 One of the most **consoling** aspect of animals and it might be a dog, a sheep, a lizard or a **beetle** is that their priority have nothing whatsoever to do with our own **perilous and tortured agendas**.  
@@ -90,13 +58,13 @@ That's not a **dig**, that's not saying you're not a good dev or anything like t
 Cryptocurrency prices have rebounded from **near-term** lows. But does this bounce signal a trend reversal? 
 
 I'm considered one of these right-wing **wackos**.  
-Yeah, my taste is **gauche**, but I'm gonna coat everything including toilet in gold. -  
+Yeah, my taste is **gauche**, but I'm gonna coat everything including toilet in gold.  
 They publicly **castrated** him.  
 
 That's another **kettle of fish**.  
 Though shipping strains may finally be **on the mend**, weak demand is the next pressing problem for suppliers.   
 
-She **underwent** dilation and **curettage**, or D&C, to remove the pregnancy tissue from her uterus per her doctor's recommendation. -  
+She **underwent** dilation and **curettage**, or DShe **underwent** dilation and **curettage**, or D&C, to remove the pregnancy tissue from her uterus per her doctor's recommendation. -  C, to remove the pregnancy tissue from her uterus per her doctor's recommendation.  
 **Aspartame** is an artificial sweetener used in many sugar-free products.  
 As bananas **ripen**, they produce and release ethylene gas, which causes the yellow pigment in the fruit skin to decay and turn brown.  
 
@@ -203,10 +171,9 @@ I think you're **spot on** that.
 I think it will be trading at ~$30 when **all is said and done**.  
 
 That's another **kettle of fish**.  
-I saw him making a deal with some **seedy**, **middle-aged** woman in dark glasses. 
+I saw him making a deal with some **seedy**, **middle-aged** woman in dark glasses.  
 
 I knew those crooks would **cook up** a way to fuck me out of this election.  
-
 I think we both were **rebels**, liked **bucking the system**.  
 
 ## Interesting 
