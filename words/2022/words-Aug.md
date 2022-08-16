@@ -1,9 +1,14 @@
 
+Which would be a better fit for you -- a stalwart, dividend-paying REIT or a fast-growing tech company?
+
 ## Week 1,2 
+
+You are **drawn to** the new, novel, and original.  
+You find yourself agreeing with those who claim that **the ends justify the means**.  
+If you describe a person or place as **seedy**, you disapprove of them because they look dirty and untidy, or they have a bad reputation.
 
 You may be described as **ditzy** or **scatterbrained**. -  
 You are **unnerved** by uncertainty and the unknown.  
-
 
 I can't keep up this clever **charade** any longer.   
 
@@ -124,5 +129,5 @@ I'm her Uber driver, your nanny still in the car. She **dozed off** on the way h
 ## Interesting 
 
 You won't let ambition **cloud** your judgement.  
-
+You are **drawn to** the new, novel, and original.  
 

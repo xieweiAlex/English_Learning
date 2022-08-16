@@ -5,7 +5,7 @@ Expanding vocabulary for a non native-speaker is tedious and time-consuming. I t
 ### 2022  
 [Words Review](./words-review.md)
 
-[Words](./words/2022/words-July.md) |
+[Words](./words/2022/words-Aug.md) |
 [Special word](./special/2022/special-words-Q2.md) |
 [Phrase](./special/2022/phrase-Q2.md) |
 [Verb](./special/2022/verb-special-Q1.md)
@@ -16,6 +16,7 @@ Expanding vocabulary for a non native-speaker is tedious and time-consuming. I t
 
 
 ### Prior 
+[words-july](./words/2022/words-July.md)
 [Words-May](./words/2022/words-May.md)
 [Words-April](./words/2022/words-April.md)
 [Words-Mar](./words/2022/words-Mar.md)
