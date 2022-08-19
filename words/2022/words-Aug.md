@@ -1,5 +1,11 @@
 
-Which would be a better fit for you -- a stalwart, dividend-paying REIT or a fast-growing tech company?
+We can **tie up loose ends** on Friday. -  
+Bad **diction** marred the effectiveness of his speech
+
+It's a label that tends to **epitomize** strength, it tends to give people a kind of identity that says I can do anything that I want to.  
+Electric vehicle owners are fed up with broken EV chargers and **janky** software.  
+Now obviously Trump realized the **gravity** of the situation.   
+Which would be a better fit for you -- a **stalwart**, dividend-paying REIT or a fast-growing tech company?
 
 ## Week 1,2 
 

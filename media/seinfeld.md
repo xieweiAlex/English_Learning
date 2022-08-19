@@ -50,7 +50,7 @@ The damage unfortunately, has **marred** an otherwise fine automobile, rendering
 You greedily, **callously** want to profit from it?  
 Listen to me, you **quack**.  
 Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    
-One more peep, I'll **slice** you like a smoked **sturgeon**! -  
+One more peep, I'll **slice** you like a smoked **sturgeon**!  
 
 
 **Bologna** sandwiches.  

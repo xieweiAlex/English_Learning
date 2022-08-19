@@ -1,8 +1,5 @@
 ## f-family.md ## 
 media/f-family.md  
-Do you mean it? You better not be **joshing** me. Oh, we're gonna have fun, Frank. -  
-He's getting all **flustered**. He's the angriest person I've ever seen. -  
-You're an **ignoramus** a **bumbling** liquor thief. -  
 It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
 Avoid loud and aggressive person, they're **vexations** to the spirit. -  
 I couldn't help noticing her **udders**. -  
@@ -18,7 +15,6 @@ Gino, you've **outdone** yourself this time. This is the best haircut I've ever 
 They say they never saw anybody **go after** balls with such **gusto**. -  
 The damage unfortunately, has **marred** an otherwise fine automobile, rendering it virtually **undrivable**. -  
 Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    
-One more peep, I'll **slice** you like a smoked **sturgeon**! -  
 Stress is very damaging to the **epidermis**. -  
 
 ## HOC4.md ## 
@@ -30,6 +26,7 @@ Klein would be the strongest **bulwark** against calls for your impeachment. -
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
+We can **tie up loose ends** on Friday. -  
 You may be described as **ditzy** or **scatterbrained**. -  
 Love is **debauch** thing, people are frustrated can not play. -  
 Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring. -  

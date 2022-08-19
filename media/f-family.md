@@ -1,7 +1,7 @@
 
 You're full of **shimmering** energy.  
 There will be a brief **intermission**.  
-Do you mean it? You better not be **joshing** me. Oh, we're gonna have fun, Frank. -  
+Do you mean it? You better not be **joshing** me. Oh, we're gonna have fun, Frank.  
 
 I didn't get discouraged. I played by the rules, and I **bided** my time.  
 Frank, gently massage Sue's belly, like a dolphin **twirling** with the current.  
@@ -11,7 +11,7 @@ Isn't there maybe some other ways, that isn't so... I don't know, **barbaric**?
 **voodoo**. 
 Sorry for that **nutjob**.  
 Remember to keep your head up, you redhead **fag**!  
-He's getting all **flustered**. He's the angriest person I've ever seen. -  
+He's getting all **flustered**. He's the angriest person I've ever seen.  
 
 Stop **bottling up** your feeling.  
 She is **jumpy** today.  
@@ -26,7 +26,7 @@ Got to **put another fire out**.
 That's pure **lye**.  
 He's been **grouch** ever since Grandpa came around and started buying us ice cream every day.  
 She will be **upstate** with a **distended** belly by next summer.  
-You're an **ignoramus** a **bumbling** liquor thief. -  
+You're an **ignoramus** a **bumbling** liquor thief.  
 
 Would it to kill you to give me an **attaboy**.  
 Something would always **set him off**.  
