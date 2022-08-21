@@ -1,4 +1,13 @@
 
+As a result, analysts inside and outside China pore over state media during the months leading up to the congress for hints at which party cadre's star is rising and whose may be falling.
+
+We'll get you that preso and Excel sheet tomorrow.  
+
+Taiwan is a plucky pro-american pro-western democracy deserves from the communist bully next door.   
+
+
+> false dichotomy 
+
 We can **tie up loose ends** on Friday. -  
 Bad **diction** marred the effectiveness of his speech
 
