@@ -139,7 +139,7 @@ Note that many systems **degrade** in performance before they achieve 100% utili
 Our house cats are **fastidious** creatures.  
 
 **Belay** device.  
-The cheapest way to rock climb long term is to buy a pair of durable climbing shoes and some crash pads and go bouldering outdoors at your nearest **crag**. -  
+The cheapest way to rock climb long term is to buy a pair of durable climbing shoes and some crash pads and go bouldering outdoors at your nearest **crag**.  
 One time $10 rental gear fee to **mooch off** of us for life.   
 
 The **guerrillas** **exude** confidence. Every town, they say, is under their control.  

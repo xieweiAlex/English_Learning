@@ -1,9 +1,23 @@
 
+**outdone yourself** 
+
+**point fingers** 
+
+**pickle**
+
+**blanket**
+
+**plucky** 
+
+**daunting**, **intimidating**, **prohibitive** 
+
+**allude**
+
 **incorporate**
 
 **picayune**
 
-**ingenious**
+**ingenuous**, **disingenuous**
 
 ## July 
 

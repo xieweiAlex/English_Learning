@@ -36,7 +36,7 @@ You're **grounded** forever.
 It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
 **Buster**, I love that little **rascal** with all my heart.  
 
-Avoid loud and aggressive person, they're **vexations** to the spirit. -  
+Avoid loud and aggressive person, they're **vexations** to the spirit.  
 I couldn't help noticing her **udders**. -  
 
 Just a little **good-natured** **ribbing**, Frank.  

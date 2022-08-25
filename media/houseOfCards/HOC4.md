@@ -2,7 +2,7 @@
 
 Slow down, **slugger**. I'm still trying to get **acquainted** here.  
 You saw my little **outburst**. - I enjoyed it.    
-Let her at least looks like the president. I'll **scuttle** thee nomination if it comes to that later. -  
+Let her at least looks like the president. I'll **scuttle** thee nomination if it comes to that later.  
 My brother George, **incurious** George.  
 But George, he got all **high-minded** about it. Thought we were bending too many laws.   
 Well, the last time I saw Cathy, she looked **at death's door**.  
@@ -12,13 +12,13 @@ It's an **embolism**, they're saying, connected to her fall.
 Let me talk to him, I will **circle back**.  
 I'm going to **recant**.  
 Because you're going to have **recuse** yourself, so your testify could against me.  
-So you're going to hear rumors. You're going to hear **innuendos**. You will need to stick to your talking points. -   
-Not get **lured** **off-track** with, what, **salacious** questions. -  
+So you're going to hear rumors. You're going to hear **innuendos**. You will need to stick to your talking points.  
+Not get **lured** **off-track** with, what, **salacious** questions.  
 It's really only **dawning** on me now, the sacrifice you made.  
 
 Look, I understand if you feel **broadsided**.  
 But we can't deny his testimony **struck a chord**.  
-Klein would be the strongest **bulwark** against calls for your impeachment. -  
+Klein would be the strongest **bulwark** against calls for your impeachment.  
 
 Whatever the Herald has is **circumstantial**.  
 

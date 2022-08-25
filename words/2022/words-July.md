@@ -44,7 +44,7 @@ Animals don't set out to teach us anything at all, but we all have a lot to lear
 But none of the **mayhem** is of any concern to one friend **waiting by the door** **uncomplicatedly** pleased to see us. 
 Here at last is **someone** wholly indifferent to almost everything about us except for our **dexterity** at ball throwing.  
 One of the most **consoling** aspect of animals and it might be a dog, a sheep, a lizard or a **beetle** is that their priority have nothing whatsoever to do with our own **perilous and tortured agendas**.  
-They're **redemptively** **unconcern** with everything we are and want, they implicitly **mock** **self-importance** and absorption. -  
+They're **redemptively** **unconcern** with everything we are and want, they implicitly **mock** **self-importance** and absorption.  
 It simply **ambles** towards the path we're on and look curiously at us then takes a lazy mouthful of grass.   
 
 ## Week 3 
@@ -105,7 +105,7 @@ The **pecking order** of the world’s population is soon to change.
 
 I bumped it on a desk and injured... It sorts of move **involuntarily**
 **giddy-up**  
-Because she is like the jury, she's gotta to be **sequestered**. -  
+Because she is like the jury, she's gotta to be **sequestered**.  
 Probably **clinched** the election for the Republicans.  
 
 My role is to be **sly**, **obsequious** and without **scruples**. I'm a good actor, My Lord. Huh. Can you free me from this pit? -  

@@ -46,7 +46,7 @@ Why are all those people **milling** around my car?
 You know, you should **call that off**, Elaine. It's a **barbaric** ritual!  
 It's been a very **trying** couple of days around the hospital.  
 Oh look, a man is flying, a man is flying! And then ... **splat**.  
-The damage unfortunately, has **marred** an otherwise fine automobile, rendering it virtually **undrivable**. -  
+The damage unfortunately, has **marred** an otherwise fine automobile, rendering it virtually **undrivable**.  
 You greedily, **callously** want to profit from it?  
 Listen to me, you **quack**.  
 Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    

@@ -109,7 +109,7 @@ Democrats called the legislation a **boon** to the rich.
 The poor boy **beseeched** only with his eyes.  
 Human **innately** compare themselves to the people around them.  
 
-Nvidia-Arm is officially **kaput**. -  
+Nvidia-Arm is officially **kaput**.  
 After a long sleep, he still felt **torpid**.  
 You should not **palter with** the truth.  
 

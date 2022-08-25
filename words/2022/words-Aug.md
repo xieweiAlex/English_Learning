@@ -1,14 +1,37 @@
 
-As a result, analysts inside and outside China pore over state media during the months leading up to the congress for hints at which party cadre's star is rising and whose may be falling.
+When I **belch** later, it won't remind me anything.  
 
-We'll get you that preso and Excel sheet tomorrow.  
+**Hanging in the background**, wait to seee if I can be helpful 
+Plants imbibe nourishment usually through their leaves and roots. -  
+She is a remarkably **adroit** and determined politician. -  
+We admired her **exquisite** handiwork. -  
+**assiduous**
 
-Taiwan is a plucky pro-american pro-western democracy deserves from the communist bully next door.   
+The benchmark S&P 500 (SP500) soared 15% over two months, only to snap the winning streak last week and slump over 2% on Monday.  
+
+a **bombastic**, crazy guy.  
+
+These corporate landlords now dawning on them that they made a big mistake in terms of buying into the housing market at a sky-high price.  
+
+By mid-November Crowhurst began **loitering** in the south Atlantic, drifting in circles in calm water. -  
+If he did the media and judges would scrutinize his logs and uncover the deception, whereas no one cares about the **runner-up**.  
+I have no need to **prolong** the game … It has been a good game that must be ended.  
+
+Not a **sphere** of influence, but a sphere of **insulation** around his own poorly run **shambolic** nation, sphere of insulation from himself.  
+If you're an architect, you might find yourself trying to create the ultimate **edifice** to organize your information.  
+
+The retailer sector hears from discounters Dollar General (DG) and Dollar Tree (DLTR) next week in reports that could **tip off** just how much consumers are trading down or pinching pennies. 
+
+As a result, analysts inside and outside China **pore over** state media during the months leading up to the congress for hints at which party cadre's star is rising and whose may be falling.
+
+We'll get you that **preso** and Excel sheet tomorrow.  
+
+Taiwan is a **plucky** pro-American pro-western democracy deserves protection from the communist bully next door.   
 
 
 > false dichotomy 
 
-We can **tie up loose ends** on Friday. -  
+We can **tie up loose ends** on Friday.  
 Bad **diction** marred the effectiveness of his speech
 
 It's a label that tends to **epitomize** strength, it tends to give people a kind of identity that says I can do anything that I want to.  
@@ -128,7 +151,7 @@ Animals don't set out to teach us anything at all, but we all have a lot to lear
 But none of the **mayhem** is of any concern to one friend **waiting by the door** **uncomplicatedly** pleased to see us. 
 Here at last is **someone** wholly indifferent to almost everything about us except for our **dexterity** at ball throwing.  
 One of the most **consoling** aspect of animals and it might be a dog, a sheep, a lizard or a **beetle** is that their priority have nothing whatsoever to do with our own **perilous and tortured agendas**.  
-They're **redemptively** **unconcern** with everything we are and want, they implicitly **mock** **self-importance** and absorption. -  
+They're **redemptively** **unconcern** with everything we are and want, they implicitly **mock** **self-importance** and absorption.  
 It simply **ambles** towards the path we're on and look curiously at us then takes a lazy mouthful of grass.   
 
 
@@ -145,4 +168,14 @@ I'm her Uber driver, your nanny still in the car. She **dozed off** on the way h
 
 You won't let ambition **cloud** your judgement.  
 You are **drawn to** the new, novel, and original.  
+
+Don’t take it personally. Getting **flipped off** while driving is just a **rite of passage** here.
+
+The retailer sector hears from discounters Dollar General (DG) and Dollar Tree (DLTR) next week in reports that could tip off just how much consumers are trading down or pinching pennies
+
+I've been so **adamant** about not allowing it to define me, that it's like slowly been destroying me.  
+
+They're **redemptively** **unconcern** with everything we are and want, they implicitly **mock** **self-importance** and absorption.  
+
+
 
