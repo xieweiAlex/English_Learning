@@ -40,8 +40,7 @@ Avoid loud and aggressive person, they're **vexations** to the spirit.
 I couldn't help noticing her **udders**. -  
 
 Just a little **good-natured** **ribbing**, Frank.  
-I got **indigestion** from that truck tire you called a steak.  
-
+I got **indigestion** from that **truck tire** you called a steak. -  
 
 Why don't you just drive him up to the Make-out Mountain and **queer off** with each other?  
 He was probably just **letting off** some **steam**.  

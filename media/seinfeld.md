@@ -23,8 +23,8 @@ Nothing confrontational. Just two adults sitting down, trying to **clear the air
 
 I want you to have this job, but of course... **sodomy** is a prerequisite.  
 **Rest stop** supply.  
-Gino, you've **outdone** yourself this time. This is the best haircut I've ever had. -  
-If I don't have the job, by the time he comes back, I'm **ensconced**.  
+Gino, you've **outdone** yourself this time. This is the best haircut I've ever had.   
+If I don't have the job, by the time he comes back, I'm **ensconced**. -  
 I'd like to have **shoehorn** hands.  
 Look at him, he is **grotesque**. - You think?  - Do I think? He is **repugnant**.  
 It was a **cinch**.  

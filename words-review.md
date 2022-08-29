@@ -2,6 +2,7 @@
 media/f-family.md  
 It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
 I couldn't help noticing her **udders**. -  
+I got **indigestion** from that **truck tire** you called a steak. -  
 You **hocked** our **locket** for your little salad thing? -   
 
 ## seinfeld.md ## 
@@ -10,22 +11,26 @@ Cause I will never forget that **flinty** voice. It is **tattooed in my brain**.
 He is a male **bimbo**. -  
 I was merely speaking **extemporaneously**. -  
 Yeah, **dandruff**, **kasha**, **mothball**, **cheap carpeting**. It's **potpourri**, really. -  
-Gino, you've **outdone** yourself this time. This is the best haircut I've ever had. -  
+If I don't have the job, by the time he comes back, I'm **ensconced**. -  
 They say they never saw anybody **go after** balls with such **gusto**. -  
 Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    
 Stress is very damaging to the **epidermis**. -  
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
+10 **commandments** of work success. -  
+Study deeply: Master the tiny details and **panoramic** context of your profession. -  
+We don't need to exchange **pleasantries**. -  
+DOJ ordered to release **redacted** Mar-a-Lago search warrant **affidavit**. -  
+Plants **imbibe** nourishment usually through their leaves and roots. -  
 She is a remarkably **adroit** and determined politician. -  
 We admired her **exquisite** handiwork. -  
+These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
 By mid-November Crowhurst began **loitering** in the south Atlantic, drifting in circles in calm water. -  
 You may be described as **ditzy** or **scatterbrained**. -  
 Love is **debauch** thing, people are frustrated can not play. -  
 Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring. -  
 The air in the garden was warm and **fragrant**. - 
-Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting that employees who found themselves unable to keep up with the company’s fastening pace might also find that they’re without a job. -  
-Security video shows a Dallas police officer walk over after hearing the **commotion** and tell the woman to drop the weapon. -  
 
 ## words-July.md ## 
 words/2022/words-July.md  

@@ -1,4 +1,12 @@
 
+**modulate**
+
+**relent** 
+
+**strike**, **protest**, **boycott**
+
+**slump** 
+
 **allude**
 
 **lug**

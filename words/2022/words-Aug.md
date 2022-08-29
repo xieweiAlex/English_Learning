@@ -1,17 +1,53 @@
 
+Why is it **inexorably** that as some commentators have said Leviathan slouches left( leviathan is the government), why does it slouches left.  
+the way to survive modern society is be an ascetic.  
+It's **the road to misery**  
+I look forward to solitary confinement  
+The stupid question "What's the meaning of life?" - How could that be stupid? It's a **trite**.  
+
+**lipolysis**
+
+Because it’s easy to imagine our heroes as unflappable juggernauts, who conquer insecurity with a majestic mental karate chop every morning.  
+
+
+Adrian believes that many of the green-energy mandates and goals are **overly** ambitious.  
+
+10 **commandments** of work success. -  
+Study deeply: Master the tiny details and **panoramic** context of your profession. -  
+Study **thyself**: Be **clear-eyed** about your gifts and flaws. It’s the only path to **betterment**.
+Federal Reserve Chair Jerome Powell’s tough-talking speech signals the Fed is nowhere near **relenting** on interest rate increases. 
+
+I started to wonder **the nature of** his questions.  
+We don't need to exchange **pleasantries**. -  
+
+Kamal was a vendor in Cairo's open-air **bazaar**. -
+Tax on **superfluity**.  
+She loved the **virile** young swimmer.  
+Jobs said yes, then **berated** his colleagues for wasting his time.  
+
+DOJ ordered to release **redacted** Mar-a-Lago search warrant **affidavit**. -  
+
+
+Tesla is demanding that an advocacy group remove videos of its vehicles running over child-sized **mannequins**, escalating the debate over the safety of the company’s Full Self-Driving software.  
+We've been working hard behind the scenes to bring you this fancy **makeover**, and we’re so excited to finally share it with you after all this time.   
+
+Close to Grand Teton National Park and Yellowstone National Park, it’s home to **upscale** ski resorts.  
+
+> My personal views aren't universally held.
+
 When I **belch** later, it won't remind me anything.  
 
 **Hanging in the background**, wait to seee if I can be helpful 
-Plants imbibe nourishment usually through their leaves and roots. -  
+Plants **imbibe** nourishment usually through their leaves and roots. -  
 She is a remarkably **adroit** and determined politician. -  
 We admired her **exquisite** handiwork. -  
 **assiduous**
 
-The benchmark S&P 500 (SP500) soared 15% over two months, only to snap the winning streak last week and slump over 2% on Monday.  
+The benchmark S&P 500 (SP500) soared 15% over two months, only to snap the winning streak last week and **slump over** 2% on Monday.  
 
 a **bombastic**, crazy guy.  
 
-These corporate landlords now dawning on them that they made a big mistake in terms of buying into the housing market at a sky-high price.  
+These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
 
 By mid-November Crowhurst began **loitering** in the south Atlantic, drifting in circles in calm water. -  
 If he did the media and judges would scrutinize his logs and uncover the deception, whereas no one cares about the **runner-up**.  
@@ -105,56 +141,6 @@ So-and-so was **carted off** to prison.
 Emperors were **Deities**, ordinary men with direct access to unlimited wealth and **adulation**.  
 Before you jump to the conclusion that the Stoics were **dour** and sad men, ask yourself, if you were a dictator, what would your diary look like?  
 
-## Week 4
-
-Why you should be satisfied with being **ordinary**.  
-I saw him making a deal with some **seedy**, **middle-aged** woman in dark glasses.  
-
-Vladimir Putin is **in thrall to** a distinctive brand of Russian fascism.  
-**Reminiscences** of a financial columnist: There is nothing new on Wall Street.  
-
-He also **expounded** on why the recently rebranded Facebook-turned-Meta would be freezing hiring in many areas.  
-Before the floor opened to employees’ up-voted questions, Mr Zuckerberg had just finished **laying into** his staff, warning with intense vigour about how the economy was heading into one of the “worst downturns that we’ve seen in recent history.”
-Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting that employees who found themselves unable to keep up with the company’s fastening pace might also find that they’re without a job. -  
-
-A **disembodied** voice sounded from the back of the cabin.   
-Don’t take it personally. Getting **flipped off** while driving is just a **rite of passage** here.
-
-Security video shows a Dallas police officer walk over after hearing the **commotion** and tell the woman to drop the weapon. -  
-**flyover** states  
-
-They once allies, now they're **jabbing** at each other. 
-
-**It's a fear of fear itself**.  
-You can't go to the **literature**, its' not in the literature, it's brand new thing.  
-I wanted to **sweep them under the rug**, I didn't want to be known as the girl whose brother overdosed.  
-I've been so **adamant** about not allowing it to define me, that it's like slowly been destroying me.  
-> In PTSD, the **amygdala** is **hyperactive**, that's the part of the brain that's involved with the fight of flight response.  
-
-**mescaline**.  
-**Tuning in**, turning on, and dropping out, 1985.  
-You learn mechanism to **dampen** that fear response, and to overcome and **put to bed** those issues.  
-It increases of release of **oxytocin**, and oxytocin is a hormone that's released from the brains of **breastfeeding** mothers, which **engenders** this sense of connectivity and empathy.  
-You done you bit, now **sod off**.  
-**Sea change**  
-I think we both were **rebels**, liked **bucking the system**.  
-I was in Iraq 2005, 2006, I was on got **mortared** pretty much daily.  
-
-**Land expropriation**.  
-The 7-foot-1, 15-time NBA all-star has been **out and about**, **ingratiating** himself in his new community. -
-To avoid the **energy-zapping** effect of sugar-filled cereals, opt for varieties without added sugar that contain at least 4–5 grams of fiber per serving.  
-
-Formerly a manager in Coinbase’s Asset and Investing Products division, the employee appears to have **tipped off** his brother and a close friend about not only the cryptoassets that Coinbase planned to list, but also the timing.  
-the listing of the cryptoassets on Coinbase led to higher prices, generating more than $1 million in profits for the **perpetrators** between June 2021 and April 2022.  
-
-Animals don't set out to teach us anything at all, but we all have a lot to learn from out interaction with them **nevertheless**.  
-But none of the **mayhem** is of any concern to one friend **waiting by the door** **uncomplicatedly** pleased to see us. 
-Here at last is **someone** wholly indifferent to almost everything about us except for our **dexterity** at ball throwing.  
-One of the most **consoling** aspect of animals and it might be a dog, a sheep, a lizard or a **beetle** is that their priority have nothing whatsoever to do with our own **perilous and tortured agendas**.  
-They're **redemptively** **unconcern** with everything we are and want, they implicitly **mock** **self-importance** and absorption.  
-It simply **ambles** towards the path we're on and look curiously at us then takes a lazy mouthful of grass.   
-
-
 ## Conversation  
 
 Sometimes I'd like to **chuck it all** and go fishing. 
@@ -162,6 +148,9 @@ Let me talk to him, I will **circle back**.
 I can't keep up this clever **charade** any longer.   
 
 I'm her Uber driver, your nanny still in the car. She **dozed off** on the way here.  
+
+Look at you, a **dead ringer** for your father.  
+Just a little **good-natured** **ribbing**, Frank.  
 
 
 ## Interesting 
@@ -171,11 +160,10 @@ You are **drawn to** the new, novel, and original.
 
 Don’t take it personally. Getting **flipped off** while driving is just a **rite of passage** here.
 
-The retailer sector hears from discounters Dollar General (DG) and Dollar Tree (DLTR) next week in reports that could tip off just how much consumers are trading down or pinching pennies
+The retailer sector hears from discounters Dollar General (DG) and Dollar Tree (DLTR) next week in reports that could **tip off** just how much consumers are trading down or pinching pennies
 
 I've been so **adamant** about not allowing it to define me, that it's like slowly been destroying me.  
 
 They're **redemptively** **unconcern** with everything we are and want, they implicitly **mock** **self-importance** and absorption.  
-
-
+These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price.  
 
