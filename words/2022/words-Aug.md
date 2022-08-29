@@ -1,4 +1,6 @@
 
+## Week 3,4 
+
 Why is it **inexorably** that as some commentators have said Leviathan slouches left( leviathan is the government), why does it slouches left.  
 the way to survive modern society is be an ascetic.  
 It's **the road to misery**  
