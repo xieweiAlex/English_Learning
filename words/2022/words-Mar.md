@@ -112,7 +112,6 @@ The area has also **sprouted** critic darlings like St. Vincent, Charley Crocket
 Beijing's **tacit support** for Putin during Russia's invasion of Ukraine hasn't been lost on Europeans, who are viewing the Chinese government with growing skepticism.  
 Chinese officials and state media have widely **disseminated** pro-Russia disinformation and government censors have scrubbed the Chinese internet of pro-Ukraine views.
 There was **audible** **booing** and **jeering** going on from the Chinese students **partway** through her question, and during the answer, they started to get up and just walked out of the room.  
-They use opium as a sedative, rather than as a **narcotic**.  
 
 He employs an **irreverent** humor to salt his observation.  
 You're witty & **irreverent** but still a kind person.  

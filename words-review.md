@@ -9,7 +9,6 @@ You **hocked** our **locket** for your little salad thing? -
 media/seinfeld.md  
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
 He is a male **bimbo**. -  
-I was merely speaking **extemporaneously**. -  
 Yeah, **dandruff**, **kasha**, **mothball**, **cheap carpeting**. It's **potpourri**, really. -  
 If I don't have the job, by the time he comes back, I'm **ensconced**. -  
 They say they never saw anybody **go after** balls with such **gusto**. -  
@@ -18,6 +17,7 @@ Stress is very damaging to the **epidermis**. -
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
+His palms were **excoriated** by the hard labor of shoveling. -  
 10 **commandments** of work success. -  
 Study deeply: Master the tiny details and **panoramic** context of your profession. -  
 We don't need to exchange **pleasantries**. -  
@@ -26,7 +26,6 @@ Plants **imbibe** nourishment usually through their leaves and roots. -
 She is a remarkably **adroit** and determined politician. -  
 We admired her **exquisite** handiwork. -  
 These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
-By mid-November Crowhurst began **loitering** in the south Atlantic, drifting in circles in calm water. -  
 You may be described as **ditzy** or **scatterbrained**. -  
 Love is **debauch** thing, people are frustrated can not play. -  
 Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring. -  
@@ -35,13 +34,11 @@ The air in the garden was warm and **fragrant**. -
 ## words-July.md ## 
 words/2022/words-July.md  
 Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting that employees who found themselves unable to keep up with the company’s fastening pace might also find that they’re without a job. -  
-Security video shows a Dallas police officer walk over after hearing the **commotion** and tell the woman to drop the weapon. -  
 The news was a win for the EV maker, which over the last two years has experienced executive departures, an SEC probe, and investor skepticism, resulting in a **paltry** stock performance since it went public via SPAC in 2020. -  
 Capitol Police said 35 people were arrested for "Crowding, **Obstructing** or **Incommoding**," including 17 members of Congress. -  
 The company can only go to hell **in a handbasket** with this **dead-cat bounce**. -  
 I don't believe it's either merely **picayune** or **inappropriate** to point out Ellen/Elliot who is quite good actor/actress, is also a ritual model for emulation. -   
 May **trample** over those who are weaker-willed. -  
-My role is to be **sly**, **obsequious** and without **scruples**. I'm a good actor, My Lord. Huh. Can you free me from this pit? -  
 It’s also made with a **percale weave**, which means it’s super lightweight and crisp. -  
 If the gas is below 1/4 tank, use the gas card in the **visor** to fill up, or you'll be charged a $30 fee. -  
 

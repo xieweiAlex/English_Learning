@@ -183,8 +183,6 @@ She bought it on a **whim**.
 I'm an **ambivert**.  
 **precursor**
 the **precursor** of modern mathematics
-The village **seethed** with life 
-Water **seethed** in the **caldron** 
 
 I was super **pumped**.  
 **cold turkey**

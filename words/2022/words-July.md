@@ -13,7 +13,7 @@ Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting t
 A **disembodied** voice sounded from the back of the cabin.   
 Don’t take it personally. Getting **flipped off** while driving is just a **rite of passage** here.
 
-Security video shows a Dallas police officer walk over after hearing the **commotion** and tell the woman to drop the weapon. -  
+Security video shows a Dallas police officer walk over after hearing the **commotion** and tell the woman to drop the weapon.  
 **flyover** states  
 
 They once allies, now they're **jabbing** at each other. 
@@ -108,7 +108,7 @@ I bumped it on a desk and injured... It sorts of move **involuntarily**
 Because she is like the jury, she's gotta to be **sequestered**.  
 Probably **clinched** the election for the Republicans.  
 
-My role is to be **sly**, **obsequious** and without **scruples**. I'm a good actor, My Lord. Huh. Can you free me from this pit? -  
+My role is to be **sly**, **obsequious** and without **scruples**. I'm a good actor, My Lord. Huh. Can you free me from this pit?  
 **Sycophancy**  
 Hello, my hateful **shrew**.  
 

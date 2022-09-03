@@ -1,16 +1,37 @@
 
+do you know how sad it makes me to know that you only **braised** it to **boink** me? 
+Canete's mouth twisted in a **contemptuous** **sneer**.  
+They use opium as a sedative, rather than as a **narcotic**.  
+His palms were **excoriated** by the hard labor of shoveling. -  
+Kate's new boyfriend is a very **couth** youth. 
+The relics were objects of **veneration**. 
+
+
+The village **seethed** with life 
+Water **seethed** in the **caldron** 
+The **antipode** of love is hatred. 
+The British charachter is often said to be **phlegmatic**.  
+The four temperaments are: **choleric**, melancholic, **phlegmatic** and sanguine.  
+
+Connected a large number of **impoverished** people in those regions to global capital markets and developed market consumers.  
+However, this growth engine is potentially **running out of steam**.  
+
+
+
 ## Week 3,4 
 
+I got to combine my vacation and **avocation**.  
+
 Why is it **inexorably** that as some commentators have said Leviathan slouches left( leviathan is the government), why does it slouches left.  
-the way to survive modern society is be an ascetic.  
+> the way to survive modern society is be an **ascetic**.   
+
 It's **the road to misery**  
-I look forward to solitary confinement  
+I look forward to solitary **confinement**  
 The stupid question "What's the meaning of life?" - How could that be stupid? It's a **trite**.  
 
 **lipolysis**
 
-Because it’s easy to imagine our heroes as unflappable juggernauts, who conquer insecurity with a majestic mental karate chop every morning.  
-
+Because it’s easy to imagine our heroes as **unflappable** **juggernauts**, who conquer insecurity with a majestic mental karate chop every morning.  
 
 Adrian believes that many of the green-energy mandates and goals are **overly** ambitious.  
 
@@ -51,7 +72,7 @@ a **bombastic**, crazy guy.
 
 These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
 
-By mid-November Crowhurst began **loitering** in the south Atlantic, drifting in circles in calm water. -  
+By mid-November Crowhurst began **loitering** in the south Atlantic, drifting in circles in calm water.  
 If he did the media and judges would scrutinize his logs and uncover the deception, whereas no one cares about the **runner-up**.  
 I have no need to **prolong** the game … It has been a good game that must be ended.  
 

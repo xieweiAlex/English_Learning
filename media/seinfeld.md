@@ -6,7 +6,7 @@ He is a male **bimbo**. -
 He asked me. - You put him **on the spot**.  
 
 Doctor? He is a **podiatrist**.  
-I was merely speaking **extemporaneously**. -  
+I was merely speaking **extemporaneously**.  
 
 I like your place, it's very **unassuming**.  
 George doesn't work, he is **bum**. That's why he lives with us.  

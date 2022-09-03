@@ -98,8 +98,6 @@ I think you guys are blowing this **out of proportion**.
 The 2 year old was "screaming and bleeding **profusely**." She was given first aid by a medic on-site.  
 
 Practice human interaction and social **comportment**.  
-The British charachter is often said to be **phlegmatic**.  
-The four temperaments are: **choleric**, melancholic, **phlegmatic** and sanguine.  
 
 **orgiastic** festivity  
 **stoniness** in politics.  
