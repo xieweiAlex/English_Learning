@@ -43,15 +43,14 @@ function getNewWords {
 
   lines=$(cat $WORDS_REVIEW | wc -l)
   echo -e "File lines: ${YELLOW} $lines ${NC}, cut off lines beyond 110!"
-  # TODO: only sed for lines over 110 
 
   # Delete lines (111,$) let's keep the review file short & lean  
   sed -i '' '111, 500d' "$WORDS_REVIEW"
 }
 
+# 1. PushBack changes in original file  
+# 2. Purge the word_review file
 function pushBack {
-  # 1. pushBack  
-  # record the current file_name
   file_name=""
   lineNum=0
   lines=""
@@ -59,7 +58,7 @@ function pushBack {
     lineNum=$(( lineNum + 1 ))
     if [[ $line == *md ]] && [[ -f $line ]]; then 
       file_name=$line
-      echo -e " Push back file: ${YELLOW} $file_name ${NC}"
+      echo -e " Trying to push back for file: ${YELLOW} $file_name ${NC}"
     fi
 
     if ! [[ -f $file_name ]]; then 
@@ -73,27 +72,34 @@ function pushBack {
     # if trimmed_str contains "**{char}**" && not end in -  
     if [[ $trimmedStr =~ \*\*.+\*\*  ]] && ! [[ $trimmedStr =~ -$ ]]; then 
 
-      echo -e "Update sentence: ${GREEN} $trimmedStr ${NC}, line: $lineNum" 
+      echo -e "Update line: ${GREEN} $trimmedStr ${NC}, line: $lineNum" 
       
       # lines="$lines" + "$lineNum" + "d"
       lines+="$lineNum""d;"
 
       # escape from "*" to "\*" to help sed search/replace  
-      escapedStr=$(echo "$trimmedStr" | sed 's/\*/\\*/g')
+      # escapedStr=$(echo "$trimmedStr" | sed 's/\*/\\*/g')
       # find from the $file_name and replace the original str with updated string(two white space in the end) from words-review 
-      sed -i '' "s/$escapedStr.*/$trimmedStr  /" "$file_name"
+      # echo "Escaped line is ${escapedStr}"
+
+      echo "Look up the lineNum in origin file ${file_name} " 
+      originLinNum=$(grep -nF "${trimmedStr}" "${file_name}" | cut -d ":" -f 1 )
+      echo "Origin line number: ${originLinNum}"
+
+      echo "Removing the ending \"-\" in origin file."
+      # sed -i '' "129s/-[[:blank:]]*$//g" words/2022/words-July.md
+      sed -i '' "${originLinNum}s/-[[:blank:]]*$/  /g" "$file_name"
     fi
 
   done <$WORDS_REVIEW
 
-  # echo lines 
-  echo "We got line: $lines"
+  echo "Changed lines have been detected: $lines"
   cleanWordReview $lines
 }
 
 function cleanWordReview {
 
-  echo "Purge the file $WORDS_REVIEW"
+  echo -e "${GREEN} Purge the file $WORDS_REVIEW ${NC}"
   lines=$1
 
   # lines="14d;15d;16d;"
