@@ -1,4 +1,31 @@
 
+## Week 1 
+
+Endless narratives, metaphors and **allegories**. -  
+
+> I don't like the odds 
+
+Long-term holder supply **denotes** the number of coins that have not moved in 155 days or more, the threshold at which the probability selling and spending in the future **diminishes** dramatically. 
+
+Monitoring the methane **menace**.  
+  
+We had a little reprieve from mid-June to mid-August in terms of equity market, now we have a test of this rally.    
+We were in a period especially after 08-09, where the FED was basically laying low, and just let the economy heal. We had extended period of very low interest rates.   
+in the 70s, bond yields just kept going up **inexorably**, that's not happening right now.  
+**leading indicator** vs **lagging indicator**  
+**broad-base** 
+Traditional gas powered vehicle sales are **floundering**.  
+
+
+The **contour** of economical cycle.  
+**head fake**.  
+**Reflexive rebound**.  
+if you're still short, it could **rip your face off**.  
+The FED is following **contemporaneous** macroeconomic indicators like the unemployment rate or JOINT's job openings.  
+The CPI so much of it's **imputed**.  
+If we say we're going to swing from plus six to minus two, you know as well as I do that you'd have been carried out in a **gurney**. -  
+
+
 do you know how sad it makes me to know that you only **braised** it to **boink** me? 
 Canete's mouth twisted in a **contemptuous** **sneer**.  
 They use opium as a sedative, rather than as a **narcotic**.  
@@ -6,9 +33,8 @@ His palms were **excoriated** by the hard labor of shoveling. -
 Kate's new boyfriend is a very **couth** youth. 
 The relics were objects of **veneration**. 
 
-
-The village **seethed** with life 
-Water **seethed** in the **caldron** 
+The village **seethed** with life. 
+Water **seethed** in the **caldron**. -  
 The **antipode** of love is hatred. 
 The British charachter is often said to be **phlegmatic**.  
 The four temperaments are: **choleric**, melancholic, **phlegmatic** and sanguine.  
@@ -22,7 +48,7 @@ However, this growth engine is potentially **running out of steam**.
 
 I got to combine my vacation and **avocation**.  
 
-Why is it **inexorably** that as some commentators have said Leviathan slouches left( leviathan is the government), why does it slouches left.  
+Why is it **inexorably** that as some commentators have said **Leviathan** slouches left( leviathan is the government), why does it slouches left.  
 > the way to survive modern society is be an **ascetic**.   
 
 It's **the road to misery**  
@@ -35,7 +61,7 @@ Because it’s easy to imagine our heroes as **unflappable** **juggernauts**, wh
 
 Adrian believes that many of the green-energy mandates and goals are **overly** ambitious.  
 
-10 **commandments** of work success. -  
+10 **commandments** of work success.   
 Study deeply: Master the tiny details and **panoramic** context of your profession. -  
 Study **thyself**: Be **clear-eyed** about your gifts and flaws. It’s the only path to **betterment**.
 Federal Reserve Chair Jerome Powell’s tough-talking speech signals the Fed is nowhere near **relenting** on interest rate increases. 
@@ -48,12 +74,11 @@ Tax on **superfluity**.
 She loved the **virile** young swimmer.  
 Jobs said yes, then **berated** his colleagues for wasting his time.  
 
-DOJ ordered to release **redacted** Mar-a-Lago search warrant **affidavit**. -  
+DOJ ordered to release **redacted** Mar-a-Lago search warrant **affidavit**.   
 
 
 Tesla is demanding that an advocacy group remove videos of its vehicles running over child-sized **mannequins**, escalating the debate over the safety of the company’s Full Self-Driving software.  
 We've been working hard behind the scenes to bring you this fancy **makeover**, and we’re so excited to finally share it with you after all this time.   
-
 Close to Grand Teton National Park and Yellowstone National Park, it’s home to **upscale** ski resorts.  
 
 > My personal views aren't universally held.
@@ -63,7 +88,7 @@ When I **belch** later, it won't remind me anything.
 **Hanging in the background**, wait to seee if I can be helpful 
 Plants **imbibe** nourishment usually through their leaves and roots. -  
 She is a remarkably **adroit** and determined politician. -  
-We admired her **exquisite** handiwork. -  
+We admired her **exquisite** handiwork.   
 **assiduous**
 
 The benchmark S&P 500 (SP500) soared 15% over two months, only to snap the winning streak last week and **slump over** 2% on Monday.  
@@ -82,12 +107,9 @@ If you're an architect, you might find yourself trying to create the ultimate **
 The retailer sector hears from discounters Dollar General (DG) and Dollar Tree (DLTR) next week in reports that could **tip off** just how much consumers are trading down or pinching pennies. 
 
 As a result, analysts inside and outside China **pore over** state media during the months leading up to the congress for hints at which party cadre's star is rising and whose may be falling.
-
-We'll get you that **preso** and Excel sheet tomorrow.  
+We'll get you that **preso** and Excel sheet tomorrow. -  
 
 Taiwan is a **plucky** pro-American pro-western democracy deserves protection from the communist bully next door.   
-
-
 > false dichotomy 
 
 We can **tie up loose ends** on Friday.  
@@ -113,8 +135,7 @@ His **gruff** exterior concealed one of the kindest hearts
 Did you throw yourself a big **shindig**?
 **smudge**  
 
-
-I was happy enough to **laze** about on the beach.
+I was happy enough to **laze** about on the beach. -  
 I'm her Uber driver, your nanny still in the car. She **dozed off** on the way here.  
 This comes in **full cycle**. 
 
@@ -122,7 +143,7 @@ We don't need to **stint** ourselves—have some more!
 He did a **stint** abroad early in his career.  
 
 
-Love is **debauch** thing, people are frustrated can not play. -  
+Love is **debauch** thing, people are frustrated can not play.   
 
 Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring. -  
 Following a three-week trial and more than eight days of **deliberations**, two former JPMorgan (JPM) employees have been found guilty in a landmark case over futures market manipulation.  

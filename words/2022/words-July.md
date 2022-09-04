@@ -78,7 +78,7 @@ I can see her now and where she gets her **rugged handsomeness**.
 **Devil's in the details**.  
 Can you come to office wearing **negligee**?  
 The company can only go to hell **in a handbasket** with this **dead-cat bounce**. -  
-I don't believe it's either merely **picayune** or **inappropriate** to point out Ellen/Elliot who is quite good actor/actress, is also a ritual model for emulation. -   
+I don't believe it's either merely **picayune** or **inappropriate** to point out Ellen/Elliot who is quite good actor/actress, is also a ritual model for emulation.   
 
 Still, it’s often enriched with extra nutrients, and whole-grain or sprouted varieties may **bestow** several health benefits.
 May **trample** over those who are weaker-willed. -  
@@ -126,7 +126,7 @@ Investors are **strapping** on their seatbelts as they prepare for some wild tra
 
 Life's short. Let's **lean on** friends! 
 It’s also made with a **percale weave**, which means it’s super lightweight and crisp. -  
-If the gas is below 1/4 tank, use the gas card in the **visor** to fill up, or you'll be charged a $30 fee. -  
+If the gas is below 1/4 tank, use the gas card in the **visor** to fill up, or you'll be charged a $30 fee.   
 
 They fell **prostrate** in worship. -
 You won't let ambition **cloud** your judgement.  

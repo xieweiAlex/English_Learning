@@ -205,12 +205,12 @@ Tesla held an event, billed as a “Cyber Rodeo,” to which it invited 15,000 p
 **Clad** in a black **cowboy hat** and **aviator** sunglasses, Musk said he was excited to begin working on Cybertruck production **at last**.  
 
 Others that have made a decision to leave have quickly found themselves in **hot water**.  
-I don't know whether we have **discursion** in this market. -  
+I don't know whether we have **discursion** in this market.   
 The threat will force greater **dispersion** of their forces.  
 
 **Credulous** people are easily misled by false advertisements.  
 He gets very **maudlin** when he's **in his cups**.  
-She is too free with her tongue and is rather **impertinent** to people. -  
+She is too free with her tongue and is rather **impertinent** to people.   
 
 a **gossamer** justification, **gossamer** wings.  
 What was it like day after day in their **fetid** cargo bay? -  

@@ -11,7 +11,7 @@ I was merely speaking **extemporaneously**.
 I like your place, it's very **unassuming**.  
 George doesn't work, he is **bum**. That's why he lives with us.  
 
-Yeah, **dandruff**, **kasha**, **mothball**, **cheap carpeting**. It's **potpourri**, really. -  
+Yeah, **dandruff**, **kasha**, **mothball**, **cheap carpeting**. It's **potpourri**, really.   
 You wanna **lug** it uptown, it's yours.  
 I mean, somebody asks me where is Israel, I don't **fly off the handle**.  
 You're **grounded**.  

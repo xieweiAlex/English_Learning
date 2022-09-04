@@ -1,4 +1,6 @@
 
+**floundering**
+
 **delta** 
 
 ## August 

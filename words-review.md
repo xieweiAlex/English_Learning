@@ -2,14 +2,12 @@
 media/f-family.md  
 It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
 I couldn't help noticing her **udders**. -  
-I got **indigestion** from that **truck tire** you called a steak. -  
 You **hocked** our **locket** for your little salad thing? -   
 
 ## seinfeld.md ## 
 media/seinfeld.md  
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
 He is a male **bimbo**. -  
-Yeah, **dandruff**, **kasha**, **mothball**, **cheap carpeting**. It's **potpourri**, really. -  
 If I don't have the job, by the time he comes back, I'm **ensconced**. -  
 They say they never saw anybody **go after** balls with such **gusto**. -  
 Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    
@@ -17,17 +15,18 @@ Stress is very damaging to the **epidermis**. -
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
+Endless narratives, metaphors and **allegories**. -  
+If we say we're going to swing from plus six to minus two, you know as well as I do that you'd have been carried out in a **gurney**. -  
 His palms were **excoriated** by the hard labor of shoveling. -  
-10 **commandments** of work success. -  
+Water **seethed** in the **caldron**. -  
 Study deeply: Master the tiny details and **panoramic** context of your profession. -  
 We don't need to exchange **pleasantries**. -  
-DOJ ordered to release **redacted** Mar-a-Lago search warrant **affidavit**. -  
 Plants **imbibe** nourishment usually through their leaves and roots. -  
 She is a remarkably **adroit** and determined politician. -  
-We admired her **exquisite** handiwork. -  
 These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
+We'll get you that **preso** and Excel sheet tomorrow. -  
 You may be described as **ditzy** or **scatterbrained**. -  
-Love is **debauch** thing, people are frustrated can not play. -  
+I was happy enough to **laze** about on the beach. -  
 Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring. -  
 The air in the garden was warm and **fragrant**. - 
 
@@ -37,10 +36,8 @@ Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting t
 The news was a win for the EV maker, which over the last two years has experienced executive departures, an SEC probe, and investor skepticism, resulting in a **paltry** stock performance since it went public via SPAC in 2020. -  
 Capitol Police said 35 people were arrested for "Crowding, **Obstructing** or **Incommoding**," including 17 members of Congress. -  
 The company can only go to hell **in a handbasket** with this **dead-cat bounce**. -  
-I don't believe it's either merely **picayune** or **inappropriate** to point out Ellen/Elliot who is quite good actor/actress, is also a ritual model for emulation. -   
 May **trample** over those who are weaker-willed. -  
 It’s also made with a **percale weave**, which means it’s super lightweight and crisp. -  
-If the gas is below 1/4 tank, use the gas card in the **visor** to fill up, or you'll be charged a $30 fee. -  
 
 ## words-June.md ## 
 words/2022/words-June.md  
@@ -54,7 +51,6 @@ but we have reason to cool our **raging** motions , our **carnal** stings , our 
 He had an unshakable **premonition** that he would die. -  
 Speaking of her love, has become a romantic **balderdash**. -  
 I’ll write it down and think of it when I can do so productively, but I’m no longer allowed to **wallow** in my past pain. -  
-His bathroom is a brilliant **pastiche** of expensive interior design. -  
 He regarded the young man as **feckless** and irresponsible. -  
 We looked out upon a scene of **desolation** and ruin. -  
 
@@ -74,6 +70,4 @@ gravitational eneregy to **kinetic energy**. -
 Don't talk the anything **impertinent** with the main issue. -  
 At that time the country was in the **slough** of despond. -  
 What's all the **palaver** about? -  
-I don't know whether we have **discursion** in this market. -  
-She is too free with her tongue and is rather **impertinent** to people. -  
 What was it like day after day in their **fetid** cargo bay? -  

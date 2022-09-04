@@ -125,7 +125,7 @@ The police **subjected** him to an **inquisition** that lasted two hours.
 
 ## Week 1 
 
-His bathroom is a brilliant **pastiche** of expensive interior design. -  
+His bathroom is a brilliant **pastiche** of expensive interior design.  
 **skulk**  
 
 One of the significant discoveries of cognitive psychologists in recent decades is that switching from one task to another is **effortful**, especially under time pressure.
