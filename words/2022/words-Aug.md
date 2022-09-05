@@ -1,4 +1,7 @@
 
+Unlike you, I do not have **exalted** ancestors, I make my living by trade.  
+
+
 ## Week 1 
 
 Endless narratives, metaphors and **allegories**. -  

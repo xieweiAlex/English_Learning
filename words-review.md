@@ -8,10 +8,8 @@ You **hocked** our **locket** for your little salad thing? -
 media/seinfeld.md  
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
 He is a male **bimbo**. -  
-If I don't have the job, by the time he comes back, I'm **ensconced**. -  
 They say they never saw anybody **go after** balls with such **gusto**. -  
 Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    
-Stress is very damaging to the **epidermis**. -  
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
@@ -45,7 +43,6 @@ He asserted his innocence and his financial **probity**.  -
 Because Marie's first reaction is to **prevaricate**, I have a hard time believing anything she says. -  
 The highest **plaudit** Mr Jarre could give a director was that he was "entrusting", and left him to it. -  
 Shopify's shares have been **trounced** this year, falling almost 80% from their 52-week high. -  
-An officer onsite said he had a "**hooligan**" **crowbar** that could breach a door. Officers opted to wait for keys. -  
 And don't fall for the **slew** of "detox" or "weight loss" teas that are **peddled** on Instagram and Facebook. - 
 but we have reason to cool our **raging** motions , our **carnal** stings , our **unbitted** **lusts**. -  
 He had an unshakable **premonition** that he would die. -  
@@ -57,7 +54,6 @@ We looked out upon a scene of **desolation** and ruin. -
 ## words-May.md ## 
 words/2022/words-May.md  
 More troubling, she said, is what Google's flub may **portend** for the future. -  
-If you don't **blandish** your wife now, you will try to marry a good woman tomorrow. -   
 They really worked on your **pectorals**. -  
 The depressing reality is that the last 30 years of [relative peacetime] might just be an **aberration**. -  
 Don't **palter** with the truth. -  

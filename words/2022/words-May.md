@@ -92,7 +92,7 @@ A **vicious** sell-off in risky assets **jolts** stablecoins. -
 
 The headline sent shares of Twitter (TWTR) into a **tailspin**, collapsing 25% to around $34, with the stock still trading violently at the time of writing.  
 
-If you don't **blandish** your wife now, you will try to marry a good woman tomorrow. -   
+If you don't **blandish** your wife now, you will try to marry a good woman tomorrow.   
 We are hoping for an early **resumption** of peace talks. 
 
 **capricious** government.  

@@ -49,7 +49,7 @@ C-suite executives feel as **frazzled** and depressed as the workers who report 
 76% of **higher-ups** said the pandemic has negatively affected their overall health.  
 
 This was "an **abject failure**, and **antithetical** to everything we've learned over the last two decades since the Columbine **massacre**,"  
-An officer onsite said he had a "**hooligan**" **crowbar** that could breach a door. Officers opted to wait for keys. -  
+An officer onsite said he had a "**hooligan**" **crowbar** that could breach a door. Officers opted to wait for keys.   
 And don't fall for the **slew** of "detox" or "weight loss" teas that are **peddled** on Instagram and Facebook. - 
 
 In **stamping out** covid, China has **stomped on** confidence.   
