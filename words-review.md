@@ -1,26 +1,27 @@
 ## f-family.md ## 
 media/f-family.md  
 It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
-I couldn't help noticing her **udders**. -  
 You **hocked** our **locket** for your little salad thing? -   
 
 ## seinfeld.md ## 
 media/seinfeld.md  
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
 He is a male **bimbo**. -  
-They say they never saw anybody **go after** balls with such **gusto**. -  
-Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up. -    
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
+3300 on the S&P 500 in Feb 2020, We had a **cataclysm** March 2020 down to 2200 than it more than doubles up to 4800 in Jan 2022. - 
+I think the merge is probably going to go ahead without a whole lot of sort of **consternation**. -  
+How does the British **monarchy**’s line of succession work? -  
+One gets unsettled, depressed, and inclined to be **querulous**. -  
+I had been operating under the assumption that my crush was **unrequited**. -  
+Good thing I look **spiffy** in a mustache. -  
+Unlike you, I do not have **exalted** ancestors, I make my living by trade. -  
 Endless narratives, metaphors and **allegories**. -  
 If we say we're going to swing from plus six to minus two, you know as well as I do that you'd have been carried out in a **gurney**. -  
 His palms were **excoriated** by the hard labor of shoveling. -  
 Water **seethed** in the **caldron**. -  
 Study deeply: Master the tiny details and **panoramic** context of your profession. -  
-We don't need to exchange **pleasantries**. -  
-Plants **imbibe** nourishment usually through their leaves and roots. -  
-She is a remarkably **adroit** and determined politician. -  
 These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
 We'll get you that **preso** and Excel sheet tomorrow. -  
 You may be described as **ditzy** or **scatterbrained**. -  
@@ -53,17 +54,8 @@ We looked out upon a scene of **desolation** and ruin. -
 
 ## words-May.md ## 
 words/2022/words-May.md  
-More troubling, she said, is what Google's flub may **portend** for the future. -  
-They really worked on your **pectorals**. -  
-The depressing reality is that the last 30 years of [relative peacetime] might just be an **aberration**. -  
 Don't **palter** with the truth. -  
 
 ## words-April.md ## 
 words/2022/words-April.md  
-The boy remained as dismal as a **hearse**. - 
-For social reasons, I'll **elide** naming him or the company, but statistically speaking you are overwhelmingly likely to be... **downstream** of their work. -  
-gravitational eneregy to **kinetic energy**. -  
-Don't talk the anything **impertinent** with the main issue. -  
-At that time the country was in the **slough** of despond. -  
 What's all the **palaver** about? -  
-What was it like day after day in their **fetid** cargo bay? -  

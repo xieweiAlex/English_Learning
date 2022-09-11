@@ -1,6 +1,47 @@
 
-Unlike you, I do not have **exalted** ancestors, I make my living by trade.  
+## Week 2 
 
+3300 on the S&P 500 in Feb 2020, We had a **cataclysm** March 2020 down to 2200 than it more than doubles up to 4800 in Jan 2022. - 
+**gun shy**  
+I think the merge is probably going to go ahead without a whole lot of sort of **consternation**. -  
+**tail risk**  
+
+**Couchsurfing** members are astonishingly friendly and helpful.  
+
+You gonna ask yourself how are we going to really **tourniquet** this whole thing and prevent a much bigger contagion like frieburg just talked about.  
+**in a heartbeat**.  
+
+The recruiter said, “I have observed that Unix hackers **scowl** or become annoyed when I ask them how many years of experience they have in a new programming language. Why is this so?”   
+
+How does the British **monarchy**’s line of succession work? -  
+
+In the **Middle Ages**, a favorite punishment was to **gouge out** a prisoner's eyes. -
+
+
+A **jug** of whiskey.  
+**social fabric**.  
+
+It's **growing on** me.  
+**upper hand** 
+
+One gets unsettled, depressed, and inclined to be **querulous**. -  
+
+Avoid company **bashing**. **Piling on** a former employer may only serve to **feed rumination** (thinking about all the "what-ifs"), or even fuel **self-bashing**.  
+
+Although honey **adulteration** is illegal in most countries, it remains a widespread problem.  
+
+I had been operating under the assumption that my crush was **unrequited**. -  
+Good thing I look **spiffy** in a mustache. -  
+Is it an **uplifting** experience for you up there in Washington?  
+I was expecting it being a **slog**.  
+
+You make a mistake, he's gonna scream at you, he's gonna **belittle** you. He demands almost perfection.  
+
+Splits, or “windows” in Vim **parlance**, are a foundational skill every Vim user must master. -
+This **balsamic** comes from one of the oldest vinegar makers in Modena.  
+She led a **tranquil** life in the country.  
+**wiggle room** 
+Unlike you, I do not have **exalted** ancestors, I make my living by trade. -  
 
 ## Week 1 
 
@@ -12,8 +53,8 @@ Long-term holder supply **denotes** the number of coins that have not moved in 1
 
 Monitoring the methane **menace**.  
   
-We had a little reprieve from mid-June to mid-August in terms of equity market, now we have a test of this rally.    
-We were in a period especially after 08-09, where the FED was basically laying low, and just let the economy heal. We had extended period of very low interest rates.   
+We had a little **reprieve** from mid-June to mid-August in terms of equity market, now we have a test of this rally.    
+We were in a period especially after 08-09, where the FED was basically **laying low**, and just let the economy heal. We had extended period of very low interest rates.   
 in the 70s, bond yields just kept going up **inexorably**, that's not happening right now.  
 **leading indicator** vs **lagging indicator**  
 **broad-base** 
@@ -70,7 +111,7 @@ Study **thyself**: Be **clear-eyed** about your gifts and flaws. It’s the only
 Federal Reserve Chair Jerome Powell’s tough-talking speech signals the Fed is nowhere near **relenting** on interest rate increases. 
 
 I started to wonder **the nature of** his questions.  
-We don't need to exchange **pleasantries**. -  
+We don't need to exchange **pleasantries**.   
 
 Kamal was a vendor in Cairo's open-air **bazaar**. -
 Tax on **superfluity**.  
@@ -89,8 +130,8 @@ Close to Grand Teton National Park and Yellowstone National Park, it’s home to
 When I **belch** later, it won't remind me anything.  
 
 **Hanging in the background**, wait to seee if I can be helpful 
-Plants **imbibe** nourishment usually through their leaves and roots. -  
-She is a remarkably **adroit** and determined politician. -  
+Plants **imbibe** nourishment usually through their leaves and roots.   
+She is a remarkably **adroit** and determined politician.   
 We admired her **exquisite** handiwork.   
 **assiduous**
 
@@ -198,6 +239,20 @@ I'm her Uber driver, your nanny still in the car. She **dozed off** on the way h
 
 Look at you, a **dead ringer** for your father.  
 Just a little **good-natured** **ribbing**, Frank.  
+
+You're **dead meat**.  
+**Don't slouch**.  
+**keep it down**.  
+Stop **horsing around**.  
+**knock it off**.  
+
+### Sep 
+
+I had been operating under the assumption that my crush was **unrequited**.  
+Good thing I look **spiffy** in a mustache.  
+
+I mean, somebody asks me where is Israel, I don't **fly off the handle**.  
+
 
 
 ## Interesting 

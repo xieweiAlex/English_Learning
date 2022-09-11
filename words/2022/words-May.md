@@ -15,7 +15,7 @@ Romania badly needs aid to modernize its **outmoded** industries.
 All whole grains are made up of three major components (3): **bran**, **germ**, **endosperm**. -
 Red rice is a type of naturally **pigmented** rice grain known for its rich nutritional properties.  
 
-More troubling, she said, is what Google's flub may **portend** for the future. -  
+More troubling, she said, is what Google's flub may **portend** for the future.   
 
 An **emboldened** Fed.  
 Given the past pattern of policymaking and the attitudes of Republicans, I don't expect to see more than familiar **platitudes** and **deflection** to vague future actions.  
@@ -111,9 +111,9 @@ A persistent **dull ache**.
 It's a little, brown **circular** **protuberance**. What's the big deal?  
 
 You're very **lithe**, aren't you? Very graceful.  
-They really worked on your **pectorals**. -  
+They really worked on your **pectorals**.   
 
-The depressing reality is that the last 30 years of [relative peacetime] might just be an **aberration**. -  
+The depressing reality is that the last 30 years of [relative peacetime] might just be an **aberration**.   
 Will you stop **making light of it**?  
 
 ## Week 1 

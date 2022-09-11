@@ -1,6 +1,6 @@
 ## Week 4 
 
-The boy remained as dismal as a **hearse**. - 
+The boy remained as dismal as a **hearse**.   
 I blame my Argentina **lineage**.  
 **Stevia** is another natural alternative to sugar and sugar substitutes.  
 The fermentation process produces **acetic** acid (also found in vinegar) and several other **acidic compounds**, trace levels of alcohol and gases that make it carbonated.  
@@ -14,7 +14,7 @@ This will include a **backbreaking** amount of passing documents to...
 This was **resoundingly** not true in the **run-up** to the global financial crisis, which resulted in large government bailouts and a sort of **quasi-nationalization** of them.  
 The Big Short: Inside the **Doomsday** Machine Paperback.  
 My **quixotic** level of interest in electronic flow meters is on account of my best salaryman friend working at the company which makes the best electronic flow meters.  
-For social reasons, I'll **elide** naming him or the company, but statistically speaking you are overwhelmingly likely to be... **downstream** of their work. -  
+For social reasons, I'll **elide** naming him or the company, but statistically speaking you are overwhelmingly likely to be... **downstream** of their work.   
 
 > You are not a passive observer of your own life. There are times to **sit back**, and there are times to push.
 
@@ -25,7 +25,7 @@ I had to **pry myself away** from .. it's a **Havanese**, right?
 
 Candies and other **confectionery**.  
 **Margarine** and other ultra-processed **spreads** such as sweetened cream cheese.  
-gravitational eneregy to **kinetic energy**. -  
+gravitational eneregy to **kinetic energy**.   
 
 The lake’s water is **turbid**.  
 I'm feeling a bit **peckish**.  
@@ -66,7 +66,7 @@ What **struck me the most** while reading the book "Jane Eyre" was how the book 
 
 They witnessed the world **turn on its head**.  
 Lord of the Flies **turns this trope on its head**.  
-Don't talk the anything **impertinent** with the main issue. -  
+Don't talk the anything **impertinent** with the main issue.   
 A dynamic warmup is done at the start of your workout routine. It’s meant to **prime** your body to work at a higher intensity.  
 
 The stickers improved their aim and significantly reduced “**spillage**” around the urinals.  
@@ -119,7 +119,7 @@ If you **put off** things today, they don’t magically disappear tomorrow. They
 
 I feel as though I'd eaten a **spool** of thread.  
 **variable orifice**, **atomizer orifice**.  
-At that time the country was in the **slough** of despond. -  
+At that time the country was in the **slough** of despond.   
 
 Nothing **shady** or **underhanded**.  
 
@@ -213,7 +213,7 @@ He gets very **maudlin** when he's **in his cups**.
 She is too free with her tongue and is rather **impertinent** to people.   
 
 a **gossamer** justification, **gossamer** wings.  
-What was it like day after day in their **fetid** cargo bay? -  
+What was it like day after day in their **fetid** cargo bay?   
 
 **What's the fuss**.  
 **Don't play possum**.  

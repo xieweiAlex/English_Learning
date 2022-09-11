@@ -37,7 +37,7 @@ It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in
 **Buster**, I love that little **rascal** with all my heart.  
 
 Avoid loud and aggressive person, they're **vexations** to the spirit.  
-I couldn't help noticing her **udders**. -  
+I couldn't help noticing her **udders**.   
 
 Just a little **good-natured** **ribbing**, Frank.  
 I got **indigestion** from that **truck tire** you called a steak.   

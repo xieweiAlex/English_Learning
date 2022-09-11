@@ -1,4 +1,10 @@
 
+**irrespective**
+
+**allude**
+
+**innocuous**
+
 **floundering**
 
 **delta** 

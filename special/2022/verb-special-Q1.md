@@ -1,4 +1,6 @@
 
+**bounce** 
+
 **modulate**
 
 **relent** 
@@ -26,7 +28,7 @@
 
 **maul**
 
-**snuff**
+**snuff**, **nip**, **snip**
 
 **imperil**
 
