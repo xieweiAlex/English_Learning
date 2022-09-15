@@ -1,8 +1,3 @@
-## f-family.md ## 
-media/f-family.md  
-It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
-You **hocked** our **locket** for your little salad thing? -   
-
 ## seinfeld.md ## 
 media/seinfeld.md  
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
@@ -10,8 +5,8 @@ He is a male **bimbo**. -
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
-3300 on the S&P 500 in Feb 2020, We had a **cataclysm** March 2020 down to 2200 than it more than doubles up to 4800 in Jan 2022. - 
-I think the merge is probably going to go ahead without a whole lot of sort of **consternation**. -  
+Don't **scant** the butter when you make a cake. -  
+Not to **belabor** the point, but we're running out of time. -  
 How does the British **monarchy**’s line of succession work? -  
 One gets unsettled, depressed, and inclined to be **querulous**. -  
 I had been operating under the assumption that my crush was **unrequited**. -  
@@ -51,10 +46,6 @@ Speaking of her love, has become a romantic **balderdash**. -
 I’ll write it down and think of it when I can do so productively, but I’m no longer allowed to **wallow** in my past pain. -  
 He regarded the young man as **feckless** and irresponsible. -  
 We looked out upon a scene of **desolation** and ruin. -  
-
-## words-May.md ## 
-words/2022/words-May.md  
-Don't **palter** with the truth. -  
 
 ## words-April.md ## 
 words/2022/words-April.md  

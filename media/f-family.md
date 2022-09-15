@@ -33,7 +33,7 @@ Something would always **set him off**.
 Look at you, a **dead ringer** for your father.  
 
 You're **grounded** forever.  
-It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed. -  
+It's such a terrible **hullabaloo**. When the ambulance came, Otto and I were in bed.   
 **Buster**, I love that little **rascal** with all my heart.  
 
 Avoid loud and aggressive person, they're **vexations** to the spirit.  
@@ -84,7 +84,7 @@ My **torment** would never end, because I hurt a friend.
 
 Aw, Christ, another kid **down the drain**.  
 I got a job and keep this family fed when **you weren't pulling your weight**.   
-You **hocked** our **locket** for your little salad thing? -   
+You **hocked** our **locket** for your little salad thing?   
 
 I'm being the cool dad now! It's all **groovy**!  
 What if we build a **decoy** airport, the same exact size as ours, with plane and everything.  

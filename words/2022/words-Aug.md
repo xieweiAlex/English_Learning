@@ -1,9 +1,17 @@
 
+Work-from-anywhere is a gift. I've found new hobbies, and I live a far more **well-rounded** life.  
+We may have discussed the idea of 'Sleeping Intuitives' and the possibility that the **oft-cited** 25% of the population being intuitive types is a severe **undercount**.  
+
+**Dragnet**: Chinese **transnational** policing **gone wild** (Safeguard Defenders).  
+Don't **scant** the butter when you make a cake. -  
+You’re **teetering** on the line of what’s acceptable in this office.  
+Not to **belabor** the point, but we're running out of time. -  
+
 ## Week 2 
 
-3300 on the S&P 500 in Feb 2020, We had a **cataclysm** March 2020 down to 2200 than it more than doubles up to 4800 in Jan 2022. - 
+3300 on the S&P 500 in Feb 2020, We had a **cataclysm** March 2020 down to 2200 than it more than doubles up to 4800 in Jan 2022.   
 **gun shy**  
-I think the merge is probably going to go ahead without a whole lot of sort of **consternation**. -  
+I think the merge is probably going to go ahead without a whole lot of sort of **consternation**.   
 **tail risk**  
 
 **Couchsurfing** members are astonishingly friendly and helpful.  

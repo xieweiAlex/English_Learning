@@ -157,7 +157,7 @@ I thought I smelt **lilac**. - Yes, there are a few of those, too.
 The only meal left is a **kosher** meal.  
 
 Banks agreed to offer $13B in loans secured against Twitter - but the lenders **balked at** offering more than that because of the company's limited cash flow.  
-Don't **palter** with the truth. -  
+Don't **palter** with the truth.   
 
 We have this sort of information **on tap**.  
 Presumably the intention was to humiliate his **interlocutor** and to show how ineffective the international body has been in this conflict.  
