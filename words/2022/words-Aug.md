@@ -1,4 +1,31 @@
 
+Greatness, happiness, contentment…these things are what life can be. But only if we choose to experience them. Only if we slow down. Only if we show up and stay, in the moment.  
+Although they never gave us their exact reasons, it’s pretty easy to deduce. Because corruption is a betrayal of the public trust.  
+
+
+A focus on achievement and education as 'thinking'... Oversimplified, but I feel like a lot of more studious, educated people fall into this description.  
+
+
+
+They read with a purpose to **affirm** or to attack. They resist inconvenient truth since everyone wants to be on the side of the angels. Just as we start wars to end all wars. 
+
+Males May Be More Susceptible to **Priming Effect** Than Females, Researcher says.
+"Odds are, the latest office debate or family **squabble** isn't worth winning. Most arguments are only **tangentially related to** your end goal.  
+
+He's going out with an **empty-headed** **bimbo** half his age.  
+The S.E.C. May be **feckless**, but they're not incompetent.  
+
+But we make our worst, impulsive, **foggy** decisions when our emotional RPMs are always **redlining**.  
+Instead, **modulate** — and moderate — your reactions in tense times.  
+
+
+People are sometimes **leery of** the idea of purchasing a car with a rebuilt title, but there are specific laws in place to prevent most problems.  
+It's nice to have someone you can **offload** your problems onto.
+
+We’re using Tuesday’s market **drubbing** to buy more shares of a high-quality holding. -  
+when I was younger I would play this song literally every day. Still a **banger** to this day
+The monarchy’s secret weapon: **insincerity**.  
+
 Work-from-anywhere is a gift. I've found new hobbies, and I live a far more **well-rounded** life.  
 We may have discussed the idea of 'Sleeping Intuitives' and the possibility that the **oft-cited** 25% of the population being intuitive types is a severe **undercount**.  
 
@@ -21,11 +48,9 @@ You gonna ask yourself how are we going to really **tourniquet** this whole thin
 
 The recruiter said, “I have observed that Unix hackers **scowl** or become annoyed when I ask them how many years of experience they have in a new programming language. Why is this so?”   
 
-How does the British **monarchy**’s line of succession work? -  
+How does the British **monarchy**’s line of succession work?   
 
 In the **Middle Ages**, a favorite punishment was to **gouge out** a prisoner's eyes. -
-
-
 A **jug** of whiskey.  
 **social fabric**.  
 
@@ -49,7 +74,7 @@ Splits, or “windows” in Vim **parlance**, are a foundational skill every Vim
 This **balsamic** comes from one of the oldest vinegar makers in Modena.  
 She led a **tranquil** life in the country.  
 **wiggle room** 
-Unlike you, I do not have **exalted** ancestors, I make my living by trade. -  
+Unlike you, I do not have **exalted** ancestors, I make my living by trade.   
 
 ## Week 1 
 

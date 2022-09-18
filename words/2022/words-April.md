@@ -142,7 +142,7 @@ He is not here to **take a dip**.
 Consume **citric** juices, whether lime juice squeezed into water, lemon juice on food, or a beverage like the citrus **kombucha** I had.  
 
 Emily got into the car wearing jeans and a **skimpy** **tanktop**.  
-What's all the **palaver** about? -  
+What's all the **palaver** about?   
 Her **tact** and intuition never failed.  
 The final stage of **waxing** left it with a **satin** **sheen**.  
 

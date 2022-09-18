@@ -1,17 +1,17 @@
 ## seinfeld.md ## 
 media/seinfeld.md  
+So now, you're gonna keep going out with her for **spite**? -  
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
 He is a male **bimbo**. -  
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
+We’re using Tuesday’s market **drubbing** to buy more shares of a high-quality holding. -  
 Don't **scant** the butter when you make a cake. -  
 Not to **belabor** the point, but we're running out of time. -  
-How does the British **monarchy**’s line of succession work? -  
 One gets unsettled, depressed, and inclined to be **querulous**. -  
 I had been operating under the assumption that my crush was **unrequited**. -  
 Good thing I look **spiffy** in a mustache. -  
-Unlike you, I do not have **exalted** ancestors, I make my living by trade. -  
 Endless narratives, metaphors and **allegories**. -  
 If we say we're going to swing from plus six to minus two, you know as well as I do that you'd have been carried out in a **gurney**. -  
 His palms were **excoriated** by the hard labor of shoveling. -  
@@ -46,7 +46,3 @@ Speaking of her love, has become a romantic **balderdash**. -
 I’ll write it down and think of it when I can do so productively, but I’m no longer allowed to **wallow** in my past pain. -  
 He regarded the young man as **feckless** and irresponsible. -  
 We looked out upon a scene of **desolation** and ruin. -  
-
-## words-April.md ## 
-words/2022/words-April.md  
-What's all the **palaver** about? -  

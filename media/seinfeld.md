@@ -1,4 +1,6 @@
 
+Can't you switch for another **midget**?  
+So now, you're gonna keep going out with her for **spite**? -  
 
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
 He is a male **bimbo**. -  
