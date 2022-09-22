@@ -77,7 +77,7 @@ I can see her now and where she gets her **rugged handsomeness**.
 
 **Devil's in the details**.  
 Can you come to office wearing **negligee**?  
-The company can only go to hell **in a handbasket** with this **dead-cat bounce**. -  
+The company can only go to hell **in a handbasket** with this **dead-cat bounce**.   
 I don't believe it's either merely **picayune** or **inappropriate** to point out Ellen/Elliot who is quite good actor/actress, is also a ritual model for emulation.   
 
 Still, it’s often enriched with extra nutrients, and whole-grain or sprouted varieties may **bestow** several health benefits.
