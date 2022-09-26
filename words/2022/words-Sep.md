@@ -1,8 +1,45 @@
 
-Indian residents living near a border region claimed by both Beijing and New Delhi have accused the Indian government of ceding part of the disputed territory to China.  
+I was **T-boned** on Custer Road between Renner and George Bush, immediately in front of Tom Thumb.  
 
-A favorite of Stoic philosophy, it is a reminder of the certainty and inescapability of death. It is not intended to be morbid or dark—but to clarify, illuminate, and inspire.  
+He felt **slighted**. He was in Michael's shadow.  
+he was really starting to **grate** the media **onslaught**.  
+Michael becomes **irate** and refuses to talk to the media.  
+people **build you up to tear you down**. It happens in sports all the time. If a team wins too much, you want them to lose.  
 
+If you weren't aware of these rapidly shifting monetary machinations, it's time to shuffle your media.  
+
+
+> The telecom sector offers a cautionary tale: When Voice-Over-Internet-Protocol (VOIP) was invented in 1995, most people disparaged it as a technology that couldn’t scale and wasn’t a threat to the telecom giants. 
+> “Money Over Internet Protocols” at scale are truly a threat to traditional banking because they enable money to move outside the traditional, antiquated payment rails.  
+
+At its pivotal juncture telecom was a heavily regulated industry, just like banking is today at its pivotal juncture.  
+**rear end**.  
+
+
+It that means that we are losers in the eyes of others, then **so be it**. 
+Being a loser isn't a bad thing in itself, it's what we **make of it**.  
+Don't wish to be a general, or a senator, or a consul, but to be free. And the only way to this, is a contempt of things not in our control. 
+
+
+> If a person **speaks ill of** you, it's either true, or false.  If it's true, then you should accept it as who you are.  If it's false, then accept them as foolish, and their opinion can be disregarded. 
+
+Our rational **faculty** enables us to **transcend** our brute, **animalistic** nature. So instead of being servant to our passion, we have the power to override them with reason.  
+
+A favorite of Stoic philosophy, it is a reminder of the certainty and **inescapability** of death. It is not intended to be **morbid** or dark—but to clarify, **illuminate**, and inspire.  
+
+
+Banks can **substantiate**, with **voluminous** data, that banking relationships are very sticky.  
+We’ll talk later about some of the fascinating **hybridization** of service which the industry has experimented with, which received a major **accelerant** when many branches were forced to temporarily close or limit services during the global pandemic. -  
+
+The 2015 Honda Fit comes in three **trims**: LX, EX, and EX-L. All three are good choices.  
+
+
+> Premeditatio Malorum: The Stoic Art of Negative Visualization
+
+
+The COVID-era period when passengers could **breeze** through airports is over, with customers suffering delays and overcrowding across the U.S.  
+
+Indian residents living near a border region claimed by both Beijing and New Delhi have accused the Indian government of **ceding** part of the disputed territory to China.  
 
 There are the obvious changes—a new life that takes **precedent** over my own, less sleep, and the increased importance of patience.  
 **frontload**
@@ -150,6 +187,8 @@ Good thing I look **spiffy** in a mustache.
 
 I mean, somebody asks me where is Israel, I don't **fly off the handle**.  
 
+It that means that we are losers in the eyes of others, then **so be it**. 
+Being a loser isn't a bad thing in itself, it's what we **make of it**.  
 
 
 ## Interesting 

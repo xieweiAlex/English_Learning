@@ -19,7 +19,7 @@ The news of his death produced an instant **outpouring** of grief.
 This is pretty much the farthest thing from a **fly-by-night** operation.  
 Modern applications are typically architected as distributed collections of microservices, with each collection of microservices performing some **discrete** business function.  
 
-Because Marie's first reaction is to **prevaricate**, I have a hard time believing anything she says. -  
+Because Marie's first reaction is to **prevaricate**, I have a hard time believing anything she says.   
 
 If you say that someone has **fire in their belly**, you are expressing approval of them because they are energetic, enthusiastic, and have very strong feelings.
 The Kremlin has already been making some serious **dough** from surging prices of its commodity exports, which have helped the government weather a continuous slew of hefty sanctions.  
@@ -33,7 +33,7 @@ As the war **drags out**, Ukraine is **beseeching** Western nations for heavy we
 Michael Jordan famously looked for any **slight** by another player to manufacture motivation, knowing it provides a tiny extra edge. He was maniacal about it, but the trick does work.  
 
 The highest **plaudit** Mr Jarre could give a director was that he was "entrusting", and left him to it. -  
-Shopify's shares have been **trounced** this year, falling almost 80% from their 52-week high. -  
+Shopify's shares have been **trounced** this year, falling almost 80% from their 52-week high.   
 
 Our **overarching** focus is using our tools to bring inflation back down to our 2 percent goal and to keep longer-term inflation expectations well **anchored**.  
 this seems to be **paradoxical**.  

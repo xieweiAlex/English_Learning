@@ -6,6 +6,7 @@ He is a male **bimbo**. -
 
 ## words-Sep.md ## 
 words/2022/words-Sep.md  
+We’ll talk later about some of the fascinating **hybridization** of service which the industry has experimented with, which received a major **accelerant** when many branches were forced to temporarily close or limit services during the global pandemic. -  
 Residents were **relegated** to watching it played on television, while **daydreaming** of a time when they too could play it live in the state that it originated from. -  
 Last week, we **culled** for you the top hacks on how to form good habits. Today, we're bringing you advice — from expert interviews and research studies — on how to **shed** the bad ones. -  
 In Texas, millions were **earmarked** for jail renovations, updates to police buildings and revenue replacement to cover staffing. -  
@@ -42,9 +43,7 @@ It’s also made with a **percale weave**, which means it’s super lightweight 
 ## words-June.md ## 
 words/2022/words-June.md  
 He asserted his innocence and his financial **probity**.  -  
-Because Marie's first reaction is to **prevaricate**, I have a hard time believing anything she says.   
 The highest **plaudit** Mr Jarre could give a director was that he was "entrusting", and left him to it. -  
-Shopify's shares have been **trounced** this year, falling almost 80% from their 52-week high.   
 And don't fall for the **slew** of "detox" or "weight loss" teas that are **peddled** on Instagram and Facebook. - 
 but we have reason to cool our **raging** motions , our **carnal** stings , our **unbitted** **lusts**. -  
 He had an unshakable **premonition** that he would die. -  

@@ -1,4 +1,10 @@
 
+**fickle**
+
+**slavish**
+
+**miraculous**
+
 **caution**
 
 **dismantling**
