@@ -1,4 +1,10 @@
 
+**fluidity**
+
+**sheer**
+
+**deterministic**
+
 **fickle**
 
 **slavish**

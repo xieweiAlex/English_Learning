@@ -1,4 +1,47 @@
 
+
+Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction. -  
+When our team first saw the green chicken, we were **giddy**. It wasn’t complicated – a colorized version of something rather **clip-arty** – but it was intuitively spot on.  
+Defeat at Guadalcanal put Japan on its back foot, a position from which it could not recover.  
+The veil of the Japanese Army’s supposed invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory.  
+
+> There are no solutions, there are trade offs. 
+
+The world's energy crunch is a battle between **platitudes** and physics.  
+
+
+To my **adoring** husband.  
+Who wouldn't like me in this **leotard**? I look amazing in this **leotard**. -  
+Bottle wipe **supersedes** it.  
+
+Leather **vinyl** interior. -   
+**Argentine** **lineage**. -  
+
+The president **abrogated** an old law.  
+How to make sense of Xi Jinping, China’s **enigmatic** ruler. -  
+You would never call a banana "an **elongated** yellow fruit," or say "**prevaricate**" when a friend is lying.   
+
+**Sizzle** Or **Fizzle**?  
+In contrast, the U.S. central bank is **steadfast** in its mission to stamp out inflation.  
+**Barring** China (and possibly India), things haven't quite materialized, but some say that could make a country like Brazil attractive given its current valuation.  
+
+> They’re not wrong on purpose, he might say, they’re just **cut off from truth**. 
+
+**Scratch the surface**. 
+
+> It was a moment of collective grief and anger, with a heavy dose of shame, guilt and despair. 
+
+In the recent past, Chinese officials have been **leery of** letting the yuan cross the 7-per-dollar threshold, only doing so in periods of intense stress like the Trump trade war and the early COVID days. -
+
+**on the pedestal**.  
+**hot water** 
+
+The Bitcoin notion I suppose in some sense is you have an **unerring** marker for that now. -  
+The U.S. dollar (USDOLLAR) is **on the back foot** Tuesday morning, but the move down looks more like a one-day reprieve after the jump in the previous session and greenback strength is expected to continue. 
+What a great meetup last night. We know we have the right topic when the audience quickly begins asking questions and they never **let up**.  
+
+If your car is a **clunker**, it might be time to drop collision and comprehensive insurance, which pay for damage to your vehicle.  
+
 I was **T-boned** on Custer Road between Renner and George Bush, immediately in front of Tom Thumb.  
 
 He felt **slighted**. He was in Michael's shadow.  

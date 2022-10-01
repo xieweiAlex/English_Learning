@@ -3,7 +3,7 @@ Can't you switch for another **midget**?
 So now, you're gonna keep going out with her for **spite**? -  
 
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
-He is a male **bimbo**. -  
+He is a male **bimbo**.   
 **Horning in** my rock climbing trip today.  
 He asked me. - You put him **on the spot**.  
 
