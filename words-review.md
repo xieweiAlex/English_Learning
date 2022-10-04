@@ -1,11 +1,17 @@
 ## seinfeld.md ## 
-media/seinfeld.md  
+media/seinfeld.md
 So now, you're gonna keep going out with her for **spite**? -  
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
-He is a male **bimbo**. -  
 
 ## words-Sep.md ## 
-words/2022/words-Sep.md  
+words/2022/words-Sep.md
+Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction. -  
+Who wouldn't like me in this **leotard**? I look amazing in this **leotard**. -  
+Leather **vinyl** interior. -   
+**Argentine** **lineage**. -  
+How to make sense of Xi Jinping, China’s **enigmatic** ruler. -  
+The Bitcoin notion I suppose in some sense is you have an **unerring** marker for that now. -  
+If you weren't aware of these rapidly shifting monetary **machinations**, it's time to shuffle your media. -  
 We’ll talk later about some of the fascinating **hybridization** of service which the industry has experimented with, which received a major **accelerant** when many branches were forced to temporarily close or limit services during the global pandemic. -  
 Residents were **relegated** to watching it played on television, while **daydreaming** of a time when they too could play it live in the state that it originated from. -  
 Last week, we **culled** for you the top hacks on how to form good habits. Today, we're bringing you advice — from expert interviews and research studies — on how to **shed** the bad ones. -  
