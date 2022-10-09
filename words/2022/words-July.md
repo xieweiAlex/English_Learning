@@ -70,7 +70,7 @@ As bananas **ripen**, they produce and release ethylene gas, which causes the ye
 
 His old man left him **high and dry** and soaking wet.  
 
-The news was a win for the EV maker, which over the last two years has experienced executive departures, an SEC probe, and investor skepticism, resulting in a **paltry** stock performance since it went public via SPAC in 2020. -  
+The news was a win for the EV maker, which over the last two years has experienced executive departures, an SEC probe, and investor skepticism, resulting in a **paltry** stock performance since it went public via SPAC in 2020.   
 
 Capitol Police said 35 people were arrested for "Crowding, **Obstructing** or **Incommoding**," including 17 members of Congress. -  
 I can see her now and where she gets her **rugged handsomeness**. 
@@ -81,7 +81,7 @@ The company can only go to hell **in a handbasket** with this **dead-cat bounce*
 I don't believe it's either merely **picayune** or **inappropriate** to point out Ellen/Elliot who is quite good actor/actress, is also a ritual model for emulation.   
 
 Still, it’s often enriched with extra nutrients, and whole-grain or sprouted varieties may **bestow** several health benefits.
-May **trample** over those who are weaker-willed. -  
+May **trample** over those who are weaker-willed.   
 
 The **jubilation** that many Chinese nationalist netizens expressed over last week's assassination of former Japanese Prime Minister Shinzo Abe underscores the depth of anti-Japan sentiment in China.  
 The Chinese government distanced itself from the online **revelry**.  

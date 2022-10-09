@@ -1,4 +1,16 @@
 
+**expedient**
+
+**virtuous**
+
+**cordial**
+
+**enduring**
+
+**supersede**
+
+## Sep 
+
 **fluidity**
 
 **sheer**

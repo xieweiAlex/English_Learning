@@ -16,7 +16,7 @@ Because it’s easy to imagine our heroes as **unflappable** **juggernauts**, wh
 Adrian believes that many of the green-energy mandates and goals are **overly** ambitious.  
 
 10 **commandments** of work success.   
-Study deeply: Master the tiny details and **panoramic** context of your profession. -  
+Study deeply: Master the tiny details and **panoramic** context of your profession.   
 Study **thyself**: Be **clear-eyed** about your gifts and flaws. It’s the only path to **betterment**.
 Federal Reserve Chair Jerome Powell’s tough-talking speech signals the Fed is nowhere near **relenting** on interest rate increases. 
 
@@ -89,7 +89,7 @@ His **gruff** exterior concealed one of the kindest hearts
 Did you throw yourself a big **shindig**?
 **smudge**  
 
-I was happy enough to **laze** about on the beach. -  
+I was happy enough to **laze** about on the beach.   
 I'm her Uber driver, your nanny still in the car. She **dozed off** on the way here.  
 This comes in **full cycle**. 
 
@@ -118,7 +118,7 @@ So the next time you’re craving candy or sweets, consider **munching** on some
 
 We never saw a reduction in government **outlays** since 70s.  
 Insults alone cannot **defile** a person's honor. -
-The air in the garden was warm and **fragrant**. - 
+The air in the garden was warm and **fragrant**.   
 
 Well, get **pissy** if you want mom, I've enjoyed the time we've had as a family.   
 

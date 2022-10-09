@@ -1,29 +1,79 @@
 
+if they're onboard.  
+Justice: do no harm 
+you can't be slave to it.  
+
+Do no harm 
+consent 
+
+
+**my way or the highway**.  
+
+And they insisted on **throwing** a party in my honor.  
+It's **horrendous**, but it is also **magnificent**. Something look forward to?  
+
+**food for thought**
+**punt** v 
+**tailor**  
+
+
+I don't think there's any such thing as the ability to easily (use) a tactical nuclear weapon and not end up with **Armageddon**."  
+I'm trying to figure out: what is Putin's **off-ramp**? Where does he find a way out?  
+
+Monthly job gains have slowed from the **breakneck pace** that defined the pandemic recovery.  
+Financial markets **portend** trouble. Where will the cracks appear?  
+
+
+Fauci said it would "be a bit **cavalier** to all of a sudden say we're completely through with" the pandemic. 
+Twitter's board is considering Musk's offer, but is taking its time to reply because of fears that it could be a legal **ploy**.  
+
+
+This occasions what industry calls “**truck rolls**”, which is the activity where an expensive human gets in an expensive piece of movable capital for a few hours.  
+Although this was **obliquely** phrased, the big two were poor decisionmaking on behalf of Russia (invading Ukraine) and Europe generally (being fundamentally unserious about power policy), leading to **ripples** that would affect the price of inputs to many participants in the Japanese grid. -  
+This would have the **knock-on effect** of potentially bringing down the grid when salarymen get home from work and turn on their air conditioners.  
+**CapEx**: capital **expenditures**
+**Long gone are the days** of **austerity** conversations, the Tea Party movements or the **balanced budget** talk that made some political brownie points.  
+One **expletive-laden** stat to go.  -  
+
+that's not a **knock**.  
+Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice. -  
+
+It doesn't matter if your nose is little **bulbous**, or your eyes are too close together, or your chest is **flabby**, you're who you are.  
+**throw** a party  
+
+I am not sure I want to be **looking over my shoulder** for half the year.  
+
+**Percetptive** 
+Why it matters: This would **preempt** a trial that had been scheduled for October, tied to Musk’s efforts to walk away from his original acquisition agreement. -  
+Don’t let database **drudgery** eat up your coding time. -  
+
+That's **appalling** and **malevolent**.  
+
+Abbott and O'Rourke **square off**.  
+Accusing the governor of callousness, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
 
 Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction. -  
 When our team first saw the green chicken, we were **giddy**. It wasn’t complicated – a colorized version of something rather **clip-arty** – but it was intuitively spot on.  
-Defeat at Guadalcanal put Japan on its back foot, a position from which it could not recover.  
-The veil of the Japanese Army’s supposed invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory.  
+Defeat at Guadalcanal put Japan on its **back foot**, a position from which it could not recover.  
+The **veil** of the Japanese Army’s **supposed** invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory. -  
+
+## Week 4,5
 
 > There are no solutions, there are trade offs. 
 
 The world's energy crunch is a battle between **platitudes** and physics.  
 
-
-To my **adoring** husband.  
-Who wouldn't like me in this **leotard**? I look amazing in this **leotard**. -  
-Bottle wipe **supersedes** it.  
-
-Leather **vinyl** interior. -   
-**Argentine** **lineage**. -  
+Leather **vinyl** interior.   
+**Argentine** **lineage**.   
 
 The president **abrogated** an old law.  
-How to make sense of Xi Jinping, China’s **enigmatic** ruler. -  
+How to make sense of Xi Jinping, China’s **enigmatic** ruler.   
 You would never call a banana "an **elongated** yellow fruit," or say "**prevaricate**" when a friend is lying.   
 
 **Sizzle** Or **Fizzle**?  
 In contrast, the U.S. central bank is **steadfast** in its mission to stamp out inflation.  
 **Barring** China (and possibly India), things haven't quite materialized, but some say that could make a country like Brazil attractive given its current valuation.  
+
 
 > They’re not wrong on purpose, he might say, they’re just **cut off from truth**. 
 
@@ -49,19 +99,19 @@ he was really starting to **grate** the media **onslaught**.
 Michael becomes **irate** and refuses to talk to the media.  
 people **build you up to tear you down**. It happens in sports all the time. If a team wins too much, you want them to lose.  
 
-If you weren't aware of these rapidly shifting monetary machinations, it's time to shuffle your media.  
+If you weren't aware of these rapidly shifting monetary **machinations**, it's time to shuffle your media.   
 
 
 > The telecom sector offers a cautionary tale: When Voice-Over-Internet-Protocol (VOIP) was invented in 1995, most people disparaged it as a technology that couldn’t scale and wasn’t a threat to the telecom giants. 
 > “Money Over Internet Protocols” at scale are truly a threat to traditional banking because they enable money to move outside the traditional, antiquated payment rails.  
 
-At its pivotal juncture telecom was a heavily regulated industry, just like banking is today at its pivotal juncture.  
+At its pivotal **juncture** telecom was a heavily regulated industry, just like banking is today at its pivotal juncture.  
 **rear end**.  
 
 
 It that means that we are losers in the eyes of others, then **so be it**. 
 Being a loser isn't a bad thing in itself, it's what we **make of it**.  
-Don't wish to be a general, or a senator, or a consul, but to be free. And the only way to this, is a contempt of things not in our control. 
+Don't wish to be a general, or a senator, or a **consul**, but to be free. And the only way to this, is a **contempt of things not in our control**. 
 
 
 > If a person **speaks ill of** you, it's either true, or false.  If it's true, then you should accept it as who you are.  If it's false, then accept them as foolish, and their opinion can be disregarded. 
@@ -99,7 +149,7 @@ The West has called out the referendums, set to be held between Sept. 23-27, as 
 Sorry broke **bigot**.  
 Residents were **relegated** to watching it played on television, while **daydreaming** of a time when they too could play it live in the state that it originated from. -  
 
-Last week, we **culled** for you the top hacks on how to form good habits. Today, we're bringing you advice — from expert interviews and research studies — on how to **shed** the bad ones. -  
+Last week, we **culled** for you the top hacks on how to form good habits. Today, we're bringing you advice — from expert interviews and research studies — on how to **shed** the bad ones.   
 
 ## Week 3 
 
@@ -126,7 +176,7 @@ Instead, **modulate** — and moderate — your reactions in tense times.
 People are sometimes **leery of** the idea of purchasing a car with a rebuilt title, but there are specific laws in place to prevent most problems.  
 It's nice to have someone you can **offload** your problems onto.
 
-We’re using Tuesday’s market **drubbing** to buy more shares of a high-quality holding. -  
+We’re using Tuesday’s market **drubbing** to buy more shares of a high-quality holding.   
 when I was younger I would play this song literally every day. Still a **banger** to this day
 The monarchy’s secret weapon: **insincerity**.  
 
@@ -134,7 +184,7 @@ Work-from-anywhere is a gift. I've found new hobbies, and I live a far more **we
 We may have discussed the idea of 'Sleeping Intuitives' and the possibility that the **oft-cited** 25% of the population being intuitive types is a severe **undercount**.  
 
 **Dragnet**: Chinese **transnational** policing **gone wild** (Safeguard Defenders).  
-Don't **scant** the butter when you make a cake. -  
+Don't **scant** the butter when you make a cake.   
 You’re **teetering** on the line of what’s acceptable in this office.  
 Not to **belabor** the point, but we're running out of time. -  
 
@@ -182,7 +232,7 @@ Unlike you, I do not have **exalted** ancestors, I make my living by trade.
 
 ## Week 1 
 
-Endless narratives, metaphors and **allegories**. -  
+Endless narratives, metaphors and **allegories**.   
 
 > I don't like the odds 
 
@@ -215,7 +265,7 @@ Kate's new boyfriend is a very **couth** youth.
 The relics were objects of **veneration**. 
 
 The village **seethed** with life. 
-Water **seethed** in the **caldron**. -  
+Water **seethed** in the **caldron**.   
 The **antipode** of love is hatred. 
 The British charachter is often said to be **phlegmatic**.  
 The four temperaments are: **choleric**, melancholic, **phlegmatic** and sanguine.  
@@ -233,7 +283,24 @@ I mean, somebody asks me where is Israel, I don't **fly off the handle**.
 It that means that we are losers in the eyes of others, then **so be it**. 
 Being a loser isn't a bad thing in itself, it's what we **make of it**.  
 
+It doesn't matter if your nose is little **bulbous**, or your eyes are too close together, or your chest is **flabby**, you're who you are.  
+Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice. -  
+
+
+### Oct 
+That's **appalling** and **malevolent**.  
+I am not sure I want to be **looking over my shoulder** for half the year.  
+
+No, it was **spur of the moment**.  
+
+### Grammar
+**I can pay for it** vs **I'm happy to pay it**. 
+**If I were to move out**, I will give you at least 30 days notice ahead. 
+
 
 ## Interesting 
+
+Defeat at Guadalcanal put Japan on its **back foot**, a position from which it could not recover.  
+The **veil** of the Japanese Army’s **supposed** invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory.  
 
 

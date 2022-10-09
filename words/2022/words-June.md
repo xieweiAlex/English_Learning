@@ -157,7 +157,7 @@ Not as **loquacious** as you.
 
 The water was full of **flotsam** and refuse.  
 You have no reason to be **apprehensive** of the future.  
-We looked out upon a scene of **desolation** and ruin. -  
+We looked out upon a scene of **desolation** and ruin.   
 
 ## Conversation  
 

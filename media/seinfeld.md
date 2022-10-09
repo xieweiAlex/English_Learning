@@ -1,4 +1,19 @@
 
+I'm **swamped**.  
+what am I supposed to do with all this **paella**? -  
+**you don't say**.  
+But he's afraid to fly alone. You know, he is kind of **withdrawn**.  
+No, it was **spur of the moment**.  
+**corned beef**.  
+He's **ripping you off**.  
+This will hardly put a dent in my **fumigation** bill.  
+It's an orgiastic feast for the senses, a **wanton** festival of sights, sounds and colors.  
+Because his **moth**, you don't buy my raincoat?  
+
+To my **adoring** husband.   
+Who wouldn't like me in this **leotard**? I look amazing in this **leotard**. -  
+Bottle wipe **supersedes** it.  
+
 Can't you switch for another **midget**?  
 So now, you're gonna keep going out with her for **spite**? -  
 

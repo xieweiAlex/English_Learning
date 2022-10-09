@@ -129,7 +129,6 @@ Nothing **shady** or **underhanded**.
 
 **sentimental**
 
-The president **abrogated** an old law.  
 **congenial neighbors**, **congenial tastes**  
 She exhorts me to accept that new position although that position reward is not **munificent**.  
 Mord's strap **licked out**, but it was a halfhearted, **desultory swing**, slow and **contemptuous**.  
