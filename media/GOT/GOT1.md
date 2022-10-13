@@ -1,4 +1,22 @@
 
+
+Everyone's well **aware** of your **enduring fondness** for Lord Stark's wife.  
+I saw you **escorting** a certain foreign **dignitary**.  
+Turning right loyalty to the **realm**.  
+I'm not a **beggar**, I live here.  
+Do you want a **smack** on your ear to help you with your **hearing**?  
+Where did you hear this?  - In the **dungeons**.  
+**dungeons and dragons**  
+The **Eyrie**. The say it's **impregnable**.  
+Is that **plain** enough for you?  
+You'll **dishonor** yourself forever if you do this.  
+You want to **assassinate** a girl, because the Spider heard a rumor?  
+I understand your **misgivings**, my lord.  
+It's a terrible thing, we must consider, a **vile thing**.  
+I **bear** this girl no **ill will**,  
+The man I grew up with didn't **tremble** at the shadow of an **unborn** child.  
+
+
 ## GOT  
 Give us beer before I **skin** you.  
 I'll **shove** that stick up your **bunghole** and fuck you bloody.  

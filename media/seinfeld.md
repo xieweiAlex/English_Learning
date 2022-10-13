@@ -7,7 +7,7 @@ No, it was **spur of the moment**.
 **corned beef**.  
 He's **ripping you off**.  
 This will hardly put a dent in my **fumigation** bill.  
-It's an orgiastic feast for the senses, a **wanton** festival of sights, sounds and colors.  
+It's an **orgiastic** feast for the senses, a **wanton** festival of sights, sounds and colors. -  
 Because his **moth**, you don't buy my raincoat?  
 
 To my **adoring** husband.   

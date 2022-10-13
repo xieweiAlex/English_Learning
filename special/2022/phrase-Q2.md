@@ -1,4 +1,5 @@
 
+**short end of stick**
 
 Nothing confrontational. Just two adults sitting down, trying to **clear the air**.  
 I've never met your sister, but obviously these are no **hard-and-fast** rules.  

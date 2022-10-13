@@ -289,23 +289,7 @@ Is it true that Ser Marlon of Tumblestone prefers **amputees**?
 And I heard the most **awful** rumor about a certain lord with a taste of fresh **cadaver**.  
 **Strictly speaking**, such a thing would not be **in accordance with** the King's laws.  
    
-Everyone's well **aware** of your **enduring fondness** for Lord Start's wife.  
-I saw you **escorting** a certain foreign **dignitary**.  
-Turning right loyalty to the **realm**.  
-I'm not a **beggar**, I live here.  
-Do you want a **smack** on your ear to help you with your **hearing**?  
-Where did you hear this?  - In the **dungeons**.  
-**dungeons and dragons**  
-The **Eyrie**. The say it's **impregnable**.  
-Is that **plain** enough for you?  
-You'll **dishonor** yourself forever if you do this.  
-You want to **assassinate** a girl, because the Spider heard a rumor?  
-I understand your **misgivings**, my lord.  
-It's a terrible thing, we must consider, a **vile thing**.  
-I **bear** this girl no **ill will**,  
-The man I grew up with didn't **tremble** at the shadow of an **unborn** child.  
-   
-   
+
 Yeah, you would be an ideal Apple employee for about few weeks @Andy, until others in the "**congregation**" learn about your lack of faith  
 
    

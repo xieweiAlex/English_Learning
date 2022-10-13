@@ -1,17 +1,21 @@
 ## seinfeld.md ## 
 media/seinfeld.md  
 what am I supposed to do with all this **paella**? -  
+It's an **orgiastic** feast for the senses, a **wanton** festival of sights, sounds and colors. -  
 Who wouldn't like me in this **leotard**? I look amazing in this **leotard**. -  
 So now, you're gonna keep going out with her for **spite**? -  
 Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
 
 ## words-Sep.md ## 
 words/2022/words-Sep.md  
+**sapient** (adjective: possessing wisdom or **discernment**, or appearing to). -  
+Sacrifices were made to **propitiate** the gods. -  
 Although this was **obliquely** phrased, the big two were poor decisionmaking on behalf of Russia (invading Ukraine) and Europe generally (being fundamentally unserious about power policy), leading to **ripples** that would affect the price of inputs to many participants in the Japanese grid. -  
 One **expletive-laden** stat to go.  -  
+Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice. -  
 Why it matters: This would **preempt** a trial that had been scheduled for October, tied to Musk’s efforts to walk away from his original acquisition agreement. -  
 Don’t let database **drudgery** eat up your coding time. -  
-Accusing the governor of callousness, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
+Accusing the governor of **callousness**, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
 Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction. -  
 The **veil** of the Japanese Army’s **supposed** invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory. -  
 The Bitcoin notion I suppose in some sense is you have an **unerring** marker for that now. -  
@@ -21,6 +25,8 @@ In Texas, millions were **earmarked** for jail renovations, updates to police bu
 But we make our worst, impulsive, **foggy** decisions when our emotional RPMs are always **redlining**. -  
 Not to **belabor** the point, but we're running out of time. -  
 One gets unsettled, depressed, and inclined to be **querulous**. -  
+I had been operating under the assumption that my crush was **unrequited**. -  
+Good thing I look **spiffy** in a mustache. -  
 If we say we're going to swing from plus six to minus two, you know as well as I do that you'd have been carried out in a **gurney**. -  
 His palms were **excoriated** by the hard labor of shoveling. -  
 

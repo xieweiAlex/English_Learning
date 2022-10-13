@@ -1,12 +1,25 @@
 
-if they're onboard.  
-Justice: do no harm 
-you can't be slave to it.  
-
-Do no harm 
-consent 
+**sapient** (adjective: possessing wisdom or **discernment**, or appearing to). -  
 
 
+
+Across the pond, the message from Fed officials isn't **wavering** from the hawkish stance. 
+Sacrifices were made to **propitiate** the gods. -  
+
+Ben Bernanke, the former chairman of the Federal Reserve, said that the U.S. economy, which is showing signs of cooling amid the central bank's aggressive interest-rate hiking campaign, is "certainly not in anything like the dire **straits** we were in" during the 2008 Great Financial Crisis.  
+Some weight rooms definitely **give off** a **gym bro vibe**, complete with grunting and crashing ironwork.  
+
+He took such **umbrage** at a guy saying, "Nice game, Mike."  
+
+## Week 1 
+
+if they're **onboard**.  
+You can't be **slave** to it.  
+
+**Do no harm** 
+**consent** 
+
+in **Layman's term**.  
 **my way or the highway**.  
 
 And they insisted on **throwing** a party in my honor.  
@@ -50,7 +63,7 @@ Don’t let database **drudgery** eat up your coding time. -
 That's **appalling** and **malevolent**.  
 
 Abbott and O'Rourke **square off**.  
-Accusing the governor of callousness, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
+Accusing the governor of **callousness**, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
 
 Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction. -  
 When our team first saw the green chicken, we were **giddy**. It wasn’t complicated – a colorized version of something rather **clip-arty** – but it was intuitively spot on.  
@@ -280,16 +293,17 @@ Good thing I look **spiffy** in a mustache.
 
 I mean, somebody asks me where is Israel, I don't **fly off the handle**.  
 
-It that means that we are losers in the eyes of others, then **so be it**. 
+If that means that we are losers in the eyes of others, then **so be it**. 
 Being a loser isn't a bad thing in itself, it's what we **make of it**.  
 
-It doesn't matter if your nose is little **bulbous**, or your eyes are too close together, or your chest is **flabby**, you're who you are.  
-Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice. -  
 
 
 ### Oct 
 That's **appalling** and **malevolent**.  
 I am not sure I want to be **looking over my shoulder** for half the year.  
+
+It doesn't matter if your nose is little **bulbous**, or your eyes are too close together, or your chest is **flabby**, you're who you are.  
+Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice.   
 
 No, it was **spur of the moment**.  
 
