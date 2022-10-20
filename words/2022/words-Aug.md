@@ -51,8 +51,6 @@ a **bombastic**, crazy guy.
 
 These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
 
-By mid-November Crowhurst began **loitering** in the south Atlantic, drifting in circles in calm water.  
-If he did the media and judges would scrutinize his logs and uncover the deception, whereas no one cares about the **runner-up**.  
 I have no need to **prolong** the game … It has been a good game that must be ended.  
 
 Not a **sphere** of influence, but a sphere of **insulation** around his own poorly run **shambolic** nation, sphere of insulation from himself.  
@@ -80,7 +78,7 @@ You are **drawn to** the new, novel, and original.
 You find yourself agreeing with those who claim that **the ends justify the means**.  
 If you describe a person or place as **seedy**, you disapprove of them because they look dirty and untidy, or they have a bad reputation.
 
-You may be described as **ditzy** or **scatterbrained**. -  
+You may be described as **ditzy** or **scatterbrained**.   
 You are **unnerved** by uncertainty and the unknown.  
 
 I can't keep up this clever **charade** any longer.   

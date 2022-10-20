@@ -1,4 +1,8 @@
 
+Neo, if you're there, **I could use some help**.  
+
+> If you're good at something, never do it for free.  
+
 **short end of stick**
 
 Nothing confrontational. Just two adults sitting down, trying to **clear the air**.  

@@ -7,17 +7,17 @@ No, it was **spur of the moment**.
 **corned beef**.  
 He's **ripping you off**.  
 This will hardly put a dent in my **fumigation** bill.  
-It's an **orgiastic** feast for the senses, a **wanton** festival of sights, sounds and colors. -  
+It's an **orgiastic** feast for the senses, a **wanton** festival of sights, sounds and colors.   
 Because his **moth**, you don't buy my raincoat?  
 
 To my **adoring** husband.   
-Who wouldn't like me in this **leotard**? I look amazing in this **leotard**. -  
+Who wouldn't like me in this **leotard**? I look amazing in this **leotard**.   
 Bottle wipe **supersedes** it.  
 
 Can't you switch for another **midget**?  
-So now, you're gonna keep going out with her for **spite**? -  
+So now, you're gonna keep going out with her for **spite**?   
 
-Cause I will never forget that **flinty** voice. It is **tattooed in my brain**. -  
+Cause I will never forget that **flinty** voice. It is **tattooed in my brain**.   
 He is a male **bimbo**.   
 **Horning in** my rock climbing trip today.  
 He asked me. - You put him **on the spot**.  

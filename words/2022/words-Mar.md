@@ -30,7 +30,6 @@ In a **performant** way with **low overhead**.
 Not only would the claim be the biggest among airplane **lessors**, but it could be one of the largest single claims ever submitted. 
 AerCap has only managed to **repossess** 22 aircraft and three engines located in Russia, out of a total of 135 planes and 14 engines on lease in the country.  
 
-Their much **vaunted** reforms did not materialize.  
 insurance **indemnity**.  
 
 > The Humorous contest will be first (I am contestant #5) followed by the International Speech contest.

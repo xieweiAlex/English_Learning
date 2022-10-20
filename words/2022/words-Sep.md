@@ -1,13 +1,83 @@
 
+Lavatories are for paying customers only.  
+Looks like somebody got bludgeoned with a happy club.  
+Holy shit, it's that kid who narced on me about a train crash I caused.  
+Is this the payback for the time I had relations with your full-sized sister?  
+Should I have, I don't know, blurted it out at a wedding?  
+I taught you the fake crying bit, it doesn't work on me.  
+
+I have to stop them from being so chummy.  
+To drive my snotty kids to the grocery store, 
+
+
+
+Their much **vaunted** reforms did not materialize.  
+rote memorization.  
+
+
+Jane was **dreading** the party.  
+Many people suffer from a great **dread of heights**.  
+
+> Breakthrough moments are often the result of many previous actions, which **build up** the potential required to unleash a major change.  
+
+That **icky** substance is called **honeydew**, a sugary liquid **excreted** by **aphids**, an insect the size of a **pinhead** that **feeds on** tree leaves.
+
+
+## Week 2 
+
+My **menopause** experience was a **tsunami** of **batshit** crazy –– mostly because I didn't know what was happening.
+Auditing Chinese companies has been one of several **flashpoints** between Washington and Beijing. -  
+
+The **vagary** of absolute. -  
+
+
+My belief is that Apple has **eschewed** another event because of the fairly **ordinary** nature of the announcements. -  
+
+
+The last group of **delinquents** we had didn't do so well.  
+
+I will give you one thousand dollars if you **call these things off**.  
+No fighting. I'll summon the **constable**. -  
+
+You can definitely switch from D to S while driving, just don't do it while **pedal to the floor**.  
+
+It's **water under the bridge**.  
+
+The true story of a man who committed a **heinous** murder, was sentenced to death, used his media connections to **sweet talk** his way to **parole**, then after being released immediately committed another violent crime.  
+
+
+They would orchestrate a media frenzy, portraying Crowhurst as a sailing **savant**. And if Crowhurst didn’t finish, he would owe all the money back.  
+His boat, the Electron, had been so heavily modified, so **weighed down** with half-finished **gizmos** and **gimmicks**, that it was barely **seaworthy** for a short sail near home, **let alone** a solo trip around the globe.  
+He **broke down in tears** in front of his wife the night before he left.  
+
+By mid-November Crowhurst began **loitering** in the south Atlantic, drifting in circles in calm water.  
+If he did the media and judges would scrutinize his logs and uncover the deception, whereas no one cares about the **runner-up**.  
+He had **presumably** thrown himself into the sea.  
+that’s the Monster, **trampling** the soul of men … returning to [England] feels like returning to nowhere.  
+In a **twist of irony**, Tahiti was so far out of the way and required so much backtracking that, despite dropping out of the race, Moitessier did circle the globe.  
+But I also know there’s a strong natural desire for internal measures – being independent, following your **quirky** habits, and doing what you want, when you want, with whom you want. That’s what people actually want.  
+
+Grab **Confections** & Drinks, Introduce & Welcome.  
+there is a **myriad** of different possibilities  
+
+
+**avowal**
+
+Eggs that have gone bad will **give off** an unmistakable smell, regardless of whether they are raw or cooked.
+
+Bulls **stampeded** back onto Wall Street yesterday, inspiring a stock market comeback for the ages.   
+For now, we're willing to **skate** with this risk, as the potential for this investment over the next several years remains so significant.   
+
 **sapient** (adjective: possessing wisdom or **discernment**, or appearing to). -  
 
+**go out of our way** to do things for you.  
 
 
 Across the pond, the message from Fed officials isn't **wavering** from the hawkish stance. 
 Sacrifices were made to **propitiate** the gods. -  
 
 Ben Bernanke, the former chairman of the Federal Reserve, said that the U.S. economy, which is showing signs of cooling amid the central bank's aggressive interest-rate hiking campaign, is "certainly not in anything like the dire **straits** we were in" during the 2008 Great Financial Crisis.  
-Some weight rooms definitely **give off** a **gym bro vibe**, complete with grunting and crashing ironwork.  
+Some weight rooms definitely **give off** a **gym bro vibe**, complete with grunting and crashing **ironwork**.  
 
 He took such **umbrage** at a guy saying, "Nice game, Mike."  
 
@@ -22,11 +92,11 @@ You can't be **slave** to it.
 in **Layman's term**.  
 **my way or the highway**.  
 
-And they insisted on **throwing** a party in my honor.  
+And they insisted on **throwing** a party **in my honor**.  
 It's **horrendous**, but it is also **magnificent**. Something look forward to?  
 
 **food for thought**
-**punt** v 
+**punt** as a verb
 **tailor**  
 
 
@@ -46,7 +116,7 @@ Although this was **obliquely** phrased, the big two were poor decisionmaking on
 This would have the **knock-on effect** of potentially bringing down the grid when salarymen get home from work and turn on their air conditioners.  
 **CapEx**: capital **expenditures**
 **Long gone are the days** of **austerity** conversations, the Tea Party movements or the **balanced budget** talk that made some political brownie points.  
-One **expletive-laden** stat to go.  -  
+One **expletive-laden** stat to go.    
 
 that's not a **knock**.  
 Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice. -  
@@ -58,7 +128,7 @@ I am not sure I want to be **looking over my shoulder** for half the year.
 
 **Percetptive** 
 Why it matters: This would **preempt** a trial that had been scheduled for October, tied to Musk’s efforts to walk away from his original acquisition agreement. -  
-Don’t let database **drudgery** eat up your coding time. -  
+Don’t let database **drudgery** eat up your coding time.   
 
 That's **appalling** and **malevolent**.  
 
@@ -167,7 +237,7 @@ Last week, we **culled** for you the top hacks on how to form good habits. Today
 ## Week 3 
 
 After a few days of **faux** fall, we're back to mid-90s all week. 
-In Texas, millions were **earmarked** for jail renovations, updates to police buildings and revenue replacement to cover staffing. -  
+In Texas, millions were **earmarked** for jail renovations, updates to police buildings and revenue replacement to cover staffing.   
 
 You may **inadvertently** communicate anxiety, frustration, or other discomfort when you present by exhibiting any of the following gestures.  
 Greatness, happiness, **contentment**…these things are what life can be. But only if we choose to experience them. Only if we slow down. Only if we show up and stay, in the moment.  
@@ -183,7 +253,7 @@ Males May Be More Susceptible to **Priming Effect** Than Females, Researcher say
 He's going out with an **empty-headed** **bimbo** half his age.  
 The S.E.C. May be **feckless**, but they're not incompetent.  
 
-But we make our worst, impulsive, **foggy** decisions when our emotional RPMs are always **redlining**. -  
+But we make our worst, impulsive, **foggy** decisions when our emotional RPMs are always **redlining**.   
 Instead, **modulate** — and moderate — your reactions in tense times.  
 
 People are sometimes **leery of** the idea of purchasing a car with a rebuilt title, but there are specific laws in place to prevent most problems.  
@@ -298,6 +368,7 @@ Being a loser isn't a bad thing in itself, it's what we **make of it**.
 
 
 
+
 ### Oct 
 That's **appalling** and **malevolent**.  
 I am not sure I want to be **looking over my shoulder** for half the year.  
@@ -306,6 +377,8 @@ It doesn't matter if your nose is little **bulbous**, or your eyes are too close
 Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice.   
 
 No, it was **spur of the moment**.  
+You can definitely switch from D to S while driving, just don't do it while **pedal to the floor**.  
+It's **water under the bridge**.  
 
 ### Grammar
 **I can pay for it** vs **I'm happy to pay it**. 
@@ -317,4 +390,5 @@ No, it was **spur of the moment**.
 Defeat at Guadalcanal put Japan on its **back foot**, a position from which it could not recover.  
 The **veil** of the Japanese Army’s **supposed** invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory.  
 
+His boat, the Electron, had been so heavily modified, so **weighed down** with half-finished **gizmos** and **gimmicks**, that it was barely **seaworthy** for a short sail near home, **let alone** a solo trip around the globe.  
 

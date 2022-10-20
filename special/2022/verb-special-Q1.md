@@ -1,4 +1,8 @@
 
+**punt**
+
+## Q3 
+
 **bounce** 
 
 **modulate**

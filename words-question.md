@@ -1,4 +1,6 @@
 
+* Stalwart vs adamant vs staunch 
+
 * quash vs quell 
 
 * Sea change

@@ -1,4 +1,12 @@
 
+**sidetrack**, **digress**, **derail** 
+
+**curveball**
+
+**ruminate**
+
+**shortcoming**
+
 **onboard** as adj
 
 **expedient**
@@ -14,12 +22,13 @@
 ## Sep 
 
 **fluidity**
-
+  
 **sheer**
 
 **deterministic**
 
 **fickle**
+**flicker**, **flickering** 
 
 **slavish**
 
