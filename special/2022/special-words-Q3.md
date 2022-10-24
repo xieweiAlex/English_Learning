@@ -1,4 +1,12 @@
 
+**diminishing return** 
+
+**ignorance**
+
+**full-fledged** 
+
+**chummy**
+
 **sidetrack**, **digress**, **derail** 
 
 **curveball**

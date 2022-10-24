@@ -1,4 +1,42 @@
 
+Let's go, captain **skin flick**.  
+Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**. -  
+Daddy says church is 58 minutes BS and 2 minutes of **shakedown**.  
+I'll be out in **pews**.  
+It's a metaphor, **numbnuts**!  
+It's an **inanimate** object, and it happens to mean a lot to me. And for your own **edification**, I didn't find where it gets. I'm done with that. -   
+I know you're pretty **torn up** about Alice.  
+Not your fucking father. - I'm drunk, not **concussed**. -  
+
+I shouldn't have called Frank a **balding** piece of shit.  
+Sue! You're fucking my **Sensei**? Does Frank knows about this?  
+
+
+**Lavatories** are for paying customers only.  
+Looks like somebody got **bludgeoned** with a happy club. -  
+Holy shit, it's that kid who **narced** on me about a train crash I caused.  
+Is this the **payback** for the time I had relations with your **full-sized** sister?  
+Should I have, I don't know, **blurted** it out at a wedding?  
+I taught you the **fake crying bit**, it doesn't work on me.  
+
+I have to stop them from being so **chummy**.  
+To drive my **snotty** kids to the grocery store, to get the fancy cranberries that I hate, jut to help her bring you two back together. -  
+Leave that alone, you hobo.  
+Alright, put your binky in the bowl, and come on in.  
+It's in the Talmud, and that's what I'm counting on.  
+We can discuss your future in smut over a Nicoise salad.  
+I'm all worked up.  
+Hope in, I'll give you a lift.  
+The impound lot's next to the slaughterhouse.  
+Being a slave must be zany.  
+
+> Don't let yourself become a **hostage of your past**.  
+That wound will **scab** and you'll want to pick it, till you get a bigger wound and a bigger scab.  
+
+Got forgives many sins, but not **arson**.  
+
+
+
 You're full of **shimmering** energy.  
 There will be a brief **intermission**.  
 Do you mean it? You better not be **joshing** me. Oh, we're gonna have fun, Frank.  
