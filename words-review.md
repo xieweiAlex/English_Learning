@@ -1,9 +1,19 @@
+## f-family.md ## 
+media/f-family.md  
+Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**. -  
+It's an **inanimate** object, and it happens to mean a lot to me. And for your own **edification**, I didn't find where it gets. I'm done with that. -   
+Not your fucking father. - I'm drunk, not **concussed**. -  
+Looks like somebody got **bludgeoned** with a happy club. -  
+To drive my **snotty** kids to the grocery store, to get the fancy cranberries that I hate, jut to help her bring you two back together. -  
+Leave that alone, you **hobo**. -  
+Being a slave must be **zany**. -  
+
 ## seinfeld.md ## 
 media/seinfeld.md  
-what am I supposed to do with all this **paella**? -  
+what am I supposed to do with all this **paella**?   
 
-## words-Sep.md ## 
-words/2022/words-Sep.md  
+## words-Oct.md ## 
+words/2022/words-Oct.md  
 Auditing Chinese companies has been one of several **flashpoints** between Washington and Beijing. -  
 The **vagary** of absolute. -  
 My belief is that Apple has **eschewed** another event because of the fairly **ordinary** nature of the announcements. -  
@@ -11,26 +21,16 @@ No fighting. I'll summon the **constable**. -
 **sapient** (adjective: possessing wisdom or **discernment**, or appearing to). -  
 Sacrifices were made to **propitiate** the gods. -  
 Although this was **obliquely** phrased, the big two were poor decisionmaking on behalf of Russia (invading Ukraine) and Europe generally (being fundamentally unserious about power policy), leading to **ripples** that would affect the price of inputs to many participants in the Japanese grid. -  
-Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice.   
+Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice. -  
 Why it matters: This would **preempt** a trial that had been scheduled for October, tied to Musk’s efforts to walk away from his original acquisition agreement. -  
 Accusing the governor of **callousness**, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
 Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction. -  
-The **veil** of the Japanese Army’s **supposed** invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory.   
-The Bitcoin notion I suppose in some sense is you have an **unerring** marker for that now. -  
-We’ll talk later about some of the fascinating **hybridization** of service which the industry has experimented with, which received a major **accelerant** when many branches were forced to temporarily close or limit services during the global pandemic.   
-Residents were **relegated** to watching it played on television, while **daydreaming** of a time when they too could play it live in the state that it originated from. -  
-Not to **belabor** the point, but we're running out of time. -  
-One gets unsettled, depressed, and inclined to be **querulous**. -  
-I had been operating under the assumption that my crush was **unrequited**. -  
-Good thing I look **spiffy** in a mustache. -  
-If we say we're going to swing from plus six to minus two, you know as well as I do that you'd have been carried out in a **gurney**. -  
-His palms were **excoriated** by the hard labor of shoveling. -  
+The **veil** of the Japanese Army’s **supposed** invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory. -  
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
 These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
 We'll get you that **preso** and Excel sheet tomorrow. -  
-Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring.   
 
 ## words-July.md ## 
 words/2022/words-July.md  

@@ -21,14 +21,14 @@ I taught you the **fake crying bit**, it doesn't work on me.
 
 I have to stop them from being so **chummy**.  
 To drive my **snotty** kids to the grocery store, to get the fancy cranberries that I hate, jut to help her bring you two back together. -  
-Leave that alone, you hobo.  
-Alright, put your binky in the bowl, and come on in.  
-It's in the Talmud, and that's what I'm counting on.  
-We can discuss your future in smut over a Nicoise salad.  
-I'm all worked up.  
-Hope in, I'll give you a lift.  
-The impound lot's next to the slaughterhouse.  
-Being a slave must be zany.  
+Leave that alone, you **hobo**. -  
+Alright, put your **binky** in the bowl, and **come on in**.  
+It's in the **Talmud**, and that's what I'm **counting on**.  
+We can discuss your future in **smut** over a Nicoise salad.  
+I'm all **worked up**.  
+Hop in, I'll give you a **lift**.  
+The **impound** lot's next to the **slaughterhouse**.  
+Being a slave must be **zany**. -  
 
 > Don't let yourself become a **hostage of your past**.  
 That wound will **scab** and you'll want to pick it, till you get a bigger wound and a bigger scab.  

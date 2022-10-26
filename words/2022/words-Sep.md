@@ -22,7 +22,7 @@ In contrast, the U.S. central bank is **steadfast** in its mission to stamp out 
 
 > It was a moment of collective grief and anger, with a heavy dose of shame, guilt and despair. 
 
-In the recent past, Chinese officials have been **leery of** letting the yuan cross the 7-per-dollar threshold, only doing so in periods of intense stress like the Trump trade war and the early COVID days. -
+In the recent past, Chinese officials have been **leery of** letting the yuan cross the 7-per-dollar threshold, only doing so in periods of intense stress like the Trump trade war and the early COVID days.   
 
 **on the pedestal**.  
 **hot water** 
@@ -127,7 +127,7 @@ We may have discussed the idea of 'Sleeping Intuitives' and the possibility that
 **Dragnet**: Chinese **transnational** policing **gone wild** (Safeguard Defenders).  
 Don't **scant** the butter when you make a cake.   
 You’re **teetering** on the line of what’s acceptable in this office.  
-Not to **belabor** the point, but we're running out of time. -  
+Not to **belabor** the point, but we're running out of time.   
 
 ## Week 2 
 
@@ -145,14 +145,14 @@ The recruiter said, “I have observed that Unix hackers **scowl** or become ann
 
 How does the British **monarchy**’s line of succession work?   
 
-In the **Middle Ages**, a favorite punishment was to **gouge out** a prisoner's eyes. -
+In the **Middle Ages**, a favorite punishment was to **gouge out** a prisoner's eyes.   
 A **jug** of whiskey.  
 **social fabric**.  
 
 It's **growing on** me.  
 **upper hand** 
 
-One gets unsettled, depressed, and inclined to be **querulous**. -  
+One gets unsettled, depressed, and inclined to be **querulous**.   
 
 Avoid company **bashing**. **Piling on** a former employer may only serve to **feed rumination** (thinking about all the "what-ifs"), or even fuel **self-bashing**.  
 

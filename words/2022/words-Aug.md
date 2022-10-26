@@ -97,7 +97,7 @@ He did a **stint** abroad early in his career.
 
 Love is **debauch** thing, people are frustrated can not play.   
 
-Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring. -  
+Wall Street saw a **stampede** of buyers on Wednesday, as signs of cooling inflation sent the major averages soaring.   
 Following a three-week trial and more than eight days of **deliberations**, two former JPMorgan (JPM) employees have been found guilty in a landmark case over futures market manipulation.  
 Sometimes I'd like to **chuck it all** and go fishing. 
 
