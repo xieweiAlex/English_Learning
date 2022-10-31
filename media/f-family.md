@@ -36,7 +36,6 @@ That wound will **scab** and you'll want to pick it, till you get a bigger wound
 Got forgives many sins, but not **arson**.  
 
 
-
 You're full of **shimmering** energy.  
 There will be a brief **intermission**.  
 Do you mean it? You better not be **joshing** me. Oh, we're gonna have fun, Frank.  

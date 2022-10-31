@@ -27,7 +27,7 @@ In the recent past, Chinese officials have been **leery of** letting the yuan cr
 **on the pedestal**.  
 **hot water** 
 
-The Bitcoin notion I suppose in some sense is you have an **unerring** marker for that now. -  
+The Bitcoin notion I suppose in some sense is you have an **unerring** marker for that now.   
 The U.S. dollar (USDOLLAR) is **on the back foot** Tuesday morning, but the move down looks more like a one-day reprieve after the jump in the previous session and greenback strength is expected to continue. 
 What a great meetup last night. We know we have the right topic when the audience quickly begins asking questions and they never **let up**.  
 
@@ -63,7 +63,7 @@ A favorite of Stoic philosophy, it is a reminder of the certainty and **inescapa
 
 
 Banks can **substantiate**, with **voluminous** data, that banking relationships are very sticky.  
-We’ll talk later about some of the fascinating **hybridization** of service which the industry has experimented with, which received a major **accelerant** when many branches were forced to temporarily close or limit services during the global pandemic. -  
+We’ll talk later about some of the fascinating **hybridization** of service which the industry has experimented with, which received a major **accelerant** when many branches were forced to temporarily close or limit services during the global pandemic.   
 
 The 2015 Honda Fit comes in three **trims**: LX, EX, and EX-L. All three are good choices.  
 
@@ -83,12 +83,12 @@ China’s rulers seem **resigned to** a slowing economy
 
 Stoicism is about “the **domestication** of emotions, not their elimination. - Nassim Taleb
 
-The West has called out the referendums, set to be held between Sept. 23-27, as **sham votes**, and compared them to the illegal one held in Crimea back in 2014. -
+The West has called out the referendums, set to be held between Sept. 23-27, as **sham votes**, and compared them to the illegal one held in Crimea back in 2014.   
 
 “Leisure and hobbies” is another **superfluity**.   
 
 Sorry broke **bigot**.  
-Residents were **relegated** to watching it played on television, while **daydreaming** of a time when they too could play it live in the state that it originated from. -  
+Residents were **relegated** to watching it played on television, while **daydreaming** of a time when they too could play it live in the state that it originated from.   
 
 Last week, we **culled** for you the top hacks on how to form good habits. Today, we're bringing you advice — from expert interviews and research studies — on how to **shed** the bad ones.   
 
@@ -158,14 +158,14 @@ Avoid company **bashing**. **Piling on** a former employer may only serve to **f
 
 Although honey **adulteration** is illegal in most countries, it remains a widespread problem.  
 
-I had been operating under the assumption that my crush was **unrequited**. -  
-Good thing I look **spiffy** in a mustache. -  
+I had been operating under the assumption that my crush was **unrequited**.   
+Good thing I look **spiffy** in a mustache.   
 Is it an **uplifting** experience for you up there in Washington?  
 I was expecting it being a **slog**.  
 
 You make a mistake, he's gonna scream at you, he's gonna **belittle** you. He demands almost perfection.  
 
-Splits, or “windows” in Vim **parlance**, are a foundational skill every Vim user must master. -
+Splits, or “windows” in Vim **parlance**, are a foundational skill every Vim user must master.   
 This **balsamic** comes from one of the oldest vinegar makers in Modena.  
 She led a **tranquil** life in the country.  
 **wiggle room** 
@@ -195,13 +195,13 @@ The **contour** of economical cycle.
 if you're still short, it could **rip your face off**.  
 The FED is following **contemporaneous** macroeconomic indicators like the unemployment rate or JOINT's job openings.  
 The CPI so much of it's **imputed**.  
-If we say we're going to swing from plus six to minus two, you know as well as I do that you'd have been carried out in a **gurney**. -  
+If we say we're going to swing from plus six to minus two, you know as well as I do that you'd have been carried out in a **gurney**.   
 
 
 do you know how sad it makes me to know that you only **braised** it to **boink** me? 
 Canete's mouth twisted in a **contemptuous** **sneer**.  
 They use opium as a sedative, rather than as a **narcotic**.  
-His palms were **excoriated** by the hard labor of shoveling. -  
+His palms were **excoriated** by the hard labor of shoveling.   
 Kate's new boyfriend is a very **couth** youth. 
 The relics were objects of **veneration**. 
 

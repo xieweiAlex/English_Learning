@@ -8,12 +8,11 @@ To drive my **snotty** kids to the grocery store, to get the fancy cranberries t
 Leave that alone, you **hobo**. -  
 Being a slave must be **zany**. -  
 
-## seinfeld.md ## 
-media/seinfeld.md  
-what am I supposed to do with all this **paella**?   
-
 ## words-Oct.md ## 
 words/2022/words-Oct.md  
+I’m a fan of anything sour, **tart**, and **tangy**, so with Kombucha, it was **love at first sip**. -  
+We **scouted** the postal office. -  
+It **behooves** me to inform you that you're fired. -  
 Auditing Chinese companies has been one of several **flashpoints** between Washington and Beijing. -  
 The **vagary** of absolute. -  
 My belief is that Apple has **eschewed** another event because of the fairly **ordinary** nature of the announcements. -  

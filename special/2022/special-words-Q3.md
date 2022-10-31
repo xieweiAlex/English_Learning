@@ -1,4 +1,8 @@
 
+**observant**
+
+**ambivalent**
+
 **diminishing return** 
 
 **ignorance**

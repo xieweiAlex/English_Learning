@@ -1,7 +1,55 @@
 
+## Week 4
+
+Love my Honda Fit! It’s **zippy**, easy to park, and great on gas. I have a ton of fun driving it around town 🚗.  
+
+The mayor is **in cahoots with** the **mobsters** trying to kill me.  
+I'm a man, and I don't **grovel** to rats. -  
+A clown that has to make a living, almost getting my guts smeared all over an airplane for a bunch of fucking **ghouls** with tiny little lives.  
+
+
+We would not want you to fall into a **manhole** or a **fountain**.  
+
+The challenge is navigating the “wash sale” rules **promulgated** by the Internal Revenue Service that nix buying back the same or “substantially identical” securities within 30 days of the sale.  
+
+Feynman was a very late talker—he didn't utter a word until he was three—but it was clear from a young age that he was extremely **observant** and intelligent.
+
+They're **incels**.  
+
+> This means the same old recommendations apply: get regular exercise, eat diverse and plant-based foods, sit less, **cut back on** alcohol, and get more sleep.
+
+CEO Mark Zuckerberg said in his typically **terse** initial earnings comment. "I appreciate the patience and I think that those who are patient and invest with us will end up being rewarded."
+
+In 1,000 parallel universes, you want to be wealthy in 999 of them. You don’t want to be wealthy in the fifty of them where you got lucky, so we want to **factor luck out of it**.
+If you are very skilled in a field, you will notice when a lucky break happens in your field, and other people who aren't **attuned to it** won’t notice. So, you become sensitive to luck.
+
+Rishi Sunak’s promise of stability is a low bar for Britain Reasons to be cheerful are **scant**.  
+
+
+As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  
+Stoicism is not, as Seneca said, a form of **self-flagellation**. It’s about responsibility and **sobriety**.  
+
+
+A **far cry** from its original targeted valuation.  
+**role player**.  
+
+I’m a fan of anything sour, **tart**, and **tangy**, so with Kombucha, it was **love at first sip**. -  
+Within that information, you get a **mosaic** what's working against what's not working.  
+
+
+Hey, **courier** on the back.  
+Right, so **round the back**.  
+
+We **scouted** the postal office. -  
+It **behooves** me to inform you that you're fired. -  
+
+The Biden administration last week announced new export restrictions aimed at **hobbling** China's ability to make advanced semiconductors.  
+
 Tucker Carlson **lashes out** at GOP campaign chief in **irate** private call.  
 
 **diminishing return** 
+
+? Send me his phone number vs Send his phone number to me 
 
 ## Week 3 
 
@@ -185,6 +233,10 @@ Thanks but I don't want to **stoop** to her level. If I can't win with the quali
 
 Now we give ourselves a shot on Monday to try and **tie this thing up**.  
 
+It **behooves** me to inform you that you're fired.  
+
+I'm a man, and I don't **grovel** to rats. -  
+
 ### Grammar
 **I can pay for it** vs **I'm happy to pay it**. 
 **If I were to move out**, I will give you at least 30 days notice ahead. 
@@ -193,3 +245,8 @@ Now we give ourselves a shot on Monday to try and **tie this thing up**.
 ## Interesting 
 His boat, the Electron, had been so heavily modified, so **weighed down** with half-finished **gizmos** and **gimmicks**, that it was barely **seaworthy** for a short sail near home, **let alone** a solo trip around the globe.  
 
+The Biden administration last week announced new export restrictions aimed at **hobbling** China's ability to make advanced semiconductors.  
+
+Feynman was a very late talker—he didn’t utter a word until he was three—but it was clear from a young age that he was extremely **observant** and intelligent.
+
+The challenge is navigating the “wash sale” rules **promulgated** by the Internal Revenue Service that nix buying back the same or “substantially identical” securities within 30 days of the sale.  
