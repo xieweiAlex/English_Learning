@@ -10,6 +10,8 @@ Being a slave must be **zany**. -
 
 ## words-Oct.md ## 
 words/2022/words-Oct.md  
+I'm a man, and I don't **grovel** to rats. -  
+As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  
 I’m a fan of anything sour, **tart**, and **tangy**, so with Kombucha, it was **love at first sip**. -  
 We **scouted** the postal office. -  
 It **behooves** me to inform you that you're fired. -  
@@ -25,6 +27,7 @@ Why it matters: This would **preempt** a trial that had been scheduled for Octob
 Accusing the governor of **callousness**, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
 Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction. -  
 The **veil** of the Japanese Army’s **supposed** invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory. -  
+I'm a man, and I don't **grovel** to rats. -  
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md  
