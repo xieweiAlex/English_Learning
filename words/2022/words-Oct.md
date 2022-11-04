@@ -1,4 +1,40 @@
 
+Well, it's obviously some chick **flick**. So probably Susan. 
+Electricity **flicked** off all over the world.  
+He **flicked** ash into the ashtray.  
+
+The **plaudits** came flooding in following her performances. -  
+Don't be **bashful**.  
+
+**Prunes** May Help Preserve Bone Mass, Fight Inflammation.  
+
+
+> Place your **iron hand** inside a **velvet** glove 
+
+Even genuine naivete is not free of the **snares of power**  
+
+you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
+if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger. -  
+
+The door **creaked** as she opened it. -  
+Lord Commander, it's my duty to tell you I believe this mission to be **reckless**, **foolhardy**, and an insult to all the brothers who are killed by wildings.    
+He paid for the **foolhardy** act with his life.  
+
+**PRISM** is a code name for a program under which the United States National Security Agency (NSA) collects internet communications from various U.S. internet companies.  
+We can **deduce** a conclusion from the premise.  
+
+Musk has also **mused** about making Dogecoin an official payment method. 
+
+How men with guns **aggravate** global hunger.  
+The surrounding countryside is **windswept** and rocky. -  
+Release does not **exonerate** the offender. -  
+
+**track**
+
+Hong Kong published an official stance on crypto regulations (spoiler alert: it’s **rather** crypto-friendly) on Monday in an attempt to attract crypto firms back to the city.  
+A violent **sell-off** hit Chinese markets Monday, as a **riptide** of capital rushed out of the People's Republic.  
+
+
 ## Week 4
 
 Love my Honda Fit! It’s **zippy**, easy to park, and great on gas. I have a ton of fun driving it around town 🚗.  
@@ -14,7 +50,7 @@ The challenge is navigating the “wash sale” rules **promulgated** by the Int
 
 Feynman was a very late talker—he didn't utter a word until he was three—but it was clear from a young age that he was extremely **observant** and intelligent.
 
-They're **incels**.  
+They're **incels**. (involuntary celibate)  
 
 > This means the same old recommendations apply: get regular exercise, eat diverse and plant-based foods, sit less, **cut back on** alcohol, and get more sleep.
 
@@ -24,27 +60,22 @@ In 1,000 parallel universes, you want to be wealthy in 999 of them. You don’t 
 If you are very skilled in a field, you will notice when a lucky break happens in your field, and other people who aren't **attuned to it** won’t notice. So, you become sensitive to luck.
 
 Rishi Sunak’s promise of stability is a low bar for Britain Reasons to be cheerful are **scant**.  
-
-
 As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  
 Stoicism is not, as Seneca said, a form of **self-flagellation**. It’s about responsibility and **sobriety**.  
-
 
 A **far cry** from its original targeted valuation.  
 **role player**.  
 
-I’m a fan of anything sour, **tart**, and **tangy**, so with Kombucha, it was **love at first sip**. -  
+I’m a fan of anything sour, **tart**, and **tangy**, so with Kombucha, it was **love at first sip**.   
 Within that information, you get a **mosaic** what's working against what's not working.  
-
 
 Hey, **courier** on the back.  
 Right, so **round the back**.  
 
-We **scouted** the postal office. -  
+We **scouted** the postal office.   
 It **behooves** me to inform you that you're fired. -  
 
 The Biden administration last week announced new export restrictions aimed at **hobbling** China's ability to make advanced semiconductors.  
-
 Tucker Carlson **lashes out** at GOP campaign chief in **irate** private call.  
 
 **diminishing return** 
@@ -105,13 +136,13 @@ Auditing Chinese companies has been one of several **flashpoints** between Washi
 The **vagary** of absolute. -  
 
 
-My belief is that Apple has **eschewed** another event because of the fairly **ordinary** nature of the announcements. -  
+My belief is that Apple has **eschewed** another event because of the fairly **ordinary** nature of the announcements.   
 
 
 The last group of **delinquents** we had didn't do so well.  
 
 I will give you one thousand dollars if you **call these things off**.  
-No fighting. I'll summon the **constable**. -  
+No fighting. I'll summon the **constable**.   
 
 You can definitely switch from D to S while driving, just don't do it while **pedal to the floor**.  
 
@@ -209,10 +240,10 @@ That's **appalling** and **malevolent**.
 Abbott and O'Rourke **square off**.  
 Accusing the governor of **callousness**, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
 
-Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction. -  
+Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction.   
 When our team first saw the green chicken, we were **giddy**. It wasn’t complicated – a colorized version of something rather **clip-arty** – but it was intuitively spot on.  
 Defeat at Guadalcanal put Japan on its **back foot**, a position from which it could not recover.  
-The **veil** of the Japanese Army’s **supposed** invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory. -  
+The **veil** of the Japanese Army’s **supposed** invincibility was lifted and the US went on to convert its enormous energy and industrial advantages into total victory.   
 
 
 ## Conversation  
@@ -227,18 +258,18 @@ No, it was **spur of the moment**.
 You can definitely switch from D to S while driving, just don't do it while **pedal to the floor**.  
 It's **water under the bridge**.  
 
-That's **slated to** Tuesday.  
+That's **slated to** on Tuesday.  
 In fact, in her bedroom, there is a **pennant** for the New York Yankees.  
 Thanks but I don't want to **stoop** to her level. If I can't win with the quality of my ideas, I'd rather lose with my **head held high**.  
 
 Now we give ourselves a shot on Monday to try and **tie this thing up**.  
-
 It **behooves** me to inform you that you're fired.  
 
-I'm a man, and I don't **grovel** to rats. -  
+I'm a man, and I don't **grovel** to rats.   
+Don't be **bashful**.  
 
 ### Grammar
-**I can pay for it** vs **I'm happy to pay it**. 
+**I can pay for it** vs **I'm happy to pay for it**. 
 **If I were to move out**, I will give you at least 30 days notice ahead. 
 
 
@@ -246,7 +277,8 @@ I'm a man, and I don't **grovel** to rats. -
 His boat, the Electron, had been so heavily modified, so **weighed down** with half-finished **gizmos** and **gimmicks**, that it was barely **seaworthy** for a short sail near home, **let alone** a solo trip around the globe.  
 
 The Biden administration last week announced new export restrictions aimed at **hobbling** China's ability to make advanced semiconductors.  
-
 Feynman was a very late talker—he didn’t utter a word until he was three—but it was clear from a young age that he was extremely **observant** and intelligent.
-
 The challenge is navigating the “wash sale” rules **promulgated** by the Internal Revenue Service that nix buying back the same or “substantially identical” securities within 30 days of the sale.  
+
+A violent **sell-off** hit Chinese markets Monday, as a **riptide** of capital rushed out of the People's Republic.  
+

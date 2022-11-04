@@ -1,3 +1,8 @@
+**defeat**
+
+**disseminate**
+
+**startle**
 
 **hobble**
 

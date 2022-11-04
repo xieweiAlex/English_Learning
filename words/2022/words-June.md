@@ -50,7 +50,7 @@ C-suite executives feel as **frazzled** and depressed as the workers who report 
 
 This was "an **abject failure**, and **antithetical** to everything we've learned over the last two decades since the Columbine **massacre**,"  
 An officer onsite said he had a "**hooligan**" **crowbar** that could breach a door. Officers opted to wait for keys.   
-And don't fall for the **slew** of "detox" or "weight loss" teas that are **peddled** on Instagram and Facebook. - 
+And don't fall for the **slew** of "detox" or "weight loss" teas that are **peddled** on Instagram and Facebook.   
 
 In **stamping out** covid, China has **stomped on** confidence.   
 
@@ -137,7 +137,7 @@ They are holding out hope for victory despite the **grim reality** of their stru
 **Chastity** before marriage is still demanded in some societies.  
 
 She is perceived as vain, spoiled, and **promiscuous**.  
-He regarded the young man as **feckless** and irresponsible. -  
+He regarded the young man as **feckless** and irresponsible.   
 
 Honey is a sweet, syrup-like substance that bees produce from the **nectar** of flowering plants.  
 The **Almanac** of Naval Ravikant.  

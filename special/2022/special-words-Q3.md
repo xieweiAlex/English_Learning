@@ -1,5 +1,9 @@
 
+**cautious**
+
 **observant**
+
+## Oct
 
 **ambivalent**
 

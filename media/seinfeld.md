@@ -1,4 +1,11 @@
 
+It's a **must-lie** situation.  
+I guarantee you've never seen anything quite so **objectionable**.  
+You mean you were **shortchanged**. -  
+Kramer, you **startled** me.  
+I still can't believe Michael **finked** on Kramer. -  
+
+
 I'm **swamped**.  
 what am I supposed to do with all this **paella**?   
 **you don't say**.  

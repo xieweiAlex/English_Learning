@@ -1,4 +1,11 @@
 
+
+All we want is to have a nice Christmas as a family, but you chose to **mope around** all day. 
+My wife and kids can't **stand the sight of me**.  
+I lost a game of **euchre** to my granddaughter and told her to fuck herself.  
+He **barges** back **to** my life and forces me to rethink everything.  
+So, did it **dawn on you** that it's Christmas?  
+
 Let's go, captain **skin flick**.  
 Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**. -  
 Daddy says church is 58 minutes BS and 2 minutes of **shakedown**.  
@@ -12,7 +19,7 @@ I shouldn't have called Frank a **balding** piece of shit.
 Sue! You're fucking my **Sensei**? Does Frank knows about this?  
 
 
-**Lavatories** are for paying customers only.  
+**Lavatories** are for paying customers only. -  
 Looks like somebody got **bludgeoned** with a happy club. -  
 Holy shit, it's that kid who **narced** on me about a train crash I caused.  
 Is this the **payback** for the time I had relations with your **full-sized** sister?  
@@ -20,7 +27,7 @@ Should I have, I don't know, **blurted** it out at a wedding?
 I taught you the **fake crying bit**, it doesn't work on me.  
 
 I have to stop them from being so **chummy**.  
-To drive my **snotty** kids to the grocery store, to get the fancy cranberries that I hate, jut to help her bring you two back together. -  
+To drive my **snotty** kids to the grocery store, to get the fancy cranberries that I hate, jut to help her bring you two back together.   
 Leave that alone, you **hobo**. -  
 Alright, put your **binky** in the bowl, and **come on in**.  
 It's in the **Talmud**, and that's what I'm **counting on**.  
