@@ -1,5 +1,6 @@
 ## f-family.md ## 
-media/f-family.md  
+media/f-family.md
+I'm a man, and I don't **grovel** to rats. -  
 Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**. -  
 It's an **inanimate** object, and it happens to mean a lot to me. And for your own **edification**, I didn't find where it gets. I'm done with that. -   
 Not your fucking father. - I'm drunk, not **concussed**. -  
@@ -9,22 +10,24 @@ Leave that alone, you **hobo**. -
 Being a slave must be **zany**. -  
 
 ## seinfeld.md ## 
-media/seinfeld.md  
-You mean you were **shortchanged**. -  
+media/seinfeld.md
 I still can't believe Michael **finked** on Kramer. -  
 
 ## words-Oct.md ## 
-words/2022/words-Oct.md  
+words/2022/words-Oct.md
+This sort of **nonchalance** that kicks in like I guess I've already accept the fact this isn't gonna workout. -  
+showing up on the doorstep of this **ramshackle** old house. -  
+Keenv Reeves **reprises** his role in the **spinoff** movie. - 
+we're splitting the **boudoir** in half so the baby can have its own bedroom. -  
+The **undertow**'s like a really mean bouncer. Instead of throwin' you out, they take you in back and **rough you up** a little bit. "Oh, you wanna come in? How 'bout comin' in like 25 miles?" -  
 The **plaudits** came flooding in following her performances. -  
 you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
 if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger. -  
 The door **creaked** as she opened it. -  
 The surrounding countryside is **windswept** and rocky. -  
 Release does not **exonerate** the offender. -  
-I'm a man, and I don't **grovel** to rats. -  
 As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  
 It **behooves** me to inform you that you're fired. -  
-Auditing Chinese companies has been one of several **flashpoints** between Washington and Beijing. -  
 The **vagary** of absolute. -  
 **sapient** (adjective: possessing wisdom or **discernment**, or appearing to). -  
 Sacrifices were made to **propitiate** the gods. -  
@@ -34,18 +37,18 @@ Why it matters: This would **preempt** a trial that had been scheduled for Octob
 Accusing the governor of **callousness**, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
 
 ## words-Aug.md ## 
-words/2022/words-Aug.md  
+words/2022/words-Aug.md
 These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
 We'll get you that **preso** and Excel sheet tomorrow. -  
 
 ## words-July.md ## 
-words/2022/words-July.md  
+words/2022/words-July.md
 Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting that employees who found themselves unable to keep up with the company’s fastening pace might also find that they’re without a job. -  
 Capitol Police said 35 people were arrested for "Crowding, **Obstructing** or **Incommoding**," including 17 members of Congress. -  
 It’s also made with a **percale weave**, which means it’s super lightweight and crisp. -  
 
 ## words-June.md ## 
-words/2022/words-June.md  
+words/2022/words-June.md
 He asserted his innocence and his financial **probity**.  -  
 The highest **plaudit** Mr Jarre could give a director was that he was "entrusting", and left him to it. -  
 but we have reason to cool our **raging** motions , our **carnal** stings , our **unbitted** **lusts**. -  

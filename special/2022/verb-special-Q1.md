@@ -1,3 +1,16 @@
+
+**scram**
+
+**trickle**
+
+**coast**
+
+**flick**
+
+**infiltrate**
+
+**elicit**
+
 **defeat**
 
 **disseminate**

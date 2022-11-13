@@ -6,6 +6,10 @@ I lost a game of **euchre** to my granddaughter and told her to fuck herself.
 He **barges** back **to** my life and forces me to rethink everything.  
 So, did it **dawn on you** that it's Christmas?  
 
+The mayor is **in cahoots with** the **mobsters** trying to kill me.  
+I'm a man, and I don't **grovel** to rats. -  
+A clown that has to make a living, almost getting my guts smeared all over an airplane for a bunch of fucking **ghouls** with tiny little lives.  
+
 Let's go, captain **skin flick**.  
 Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**. -  
 Daddy says church is 58 minutes BS and 2 minutes of **shakedown**.  

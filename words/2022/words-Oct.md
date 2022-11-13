@@ -1,7 +1,112 @@
 
+As you can see from each of the **preceding** examples, much of Vimscript's power comes from its extensive set of over 200 built-in functions.  
+
+I think he's being **facetious**, but you know, it's kind of clever.  
+
+
+This sort of **nonchalance** that kicks in like I guess I've already accept the fact this isn't gonna workout. -  
+
+He has a **flair** for languages.  
+
+showing up on the doorstep of this **ramshackle** old house. -  
+**existential** moment.  
+
+**cathartic release** of violence  
+
+I'd **implore** Sam and his family to tell the truth of their investors, get to the bottom of it.  
+**Enough is enough**, don't let the **charade** go on.  
+He was **contrite**, and he was trying to explain...  
+
+You're welcome to **tag alone**.  
+The **viscous** term has to do with the stickiness of the medium.  
+
+What it’s like to **dissect** a **cadaver**.  
+
+The most compelling news doesn't **trickle**, **it comes in floods**.   
+His **handpicked** candidates turned winnable Senate races into **nail-biters** in Arizona, Georgia, Nevada and Pennsylvania.  
+The war has **lurched** from one encounter to the next without a clear sign of how it would end.  
+But the company quickly **fell behind**, missing payments earlier this month and leaving thousands of employees **in a lurch**.  
+Last, **as if** to **cap** the drama, the crypto-world came crashing down. After rumors began to **swirl** that FTX, once the industry’s third-biggest exchange, might be insufficiently liquid, customers pulled $650m of assets out on November 7th, before it stopped meeting requests.  
+
+> One good day does not mean you can coast tomorrow. You never have it fully licked. Making good choices is an endless process. Many areas of life that we value most—our relationships, our fitness, our craft—require a continual commitment 
+> Most daily actions evaporate. Some accumulate
+
+
+He grew the **bushy** black beard that obscured his face.  
+The World Cup is **tarnished**. Should fans enjoy it anyway?
+No more **trawling** through job boards with thousands of jobs, not knowing which ones are a fit.  
+
+I'm just **one stomach flu away** from my goal weight.  
+
+If you're having trouble **revamping** your diet or know you're **falling short on** fiber, Dr. Martin says you can ensure you're getting enough of the nutrient by taking something like **psyllium** **husk**, which is a naturally occurring fiber.  
+you might be able to **amble** about your house and take care of business whenever nature calls. Still, is it really the coffee? 
+
+A Metaverse Full of **Hyperbole** and Hope.  
+**In a nutshell**, Meta Platforms (NASDAQ: META) is a business caught between a lucrative yet challenged advertising model and the **unbounded**, virtual world-building ambitions of its founder.   
+The two have also been long-time rivals, leading some to speculate that CZ may have just been **taking a jab** at SBF on his way to the top of the cryptoverse, or checking out the internal state of the rival exchange as concerns bubble about the health of the overall sector.  
+
+> **The other day** you said I was attractive, now what we're gonna do about it?  
+
+To that end we decided to update the name to be more **in line with** the content.  
+
+Keenv Reeves **reprises** his role in the **spinoff** movie. - 
+
+**Took the liberty** of **flagging** a few typos.  
+Which player is **flagging** and needs to be substituted?  
+
+China’s latest efforts to **sow** doubt about U.S. election integrity are consistent with Xi’s stated goal of championing China’s **autocratic** model as a 'new choice for humanity'.  
+As the hunt for minerals goes underwater, Chinese government analysts have made clear that cost will be **no object** as Chinese firms try to **elbow out** the competition.  
+
+There is no automation for that unless you have very **legible** handwriting and can use **optical** character recognition (OCR) on the notes or an assistant who transcribes them for you.  
+
+There is nothing wrong with capturing a **verbatim** quote on top.  
+
+A Taiwanese man in Poland was **slated to** be sent back to China on fraud charges, but the court blocked his removal from Poland. 
+
+We will be conducting a search for Tom’s **backfill**.  
+
+> Obviously this sort of **deceit** is not a good thing and we should all try to stop doing it. But what’s interesting is how, when we compare ourselves to other people, we rarely stop to consider that they are probably lying too.  
+> Seneca would say that to study philosophy was to **annex** the past into our own time.  
+
+
+## Week 1 
+
+Retailers who are just **brimming** with inventories, trying to figure out what to do, are forced to slash prices.    
+
+
+You're **pampering** everyone, why don't you take car of yourself?   
+we're splitting the **boudoir** in half so the baby can have its own bedroom. -  
+Your grammar book will say it is the **superlative** form of "well".   
+He was a **callow** youth when he joined the newspaper.  
+
+> you have this feeling in your stomach 
+
+The **undertow**'s like a really mean bouncer. Instead of throwin' you out, they take you in back and **rough you up** a little bit. "Oh, you wanna come in? How 'bout comin' in like 25 miles?" -  
+I know, George is pretty pleased about it. It's like she signed a **letter of intent**.  
+
+Was **magma** before it was cool.  
+
+Bill Cannon, head of portfolio management for digital asset fund manager Valkyrie Investments, said the mining space’s stronger firms are likely to **bolster** their positioning through **cut-rate** acquisitions.  
+Cannon expects mergers and acquisitions to pick up this quarter and early next year as companies on the verge of insolvency **jostle** to retain at least some shareholder value — and keep their doors open.  
+
+> Gallup found that only 20% of us say we're **thriving** at work. 
+> 62% are indifferent to their work lives. 18% are downright miserable.  
+> Meaning, not money. A clear, well-worn path to indifference or misery is seeking a profession simply because it pays well.   
+
+This one will **elicit** hate mail.  
+It is **axiomatic** that life is not always easy. 
+
+**Trekking** in Himalayas. 
+
+Instead of relying on 1:1 or **instantaneous** communication, we want to build a long-lasting knowledge center that you can access whenever you need it.   
+
+**sparring**.  
+
+Note - the above command takes time and likely places stress on the backend. Run it **sparingly**!
+
 Well, it's obviously some chick **flick**. So probably Susan. 
 Electricity **flicked** off all over the world.  
-He **flicked** ash into the ashtray.  
+He **flicked** ash into the **ashtray**.  
 
 The **plaudits** came flooding in following her performances. -  
 Don't be **bashful**.  
@@ -38,11 +143,6 @@ A violent **sell-off** hit Chinese markets Monday, as a **riptide** of capital r
 ## Week 4
 
 Love my Honda Fit! It’s **zippy**, easy to park, and great on gas. I have a ton of fun driving it around town 🚗.  
-
-The mayor is **in cahoots with** the **mobsters** trying to kill me.  
-I'm a man, and I don't **grovel** to rats. -  
-A clown that has to make a living, almost getting my guts smeared all over an airplane for a bunch of fucking **ghouls** with tiny little lives.  
-
 
 We would not want you to fall into a **manhole** or a **fountain**.  
 
@@ -131,7 +231,7 @@ That **icky** substance is called **honeydew**, a sugary liquid **excreted** by 
 ## Week 2 
 
 My **menopause** experience was a **tsunami** of **batshit** crazy –– mostly because I didn't know what was happening.
-Auditing Chinese companies has been one of several **flashpoints** between Washington and Beijing. -  
+Auditing Chinese companies has been one of several **flashpoints** between Washington and Beijing.   
 
 The **vagary** of absolute. -  
 
@@ -268,6 +368,10 @@ It **behooves** me to inform you that you're fired.
 I'm a man, and I don't **grovel** to rats.   
 Don't be **bashful**.  
 
+### Nov 
+The **undertow**'s like a really mean bouncer. Instead of throwin' you out, they take you in back and **rough you up** a little bit. "Oh, you wanna come in? How 'bout comin' in like 25 miles?"   
+
+
 ### Grammar
 **I can pay for it** vs **I'm happy to pay for it**. 
 **If I were to move out**, I will give you at least 30 days notice ahead. 
@@ -282,3 +386,13 @@ The challenge is navigating the “wash sale” rules **promulgated** by the Int
 
 A violent **sell-off** hit Chinese markets Monday, as a **riptide** of capital rushed out of the People's Republic.  
 
+Bill Cannon, head of portfolio management for digital asset fund manager Valkyrie Investments, said the mining space’s stronger firms are likely to **bolster** their positioning through **cut-rate** acquisitions.  
+
+### Nov 
+What it’s like to **dissect** a **cadaver**.  
+
+The most compelling news doesn't **trickle**, **it comes in floods**.   
+Last, **as if** to **cap** the drama, the crypto-world came crashing down. After rumors began to **swirl** that FTX, once the industry’s third-biggest exchange, might be insufficiently liquid, customers pulled $650m of assets out on November 7th, before it stopped meeting requests.  
+
+
+The two have also been long-time rivals, leading some to speculate that CZ may have just been **taking a jab** at SBF on his way to the top of the cryptoverse, or checking out the internal state of the rival exchange as concerns bubble about the health of the overall sector.  

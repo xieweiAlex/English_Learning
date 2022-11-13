@@ -1,9 +1,26 @@
 
+So when're we gonna see this baby? When is the **momentous** event?
+Jane's **topless**.  
+Why do you think we're getting the **sneak preview**?  
+Maybe she's trying to create a **buzz**.  
+You know, get some good **word of mouth** going.  
+A beautiful woman like you should. You're quite **breathtaking**.  
+**Face up on her back**?  
+
 It's a **must-lie** situation.  
 I guarantee you've never seen anything quite so **objectionable**.  
-You mean you were **shortchanged**. -  
+You mean you were **shortchanged**.   
+Yes! I mean, if she thinks that's me she's under a complete **misapprehension**. That was not me, Jerry. That was not me.  
+
+Oh, no, I can't. I'm **kosher**, we don't eat **shellfish**.  
+Wow. You're so **pious**.  
+Jerry: (To George) **Easy big fella**.  
+Well, I found this rope and I kept **tugging** on it, and all these lobsters came up.  
+You don't understand. This organ, it's very... **schizophrenic**  
+
 Kramer, you **startled** me.  
 I still can't believe Michael **finked** on Kramer. -  
+
 
 
 I'm **swamped**.  
