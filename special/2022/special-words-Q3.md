@@ -1,11 +1,19 @@
 
+**cogent** 
+
+**caution**
+
+**wimpy** 
+
+**outgoing**
+
 **substantially**
 
 **overachiever**
 
 **malleable**
 
-**cautious**
+**cautious**, **caution**
 
 **observant**
 

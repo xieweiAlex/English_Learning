@@ -15,7 +15,7 @@ Father Pat gonna talk with you about your dangerous obsession with **spookiness*
 Daddy says church is 58 minutes BS and 2 minutes of **shakedown**.  
 I'll be out in **pews**.  
 It's a metaphor, **numbnuts**!  
-It's an **inanimate** object, and it happens to mean a lot to me. And for your own **edification**, I didn't find where it gets. I'm done with that. -   
+It's an **inanimate** object, and it happens to mean a lot to me. And for your own **edification**, I didn't find where it gets. I'm done with that.   
 I know you're pretty **torn up** about Alice.  
 Not your fucking father. - I'm drunk, not **concussed**. -  
 
@@ -24,7 +24,7 @@ Sue! You're fucking my **Sensei**? Does Frank knows about this?
 
 
 **Lavatories** are for paying customers only. -  
-Looks like somebody got **bludgeoned** with a happy club. -  
+Looks like somebody got **bludgeoned** with a happy club.   
 Holy shit, it's that kid who **narced** on me about a train crash I caused.  
 Is this the **payback** for the time I had relations with your **full-sized** sister?  
 Should I have, I don't know, **blurted** it out at a wedding?  

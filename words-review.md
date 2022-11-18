@@ -1,11 +1,9 @@
 ## f-family.md ## 
 media/f-family.md
-I'm a man, and I don't **grovel** to rats. -  
-Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**. -  
-It's an **inanimate** object, and it happens to mean a lot to me. And for your own **edification**, I didn't find where it gets. I'm done with that. -   
+I'm a man, and I don't **grovel** to rats.   
+Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**.   
 Not your fucking father. - I'm drunk, not **concussed**. -  
-**Lavatories** are for paying customers only. -  
-Looks like somebody got **bludgeoned** with a happy club. -  
+**Lavatories** are for paying customers only.   
 Leave that alone, you **hobo**. -  
 Being a slave must be **zany**. -  
 
@@ -15,30 +13,28 @@ I still can't believe Michael **finked** on Kramer. -
 
 ## words-Oct.md ## 
 words/2022/words-Oct.md
+SBF in **Shambles**. - 
+Caused by a **revered** leaders of the industry. -  
+Any chance that he has BTC market **cornered**? Not statitcially **improbable** give his outsized share of overall liquidity providing, **inelastic** btc supply. -  
 This sort of **nonchalance** that kicks in like I guess I've already accept the fact this isn't gonna workout. -  
 showing up on the doorstep of this **ramshackle** old house. -  
 Keenv Reeves **reprises** his role in the **spinoff** movie. - 
 we're splitting the **boudoir** in half so the baby can have its own bedroom. -  
-The **undertow**'s like a really mean bouncer. Instead of throwin' you out, they take you in back and **rough you up** a little bit. "Oh, you wanna come in? How 'bout comin' in like 25 miles?" -  
 The **plaudits** came flooding in following her performances. -  
 you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
 if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger. -  
 The door **creaked** as she opened it. -  
 The surrounding countryside is **windswept** and rocky. -  
-Release does not **exonerate** the offender. -  
 As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  
-It **behooves** me to inform you that you're fired. -  
 The **vagary** of absolute. -  
 **sapient** (adjective: possessing wisdom or **discernment**, or appearing to). -  
 Sacrifices were made to **propitiate** the gods. -  
 Although this was **obliquely** phrased, the big two were poor decisionmaking on behalf of Russia (invading Ukraine) and Europe generally (being fundamentally unserious about power policy), leading to **ripples** that would affect the price of inputs to many participants in the Japanese grid. -  
-Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice. -  
 Why it matters: This would **preempt** a trial that had been scheduled for October, tied to Musk’s efforts to walk away from his original acquisition agreement. -  
 Accusing the governor of **callousness**, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
 
 ## words-Aug.md ## 
 words/2022/words-Aug.md
-These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
 We'll get you that **preso** and Excel sheet tomorrow. -  
 
 ## words-July.md ## 

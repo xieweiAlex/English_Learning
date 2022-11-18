@@ -1,4 +1,56 @@
 
+Now visitors to Shompole Wilderness Camp can partake in the experience, while also giving back to the local community.  
+
+
+Caffeine is the world’s most commonly consumed psychoactive substance.  
+Never in my career have I seen such a complete failure of corporate controls... 
+
+
+Customers are facing **long odds** of ever recovering much of their deposits. 
+Russia needs a **respite**, so the West must help Ukraine fight on.  
+
+While the company might have **cannibalized** its own Visual Studio market — why pay $1,500-8,000/year/seat for a Visual Studio subscription, when you can do so for free, with VS Code?  
+
+"'Heroin **Chic**’ had my generation in a **chokehold**," she writes. “Most of us still haven’t fully recovered. I barely **made it out alive**, myself.  
+Jamil isn’t being **hyperbolic**.  
+They "have been getting an **earful** on the need for the two major powers to avoid conflict and to help, not **hinder**, on the big global challenges of the day: climate, public health, food security, developing country debt," he added.  
+The meeting did not resolve any specific, major areas of **contention**, including on Taiwan, where the U.S. and China's **respective** goals are **at odds**.  
+
+The map suggests that Democrats are making little **headway** — or even moving in the wrong direction.  
+We shouldn't **equate** Tesla with Bitcoin. 
+
+> It’s not impressive to use big words or complicated sentences that go over the reader’s heads. In fact, it’s a failure.  
+> The parade of people, as Marcus Aurelius himself wrote, doing what human beings have always done–people just like you, people with the same **vices and virtues** as you, teaching you, advising you, cautioning you with their example.
+
+Catching most in the crypto industry completely **off guard**, FTX's collapse is beginning to **reverberate**.  
+**conspicuous**
+
+Bankman-Fried’s **performative** virtue now appears to have been an obvious cover for his private transgressions.  
+
+SBF in **Shambles**. - 
+
+You enjoy **wrangling** complex problems and datasets - we often deal with messy or **voluminous** datasets such as configuration across our fleet or terabytes of logs, so interest in modern data management tools that help us find signal in the noise will be beneficial.  
+Caused by a **revered** leaders of the industry. -  
+Any chance that he has BTC market **cornered**? Not statitcially **improbable** give his outsized share of overall liquidity providing, **inelastic** btc supply. -  
+
+**pristine** record 
+Qatar World Cup Faces New **Edict**: Hide the Beer.  
+Videos posted to social media appeared to show the smaller P-63 bank and slam into the slower B-17 as horrified **onlookers** watched.  
+The B-17 **split in half** before falling to ground, where a large fireball emerged.  
+
+
+## Week 2
+
+It makes me look boring and **lumpy**.  
+
+
+> The answer is that you don’t. In fact, it’s usually better not to get credit (because the “right thing” is not always appreciated, because other people might get jealous, because it puffs up your ego). Think about that today, and remember it always. You don’t need credit. That’s not what should motivate you.  
+> it was purely for his own edification that Marcus wanted to remember his grandfather taught him to be courteous. His father taught him to be manly without ostentation; his mother taught him to be generous; his tutor instilled a positive work ethic.  
+
+Marcus Aurelius **chides** himself for acting as if he’s going to live forever, as if he has unlimited time.  
+**Enraged** and blinded, Polyphemus **staggers** to remove the stone he had rolled in front of the entrance of the cave, which frees Odysseus and his men.  
+It’s brilliant and, best of all, Odysseus, never having given the cyclops his real name, is off **scot-free**.  
+
 As you can see from each of the **preceding** examples, much of Vimscript's power comes from its extensive set of over 200 built-in functions.  
 
 I think he's being **facetious**, but you know, it's kind of clever.  
@@ -132,7 +184,7 @@ Musk has also **mused** about making Dogecoin an official payment method.
 
 How men with guns **aggravate** global hunger.  
 The surrounding countryside is **windswept** and rocky. -  
-Release does not **exonerate** the offender. -  
+Release does not **exonerate** the offender.   
 
 **track**
 
