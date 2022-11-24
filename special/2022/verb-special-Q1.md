@@ -1,4 +1,21 @@
 
+**creak**
+
+**glorrify**, **romanticize**   
+
+**grovel**
+
+**make time**
+
+**thump**  
+**clobber**
+
+**cycle**, **surface**  
+
+**punt**
+
+**undermine** 
+
 **corner** 
 
 **scram**
@@ -23,7 +40,6 @@
 
 **blurt**
 
-**punt**
 
 ## Q3 
 

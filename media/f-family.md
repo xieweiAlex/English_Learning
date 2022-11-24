@@ -7,11 +7,11 @@ He **barges** back **to** my life and forces me to rethink everything.
 So, did it **dawn on you** that it's Christmas?  
 
 The mayor is **in cahoots with** the **mobsters** trying to kill me.  
-I'm a man, and I don't **grovel** to rats. -  
+I'm a man, and I don't **grovel** to rats.   
 A clown that has to make a living, almost getting my guts smeared all over an airplane for a bunch of fucking **ghouls** with tiny little lives.  
 
 Let's go, captain **skin flick**.  
-Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**. -  
+Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**.   
 Daddy says church is 58 minutes BS and 2 minutes of **shakedown**.  
 I'll be out in **pews**.  
 It's a metaphor, **numbnuts**!  
@@ -23,7 +23,7 @@ I shouldn't have called Frank a **balding** piece of shit.
 Sue! You're fucking my **Sensei**? Does Frank knows about this?  
 
 
-**Lavatories** are for paying customers only. -  
+**Lavatories** are for paying customers only.   
 Looks like somebody got **bludgeoned** with a happy club.   
 Holy shit, it's that kid who **narced** on me about a train crash I caused.  
 Is this the **payback** for the time I had relations with your **full-sized** sister?  

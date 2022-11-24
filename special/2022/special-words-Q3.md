@@ -1,7 +1,15 @@
 
-**cogent** 
+**petty**
 
-**caution**
+**erratic**
+
+**gatekeeper**
+
+**contagion** 
+
+**silo**
+
+**cogent** 
 
 **wimpy** 
 

@@ -1,10 +1,44 @@
 
-Now visitors to Shompole Wilderness Camp can partake in the experience, while also giving back to the local community.  
+Someone want to **extort** money from me, they are not even my family.  
+To build back the trust that FTX **singlehandedly** tore apart for the entire industry’s centralized entities.  
 
 
-Caffeine is the world’s most commonly consumed psychoactive substance.  
-Never in my career have I seen such a complete failure of corporate controls... 
+**North of** an half million dollars.  
+straight arrow.  
+they ran a security check on me.  
 
+Am I boderline racist?  
+
+
+
+The fact he is forcefully puking and taking an **enema** just to get the ultimate high ... hahaha love this film so much. -  
+an **uplifting** story.  
+
+a **weepy** **clingy** child.  
+
+**North of** an half million dollars.  
+**Straight arrow**.  
+They **ran a security check** on me.  
+Am I **borderline** racist?  
+
+Mordant: harshly ironic or **sinister**.  
+His **mordant** **wit** appealed to students. -  
+
+**suck it up**  
+In his wonderful book, A Better Man: A (Mostly Serious) Letter to My Son, Michael Ian Black points out how pervasive this **regressive** **admonition** is in our culture, even infusing itself into modern **tellings** of the **crucifixion** of Jesus Christ.   
+On the cross, Jesus finally **succumbs to** his pain, calling out to his father, 'My God, my God, why have you **forsaken** me?' -   
+
+> Giving voice to suffering does not make you less of a man. It makes you more of a human.  
+
+House Speaker Nancy Pelosi — one of the shrewdest, most powerful, most polarizing and most effective legislative leaders in American history — is handing over the **reins**.
+
+He added that Bankman-Fried “continues to make **erratic** and misleading public statements,” citing recent comments that were dismissive of regulators and suggested that his next step was to win a "jurisdictional battle vs. Delaware."  
+why don't you get a **hickey** from Sharon Nicolini.  
+
+Now visitors to Shompole Wilderness Camp can **partake** in the experience, while also giving back to the local community.  
+
+Caffeine is the world’s most commonly consumed **psychoactive** substance.  
+**Never in my career have I seen** such a complete failure of corporate controls... 
 
 Customers are facing **long odds** of ever recovering much of their deposits. 
 Russia needs a **respite**, so the West must help Ukraine fight on.  
@@ -30,7 +64,7 @@ Bankman-Fried’s **performative** virtue now appears to have been an obvious co
 SBF in **Shambles**. - 
 
 You enjoy **wrangling** complex problems and datasets - we often deal with messy or **voluminous** datasets such as configuration across our fleet or terabytes of logs, so interest in modern data management tools that help us find signal in the noise will be beneficial.  
-Caused by a **revered** leaders of the industry. -  
+Caused by a **revered** leaders of the industry.   
 Any chance that he has BTC market **cornered**? Not statitcially **improbable** give his outsized share of overall liquidity providing, **inelastic** btc supply. -  
 
 **pristine** record 
@@ -173,7 +207,7 @@ Even genuine naivete is not free of the **snares of power**
 you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
 if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger. -  
 
-The door **creaked** as she opened it. -  
+The door **creaked** as she opened it.   
 Lord Commander, it's my duty to tell you I believe this mission to be **reckless**, **foolhardy**, and an insult to all the brothers who are killed by wildings.    
 He paid for the **foolhardy** act with his life.  
 
