@@ -1,0 +1,324 @@
+
+
+We're gonna discuss the unhealthy incentives that driving media in a **perilous** direction.  
+If you can't get a dude starring at you, it's time for a **makeover**.  
+
+She **hardly** take up any space, she is basically a carry-on.  
+You can do that, too — and much more. **Hack the heck out of your stuff**. It’s a way to make something old new again, and to **assert** ownership.  
+
+In this vision, links are no longer **lonesome** strands precariously holding together a **sparsely connected** Web, but a **booming choir of connections** tightly binding together everything I have read and I will read.  
+A “personal cloud” sounds ambitious and **grandiose**, but it really feels like I’m putting together the right elementary pieces here to run towards that vision.  
+
+Text is a more **esoteric** way to use a computer – why are we seeing a resurgence in this trend now?  
+
+**Cast in stone**  
+**Eureka**
+
+It seems we're at an **impasse**, how do you propose we settle this?  
+They're all **lemmings**, Richard.  
+
+You're setting **internal milieu** to increase core body temperature, dopamine, epinephrine etc.  
+
+When the **specter** of a World War **looms**, the **lingering** of a terrible pandemic, the reality of a recession, divided politics and so many other obstacles **sit before us**.  
+So as you gather around your family and friends this Thanksgiving or Christmas or any other celebration you might **partake in**, of course, appreciate it and give thanks for all the obvious and **bountiful gifts** that moment presents.  
+
+At the beginning of Meditations, Marcus Aurelius **laments** the kind of people he’s going to meet each day—the bitter, the stupid, the jealous, the **petty**.  
+They poison the common good. They destroy any semblance of common understanding or **commonality**, period.  
+But instead of getting angry at them, try **pity** first.  
+Virtue isn’t just some arbitrary, **purposeless** standard **foisted upon** us from on high.  
+These people who frustrate us are cut off from that. They have been led **astray**. Or they have chosen to go astray.  
+
+Bastiat wrote, “when **plunder** becomes a way of life, men create for themselves a legal code that authorizes it and a moral code that **glorifies** it.” 
+
+I went to my lawyer and had him draw up **emancipation** papers. You're no longer my legal guardian.    
+Hey, **feckless** white boy, this is the path to socializing with pretty women.  
+
+The full cast of characters would be impossible to know and reveal, which is the very reason why a strong centralized government should always have been viewed as an operation **anathema** to liberty and organic human development. -  
+
+Good faith, **steadfastness**, and truth.  
+As the bestselling author, Robert Greene said in our interview with him about his new book The Laws Of Human Nature, “We are all the same. The Stoics talk about that. It’s **logos**. It’s what unites everything together.”  
+
+Now it's your turn to **say something sympathetic**. - I'm really glad I don't have kids.   
+Life without design is **erratic**. -  
+**Needless to say**, none of these treatments are accepted or **prescribed** anymore. 
+
+That long, **lugubrious** howl rose on the night air again! -  
+There is this kind **lull** in the market. -  
+She is very **single-minded** about her career.  
+
+A small ginger cat arrives on my **terrace** every afternoon, to **curl up** in the sun and **slumber** peacefully for a couple of hours.  
+It occurs to me that perhaps the cat is a monk. By this I do not mean anything **austere**.  
+
+I’ve suffered for decades, tossing and turning, throwing blankets off, pulling them back on, and repeating **ad nauseam**. 
+
+My account obviously like anybody else, I'm **gated** currently.  
+It has been remarkable that how I got **thumped** during Midterms, during my presidency, and part of it was voting rates were really low.  
+when you look at the **discourse** of this country... the **discourse** has become toxic.  
+**turbocharged** with social media.  
+
+The fact he is forcefully puking and taking an **enema** just to get the ultimate high ... hahaha love this film so much. -  
+an **uplifting** story.  
+
+a **weepy** **clingy** child.  
+
+I **deftly** played Ross Loma against Index Ventures. -  
+He soon proved himself a **redoubtable** warrior, and won the respect of other soldiers. -
+Why are people so full of **gloom and doom**?
+A square is a **quadrilateral**. -  
+Looks may not kill, but they can leave you feeling **peckish**. -  
+It's a difficult piece, with numerous changes of **tempo**.  
+He transforms the most ordinary subject into the **sublime**.  
+The speaker was **regrettably** **indisposed**. -  
+Someone want to **extort** money from me, they are not even my family.  
+To build back the trust that FTX **singlehandedly** tore apart for the entire industry’s centralized entities.  
+
+## Week 3
+**North of** an half million dollars.  
+**Straight arrow**.  
+They **ran a security check** on me.  
+Am I **borderline** racist?  
+
+Mordant: harshly ironic or **sinister**.  
+His **mordant** **wit** appealed to students. -  
+
+**suck it up**  
+In his wonderful book, A Better Man: A (Mostly Serious) Letter to My Son, Michael Ian Black points out how pervasive this **regressive** **admonition** is in our culture, even infusing itself into modern **tellings** of the **crucifixion** of Jesus Christ.   
+On the cross, Jesus finally **succumbs to** his pain, calling out to his father, 'My God, my God, why have you **forsaken** me?' -   
+
+> Giving voice to suffering does not make you less of a man. It makes you more of a human.  
+
+House Speaker Nancy Pelosi — one of the shrewdest, most powerful, most polarizing and most effective legislative leaders in American history — is handing over the **reins**.
+
+He added that Bankman-Fried “continues to make **erratic** and misleading public statements,” citing recent comments that were dismissive of regulators and suggested that his next step was to win a "jurisdictional battle vs. Delaware."  
+why don't you get a **hickey** from Sharon Nicolini.  
+
+Now visitors to Shompole Wilderness Camp can **partake** in the experience, while also giving back to the local community.  
+
+Caffeine is the world’s most commonly consumed **psychoactive** substance.  
+**Never in my career have I seen** such a complete failure of corporate controls... 
+
+Customers are facing **long odds** of ever recovering much of their deposits. 
+Russia needs a **respite**, so the West must help Ukraine fight on.  
+
+While the company might have **cannibalized** its own Visual Studio market — why pay $1,500-8,000/year/seat for a Visual Studio subscription, when you can do so for free, with VS Code?  
+
+"'Heroin **Chic**’ had my generation in a **chokehold**," she writes. “Most of us still haven’t fully recovered. I barely **made it out alive**, myself.  
+Jamil isn’t being **hyperbolic**.  
+They "have been getting an **earful** on the need for the two major powers to avoid conflict and to help, not **hinder**, on the big global challenges of the day: climate, public health, food security, developing country debt," he added.  
+The meeting did not resolve any specific, major areas of **contention**, including on Taiwan, where the U.S. and China's **respective** goals are **at odds**.  
+
+The map suggests that Democrats are making little **headway** — or even moving in the wrong direction.  
+We shouldn't **equate** Tesla with Bitcoin. 
+
+> It’s not impressive to use big words or complicated sentences that go over the reader’s heads. In fact, it’s a failure.  
+> The parade of people, as Marcus Aurelius himself wrote, doing what human beings have always done–people just like you, people with the same **vices and virtues** as you, teaching you, advising you, cautioning you with their example.
+
+Catching most in the crypto industry completely **off guard**, FTX's collapse is beginning to **reverberate**.  
+**conspicuous**
+
+Bankman-Fried’s **performative** virtue now appears to have been an obvious cover for his private transgressions.  
+
+SBF in **Shambles**. - 
+
+You enjoy **wrangling** complex problems and datasets - we often deal with messy or **voluminous** datasets such as configuration across our fleet or terabytes of logs, so interest in modern data management tools that help us find signal in the noise will be beneficial.  
+Caused by a **revered** leaders of the industry.   
+Any chance that he has BTC market **cornered**? Not statitcially **improbable** give his outsized share of overall liquidity providing, **inelastic** btc supply. -  
+
+**pristine** record 
+Qatar World Cup Faces New **Edict**: Hide the Beer.  
+Videos posted to social media appeared to show the smaller P-63 bank and slam into the slower B-17 as horrified **onlookers** watched.  
+The B-17 **split in half** before falling to ground, where a large fireball emerged.  
+
+
+## Week 2
+
+It makes me look boring and **lumpy**.  
+
+
+> The answer is that you don’t. In fact, it’s usually better not to get credit (because the “right thing” is not always appreciated, because other people might get jealous, because it puffs up your ego). Think about that today, and remember it always. You don’t need credit. That’s not what should motivate you.  
+> it was purely for his own edification that Marcus wanted to remember his grandfather taught him to be courteous. His father taught him to be manly without ostentation; his mother taught him to be generous; his tutor instilled a positive work ethic.  
+
+Marcus Aurelius **chides** himself for acting as if he’s going to live forever, as if he has unlimited time.  
+**Enraged** and blinded, Polyphemus **staggers** to remove the stone he had rolled in front of the entrance of the cave, which frees Odysseus and his men.  
+It’s brilliant and, best of all, Odysseus, never having given the cyclops his real name, is off **scot-free**.  
+
+As you can see from each of the **preceding** examples, much of Vimscript's power comes from its extensive set of over 200 built-in functions.  
+
+I think he's being **facetious**, but you know, it's kind of clever.  
+
+
+This sort of **nonchalance** that kicks in like I guess I've already accept the fact this isn't gonna workout. -  
+
+He has a **flair** for languages.  
+
+showing up on the doorstep of this **ramshackle** old house. -  
+**existential** moment.  
+
+**cathartic release** of violence  
+
+I'd **implore** Sam and his family to tell the truth of their investors, get to the bottom of it.  
+**Enough is enough**, don't let the **charade** go on.  
+He was **contrite**, and he was trying to explain...  
+
+You're welcome to **tag alone**.  
+The **viscous** term has to do with the stickiness of the medium.  
+
+What it’s like to **dissect** a **cadaver**.  
+
+The most compelling news doesn't **trickle**, **it comes in floods**.   
+His **handpicked** candidates turned winnable Senate races into **nail-biters** in Arizona, Georgia, Nevada and Pennsylvania.  
+The war has **lurched** from one encounter to the next without a clear sign of how it would end.  
+But the company quickly **fell behind**, missing payments earlier this month and leaving thousands of employees **in a lurch**.  
+Last, **as if** to **cap** the drama, the crypto-world came crashing down. After rumors began to **swirl** that FTX, once the industry’s third-biggest exchange, might be insufficiently liquid, customers pulled $650m of assets out on November 7th, before it stopped meeting requests.  
+
+> One good day does not mean you can coast tomorrow. You never have it fully licked. Making good choices is an endless process. Many areas of life that we value most—our relationships, our fitness, our craft—require a continual commitment 
+> Most daily actions evaporate. Some accumulate
+
+
+He grew the **bushy** black beard that obscured his face.  
+The World Cup is **tarnished**. Should fans enjoy it anyway?
+No more **trawling** through job boards with thousands of jobs, not knowing which ones are a fit.  
+
+I'm just **one stomach flu away** from my goal weight.  
+
+If you're having trouble **revamping** your diet or know you're **falling short on** fiber, Dr. Martin says you can ensure you're getting enough of the nutrient by taking something like **psyllium** **husk**, which is a naturally occurring fiber.  
+you might be able to **amble** about your house and take care of business whenever nature calls. Still, is it really the coffee? 
+
+A Metaverse Full of **Hyperbole** and Hope.  
+**In a nutshell**, Meta Platforms (NASDAQ: META) is a business caught between a lucrative yet challenged advertising model and the **unbounded**, virtual world-building ambitions of its founder.   
+The two have also been long-time rivals, leading some to speculate that CZ may have just been **taking a jab** at SBF on his way to the top of the cryptoverse, or checking out the internal state of the rival exchange as concerns bubble about the health of the overall sector.  
+
+> **The other day** you said I was attractive, now what we're gonna do about it?  
+
+To that end we decided to update the name to be more **in line with** the content.  
+
+Keenv Reeves **reprises** his role in the **spinoff** movie. - 
+
+**Took the liberty** of **flagging** a few typos.  
+Which player is **flagging** and needs to be substituted?  
+
+China’s latest efforts to **sow** doubt about U.S. election integrity are consistent with Xi’s stated goal of championing China’s **autocratic** model as a 'new choice for humanity'.  
+As the hunt for minerals goes underwater, Chinese government analysts have made clear that cost will be **no object** as Chinese firms try to **elbow out** the competition.  
+
+There is no automation for that unless you have very **legible** handwriting and can use **optical** character recognition (OCR) on the notes or an assistant who transcribes them for you.  
+
+There is nothing wrong with capturing a **verbatim** quote on top.  
+
+A Taiwanese man in Poland was **slated to** be sent back to China on fraud charges, but the court blocked his removal from Poland. 
+
+We will be conducting a search for Tom’s **backfill**.  
+
+> Obviously this sort of **deceit** is not a good thing and we should all try to stop doing it. But what’s interesting is how, when we compare ourselves to other people, we rarely stop to consider that they are probably lying too.  
+> Seneca would say that to study philosophy was to **annex** the past into our own time.  
+
+
+## Week 1 
+
+Retailers who are just **brimming** with inventories, trying to figure out what to do, are forced to slash prices.    
+
+
+You're **pampering** everyone, why don't you take car of yourself?   
+we're splitting the **boudoir** in half so the baby can have its own bedroom. -  
+Your grammar book will say it is the **superlative** form of "well".   
+He was a **callow** youth when he joined the newspaper.  
+
+> you have this feeling in your stomach 
+
+The **undertow**'s like a really mean bouncer. Instead of throwin' you out, they take you in back and **rough you up** a little bit. "Oh, you wanna come in? How 'bout comin' in like 25 miles?" -  
+I know, George is pretty pleased about it. It's like she signed a **letter of intent**.  
+
+Was **magma** before it was cool.  
+
+Bill Cannon, head of portfolio management for digital asset fund manager Valkyrie Investments, said the mining space’s stronger firms are likely to **bolster** their positioning through **cut-rate** acquisitions.  
+Cannon expects mergers and acquisitions to pick up this quarter and early next year as companies on the verge of insolvency **jostle** to retain at least some shareholder value — and keep their doors open.  
+
+> Gallup found that only 20% of us say we're **thriving** at work. 
+> 62% are indifferent to their work lives. 18% are downright miserable.  
+> Meaning, not money. A clear, well-worn path to indifference or misery is seeking a profession simply because it pays well.   
+
+This one will **elicit** hate mail.  
+It is **axiomatic** that life is not always easy. 
+
+**Trekking** in Himalayas. 
+
+Instead of relying on 1:1 or **instantaneous** communication, we want to build a long-lasting knowledge center that you can access whenever you need it.   
+
+**sparring**.  
+
+Note - the above command takes time and likely places stress on the backend. Run it **sparingly**!
+
+Well, it's obviously some chick **flick**. So probably Susan. 
+Electricity **flicked** off all over the world.  
+He **flicked** ash into the **ashtray**.  
+
+The **plaudits** came flooding in following her performances. -  
+Don't be **bashful**.  
+
+**Prunes** May Help Preserve Bone Mass, Fight Inflammation.  
+
+
+> Place your **iron hand** inside a **velvet** glove 
+
+Even genuine naivete is not free of the **snares of power**  
+
+you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
+if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger. -  
+
+The door **creaked** as she opened it.   
+Lord Commander, it's my duty to tell you I believe this mission to be **reckless**, **foolhardy**, and an insult to all the brothers who are killed by wildings.    
+He paid for the **foolhardy** act with his life.  
+
+**PRISM** is a code name for a program under which the United States National Security Agency (NSA) collects internet communications from various U.S. internet companies.  
+We can **deduce** a conclusion from the premise.  
+
+Musk has also **mused** about making Dogecoin an official payment method. 
+
+How men with guns **aggravate** global hunger.  
+The surrounding countryside is **windswept** and rocky. -  
+Release does not **exonerate** the offender.   
+
+**track**
+
+Hong Kong published an official stance on crypto regulations (spoiler alert: it’s **rather** crypto-friendly) on Monday in an attempt to attract crypto firms back to the city.  
+A violent **sell-off** hit Chinese markets Monday, as a **riptide** of capital rushed out of the People's Republic.  
+
+
+## Conversation  
+
+The **undertow**'s like a really mean bouncer. Instead of throwin' you out, they take you in back and **rough you up** a little bit. "Oh, you wanna come in? How 'bout comin' in like 25 miles?"   
+
+If you can't get a dude starring at you, it's time for a **makeover**.  
+She **hardly** take up any space, she is basically a carry-on.  
+
+**Eureka**
+It seems we're at an **impasse**, how do you propose we settle this?  
+They're all **lemmings**, Richard.  
+Hey, **feckless** white boy, this is the path to socializing with pretty women.  
+
+Now it's your turn to **say something sympathetic**. - I'm really glad I don't have kids.   
+
+
+### Grammar
+**I can pay for it** vs **I'm happy to pay for it**. 
+**If I were to move out**, I will give you at least 30 days notice ahead. 
+
+
+## Interesting 
+
+What it’s like to **dissect** a **cadaver**.  
+
+The most compelling news doesn't **trickle**, **it comes in floods**.   
+Last, **as if** to **cap** the drama, the crypto-world came crashing down. After rumors began to **swirl** that FTX, once the industry’s third-biggest exchange, might be insufficiently liquid, customers pulled $650m of assets out on November 7th, before it stopped meeting requests.  
+
+
+The two have also been long-time rivals, leading some to speculate that CZ may have just been **taking a jab** at SBF on his way to the top of the cryptoverse, or checking out the internal state of the rival exchange as concerns bubble about the health of the overall sector.  
+
+Life without design is **erratic**. -  
+She is very **single-minded** about her career.  
+A small ginger cat arrives on my **terrace** every afternoon, to **curl up** in the sun and **slumber** peacefully for a couple of hours.  
+It occurs to me that perhaps the cat is a monk. By this I do not mean anything **austere**.  
+
+I’ve suffered for decades, tossing and turning, throwing blankets off, pulling them back on, and repeating **ad nauseam**. 
+
+
+

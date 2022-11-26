@@ -1,9 +1,6 @@
 ## f-family.md ## 
 media/f-family.md
-I'm a man, and I don't **grovel** to rats.   
-Father Pat gonna talk with you about your dangerous obsession with **spookiness** and the **occult**.   
 Not your fucking father. - I'm drunk, not **concussed**. -  
-**Lavatories** are for paying customers only.   
 Leave that alone, you **hobo**. -  
 Being a slave must be **zany**. -  
 
@@ -11,10 +8,20 @@ Being a slave must be **zany**. -
 media/seinfeld.md
 I still can't believe Michael **finked** on Kramer. -  
 
-## words-Oct.md ## 
-words/2022/words-Oct.md
+## words-Nov.md ## 
+words/2022/words-Nov.md
+The full cast of characters would be impossible to know and reveal, which is the very reason why a strong centralized government should always have been viewed as an operation **anathema** to liberty and organic human development. -  
+Life without design is **erratic**. -  
+That long, **lugubrious** howl rose on the night air again! -  
+There is this kind **lull** in the market. -  
+The fact he is forcefully puking and taking an **enema** just to get the ultimate high ... hahaha love this film so much. -  
+I **deftly** played Ross Loma against Index Ventures. -  
+A square is a **quadrilateral**. -  
+Looks may not kill, but they can leave you feeling **peckish**. -  
+The speaker was **regrettably** **indisposed**. -  
+His **mordant** **wit** appealed to students. -  
+On the cross, Jesus finally **succumbs to** his pain, calling out to his father, 'My God, my God, why have you **forsaken** me?' -   
 SBF in **Shambles**. - 
-Caused by a **revered** leaders of the industry. -  
 Any chance that he has BTC market **cornered**? Not statitcially **improbable** give his outsized share of overall liquidity providing, **inelastic** btc supply. -  
 This sort of **nonchalance** that kicks in like I guess I've already accept the fact this isn't gonna workout. -  
 showing up on the doorstep of this **ramshackle** old house. -  
@@ -25,6 +32,10 @@ The **plaudits** came flooding in following her performances. -
 you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
 if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger. -  
 The surrounding countryside is **windswept** and rocky. -  
+Life without design is **erratic**. -  
+
+## words-Oct.md ## 
+words/2022/words-Oct.md
 As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  
 It **behooves** me to inform you that you're fired. -  
 The **vagary** of absolute. -  
@@ -48,9 +59,6 @@ It’s also made with a **percale weave**, which means it’s super lightweight 
 
 ## words-June.md ## 
 words/2022/words-June.md
-He asserted his innocence and his financial **probity**.  -  
-The highest **plaudit** Mr Jarre could give a director was that he was "entrusting", and left him to it. -  
-but we have reason to cool our **raging** motions , our **carnal** stings , our **unbitted** **lusts**. -  
 He had an unshakable **premonition** that he would die. -  
 Speaking of her love, has become a romantic **balderdash**. -  
 I’ll write it down and think of it when I can do so productively, but I’m no longer allowed to **wallow** in my past pain. -  

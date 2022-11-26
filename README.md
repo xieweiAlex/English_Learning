@@ -5,16 +5,17 @@ Expanding vocabulary for a non native-speaker is tedious and time-consuming. I t
 ### 2022  
 [Words Review](./words-review.md)
 
+[Nov Words](./words/2022/words-Nov.md) |
 [Oct Words](./words/2022/words-Oct.md) |
 [Sep Words](./words/2022/words-Sep.md) |
 [Aug Words](./words/2022/words-Aug.md) |
 
 [Special word](./special/2022/special-words-Q2.md) |
 [Phrase](./special/2022/phrase-Q2.md) |
-[Verb](./special/2022/verb-special-Q1.md)
+[Verb](./special/2022/verb-special-Q1.md) |
 
 [SeinField](./media/seinfeld.md) |
-[F is for family](./media/f-family.md)
+[F is for family](./media/f-family.md) |
 [Impromptu](./impromptu.md)
 
 

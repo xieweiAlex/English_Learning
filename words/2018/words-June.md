@@ -47,12 +47,6 @@ Even be worried that we're up to something **nefarious** (good for you for being
 The thief has found himself a new place for his **thievery** again.  
 I find it very strange that President Trump has such a hard time getting along with the leaders of the world's major democracies but feels very comfortable with **despots** and **authoritarian** leaders like Putin, Xi Jinping, Duterte and Mohammad Bin Salman.  
    
-They are all **lemmings**.  
-He is a **boorish** **pompous** **womanizing** **douchebag**.  
-If you **round down** I have zero billion.  
-Just here for a **vanity fair** dinner.  
-**DUI**: Driving under the influence  
-Richard, the name has to be something **primal** something that you can **scream out** during **intercourse**.  
    
 Nope, he is a **cautionary tale**.  
 An **off-duty** FBI agent was **impressing** a crowd at a downtown Denver **distillery** and bar with dance moves and an **improvised** **back flip** - until his handgun **tumbled out** of his **waistband holster** and a round **went off** as he picked it up. Injuring another **clubgoer**.  

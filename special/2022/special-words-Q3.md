@@ -1,4 +1,14 @@
 
+**uplifting**
+
+**indescribable**
+
+**solder**
+
+**hardly**, **barely**, **rarely** 
+
+**forte**
+
 **petty**
 
 **erratic**
@@ -18,6 +28,7 @@
 **substantially**
 
 **overachiever**
+**overarching**
 
 **malleable**
 
@@ -79,8 +90,6 @@
 **transformative**
 
 **tangentially related to**
-
-**indescribable**
 
 **irrespective**
 

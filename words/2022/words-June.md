@@ -12,7 +12,7 @@ Don't **get caught up** which pull up grip is the best, simply go out there find
 Hiding in fake **niceties**.  
 The Supreme Court has **defanged** one of the most sweeping tools the Biden White House needed to meet its climate targets.  
 
-He asserted his innocence and his financial **probity**.  -  
+He asserted his innocence and his financial **probity**.    
 Times of national turmoil generally **roil** a country's financial markets.  
 The news of his death produced an instant **outpouring** of grief.
 
@@ -32,7 +32,7 @@ My initial reaction was annoyance — and then a **fleeting thought** that we ne
 As the war **drags out**, Ukraine is **beseeching** Western nations for heavy weapons, but is also angling for stronger ties with the European Union to "preserve its freedom and unity."  
 Michael Jordan famously looked for any **slight** by another player to manufacture motivation, knowing it provides a tiny extra edge. He was maniacal about it, but the trick does work.  
 
-The highest **plaudit** Mr Jarre could give a director was that he was "entrusting", and left him to it. -  
+The highest **plaudit** Mr Jarre could give a director was that he was "entrusting", and left him to it.   
 Shopify's shares have been **trounced** this year, falling almost 80% from their 52-week high.   
 
 Our **overarching** focus is using our tools to bring inflation back down to our 2 percent goal and to keep longer-term inflation expectations well **anchored**.  
@@ -88,7 +88,7 @@ They are likely first drawn to the trash can from the variety of smells that **e
 **Nigh** impossible.  
 
 Even when he was awake he was completely **torpid**.  
-but we have reason to cool our **raging** motions , our **carnal** stings , our **unbitted** **lusts**. -  
+but we have reason to cool our **raging** motions , our **carnal** stings , our **unbitted** **lusts**.   
 
 ## Week 2
 
