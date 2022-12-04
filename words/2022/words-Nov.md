@@ -1,4 +1,133 @@
 
+## Week 1
+
+**Needles** about anything **gelatinous**. -  
+
+I respect your **trickery**.  
+Do we hire somebody to do our taxes, cut the grass, remove **asbestos** from the ceiling? -  
+We won't have a **housekeeper**, you can clean the house yourself.  
+
+> You're playing a game, of which yourself are the player and everybody else is an **interloper**. And you're the responsibility to design the game play.    
+
+The bill, which will be attached to “must pass” legislation for this Congress, would allow cannabis businesses to obtain bank accounts and loans, and help local and state governments **expunge** marijuana convictions.  
+
+**coronary** heart disease.  
+
+**Trout** is another type of delicious freshwater fish, similar to salmon. -   
+
+With scars from the **heyday** of Webvan and Pets.com still fresh in the investor psyche, people are asking, “Isn’t this just a dangerous new bubble?”  
+How Netflix **eviscerated** Blockbuster is an old story, but now other traditional entertainment providers are facing the same threat.  
+The days when a car **aficionado** could repair his or her own car are long past, due primarily to the high software content.  
+
+> First of all, when an economist considers price, they consider the total price, including some intangible things like the time it takes to set up, **reeducate** everyone, and convert existing processes. All the things that we like to call “**total cost of ownership**.”  
+
+**prima facie fallacy**.  
+**Lo and behold**, their consulting division is winning big with this strategy.  
+
+
+**softball questions**.  
+**put together**  
+
+I ended up as a **schumuck** who does looking.  
+He is **bogged down** by student loan.  
+Most of the Wall Street **jackasses** that I bust, they're to **the manor born**.  
+But you, Jordan, you **got this way all on your own**.  
+
+**fishwife**.  
+**confidence-man**  
+**sweet-water**  
+**busybody**  
+**horse sense**  
+
+> Say when - when  
+
+**What's the damage**?  
+**What do I owe you**?  
+**What do you charge for this**?  
+
+**Roll with the punch**.  
+Cut the tough guy shit, we both know what we are. We're survivors, we **roll with punches**.  
+You're handsome, **debonair**...  
+**fortitude**  
+
+I've got 5 brothers and sisters, one of them is **bound to** screw up real big, and then I'll tell my parents about you.   
+That's a beautiful **tapestry**. -  
+
+Doctors and schools should be **franker** about pleasure.  
+
+The city was the site of a deadly fire that killed 10 people, and first triggered the nationwide protests featuring **blank sheets of white paper** that were raised as a symbol of **defiance**.  
+
+> Take debt out of equation 
+> No, it's all good. I got it.  
+
+People started to be more **cognizant** about how they spend money on date.  
+Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
+
+This suggests that, if the virus spread **unencumbered**, infections would peak at 45m a day. Around 680,000 people would **perish**, even if vaccines remained potent and all of them received care.  
+By imposing the daily apparatus of detection and enforcement, he has brought an **unbending** authoritarian state into every home.  
+
+**hangup**  
+**namely**  
+These **discrepancies** influence what is likely to ail you.  
+Politicians like to **pontificate** about falling standards. -  
+He was neither overly worried nor **briskly** **peremptory**. -  
+The trustworthiness is the essential condition of **comity**. -  
+The FTX founder and former CEO crafted an image as a **rumpled**, slightly mad **wunderkind**, napping on office beanbags and wearing shorts to meetings.  
+
+In a surprising tweet, McAfee said that the promise was simply a “**ruse** to onboard new users” before claiming that “it worked”.  
+**For the record**, I am not a neat freak.  
+The speech—which would later become known as "This Is Water"—begins with a simple **parable** of the young fish and the old fish. -  
+
+Elon Musk continues to **goad** Apple (AAPL) by publishing the results of a poll in which he asked his 120M Twitter followers if the world's most-valuable company "should publish all censorship actions it has taken that affect its customers." The vote was **resoundingly** in the affirmative, with nearly 85% of the 2.2M respondents replying "Yes" to the query.   
+**Never one** to miss a chance to **savor** a win, Musk followed up by tweeting, "The people have spoken..."  
+The poll was the latest in a series of **pokes and prods** that Musk began making towards Apple over the weekend.  
+Musk's recent **mudslinging** is reminiscent of a fight once waged by Epic Games over Apple's steep App Store fees, or what some have described as an illegal monopoly over app distribution.  
+A **military buildup** is likely to be another **boon** for stocks like Lockheed Martin (NYSE:LMT).  
+
+On Monday, Chinese authorities flooded previous protest areas in Beijing, Shanghai and Hong Kong with police vans and security forces to **preempt** further demonstrations.   
+
+He speaks in **unctuous** tones. -  
+**unctuous** soil.  
+
+Munger is a **voracious** reader. “Develop into a lifelong self-learner through **voracious** reading; cultivate curiosity and **strive** to become a little wiser every day,” he once said. 
+She is bad in bed and I have a **sourpuss**. 
+
+As the amount of structured and unstructured data available keeps **mushrooming**, the number of data breaches and cyberattacks by actors who realize the value of PII continues to climb.  
+
+**curtailment** of freedom in Hong Kong. 
+**sufficient**.
+
+**crufty**
+**catch on**. 
+
+Is China thinking about **ending** it? If so, when? 
+
+## Week 4
+
+> It is tempting, **at times**, to **tiptoe** safely to death.
+> Trial and error is an efficient method of finding progress - so long as the errors are recorded and not repeated (too many times… I’ll try anything twice).
+
+> Michael didn't allow what he couldn't control to get inside his head.  
+
+Target, Kohl's and JCPenney have large **circulars** posted online. Lowe's, Home Depot and Macy's have **circulars** in some newspapers.  
+Chicago completing its second **three-peat** this decade.  
+
+Spent it all in an excessive **debauchery** to privacy an outright **douchebaggery**  
+**name of the game**, move the money from your client's pocket into your pocket.  
+**one second cousin**  
+See the real Jordan Belfort make a brief **cameo** where he introduces his film **counterparts** onto the stage.  
+
+
+there are more **fallout**.  
+
+However, as a by-product of mental purification, many psychosomatic diseases are eradicated. In fact, Vipassana eliminates the three causes of all unhappiness: craving, **aversion** and **ignorance**.  
+With continued practice, the meditation releases the tensions developed in everyday life, opening the **knots tied by the old habit** of reacting in an unbalanced way to pleasant and unpleasant situations.  
+All who attend a Vipassana course must conscientiously undertake the following five **precepts** for the duration of the course:  
+
+Students are therefore kindly requested to **make do** with the simple vegetarian meals provided.  
+
+No shorts, tank tops, tights or **revealing** clothing.
+It is not an escape from the **trials and tribulations** of everyday life. -  
 
 We're gonna discuss the unhealthy incentives that driving media in a **perilous** direction.  
 If you can't get a dude starring at you, it's time for a **makeover**.  
@@ -33,7 +162,7 @@ Bastiat wrote, “when **plunder** becomes a way of life, men create for themsel
 I went to my lawyer and had him draw up **emancipation** papers. You're no longer my legal guardian.    
 Hey, **feckless** white boy, this is the path to socializing with pretty women.  
 
-The full cast of characters would be impossible to know and reveal, which is the very reason why a strong centralized government should always have been viewed as an operation **anathema** to liberty and organic human development. -  
+The full cast of characters would be impossible to know and reveal, which is the very reason why a strong centralized government should always have been viewed as an operation **anathema** to liberty and organic human development.   
 
 Good faith, **steadfastness**, and truth.  
 As the bestselling author, Robert Greene said in our interview with him about his new book The Laws Of Human Nature, “We are all the same. The Stoics talk about that. It’s **logos**. It’s what unites everything together.”  
@@ -61,14 +190,14 @@ an **uplifting** story.
 
 a **weepy** **clingy** child.  
 
-I **deftly** played Ross Loma against Index Ventures. -  
+I **deftly** played Ross Loma against Index Ventures.   
 He soon proved himself a **redoubtable** warrior, and won the respect of other soldiers. -
 Why are people so full of **gloom and doom**?
 A square is a **quadrilateral**. -  
-Looks may not kill, but they can leave you feeling **peckish**. -  
+Looks may not kill, but they can leave you feeling **peckish**.   
 It's a difficult piece, with numerous changes of **tempo**.  
 He transforms the most ordinary subject into the **sublime**.  
-The speaker was **regrettably** **indisposed**. -  
+The speaker was **regrettably** **indisposed**.   
 Someone want to **extort** money from me, they are not even my family.  
 To build back the trust that FTX **singlehandedly** tore apart for the entire industry’s centralized entities.  
 
@@ -83,7 +212,7 @@ His **mordant** **wit** appealed to students. -
 
 **suck it up**  
 In his wonderful book, A Better Man: A (Mostly Serious) Letter to My Son, Michael Ian Black points out how pervasive this **regressive** **admonition** is in our culture, even infusing itself into modern **tellings** of the **crucifixion** of Jesus Christ.   
-On the cross, Jesus finally **succumbs to** his pain, calling out to his father, 'My God, my God, why have you **forsaken** me?' -   
+On the cross, Jesus finally **succumbs to** his pain, calling out to his father, 'My God, my God, why have you **forsaken** me?'   
 
 > Giving voice to suffering does not make you less of a man. It makes you more of a human.  
 
@@ -122,7 +251,7 @@ SBF in **Shambles**. -
 
 You enjoy **wrangling** complex problems and datasets - we often deal with messy or **voluminous** datasets such as configuration across our fleet or terabytes of logs, so interest in modern data management tools that help us find signal in the noise will be beneficial.  
 Caused by a **revered** leaders of the industry.   
-Any chance that he has BTC market **cornered**? Not statitcially **improbable** give his outsized share of overall liquidity providing, **inelastic** btc supply. -  
+Any chance that he has BTC market **cornered**? Not statitcially **improbable** give his outsized share of overall liquidity providing, **inelastic** btc supply.   
 
 **pristine** record 
 Qatar World Cup Faces New **Edict**: Hide the Beer.  
@@ -147,11 +276,11 @@ As you can see from each of the **preceding** examples, much of Vimscript's powe
 I think he's being **facetious**, but you know, it's kind of clever.  
 
 
-This sort of **nonchalance** that kicks in like I guess I've already accept the fact this isn't gonna workout. -  
+This sort of **nonchalance** that kicks in like I guess I've already accept the fact this isn't gonna workout.   
 
 He has a **flair** for languages.  
 
-showing up on the doorstep of this **ramshackle** old house. -  
+showing up on the doorstep of this **ramshackle** old house.   
 **existential** moment.  
 
 **cathartic release** of violence  
@@ -192,7 +321,7 @@ The two have also been long-time rivals, leading some to speculate that CZ may h
 
 To that end we decided to update the name to be more **in line with** the content.  
 
-Keenv Reeves **reprises** his role in the **spinoff** movie. - 
+Keenv Reeves **reprises** his role in the **spinoff** movie.   
 
 **Took the liberty** of **flagging** a few typos.  
 Which player is **flagging** and needs to be substituted?  
@@ -218,7 +347,7 @@ Retailers who are just **brimming** with inventories, trying to figure out what 
 
 
 You're **pampering** everyone, why don't you take car of yourself?   
-we're splitting the **boudoir** in half so the baby can have its own bedroom. -  
+we're splitting the **boudoir** in half so the baby can have its own bedroom.   
 Your grammar book will say it is the **superlative** form of "well".   
 He was a **callow** youth when he joined the newspaper.  
 
@@ -251,7 +380,7 @@ Well, it's obviously some chick **flick**. So probably Susan.
 Electricity **flicked** off all over the world.  
 He **flicked** ash into the **ashtray**.  
 
-The **plaudits** came flooding in following her performances. -  
+The **plaudits** came flooding in following her performances.   
 Don't be **bashful**.  
 
 **Prunes** May Help Preserve Bone Mass, Fight Inflammation.  
@@ -297,10 +426,23 @@ Hey, **feckless** white boy, this is the path to socializing with pretty women.
 
 Now it's your turn to **say something sympathetic**. - I'm really glad I don't have kids.   
 
+### Dec 
+I respect your **trickery**.  
+Do we hire somebody to do our taxes, cut the grass, remove **asbestos** from the ceiling? -  
+We won't have a **housekeeper**, you can clean the house yourself.  
+
+I ended up as a **schumuck** who does looking.  
+He is **bogged down** by student loan.  
+Most of the Wall Street **jackasses** that I bust, they're to **the manor born**.  
+But you, Jordan, you **got this way all on your own**.  
+
+Cut the tough guy shit, we both know what we are. We're survivors, we **roll with punches**.  
+I've got 5 brothers and sisters, one of them is **bound to** screw up real big, and then I'll tell my parents about you.   
+That's a beautiful **tapestry**.   
+
+
 
 ### Grammar
-**I can pay for it** vs **I'm happy to pay for it**. 
-**If I were to move out**, I will give you at least 30 days notice ahead. 
 
 
 ## Interesting 
@@ -318,7 +460,23 @@ She is very **single-minded** about her career.
 A small ginger cat arrives on my **terrace** every afternoon, to **curl up** in the sun and **slumber** peacefully for a couple of hours.  
 It occurs to me that perhaps the cat is a monk. By this I do not mean anything **austere**.  
 
-I’ve suffered for decades, tossing and turning, throwing blankets off, pulling them back on, and repeating **ad nauseam**. 
+I've suffered for decades, **tossing and turning**, **throwing blankets off**, pulling them back on, and repeating **ad nauseam**. 
+
+Customers are facing **long odds** of ever recovering much of their deposits. 
+Russia needs a **respite**, so the West must help Ukraine fight on.  
+
+Elon Musk continues to **goad** Apple (AAPL) by publishing the results of a poll in which he asked his 120M Twitter followers if the world's most-valuable company "should publish all censorship actions it has taken that affect its customers." The vote was **resoundingly** in the affirmative, with nearly 85% of the 2.2M respondents replying "Yes" to the query.   
+
+### Dec 
+> You're playing a game, of which yourself are the player and everybody else is an **interloper**. And you're the responsibility to design the game play.    
+
+> First of all, when an economist considers price, they consider the total price, including some intangible things like the time it takes to set up, **reeducate** everyone, and convert existing processes. All the things that we like to call “**total cost of ownership**.”  
+
+**prima facie fallacy**.  
+**Lo and behold**, their consulting division is winning big with this strategy.  
+
+**For the record**, I am not a neat freak.  
+The poll was the latest in a series of **pokes and prods** that Musk began making towards Apple over the weekend.  
 
 
 

@@ -93,7 +93,7 @@ but we have reason to cool our **raging** motions , our **carnal** stings , our 
 ## Week 2
 
 He'd offered to **caulk** the windows.  
-He had an unshakable **premonition** that he would die. -  
+He had an unshakable **premonition** that he would die.   
 She listened to the speaker with **rapt attention**.  
 
 It's **all in the eyes of beholder**.  

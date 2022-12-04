@@ -132,7 +132,7 @@ Eggs that have gone bad will **give off** an unmistakable smell, regardless of w
 Bulls **stampeded** back onto Wall Street yesterday, inspiring a stock market comeback for the ages.   
 For now, we're willing to **skate** with this risk, as the potential for this investment over the next several years remains so significant.   
 
-**sapient** (adjective: possessing wisdom or **discernment**, or appearing to). -  
+**sapient** (adjective: possessing wisdom or **discernment**, or appearing to).   
 
 **go out of our way** to do things for you.  
 

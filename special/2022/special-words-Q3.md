@@ -1,4 +1,20 @@
 
+**brisk**
+
+**forgiving** 
+
+**mudslinging**
+
+**expeditiously**
+
+**strive**
+
+**crufty**
+
+**Sufficient** -> enough
+
+**muted**, **muffled**.   
+
 **uplifting**
 
 **indescribable**

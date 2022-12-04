@@ -125,7 +125,7 @@ Plant **nurseries** in the U.S. saw sales jump 10%-15% in 2020, according to a G
 Investors are **strapping** on their seatbelts as they prepare for some wild trading in the week ahead.  
 
 Life's short. Let's **lean on** friends! 
-It’s also made with a **percale weave**, which means it’s super lightweight and crisp. -  
+It’s also made with a **percale weave**, which means it’s super lightweight and crisp.   
 If the gas is below 1/4 tank, use the gas card in the **visor** to fill up, or you'll be charged a $30 fee.   
 
 They fell **prostrate** in worship. -
