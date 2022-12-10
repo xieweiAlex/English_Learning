@@ -197,7 +197,7 @@ Don’t let database **drudgery** eat up your coding time.
 That's **appalling** and **malevolent**.  
 
 Abbott and O'Rourke **square off**.  
-Accusing the governor of **callousness**, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies. -  
+Accusing the governor of **callousness**, O'Rourke said "reproductive freedom" is at stake, and he **derided** Abbott's border policies.   
 
 Chicken Little’s **paranoia** is validated in the end, although the reward for its **prescience** – being eaten by a **devious** fox – seems a little harsh by modern standards of **juvenile** fiction.   
 When our team first saw the green chicken, we were **giddy**. It wasn’t complicated – a colorized version of something rather **clip-arty** – but it was intuitively spot on.  

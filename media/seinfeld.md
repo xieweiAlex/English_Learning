@@ -20,7 +20,7 @@ You don't understand. This organ, it's very... **schizophrenic**.
 Oh, no, I can't. I'm **kosher**, we don't eat **shellfish**.  
 Wow. You're so **pious**.  
 Kramer, you **startled** me.  
-I still can't believe Michael **finked** on Kramer. -  
+I still can't believe Michael **finked** on Kramer.   
 
 
 I'm **swamped**.  

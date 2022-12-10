@@ -1,8 +1,11 @@
 
+**dabble**
 
 **behoove**
 
 **savor**
+
+## Nov 
 
 **goad**
 
@@ -12,7 +15,7 @@
 
 **creak**
 
-**glorrify**, **romanticize**   
+**glorify**, **romanticize**   
 
 **grovel**
 

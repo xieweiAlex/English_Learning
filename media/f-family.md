@@ -17,7 +17,7 @@ I'll be out in **pews**.
 It's a metaphor, **numbnuts**!  
 It's an **inanimate** object, and it happens to mean a lot to me. And for your own **edification**, I didn't find where it gets. I'm done with that.   
 I know you're pretty **torn up** about Alice.  
-Not your fucking father. - I'm drunk, not **concussed**. -  
+Not your fucking father. - I'm drunk, not **concussed**.   
 
 I shouldn't have called Frank a **balding** piece of shit.  
 Sue! You're fucking my **Sensei**? Does Frank knows about this?  
@@ -39,7 +39,7 @@ We can discuss your future in **smut** over a Nicoise salad.
 I'm all **worked up**.  
 Hop in, I'll give you a **lift**.  
 The **impound** lot's next to the **slaughterhouse**.  
-Being a slave must be **zany**. -  
+Being a slave must be **zany**.   
 
 > Don't let yourself become a **hostage of your past**.  
 That wound will **scab** and you'll want to pick it, till you get a bigger wound and a bigger scab.  

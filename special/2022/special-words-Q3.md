@@ -1,6 +1,10 @@
 
 **brisk**
 
+**leeway**
+
+## Nov 
+
 **forgiving** 
 
 **mudslinging**

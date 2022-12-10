@@ -1,5 +1,28 @@
 
+I didn't want to hear the **sordid** details of their relationship. -  
+The man was brutish and coarse.  
+
+
+The newspaper launched a vitriolic attack on the president. -  
+
+North Texas pastor returns to **pulpit**.  
+For years, this belief was **perpetuated** by health officials and medical and nutrition associations alike, leading some people to avoid eating eggs.  
+
+Don't "eating a diet high in **saturated and trans fat**, which includes foods like fatty meats and dairy-based desserts"
+
+Touching, or “**palpating**,” parts of your body (like your abdomen) to feel for abnormalities.  
+**Hepatitis** C: All individuals born between 1945 and 1965 are recommended to have a one-time blood test to screen for hepatitis C.  
+The test your doctor will likely order is called a **lipid panel**. This panel shows your **LDL**, **HDL**, and other types of **non-HDL cholesterol** that can raise your risk of complications.  
+
+**mink** coat  
+
+### Grammar 
+> Alev recommended me here. 
+> Alev recommended this group to me and that's why I'm here. 
+
 ## Week 1
+
+**burdensome**, **worrisome** 
 
 **Needles** about anything **gelatinous**. -  
 
@@ -172,7 +195,7 @@ Life without design is **erratic**. -
 **Needless to say**, none of these treatments are accepted or **prescribed** anymore. 
 
 That long, **lugubrious** howl rose on the night air again! -  
-There is this kind **lull** in the market. -  
+There is this kind **lull** in the market.   
 She is very **single-minded** about her career.  
 
 A small ginger cat arrives on my **terrace** every afternoon, to **curl up** in the sun and **slumber** peacefully for a couple of hours.  
@@ -185,7 +208,7 @@ It has been remarkable that how I got **thumped** during Midterms, during my pre
 when you look at the **discourse** of this country... the **discourse** has become toxic.  
 **turbocharged** with social media.  
 
-The fact he is forcefully puking and taking an **enema** just to get the ultimate high ... hahaha love this film so much. -  
+The fact he is forcefully puking and taking an **enema** just to get the ultimate high ... hahaha love this film so much.   
 an **uplifting** story.  
 
 a **weepy** **clingy** child.  
@@ -247,7 +270,7 @@ Catching most in the crypto industry completely **off guard**, FTX's collapse is
 
 Bankman-Fried’s **performative** virtue now appears to have been an obvious cover for his private transgressions.  
 
-SBF in **Shambles**. - 
+SBF in **Shambles**.   
 
 You enjoy **wrangling** complex problems and datasets - we often deal with messy or **voluminous** datasets such as configuration across our fleet or terabytes of logs, so interest in modern data management tools that help us find signal in the noise will be beneficial.  
 Caused by a **revered** leaders of the industry.   
@@ -440,8 +463,6 @@ Cut the tough guy shit, we both know what we are. We're survivors, we **roll wit
 I've got 5 brothers and sisters, one of them is **bound to** screw up real big, and then I'll tell my parents about you.   
 That's a beautiful **tapestry**.   
 
-
-
 ### Grammar
 
 
@@ -468,7 +489,7 @@ Russia needs a **respite**, so the West must help Ukraine fight on.
 Elon Musk continues to **goad** Apple (AAPL) by publishing the results of a poll in which he asked his 120M Twitter followers if the world's most-valuable company "should publish all censorship actions it has taken that affect its customers." The vote was **resoundingly** in the affirmative, with nearly 85% of the 2.2M respondents replying "Yes" to the query.   
 
 ### Dec 
-> You're playing a game, of which yourself are the player and everybody else is an **interloper**. And you're the responsibility to design the game play.    
+> You're playing a game, of which yourself are the player and everybody else is an **interloper**. And you're the responsibility to design the **game play**.    
 
 > First of all, when an economist considers price, they consider the total price, including some intangible things like the time it takes to set up, **reeducate** everyone, and convert existing processes. All the things that we like to call “**total cost of ownership**.”  
 
