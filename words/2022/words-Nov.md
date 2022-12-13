@@ -1,9 +1,20 @@
 
+**incipient** cavity, **incipient** decay.  
+tongue **scraper**  
+
+Temporary crowns are typically made of **acrylic**.  
+I want you to live **unencumbered**.  
+**Putrefaction** refers to the breaking down and gradual **liquefaction** of tissue by bacteria. -  
+My thoughts are all in a **muddle**.  
+
+He **molested** children and was sent to jail. -  
+
+## Week 2
+
 I didn't want to hear the **sordid** details of their relationship. -  
-The man was brutish and coarse.  
+The man was brutish and **coarse**.  
 
-
-The newspaper launched a vitriolic attack on the president. -  
+The newspaper launched a **vitriolic** attack on the president. -  
 
 North Texas pastor returns to **pulpit**.  
 For years, this belief was **perpetuated** by health officials and medical and nutrition associations alike, leading some people to avoid eating eggs.  
@@ -23,11 +34,10 @@ The test your doctor will likely order is called a **lipid panel**. This panel s
 ## Week 1
 
 **burdensome**, **worrisome** 
-
 **Needles** about anything **gelatinous**. -  
 
 I respect your **trickery**.  
-Do we hire somebody to do our taxes, cut the grass, remove **asbestos** from the ceiling? -  
+Do we hire somebody to do our taxes, cut the grass, remove **asbestos** from the ceiling?   
 We won't have a **housekeeper**, you can clean the house yourself.  
 
 > You're playing a game, of which yourself are the player and everybody else is an **interloper**. And you're the responsibility to design the game play.    
@@ -35,11 +45,10 @@ We won't have a **housekeeper**, you can clean the house yourself.
 The bill, which will be attached to “must pass” legislation for this Congress, would allow cannabis businesses to obtain bank accounts and loans, and help local and state governments **expunge** marijuana convictions.  
 
 **coronary** heart disease.  
-
 **Trout** is another type of delicious freshwater fish, similar to salmon. -   
 
 With scars from the **heyday** of Webvan and Pets.com still fresh in the investor psyche, people are asking, “Isn’t this just a dangerous new bubble?”  
-How Netflix **eviscerated** Blockbuster is an old story, but now other traditional entertainment providers are facing the same threat.  
+How Netflix **eviscerated** Blockbuster is an old story, but now other traditional entertainment providers are facing the same threat. -  
 The days when a car **aficionado** could repair his or her own car are long past, due primarily to the high software content.  
 
 > First of all, when an economist considers price, they consider the total price, including some intangible things like the time it takes to set up, **reeducate** everyone, and convert existing processes. All the things that we like to call “**total cost of ownership**.”  
@@ -53,7 +62,7 @@ The days when a car **aficionado** could repair his or her own car are long past
 
 I ended up as a **schumuck** who does looking.  
 He is **bogged down** by student loan.  
-Most of the Wall Street **jackasses** that I bust, they're to **the manor born**.  
+Most of the Wall Street **jackasses** that I bust, they're **to the manor born**.  
 But you, Jordan, you **got this way all on your own**.  
 
 **fishwife**.  
@@ -191,7 +200,7 @@ Good faith, **steadfastness**, and truth.
 As the bestselling author, Robert Greene said in our interview with him about his new book The Laws Of Human Nature, “We are all the same. The Stoics talk about that. It’s **logos**. It’s what unites everything together.”  
 
 Now it's your turn to **say something sympathetic**. - I'm really glad I don't have kids.   
-Life without design is **erratic**. -  
+Life without design is **erratic**.   
 **Needless to say**, none of these treatments are accepted or **prescribed** anymore. 
 
 That long, **lugubrious** howl rose on the night air again! -  
@@ -376,7 +385,7 @@ He was a **callow** youth when he joined the newspaper.
 
 > you have this feeling in your stomach 
 
-The **undertow**'s like a really mean bouncer. Instead of throwin' you out, they take you in back and **rough you up** a little bit. "Oh, you wanna come in? How 'bout comin' in like 25 miles?" -  
+The **undertow**'s like a really mean bouncer. Instead of throwin' you out, they take you in back and **rough you up** a little bit. "Oh, you wanna come in? How 'bout comin' in like 25 miles?"   
 I know, George is pretty pleased about it. It's like she signed a **letter of intent**.  
 
 Was **magma** before it was cool.  
@@ -451,7 +460,7 @@ Now it's your turn to **say something sympathetic**. - I'm really glad I don't h
 
 ### Dec 
 I respect your **trickery**.  
-Do we hire somebody to do our taxes, cut the grass, remove **asbestos** from the ceiling? -  
+Do we hire somebody to do our taxes, cut the grass, remove **asbestos** from the ceiling?   
 We won't have a **housekeeper**, you can clean the house yourself.  
 
 I ended up as a **schumuck** who does looking.  
@@ -476,7 +485,7 @@ Last, **as if** to **cap** the drama, the crypto-world came crashing down. After
 
 The two have also been long-time rivals, leading some to speculate that CZ may have just been **taking a jab** at SBF on his way to the top of the cryptoverse, or checking out the internal state of the rival exchange as concerns bubble about the health of the overall sector.  
 
-Life without design is **erratic**. -  
+Life without design is **erratic**.   
 She is very **single-minded** about her career.  
 A small ginger cat arrives on my **terrace** every afternoon, to **curl up** in the sun and **slumber** peacefully for a couple of hours.  
 It occurs to me that perhaps the cat is a monk. By this I do not mean anything **austere**.  

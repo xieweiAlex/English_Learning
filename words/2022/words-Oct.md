@@ -183,7 +183,7 @@ This would have the **knock-on effect** of potentially bringing down the grid wh
 One **expletive-laden** stat to go.    
 
 that's not a **knock**.  
-Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice. -  
+Off the floor, he was gonna be **cordial** and **accepting**, he was gonna be nice.   
 
 It doesn't matter if your nose is little **bulbous**, or your eyes are too close together, or your chest is **flabby**, you're who you are.  
 **throw** a party  

@@ -49,7 +49,7 @@ The benchmark S&P 500 (SP500) soared 15% over two months, only to snap the winni
 
 a **bombastic**, crazy guy.  
 
-These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price. -  
+These corporate landlords now **dawning on** them that they made a big mistake in terms of buying into the housing market at a sky-high price.   
 
 I have no need to **prolong** the game … It has been a good game that must be ended.  
 
@@ -59,7 +59,7 @@ If you're an architect, you might find yourself trying to create the ultimate **
 The retailer sector hears from discounters Dollar General (DG) and Dollar Tree (DLTR) next week in reports that could **tip off** just how much consumers are trading down or pinching pennies. 
 
 As a result, analysts inside and outside China **pore over** state media during the months leading up to the congress for hints at which party cadre's star is rising and whose may be falling.
-We'll get you that **preso** and Excel sheet tomorrow. -  
+We'll get you that **preso** and Excel sheet tomorrow.   
 
 Taiwan is a **plucky** pro-American pro-western democracy deserves protection from the communist bully next door.   
 > false dichotomy 

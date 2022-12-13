@@ -72,7 +72,7 @@ His old man left him **high and dry** and soaking wet.
 
 The news was a win for the EV maker, which over the last two years has experienced executive departures, an SEC probe, and investor skepticism, resulting in a **paltry** stock performance since it went public via SPAC in 2020.   
 
-Capitol Police said 35 people were arrested for "Crowding, **Obstructing** or **Incommoding**," including 17 members of Congress. -  
+Capitol Police said 35 people were arrested for "Crowding, **Obstructing** or **Incommoding**," including 17 members of Congress.   
 I can see her now and where she gets her **rugged handsomeness**. 
 
 **Devil's in the details**.  
