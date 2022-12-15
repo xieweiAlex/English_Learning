@@ -1,4 +1,23 @@
 
+Steve was **innately** comfortable trusting his gut; it’s a characteristic of the best entrepreneurs, a necessity for anyone who wants to make a living developing things no one has ever quite imagined before.  
+
+> I don’t think anyone knows whether we’re going to have a recession or not, and, if we do, whether it’s going to be a deep one or not. It’s just - it’s not **knowable**... The historical record cautions strongly against prematurely **loosening** policy. We will stay the course, until the job is done.  
+
+
+A study of **ophidian** **clitorises** suggests snakes are highly sexed.  
+
+The sudden unwinding of **stringent** pandemic measures, if not handled carefully, could **strain** the health care system and lead to a higher number of deaths from the disease than a slower relaxing of measures otherwise might.  
+With representatives from 49 African countries visiting Washington, the White House is using the **pageantry** of a summit to convince leaders that Africa is a priority.  
+"My son Josh, a U.S. Capitol Police officer who fought so **valiantly** on Jan. 6, is my hero," writes Finish Line reader Kathleen D., pictured above.  
+
+We **supplicate** your majesty to grant him amnesty. -  
+And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life?  
+He found that his **extremities** grew cold.  
+
+**Reptile** show from Didi's short video. -  
+
+China is **doubling down** on its complaints at the World Trade Organization as a trade war with the U.S. seems to be **morphing** into a broader tech war.  
+
 **incipient** cavity, **incipient** decay.  
 tongue **scraper**  
 
@@ -507,6 +526,5 @@ Elon Musk continues to **goad** Apple (AAPL) by publishing the results of a poll
 
 **For the record**, I am not a neat freak.  
 The poll was the latest in a series of **pokes and prods** that Musk began making towards Apple over the weekend.  
-
 
 

@@ -29,7 +29,7 @@ The surrounding countryside is **windswept** and rocky. -
 ## words-Oct.md ## 
 words/2022/words-Oct.md  
 As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  
-It **behooves** me to inform you that you're fired. -  
+It **behooves** me to inform you that you're fired.   
 The **vagary** of absolute. -  
 Sacrifices were made to **propitiate** the gods. -  
 Although this was **obliquely** phrased, the big two were poor decisionmaking on behalf of Russia (invading Ukraine) and Europe generally (being fundamentally unserious about power policy), leading to **ripples** that would affect the price of inputs to many participants in the Japanese grid. -  

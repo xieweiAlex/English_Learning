@@ -1,4 +1,12 @@
 
+
+
+**concerted** 
+
+**loosen**
+
+**innately**
+
 **brisk**
 
 **leeway**
