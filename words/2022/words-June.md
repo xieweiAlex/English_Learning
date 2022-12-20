@@ -112,7 +112,7 @@ Speaking of her love, has become a romantic **balderdash**. -
 The young soldier **flouted** his officer's orders.  
 
 I would spend hours every night I was alone going through needless self **flagellation**.  
-I’ll write it down and think of it when I can do so productively, but I’m no longer allowed to **wallow** in my past pain. -  
+I’ll write it down and think of it when I can do so productively, but I’m no longer allowed to **wallow** in my past pain.   
 
 some sort of **lichen**. Is that normal in cave?   
 
