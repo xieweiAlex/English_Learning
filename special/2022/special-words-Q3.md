@@ -1,5 +1,9 @@
 
+**tactical**
 
+**laborious**
+
+**brim**
 
 **concerted** 
 
