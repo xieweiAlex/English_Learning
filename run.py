@@ -10,7 +10,31 @@ def main():
 
 main()
 
+def main():
+    arg1 = sys.argv[1]
+    arg2 = sys.argv[2]
 
+    print("filename: ", arg1)
+    print("sentence: ", arg2)
+
+main()
+
+def main():
+    arg1 = sys.argv[1]
+    arg2 = sys.argv[2]
+
+    print("filename: ", arg1)
+    print("sentence: ", arg2)
+
+main()
+def main():
+    arg1 = sys.argv[1]
+    arg2 = sys.argv[2]
+
+    print("filename: ", arg1)
+    print("sentence: ", arg2)
+
+main()
 # test 
 # print 'Number of arguments:', len(sys.argv), 'arguments.'
 # print 'Argument List:', str(sys.argv)

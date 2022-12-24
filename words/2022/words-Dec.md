@@ -1,4 +1,53 @@
 
+I will badger her with "mom" questions.  
+
+
+
+While this study’s findings are only preliminary and more research will be needed to tease out just what it all really means.  
+She further advises not drinking to the point of becoming intoxicated.  
+**nightcap**  
+
+The **drollness** of normal peoples ' everyday lives.  
+**coy** 
+
+**trapezoid**  
+Marine and freshwater stickleback can **hybridize** in contact zones.  
+**derisive**  
+We gave them a **drubbing** in the match on Saturday.  
+
+A **blackguard** is a **scoundrel**.  
+**nocuous**  
+**halal**  
+Straight line **parallel** to the corners of the mouth, and a **radian**. -  
+**Substrate** **mycelium** , grow in the **substate**. -  
+
+The Stoics did not reject **worldly** pleasures. They rejected the reckless ones. The dangerous, ephemeral ones.
+
+**Mahatma** Gandhi.  
+The work appears to be light and the pay **munificent**.  
+
+You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
+The rule is **antiquated** and wrong.  
+It's easy to **succumb** to an authoritative, dictatorial father who wouldn't **brook** any descent.  
+This man is a **menance**, it had been proven during the covid pandemic.  
+she is **grandiose**, exactly like the narcissit, but the locus of the grandiosity, the content of the grandiose fantasy, it's different.  
+
+
+Vegetarianism has **shed** its **cranky** image. -  
+
+He is **resigned** to the noise, the mess, the constant **upheaval**. 
+My father is **paranoid** about being robbed.  
+**pecs**, **packs**  
+The leaves are a **variegated** red. -  
+Suddenly the buyer saw a cliff **dead ahead**.  
+The fighting has continued **unabated** for over 24 hours.  
+**underpass** 
+**tarmac** 
+**tagline**  
+**incessant** 
+**chatter**  
+**cranky**  
+
 The potential of smart contract and the ability to **bestow** utilization rights, property rights, copyrights, usage rights. - 
 
 Mary became quite still and Colin looked **fretful**.  
@@ -201,6 +250,7 @@ That's a beautiful **tapestry**.
 
 You need to **flesh out** your argument with a few more examples. 
 
+What's the **draw** to move into Azure public cloud?  
 
 ### Grammar
 > Alev recommended me here. 

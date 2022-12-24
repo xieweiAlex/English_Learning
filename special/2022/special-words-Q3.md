@@ -1,4 +1,16 @@
 
+**preliminary**
+
+**raves**, **rad**  
+
+**jazzed**, **jaded** 
+
+**lopsided**
+
+**miraculous**
+
+**theatrical**
+
 **tactical**
 
 **laborious**

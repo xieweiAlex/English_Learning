@@ -1,5 +1,9 @@
 #!/bin/bash 
 
+
+
+
+
 source "./variable.sh"
 
 # 2+ * & 1+ letter & .* & ends either 0 to 5 white space or line change  
