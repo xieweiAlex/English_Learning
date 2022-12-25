@@ -4,6 +4,11 @@ Leave that alone, you **hobo**. -
 
 ## words-Dec.md ## 
 words/2022/words-Dec.md
+Straight line **parallel** to the corners of the mouth, and a **radian**. -  
+**Substrate** **mycelium** , grow in the **substate**. -  
+You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
+Vegetarianism has **shed** its **cranky** image. -  
+The leaves are a **variegated** red. -  
 The potential of smart contract and the ability to **bestow** utilization rights, property rights, copyrights, usage rights. - 
 Chinese didn't obtain the equal position and **condign** respect. -  
 They quickly stripped me of my clothes and **bound** me like a **mummy** in a **gossamer web**. -  

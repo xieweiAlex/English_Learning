@@ -1,10 +1,23 @@
 
-I will badger her with "mom" questions.  
+
+There is a comedian who has a whole **spiel** about the term insurgent during the war...  
+
+**shenanigans** 
+
+I will **badger** her with "mom" questions.  
+He gets the occasional **niggle** in his right shoulder.  
+Every man has his **hobbyhorse**.  
+**perpetrator**
+**memoire**  
+**handsomely** 
+**rags** 
+We were **incensed** by their bad behavior.  
+The Tiger Immortal lit the **incense** and then sat down.  
 
 
+While this study’s findings are only **preliminary** and more research will be needed to tease out just what it all really means.  
+She further **advises not drinking** to the point of becoming intoxicated.  
 
-While this study’s findings are only preliminary and more research will be needed to tease out just what it all really means.  
-She further advises not drinking to the point of becoming intoxicated.  
 **nightcap**  
 
 The **drollness** of normal peoples ' everyday lives.  
