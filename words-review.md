@@ -4,6 +4,7 @@ Leave that alone, you **hobo**. -
 
 ## words-Dec.md ## 
 words/2022/words-Dec.md
+Too many scrambled eggs often would always make my stomach a little **queasy**. -  
 Straight line **parallel** to the corners of the mouth, and a **radian**. -  
 **Substrate** **mycelium** , grow in the **substate**. -  
 You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
@@ -13,7 +14,6 @@ The potential of smart contract and the ability to **bestow** utilization rights
 Chinese didn't obtain the equal position and **condign** respect. -  
 They quickly stripped me of my clothes and **bound** me like a **mummy** in a **gossamer web**. -  
 The yogurt is set when it **jiggles** all **as one unit** if you carefully nudge the insert, and it does not run if you **tip** the pot a bit. -  
-We become **insomniac** or **impotent**. An eyelid starts **twitching**. -  
 Remove the **thermometer**. There will be a film of **coagulated** milk on the surface of the milk. -  
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
 A study of **ophidian** **clitorises** suggests snakes are highly **sexed**. -  
@@ -57,7 +57,3 @@ Why it matters: This would **preempt** a trial that had been scheduled for Octob
 ## words-July.md ## 
 words/2022/words-July.md
 Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting that employees who found themselves unable to keep up with the company’s fastening pace might also find that they’re without a job. -  
-
-## words-June.md ## 
-words/2022/words-June.md
-Speaking of her love, has become a romantic **balderdash**. -  

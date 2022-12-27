@@ -108,7 +108,7 @@ It's nice to be told that you're smart, creative, resourceful or **driven**. But
 
 He won the election **hands down**.  
 
-Speaking of her love, has become a romantic **balderdash**. -  
+Speaking of her love, has become a romantic **balderdash**.   
 The young soldier **flouted** his officer's orders.  
 
 I would spend hours every night I was alone going through needless self **flagellation**.  

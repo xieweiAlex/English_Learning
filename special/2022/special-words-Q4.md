@@ -1,4 +1,8 @@
 
+**archaic**, **antique**
+
+**fret**
+
 **preliminary**
 
 **raves**, **rad**  

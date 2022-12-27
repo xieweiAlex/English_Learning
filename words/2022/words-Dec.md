@@ -1,5 +1,28 @@
 
 
+**Priming effect**  
+**acidic** vs **sour** vs tart  
+He watched her with **unremitting** attention.  
+**wrongdoing**  
+
+Jesus is most often portrayed as loving, empathetic, and forgiving. Jesus also had a **fiery**, uncompromising (even sarcastic) side when it came to addressing **biblical** truth and morals (make no mistake, bitcoin is all about the truth and morality of sound money). These angry Jesus stories in the Bible are **hard-hitting**… similar to toxic bitcoin maxis.  
+During this season we celebrate the birth of Jesus… ALL of his character traits… and the, **albeit imperfect**, manifestation of those within the bitcoin community.  
+
+He was acclaimed for his acerbic wit and **repartee**.  
+This diplomat possessed an excellent gift for **repartee**.  
+**ballsy**  
+
+
+It's gonna slow down our intention to invest is kind of the first line of defense of everybody, and it's **balderdash**.  
+Too many scrambled eggs often would always make my stomach a little **queasy**. -  
+
+## Week 4 
+
+**swivel** chair.  
+**leaky**   
+Are you gonna let him sit there and **barefaced lie**.  
+We mustn't get **bogged down** in details.  
+
 There is a comedian who has a whole **spiel** about the term insurgent during the war...  
 
 **shenanigans** 
@@ -13,7 +36,6 @@ Every man has his **hobbyhorse**.
 **rags** 
 We were **incensed** by their bad behavior.  
 The Tiger Immortal lit the **incense** and then sat down.  
-
 
 While this study’s findings are only **preliminary** and more research will be needed to tease out just what it all really means.  
 She further **advises not drinking** to the point of becoming intoxicated.  
@@ -34,14 +56,14 @@ A **blackguard** is a **scoundrel**.
 Straight line **parallel** to the corners of the mouth, and a **radian**. -  
 **Substrate** **mycelium** , grow in the **substate**. -  
 
-The Stoics did not reject **worldly** pleasures. They rejected the reckless ones. The dangerous, ephemeral ones.
+> The Stoics did not reject **worldly** pleasures. They rejected the reckless ones. The dangerous, **ephemeral** ones.
 
 **Mahatma** Gandhi.  
 The work appears to be light and the pay **munificent**.  
 
 You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
 The rule is **antiquated** and wrong.  
-It's easy to **succumb** to an authoritative, dictatorial father who wouldn't **brook** any descent.  
+It's easy to **succumb** to an **authoritative**, dictatorial father who wouldn't **brook** any dissent.  
 This man is a **menance**, it had been proven during the covid pandemic.  
 she is **grandiose**, exactly like the narcissit, but the locus of the grandiosity, the content of the grandiose fantasy, it's different.  
 
@@ -85,7 +107,7 @@ The yogurt is set when it **jiggles** all **as one unit** if you carefully nudge
 **hangup with it**.  
 
 **harden**
-We become **insomniac** or **impotent**. An eyelid starts **twitching**. -  
+We become **insomniac** or **impotent**. An eyelid starts **twitching**.   
 Remove the **thermometer**. There will be a film of **coagulated** milk on the surface of the milk. -  
 
 **behoove** 
