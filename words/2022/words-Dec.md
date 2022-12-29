@@ -1,5 +1,23 @@
 
 
+I've been **cutting down** on running.  
+**cruciferous** vegetables.  
+
+
+> You got to have the discipline to **reign in** that sort of **preemptive** celebration that sense you've got it, the halfway point you have to remind yourself it's even not close to halfway done.   
+
+Addictive but **unrewarding** pastimes.  
+You have very **luscious** hair.  
+Do you know where can I buy **artisanal** bread?  
+
+She was a tiny little woman to inspire so much **veneration**.  
+
+The ring was only **plated** (with gold). -  
+nickel **plated**, zinc **plated**.  
+
+I can't permit you to **temporize** any longer. -  
+It's both an **emollient** and a natural perfume.
+
 **Priming effect**  
 **acidic** vs **sour** vs tart  
 He watched her with **unremitting** attention.  
@@ -177,7 +195,7 @@ We won't have a **housekeeper**, you can clean the house yourself.
 The bill, which will be attached to “must pass” legislation for this Congress, would allow cannabis businesses to obtain bank accounts and loans, and help local and state governments **expunge** marijuana convictions.  
 
 **coronary** heart disease.  
-**Trout** is another type of delicious freshwater fish, similar to salmon. -   
+**Trout** is another type of delicious freshwater fish, similar to salmon.   
 
 With scars from the **heyday** of Webvan and Pets.com still fresh in the investor psyche, people are asking, “Isn’t this just a dangerous new bubble?”  
 How Netflix **eviscerated** Blockbuster is an old story, but now other traditional entertainment providers are facing the same threat. -  
@@ -250,7 +268,7 @@ A **military buildup** is likely to be another **boon** for stocks like Lockheed
 
 On Monday, Chinese authorities flooded previous protest areas in Beijing, Shanghai and Hong Kong with police vans and security forces to **preempt** further demonstrations.   
 
-He speaks in **unctuous** tones. -  
+He speaks in **unctuous** tones.   
 **unctuous** soil.  
 
 Munger is a **voracious** reader. “Develop into a lifelong self-learner through **voracious** reading; cultivate curiosity and **strive** to become a little wiser every day,” he once said. 

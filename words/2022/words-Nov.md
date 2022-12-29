@@ -90,7 +90,7 @@ a **weepy** **clingy** child.
 I **deftly** played Ross Loma against Index Ventures.   
 He soon proved himself a **redoubtable** warrior, and won the respect of other soldiers. -
 Why are people so full of **gloom and doom**?
-A square is a **quadrilateral**. -  
+A square is a **quadrilateral**.   
 Looks may not kill, but they can leave you feeling **peckish**.   
 It's a difficult piece, with numerous changes of **tempo**.  
 He transforms the most ordinary subject into the **sublime**.  
