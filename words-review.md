@@ -1,11 +1,19 @@
 ## f-family.md ## 
-media/f-family.md
+media/f-family.md  
 Leave that alone, you **hobo**. -  
 
 ## words-Dec.md ## 
-words/2022/words-Dec.md
+words/2022/words-Dec.md  
+He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
+He is God's chosen lamb to **expiate** sin, to **propitiate** wrath. -  
+I **immured** myself for four years, and studied the laws of the empire. -  
+The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores. -  
+This kind of freedom is **licentious**. -  
+The hills are covered in **lush** green vegetation. -  
 The ring was only **plated** (with gold). -  
 I can't permit you to **temporize** any longer. -  
+He watched her with **unremitting** attention. -  
+He was acclaimed for his acerbic wit and **repartee**. -  
 Too many scrambled eggs often would always make my stomach a little **queasy**. -  
 Straight line **parallel** to the corners of the mouth, and a **radian**. -  
 **Substrate** **mycelium** , grow in the **substate**. -  
@@ -36,7 +44,7 @@ The speech—which would later become known as "This Is Water"—begins with a s
 A study of **ophidian** **clitorises** suggests snakes are highly **sexed**. -  
 
 ## words-Nov.md ## 
-words/2022/words-Nov.md
+words/2022/words-Nov.md  
 It is not an escape from the **trials and tribulations** of everyday life. -  
 That long, **lugubrious** howl rose on the night air again! -  
 His **mordant** **wit** appealed to students. -  
@@ -45,14 +53,6 @@ if you're trying to destroy an enemy who hurt you far better to **keep him off g
 The surrounding countryside is **windswept** and rocky. -  
 
 ## words-Oct.md ## 
-words/2022/words-Oct.md
+words/2022/words-Oct.md  
 As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  
-It **behooves** me to inform you that you're fired. -  
-The **vagary** of absolute. -  
-Sacrifices were made to **propitiate** the gods. -  
 Although this was **obliquely** phrased, the big two were poor decisionmaking on behalf of Russia (invading Ukraine) and Europe generally (being fundamentally unserious about power policy), leading to **ripples** that would affect the price of inputs to many participants in the Japanese grid. -  
-Why it matters: This would **preempt** a trial that had been scheduled for October, tied to Musk’s efforts to walk away from his original acquisition agreement. -  
-
-## words-July.md ## 
-words/2022/words-July.md
-Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting that employees who found themselves unable to keep up with the company’s fastening pace might also find that they’re without a job. -  

@@ -32,7 +32,7 @@ Hey, **courier** on the back.
 Right, so **round the back**.  
 
 We **scouted** the postal office.   
-It **behooves** me to inform you that you're fired. -  
+It **behooves** me to inform you that you're fired.   
 
 The Biden administration last week announced new export restrictions aimed at **hobbling** China's ability to make advanced semiconductors.  
 Tucker Carlson **lashes out** at GOP campaign chief in **irate** private call.  
@@ -92,7 +92,7 @@ That **icky** substance is called **honeydew**, a sugary liquid **excreted** by 
 My **menopause** experience was a **tsunami** of **batshit** crazy –– mostly because I didn't know what was happening.
 Auditing Chinese companies has been one of several **flashpoints** between Washington and Beijing.   
 
-The **vagary** of absolute. -  
+The **vagary** of absolute.   
 
 
 My belief is that Apple has **eschewed** another event because of the fairly **ordinary** nature of the announcements.   
@@ -138,7 +138,7 @@ For now, we're willing to **skate** with this risk, as the potential for this in
 
 
 Across the pond, the message from Fed officials isn't **wavering** from the hawkish stance. 
-Sacrifices were made to **propitiate** the gods. -  
+Sacrifices were made to **propitiate** the gods.   
 
 Ben Bernanke, the former chairman of the Federal Reserve, said that the U.S. economy, which is showing signs of cooling amid the central bank's aggressive interest-rate hiking campaign, is "certainly not in anything like the dire **straits** we were in" during the 2008 Great Financial Crisis.  
 Some weight rooms definitely **give off** a **gym bro vibe**, complete with grunting and crashing **ironwork**.  
@@ -191,7 +191,7 @@ It doesn't matter if your nose is little **bulbous**, or your eyes are too close
 I am not sure I want to be **looking over my shoulder** for half the year.  
 
 **Percetptive** 
-Why it matters: This would **preempt** a trial that had been scheduled for October, tied to Musk’s efforts to walk away from his original acquisition agreement. -  
+Why it matters: This would **preempt** a trial that had been scheduled for October, tied to Musk’s efforts to walk away from his original acquisition agreement.   
 Don’t let database **drudgery** eat up your coding time.   
 
 That's **appalling** and **malevolent**.  

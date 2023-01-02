@@ -1,4 +1,6 @@
 
+**consoling**
+
 **unrewarding**
 
 **archaic**, **antique**

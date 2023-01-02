@@ -1,8 +1,51 @@
 
+## Week 5
 
+The past year was a bit **shabby**.  
+
+> The last thing she wants is to give an inconclusive evaluation because the session has gone poorly and there are not enough signals. 
+
+**fan-out** service  
+**Bounce ideas off** the interviewer. A good interviewer works with you as a teammate.  
+**back-of-the-envelope** estimation.  
+
+He **brimmed** a glass of beer and offered it to me.  
+His eyes **brimmed** with tears.  
+The glass was full **to the brim**.  
+
+He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
+He was a man of **stupendous** **stamina** and energy.  
+**gradient**  
+
+He is God's chosen lamb to **expiate** sin, to **propitiate** wrath. -  
+To **propitiate** someone means to satisfy them. When we say God is **propitiated**, we mean God is satisfied, hist justice is satisfied.   
+
+A **pet peeve** is something that you find particularly annoying.  
+
+I **immured** myself for four years, and studied the laws of the empire. -  
+**Mure** 
+
+The blood does not **coagulate** and they can die.  
+
+The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores. -  
+You have just landed a **coveted** on-site interview at your dream company.  
+
+> Seneca had money and privilege. Lots of it.
+> It didn’t save him from illness, or spare him from years of convalescence. It didn’t protect him from the whims of an emperor, who exiled him for false charges. It didn’t save him from tragically losing a child. In the end, it didn’t even give him the freedom to walk away from Nero’s service when he wanted to. Even with his vast wealth, it was a problem he couldn’t buy himself out of.
+
+
+Everywhere wallpaper hung **in tatters**.  
+Tesla **in tatters**.  
+
+This kind of freedom is **licentious**. -  
+**floor lamp**, **headlamp**   
+She **deftly** wove the flowers into a **garland**.  
+**nirvana**  
+That skirt of hers is positively **indecent**.  
+
+The hills are covered in **lush** green vegetation. -  
 I've been **cutting down** on running.  
 **cruciferous** vegetables.  
-
 
 > You got to have the discipline to **reign in** that sort of **preemptive** celebration that sense you've got it, the halfway point you have to remind yourself it's even not close to halfway done.   
 
@@ -13,20 +56,20 @@ Do you know where can I buy **artisanal** bread?
 She was a tiny little woman to inspire so much **veneration**.  
 
 The ring was only **plated** (with gold). -  
-nickel **plated**, zinc **plated**.  
+**nickel** **plated**, zinc **plated**.  
 
 I can't permit you to **temporize** any longer. -  
 It's both an **emollient** and a natural perfume.
 
 **Priming effect**  
 **acidic** vs **sour** vs tart  
-He watched her with **unremitting** attention.  
+He watched her with **unremitting** attention. -  
 **wrongdoing**  
 
 Jesus is most often portrayed as loving, empathetic, and forgiving. Jesus also had a **fiery**, uncompromising (even sarcastic) side when it came to addressing **biblical** truth and morals (make no mistake, bitcoin is all about the truth and morality of sound money). These angry Jesus stories in the Bible are **hard-hitting**… similar to toxic bitcoin maxis.  
 During this season we celebrate the birth of Jesus… ALL of his character traits… and the, **albeit imperfect**, manifestation of those within the bitcoin community.  
 
-He was acclaimed for his acerbic wit and **repartee**.  
+He was acclaimed for his acerbic wit and **repartee**. -  
 This diplomat possessed an excellent gift for **repartee**.  
 **ballsy**  
 
@@ -305,6 +348,10 @@ You need to **flesh out** your argument with a few more examples.
 
 What's the **draw** to move into Azure public cloud?  
 
+You have very **luscious** hair.  
+
+
+
 ### Grammar
 > Alev recommended me here. 
 > Alev recommended this group to me and that's why I'm here. 
@@ -334,4 +381,12 @@ China is **doubling down** on its complaints at the World Trade Organization as 
 
 My thoughts are all in a **muddle**.  
 He **molested** children and was sent to jail.   
+
+A **pet peeve** is something that you find particularly annoying.  
+He was a man of **stupendous** **stamina** and energy.  
+The Rome of beggars, **buskers**, tumblers, **quacks** and whores.  
+
+Addictive but **unrewarding** pastimes.  
+
+
 

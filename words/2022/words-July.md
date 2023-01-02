@@ -8,7 +8,7 @@ Vladimir Putin is **in thrall to** a distinctive brand of Russian fascism.
 
 He also **expounded** on why the recently rebranded Facebook-turned-Meta would be freezing hiring in many areas.  
 Before the floor opened to employees’ up-voted questions, Mr Zuckerberg had just finished **laying into** his staff, warning with intense vigour about how the economy was heading into one of the “worst downturns that we’ve seen in recent history.”
-Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting that employees who found themselves unable to keep up with the company’s fastening pace might also find that they’re without a job. -  
+Mr Zuckerberg also issued a **foreboding warning** to staff, more than hinting that employees who found themselves unable to keep up with the company’s fastening pace might also find that they’re without a job.   
 
 A **disembodied** voice sounded from the back of the cabin.   
 Don’t take it personally. Getting **flipped off** while driving is just a **rite of passage** here.

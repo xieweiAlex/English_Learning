@@ -1,4 +1,5 @@
 
+**acidic** vs **sour** vs tart  
 * seclusive vs reclusive 
 * sour vs tart 
 * concilliate vs reconcile 
