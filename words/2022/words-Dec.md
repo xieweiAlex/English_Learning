@@ -1,4 +1,23 @@
 
+Heterogeneity: the number of virtual nodes for a server is proportional to the server capacity. For example, servers with higher capacity are assigned with more virtual nodes.  
+
+
+People get quite uppity about politics.  
+We're marinating in a gendered, perhaps patriarchal, social system.  
+
+
+“Putting things off is the biggest waste of life,” Seneca wrote. “It snatches away each day…and denies us the present by promising the future.”  
+
+
+Yaml is the **lingua franca** of cloud config (although verbose...)  
+
+Everything he owned was **sequestered**. -  
+**Vouchsafe** me a spirit of faith and knowledge.  
+The tone of the article is **intemperate**. -  
+The picture showed this **impish** kid with this like wicked smile on his face.  
+
+
+
 ## Week 5
 
 The past year was a bit **shabby**.  
