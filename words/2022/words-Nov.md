@@ -300,7 +300,7 @@ We can **deduce** a conclusion from the premise.
 Musk has also **mused** about making Dogecoin an official payment method. 
 
 How men with guns **aggravate** global hunger.  
-The surrounding countryside is **windswept** and rocky. -  
+The surrounding countryside is **windswept** and rocky.   
 Release does not **exonerate** the offender.   
 
 **track**

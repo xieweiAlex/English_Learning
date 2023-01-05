@@ -1,13 +1,13 @@
 
-Heterogeneity: the number of virtual nodes for a server is proportional to the server capacity. For example, servers with higher capacity are assigned with more virtual nodes.  
 
+**Probiotics** might have some benefit to treating **halitosis**, but it doesn’t appear they should be solely relied upon.  
+**tiff**  
+**Heterogeneity**: the number of virtual nodes for a server is proportional to the server capacity. For example, servers with higher capacity are assigned with more virtual nodes.  
 
-People get quite uppity about politics.  
-We're marinating in a gendered, perhaps patriarchal, social system.  
+People get quite **uppity** about politics.  
+We're **marinating** in a gendered, perhaps **patriarchal**, social system.  
 
-
-“Putting things off is the biggest waste of life,” Seneca wrote. “It snatches away each day…and denies us the present by promising the future.”  
-
+> “Putting things off is the biggest waste of life,” Seneca wrote. “It **snatches away** each day…and denies us the present by promising the future.”  
 
 Yaml is the **lingua franca** of cloud config (although verbose...)  
 
@@ -15,8 +15,6 @@ Everything he owned was **sequestered**. -
 **Vouchsafe** me a spirit of faith and knowledge.  
 The tone of the article is **intemperate**. -  
 The picture showed this **impish** kid with this like wicked smile on his face.  
-
-
 
 ## Week 5
 
@@ -41,7 +39,7 @@ To **propitiate** someone means to satisfy them. When we say God is **propitiate
 
 A **pet peeve** is something that you find particularly annoying.  
 
-I **immured** myself for four years, and studied the laws of the empire. -  
+I **immured** myself for four years, and studied the laws of the empire.   
 **Mure** 
 
 The blood does not **coagulate** and they can die.  
@@ -188,7 +186,7 @@ The yogurt is set when it **jiggles** all **as one unit** if you carefully nudge
 
 **harden**
 We become **insomniac** or **impotent**. An eyelid starts **twitching**.   
-Remove the **thermometer**. There will be a film of **coagulated** milk on the surface of the milk. -  
+Remove the **thermometer**. There will be a film of **coagulated** milk on the surface of the milk.   
 
 **behoove** 
 
@@ -295,7 +293,7 @@ You're handsome, **debonair**...
 **fortitude**  
 
 I've got 5 brothers and sisters, one of them is **bound to** screw up real big, and then I'll tell my parents about you.   
-That's a beautiful **tapestry**. -  
+That's a beautiful **tapestry**.   
 
 Doctors and schools should be **franker** about pleasure.  
 

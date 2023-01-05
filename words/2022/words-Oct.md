@@ -176,7 +176,7 @@ Twitter's board is considering Musk's offer, but is taking its time to reply bec
 
 
 This occasions what industry calls “**truck rolls**”, which is the activity where an expensive human gets in an expensive piece of movable capital for a few hours.  
-Although this was **obliquely** phrased, the big two were poor decisionmaking on behalf of Russia (invading Ukraine) and Europe generally (being fundamentally unserious about power policy), leading to **ripples** that would affect the price of inputs to many participants in the Japanese grid. -  
+Although this was **obliquely** phrased, the big two were poor decisionmaking on behalf of Russia (invading Ukraine) and Europe generally (being fundamentally unserious about power policy), leading to **ripples** that would affect the price of inputs to many participants in the Japanese grid.   
 This would have the **knock-on effect** of potentially bringing down the grid when salarymen get home from work and turn on their air conditioners.  
 **CapEx**: capital **expenditures**
 **Long gone are the days** of **austerity** conversations, the Tea Party movements or the **balanced budget** talk that made some political brownie points.  

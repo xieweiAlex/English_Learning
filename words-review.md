@@ -4,9 +4,10 @@ Leave that alone, you **hobo**. -
 
 ## words-Dec.md ## 
 words/2022/words-Dec.md  
+Everything he owned was **sequestered**. -  
+The tone of the article is **intemperate**. -  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
 He is God's chosen lamb to **expiate** sin, to **propitiate** wrath. -  
-I **immured** myself for four years, and studied the laws of the empire. -  
 The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores. -  
 This kind of freedom is **licentious**. -  
 The hills are covered in **lush** green vegetation. -  
@@ -24,7 +25,6 @@ The potential of smart contract and the ability to **bestow** utilization rights
 Chinese didn't obtain the equal position and **condign** respect. -  
 They quickly stripped me of my clothes and **bound** me like a **mummy** in a **gossamer web**. -  
 The yogurt is set when it **jiggles** all **as one unit** if you carefully nudge the insert, and it does not run if you **tip** the pot a bit. -  
-Remove the **thermometer**. There will be a film of **coagulated** milk on the surface of the milk. -  
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
 A study of **ophidian** **clitorises** suggests snakes are highly **sexed**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
@@ -35,7 +35,6 @@ I didn't want to hear the **sordid** details of their relationship. -
 The newspaper launched a **vitriolic** attack on the president. -  
 **Needles** about anything **gelatinous**. -  
 How Netflix **eviscerated** Blockbuster is an old story, but now other traditional entertainment providers are facing the same threat. -  
-That's a beautiful **tapestry**. -  
 Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
 Politicians like to **pontificate** about falling standards. -  
 He was neither overly worried nor **briskly** **peremptory**. -  
@@ -50,9 +49,7 @@ That long, **lugubrious** howl rose on the night air again! -
 His **mordant** **wit** appealed to students. -  
 you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
 if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger. -  
-The surrounding countryside is **windswept** and rocky. -  
 
 ## words-Oct.md ## 
 words/2022/words-Oct.md  
 As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  
-Although this was **obliquely** phrased, the big two were poor decisionmaking on behalf of Russia (invading Ukraine) and Europe generally (being fundamentally unserious about power policy), leading to **ripples** that would affect the price of inputs to many participants in the Japanese grid. -  

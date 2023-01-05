@@ -14,7 +14,7 @@ function countWords {
   for file_path in "${files[@]}"; do 
     echo "File path: $file_path"
 
-    count=$(./count.py $file_path)
+    count=$(Python3 count.py $file_path)
     echo -e "Current count: ${GREEN} $count ${NC}"
     total_count=$(( total_count + count ))
     echo -e "total count: ${YELLOW} $total_count ${NC}"
@@ -146,7 +146,7 @@ elif [[ $action == 'update' ]]; then
 else 
   echo -e "${RED}Failed!${NC}"				
 	echo "this is invalid parameter: $action"		
-	echo "should be \"sync\", \"pushBack\" or \"update\""
+	echo "should be \"sync\", \"pushBack\", \"countWords\" or \"update\""
 fi
 
 
