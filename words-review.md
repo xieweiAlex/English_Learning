@@ -4,6 +4,8 @@ Leave that alone, you **hobo**. -
 
 ## words-Dec.md ## 
 words/2022/words-Dec.md  
+Insults alone cannot **defile** a person's honour. -  
+What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
 Everything he owned was **sequestered**. -  
 The tone of the article is **intemperate**. -  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  

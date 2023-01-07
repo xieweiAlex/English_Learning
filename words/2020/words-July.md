@@ -153,7 +153,7 @@ It's like a digital **purgatory**
 call his **bluff**  
 he will **turn up**  
 **superstitious** people  
-I dont' want to **disabuse** their believes  
+I don't want to **disabuse** their believes  
 recalled by the **lead paint**  
 **dodge ball**  
 **exclusionary**  

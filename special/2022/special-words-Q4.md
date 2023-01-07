@@ -1,12 +1,20 @@
 
-**marinate**
+**existential** 
 
+**neatly**
+
+**productize**
+
+**off-the-shelf**
+
+**marinate**
 
 ## Dec 
 
 **consoling**
 
 **unrewarding**
+**unremitting**  
 
 **archaic**, **antique**
 

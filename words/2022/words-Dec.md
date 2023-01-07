@@ -1,4 +1,54 @@
 
+He considered himself the master of crypto universe, which the market has disabused him.   
+Located in Arizona, this National Park is full of cactus across a desert Park.  
+
+riff a bit.  
+go terrible awry.  
+nuclear family.  
+
+
+how it gains popularity 
+prosperity and abundance  
+How should you live your life  
+
+
+how to apply the experience/displine to the snn she's got, 13 years old 
+
+artifuical adverse situation, 
+inevitable they'd face difuficulty, learn those lessons on their own  
+
+* deal with anxiety 
+  * it might introduce the exactly same thing you anxious about 
+  * The trip: ruin the trip, worry too much might ruin the trip 
+* How to find mentor, not people around 
+  * no need to in person, not even alive, like stoicism guru 
+  * not need to be official, you can model them.  
+* How to handle people undmine, sabtorage your work 
+  * 
+
+
+
+
+All models are wrong is a common **aphorism** in statistics; it is often expanded as "All models are wrong, but some are useful". 
+
+As a veteran of the PaaS (Platform as a Service) discipline about a decade ago, and a DevOps enthusiast **at present**, I decided to **delve into** this topic, **peel off** the hype, and see what it’s about in practice.  
+Less than a decade ago, the common **paradigm** **neatly** divided the software stack into IaaS/PaaS/SaaS (infrastructure/platform/software as a service).  
+> We don’t need Platform as a Service. We need Platform as a Product.
+
+I would get up in the morning around the same time each day and work out, but not in a forced, **burdensome** way. This was a new **phenomenon** for me.  
+After weeks of **chipping away** , my pantry was down to only **healthy-ish** foods.  
+
+> And think about it – exercising literally is maintenance. It’s hedging against the weight and the possible injuries and struggles of the future  
+
+Insults alone cannot **defile** a person's honour. -  
+
+
+What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
+I've never read it. My ears are **perked** … time/place?  
+
+
+**caricature** artist.  
+**in deference to**.   
 
 **Probiotics** might have some benefit to treating **halitosis**, but it doesn’t appear they should be solely relied upon.  
 **tiff**  
