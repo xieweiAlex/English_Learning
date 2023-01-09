@@ -1,33 +1,27 @@
 
-He considered himself the master of crypto universe, which the market has disabused him.   
-Located in Arizona, this National Park is full of cactus across a desert Park.  
-
-riff a bit.  
-go terrible awry.  
-nuclear family.  
+> His willingness to take adequate care of himself… He hardly ever needed medical attention, or drugs or any sort of salve or ointment.
+> Your challenge today is to properly solve, **once and for all**, one of those persistent problems you continually assign to your future self.
 
 
-how it gains popularity 
-prosperity and abundance  
-How should you live your life  
+Nothing new looms, only reruns of what you’ve already experienced or read about in the **annals** of history.  
+
+Given China’s **perennial** **secrecy**, we won’t ever know the true death toll. At worst, we’ve estimated, it could reach 1.5m.  
+Over in Ukraine there is speculation that Russia is **girding** itself for a new offensive, and maybe the mobilisation of more conscripts. -  
+Britons in their thirties are stuck in a dark age.  
 
 
-how to apply the experience/displine to the snn she's got, 13 years old 
+A **Herculean** Choice: **Virtue or Vice**. -  
 
-artifuical adverse situation, 
-inevitable they'd face difuficulty, learn those lessons on their own  
+He considered himself the master of crypto universe, which the market has **disabused** him.   
+Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 
-* deal with anxiety 
-  * it might introduce the exactly same thing you anxious about 
-  * The trip: ruin the trip, worry too much might ruin the trip 
-* How to find mentor, not people around 
-  * no need to in person, not even alive, like stoicism guru 
-  * not need to be official, you can model them.  
-* How to handle people undmine, sabtorage your work 
-  * 
+**riff a bit**.  
+**go terrible awry**.  
+**nuclear family**.  
 
-
-
+how it **gains popularity** 
+**prosperity and abundance**  
+> How should you live your life  
 
 All models are wrong is a common **aphorism** in statistics; it is often expanded as "All models are wrong, but some are useful". 
 
@@ -41,8 +35,6 @@ After weeks of **chipping away** , my pantry was down to only **healthy-ish** fo
 > And think about it – exercising literally is maintenance. It’s hedging against the weight and the possible injuries and struggles of the future  
 
 Insults alone cannot **defile** a person's honour. -  
-
-
 What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
 I've never read it. My ears are **perked** … time/place?  
 
@@ -50,7 +42,7 @@ I've never read it. My ears are **perked** … time/place?
 **caricature** artist.  
 **in deference to**.   
 
-**Probiotics** might have some benefit to treating **halitosis**, but it doesn’t appear they should be solely relied upon.  
+**Probiotics** might have some benefit to treating **halitosis**, but it doesn't appear they should be solely relied upon.  
 **tiff**  
 **Heterogeneity**: the number of virtual nodes for a server is proportional to the server capacity. For example, servers with higher capacity are assigned with more virtual nodes.  
 
@@ -64,7 +56,7 @@ Yaml is the **lingua franca** of cloud config (although verbose...)
 Everything he owned was **sequestered**. -  
 **Vouchsafe** me a spirit of faith and knowledge.  
 The tone of the article is **intemperate**. -  
-The picture showed this **impish** kid with this like wicked smile on his face.  
+The picture showed this **impish** kid with this like wicked smile on his face. -  
 
 ## Week 5
 
@@ -98,7 +90,7 @@ The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores. -
 You have just landed a **coveted** on-site interview at your dream company.  
 
 > Seneca had money and privilege. Lots of it.
-> It didn’t save him from illness, or spare him from years of convalescence. It didn’t protect him from the whims of an emperor, who exiled him for false charges. It didn’t save him from tragically losing a child. In the end, it didn’t even give him the freedom to walk away from Nero’s service when he wanted to. Even with his vast wealth, it was a problem he couldn’t buy himself out of.
+> It didn’t save him from illness, or spare him from years of **convalescence**. It didn’t protect him from the whims of an emperor, who exiled him for false charges. It didn’t save him from tragically losing a child. In the end, it didn’t even give him the freedom to walk away from Nero’s service when he wanted to. Even with his vast wealth, it was a problem he couldn’t buy himself out of.
 
 
 Everywhere wallpaper hung **in tatters**.  
@@ -139,7 +131,6 @@ During this season we celebrate the birth of Jesus… ALL of his character trait
 He was acclaimed for his acerbic wit and **repartee**. -  
 This diplomat possessed an excellent gift for **repartee**.  
 **ballsy**  
-
 
 It's gonna slow down our intention to invest is kind of the first line of defense of everybody, and it's **balderdash**.  
 Too many scrambled eggs often would always make my stomach a little **queasy**. -  
@@ -417,7 +408,26 @@ What's the **draw** to move into Azure public cloud?
 
 You have very **luscious** hair.  
 
+> Say when - when  
 
+**What's the damage**?  
+**What do I owe you**?  
+**What do you charge for this**?  
+
+**Roll with the punch**.  
+Cut the tough guy shit, we both know what we are. We're survivors, we **roll with punches**.  
+You're handsome, **debonair**...  
+**fortitude**  
+
+I've got 5 brothers and sisters, one of them is **bound to** screw up real big, and then I'll tell my parents about you.   
+That's a beautiful **tapestry**.   
+
+> Take debt out of equation 
+> No, it's all good. I got it.  
+
+I've never read it. My ears are **perked** … time/place?  
+
+### Jan 
 
 ### Grammar
 > Alev recommended me here. 
@@ -441,7 +451,7 @@ The furniture was **threadbare**; he'd obviously picked it up for nothing.
 All the **bad breaks** could become **set-ups**; all the people who piss you off, you could turn into **punchlines**.  
 
 
-A study of **ophidian** **clitorises** suggests snakes are highly **sexed**. -  
+A study of **ophidian** **clitorises** suggests snakes are highly **sexed**.   
 The sudden unwinding of **stringent** pandemic measures, if not handled carefully, could **strain** the health care system and lead to a higher number of deaths from the disease than a slower relaxing of measures otherwise might.  
 
 China is **doubling down** on its complaints at the World Trade Organization as a trade war with the U.S. seems to be **morphing** into a broader tech war.  
@@ -454,6 +464,24 @@ He was a man of **stupendous** **stamina** and energy.
 The Rome of beggars, **buskers**, tumblers, **quacks** and whores.  
 
 Addictive but **unrewarding** pastimes.  
+People started to be more **cognizant** about how they spend money on date.  
+Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed.   
 
+### Jan 
 
+What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible.   
+People get quite **uppity** about politics.  
+
+We're **marinating** in a gendered, perhaps **patriarchal**, social system.  
+The past year was a bit **shabby**.  
+
+He **brimmed** a glass of beer and offered it to me.  
+His eyes **brimmed** with tears.  
+He was a man of **stupendous** **stamina** and energy.  
+
+A **pet peeve** is something that you find particularly annoying.  
+Tesla **in tatters**.  
+
+It's gonna slow down our intention to invest is kind of the first line of defense of everybody, and it's **balderdash**.  
+Too many scrambled eggs often would always make my stomach a little **queasy**.   
 
