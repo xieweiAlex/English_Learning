@@ -4,7 +4,6 @@ Leave that alone, you **hobo**. -
 
 ## words-Dec.md ## 
 words/2022/words-Dec.md  
-Over in Ukraine there is speculation that Russia is **girding** itself for a new offensive, and maybe the mobilisation of more conscripts. -  
 A **Herculean** Choice: **Virtue or Vice**. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 Insults alone cannot **defile** a person's honour. -  
@@ -15,9 +14,7 @@ The picture showed this **impish** kid with this like wicked smile on his face. 
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
 He is God's chosen lamb to **expiate** sin, to **propitiate** wrath. -  
 The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores. -  
-This kind of freedom is **licentious**. -  
 The hills are covered in **lush** green vegetation. -  
-The ring was only **plated** (with gold). -  
 I can't permit you to **temporize** any longer. -  
 He watched her with **unremitting** attention. -  
 He was acclaimed for his acerbic wit and **repartee**. -  
@@ -39,7 +36,6 @@ And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate
 **Putrefaction** refers to the breaking down and gradual **liquefaction** of tissue by bacteria. -  
 I didn't want to hear the **sordid** details of their relationship. -  
 The newspaper launched a **vitriolic** attack on the president. -  
-**Needles** about anything **gelatinous**. -  
 How Netflix **eviscerated** Blockbuster is an old story, but now other traditional entertainment providers are facing the same threat. -  
 Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
 Politicians like to **pontificate** about falling standards. -  
@@ -55,6 +51,3 @@ His **mordant** **wit** appealed to students. -
 you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
 if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger. -  
 
-## words-Oct.md ## 
-words/2022/words-Oct.md  
-As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large. -  

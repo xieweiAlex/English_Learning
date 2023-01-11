@@ -1,11 +1,13 @@
 
+**Just hear me out**.  
+
+
 **narcotic** drugs.  
 **Penumonia**  
 **gargantuan**  
 The **lurid** color is the life itself.  
 
-
-It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics.  
+It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics. --  
 The new management faces some **knotty** problems.  
 The **chutney** should be a thick, **pulpy** consistency.  
 The crowd went absolutely mad. It was **bedlam**. -
@@ -18,11 +20,12 @@ Grandpa left, yet the **roly-poly** left me.
 Nothing new looms, only reruns of what you’ve already experienced or read about in the **annals** of history.  
 
 Given China’s **perennial** **secrecy**, we won’t ever know the true death toll. At worst, we’ve estimated, it could reach 1.5m.  
-Over in Ukraine there is speculation that Russia is **girding** itself for a new offensive, and maybe the mobilisation of more conscripts. -  
+Over in Ukraine there is speculation that Russia is **girding** itself for a new offensive, and maybe the mobilisation of more conscripts.   
 **Britons** in their thirties are stuck in a dark age.  
 
-
 A **Herculean** Choice: **Virtue or Vice**. -  
+
+## Week 1
 
 He considered himself the master of crypto universe, which the market has **disabused** him.   
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
@@ -108,7 +111,7 @@ You have just landed a **coveted** on-site interview at your dream company.
 Everywhere wallpaper hung **in tatters**.  
 Tesla **in tatters**.  
 
-This kind of freedom is **licentious**. -  
+This kind of freedom is **licentious**.   
 **floor lamp**, **headlamp**   
 She **deftly** wove the flowers into a **garland**.  
 **nirvana**  
@@ -126,7 +129,7 @@ Do you know where can I buy **artisanal** bread?
 
 She was a tiny little woman to inspire so much **veneration**.  
 
-The ring was only **plated** (with gold). -  
+The ring was only **plated** (with gold).   
 **nickel** **plated**, zinc **plated**.  
 
 I can't permit you to **temporize** any longer. -  
@@ -297,7 +300,7 @@ The test your doctor will likely order is called a **lipid panel**. This panel s
 ## Week 1
 
 **burdensome**, **worrisome** 
-**Needles** about anything **gelatinous**. -  
+**Needles** about anything **gelatinous**.   
 
 I respect your **trickery**.  
 Do we hire somebody to do our taxes, cut the grass, remove **asbestos** from the ceiling?   
