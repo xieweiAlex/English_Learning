@@ -1,4 +1,16 @@
 
+**narcotic** drugs.  
+**Penumonia**  
+**gargantuan**  
+The **lurid** color is the life itself.  
+
+
+It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics.  
+The new management faces some **knotty** problems.  
+The **chutney** should be a thick, **pulpy** consistency.  
+The crowd went absolutely mad. It was **bedlam**. -
+Grandpa left, yet the **roly-poly** left me.  
+
 > His willingness to take adequate care of himself… He hardly ever needed medical attention, or drugs or any sort of salve or ointment.
 > Your challenge today is to properly solve, **once and for all**, one of those persistent problems you continually assign to your future self.
 
@@ -7,7 +19,7 @@ Nothing new looms, only reruns of what you’ve already experienced or read abou
 
 Given China’s **perennial** **secrecy**, we won’t ever know the true death toll. At worst, we’ve estimated, it could reach 1.5m.  
 Over in Ukraine there is speculation that Russia is **girding** itself for a new offensive, and maybe the mobilisation of more conscripts. -  
-Britons in their thirties are stuck in a dark age.  
+**Britons** in their thirties are stuck in a dark age.  
 
 
 A **Herculean** Choice: **Virtue or Vice**. -  

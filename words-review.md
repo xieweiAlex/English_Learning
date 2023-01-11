@@ -4,10 +4,14 @@ Leave that alone, you **hobo**. -
 
 ## words-Dec.md ## 
 words/2022/words-Dec.md  
+Over in Ukraine there is speculation that Russia is **girding** itself for a new offensive, and maybe the mobilisation of more conscripts. -  
+A **Herculean** Choice: **Virtue or Vice**. -  
+Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 Insults alone cannot **defile** a person's honour. -  
 What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
 Everything he owned was **sequestered**. -  
 The tone of the article is **intemperate**. -  
+The picture showed this **impish** kid with this like wicked smile on his face. -  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
 He is God's chosen lamb to **expiate** sin, to **propitiate** wrath. -  
 The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores. -  
@@ -42,7 +46,6 @@ Politicians like to **pontificate** about falling standards. -
 He was neither overly worried nor **briskly** **peremptory**. -  
 The trustworthiness is the essential condition of **comity**. -  
 The speech—which would later become known as "This Is Water"—begins with a simple **parable** of the young fish and the old fish. -  
-A study of **ophidian** **clitorises** suggests snakes are highly **sexed**. -  
 
 ## words-Nov.md ## 
 words/2022/words-Nov.md  
