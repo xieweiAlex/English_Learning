@@ -1,6 +1,18 @@
 
-**Just hear me out**.  
+My Russian is a bit **rusty**.  
+They laughed, in a **derisive** way.  
 
+**I happen to believe** that ...   
+
+Benidorm Island is a small island and nature reserve and makes a great **excursion** for the whole family.  
+I went to Christmas **shindig** with my boyfriend at the time and his family is very religious the catholic and right before the eight they got into a circle held hands and prayed.  
+When a predator is around, the squirrel doesn't **snarl**. Instead, it **whips** its tail **back and forth** to look big and **fearsome**.  
+The art of **hula** was seen as **lascivious** and almost **heretical**. And so hula got pushed into underground scenes and were maintained in secrecy. -  
+
+I am fortunate to know several **nonagenarians**, but to add to the robustness of the response, I put the question out with a number of friends with older grandparents or great-grandparents.  
+Court **upholds** arrest of Andrew Tate.  
+
+**Just hear me out**.  
 
 **narcotic** drugs.  
 **Penumonia**  
@@ -410,15 +422,13 @@ We won't have a **housekeeper**, you can clean the house yourself.
 
 I ended up as a **schumuck** who does looking.  
 He is **bogged down** by student loan.  
-Most of the Wall Street **jackasses** that I bust, they're to **the manor born**.  
+Most of the Wall Street **jackasses** that I bust, they're **to the manor born**.  
 But you, Jordan, you **got this way all on your own**.  
 
-Cut the tough guy shit, we both know what we are. We're survivors, we **roll with punches**.  
 I've got 5 brothers and sisters, one of them is **bound to** screw up real big, and then I'll tell my parents about you.   
 That's a beautiful **tapestry**.   
 
 You need to **flesh out** your argument with a few more examples. 
-
 What's the **draw** to move into Azure public cloud?  
 
 You have very **luscious** hair.  
@@ -433,9 +443,6 @@ You have very **luscious** hair.
 Cut the tough guy shit, we both know what we are. We're survivors, we **roll with punches**.  
 You're handsome, **debonair**...  
 **fortitude**  
-
-I've got 5 brothers and sisters, one of them is **bound to** screw up real big, and then I'll tell my parents about you.   
-That's a beautiful **tapestry**.   
 
 > Take debt out of equation 
 > No, it's all good. I got it.  
