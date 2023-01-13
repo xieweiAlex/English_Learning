@@ -1,4 +1,26 @@
 
+I hope five or 10 more times during my lifetime as an investor, none of that should diminish the uncertainty or the pain of watching your net worth shrivel over the last 12 months as virtually everyone has, no matter how you invest, everyone has some degree of that.   
+What's equally important is that if you are the investor for whom a 30, 40, 50 percent or more decline was unpalatable.  
+
+Its mid-sized SUV with **gullwing** doors.  
+
+Protests have subsided in Iran, but clerics cannot yet proclaim victory.  
+The regime has quelled the protests but Iranians are still seething.  
+
+
+He went to the bandits' **lair** all by himself!  
+We were so bored in the ashram at night, absolutely nothing goes on in an ashram at night.  
+Cheese grater.  
+She recognized the grating voice of Dr. Sarnoff.  
+
+
+**Condensation** releases heat, and heat becomes the energy that drives huge upward **drafts** of air.  
+
+Your level of empathy compared to others is quite **pronounced**.
+If you try to sell $1B worth of crypto all at once, it's going to **depress** the market.  
+
+> It’s a hallmark of any compounding process: the most powerful outcomes are delayed.  
+
 My Russian is a bit **rusty**.  
 They laughed, in a **derisive** way.  
 

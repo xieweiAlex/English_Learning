@@ -1,4 +1,6 @@
 
+**diminish**
+
 **vanish**
 
 **productize**
