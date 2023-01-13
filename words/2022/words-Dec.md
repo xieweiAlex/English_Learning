@@ -1,18 +1,32 @@
 
-I hope five or 10 more times during my lifetime as an investor, none of that should diminish the uncertainty or the pain of watching your net worth shrivel over the last 12 months as virtually everyone has, no matter how you invest, everyone has some degree of that.   
-What's equally important is that if you are the investor for whom a 30, 40, 50 percent or more decline was unpalatable.  
+
+There were more reasons to say no than yes: It was outside my wheelhouse; it would be a ton of work; it would be the kind of project that would upset a lot of people.  
+Although Stoicism is a philosophy that stresses independence and strength, moral rectitude and inner-life, it’s essential that we don’t mistake this as a justification for isolation or loneliness.  
+
+Sightings of humpback whales were reported on 274 days.  
+Gray whales and minke whales were spotted on 200 and 158 days of the year.  
+
+> We can’t just hope to be able to do hard things when it counts. You have to cultivate the ability. No athlete just hopes to hit the game-winning shot—they practice it thousands of times. They take that shot in scrimmages, in pickup games, alone in the gym, on the ice, on the field, as they count down the clock in their head. They train for it.  
+
+> The Stoics knew that a life that is always easy is a kind of death. Because if it’s easy, you’re not growing. It’s like lifting weights: if you can do it without trying, you’re not going to get any stronger. The whole point—of life, of working out, of work—is to push yourself, and to grow as a result of pushing against and through that resistance.
+
+> Not everything that’s hard is good of course, but almost everything good is hard. As Cicero said, “The greater the difficulty, the greater the **splendor**.” Or, if you prefer, Seneca: “The greater the torment the greater the glory.”
+
+> Think back to the turning points in your life, the pivotal moments, the experiences that made you you. Most, if not all, of them involve overcoming that voice in your head telling you to give up.
+
+
+> I hope five or 10 more times during my lifetime as an investor, none of that should **diminish** the uncertainty or the pain of watching your net worth **shrivel** over the last 12 months as virtually everyone has, no matter how you invest, everyone has some degree of that.   
+> what's equally important is that if you are the investor for whom a 30, 40, 50 percent or more decline was **unpalatable**.  
 
 Its mid-sized SUV with **gullwing** doors.  
 
-Protests have subsided in Iran, but clerics cannot yet proclaim victory.  
-The regime has quelled the protests but Iranians are still seething.  
-
+Protests have **subsided** in Iran, but **clerics** cannot yet proclaim victory.  
+The regime has **quelled** the protests but Iranians are still **seething**.  
 
 He went to the bandits' **lair** all by himself!  
-We were so bored in the ashram at night, absolutely nothing goes on in an ashram at night.  
-Cheese grater.  
-She recognized the grating voice of Dr. Sarnoff.  
-
+We were so bored in the **ashram** at night, absolutely nothing goes on in an **ashram** at night.  
+**Cheese grater**.  
+She recognized the **grating** voice of Dr. Sarnoff.  
 
 **Condensation** releases heat, and heat becomes the energy that drives huge upward **drafts** of air.  
 
