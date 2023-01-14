@@ -1,16 +1,38 @@
 
+Since we have ironed out most of the uncertainties when the project starts, the overall development process is smoother, and the software quality is greatly improved.  
 
-There were more reasons to say no than yes: It was outside my wheelhouse; it would be a ton of work; it would be the kind of project that would upset a lot of people.  
-Although Stoicism is a philosophy that stresses independence and strength, moral rectitude and inner-life, it’s essential that we don’t mistake this as a justification for isolation or loneliness.  
 
-Sightings of humpback whales were reported on 274 days.  
-Gray whales and minke whales were spotted on 200 and 158 days of the year.  
+However, sometimes teeth look yellow because the hard enamel has eroded, revealing the dentin underneath. Dentin is a naturally yellow, bony tissue that lies underneath the enamel.  
+peroxide for whitening teeth.  
+Hydrogen peroxide is a natural bleaching agent that also kills bacteria in your mouth.  
+If you want whiter teeth, cut back on your sugar intake.  
 
-> We can’t just hope to be able to do hard things when it counts. You have to cultivate the ability. No athlete just hopes to hit the game-winning shot—they practice it thousands of times. They take that shot in scrimmages, in pickup games, alone in the gym, on the ice, on the field, as they count down the clock in their head. They train for it.  
+
+A **Mickey Finn** (or simply Mickey) is a slang term for a drink laced with a drug (especially **chloral hydrate**) given to someone without their knowledge in order to **incapacitate** them. 
+Serving someone a Mickey Finn is most commonly referred to as **slipping a mickey**, sometimes spelled "slipping a mickie".  
+
+You want to be known as a go-getter who gets the job done well.  
+Nothing can abash him.  
+The girl was abashed by the laughter of her classmates.  
+The brassy boys put their tongues out at us.  
+
+Some fup thoughts from our recent (long) debate where Paul valiantly took on the crowd.  
+
+
+**adhere to**  
+
+
+There were more reasons to say no than yes: It was outside my **wheelhouse**; it would be a ton of work; it would be the kind of project that would upset a lot of people.  
+Although Stoicism is a philosophy that stresses independence and strength, moral **rectitude** and inner-life, it’s essential that we don’t mistake this as a justification for isolation or loneliness.  
+
+Sightings of **humpback** whales were reported on 274 days.  
+Gray whales and **minke** whales were spotted on 200 and 158 days of the year.  
+
+> We can’t just hope to be able to do hard things when it counts. You have to cultivate the ability. No athlete just hopes to hit the game-winning shot—they practice it thousands of times. They take that shot in **scrimmages**, in pickup games, alone in the gym, on the ice, on the field, as they count down the clock in their head. They train for it.  
 
 > The Stoics knew that a life that is always easy is a kind of death. Because if it’s easy, you’re not growing. It’s like lifting weights: if you can do it without trying, you’re not going to get any stronger. The whole point—of life, of working out, of work—is to push yourself, and to grow as a result of pushing against and through that resistance.
 
-> Not everything that’s hard is good of course, but almost everything good is hard. As Cicero said, “The greater the difficulty, the greater the **splendor**.” Or, if you prefer, Seneca: “The greater the torment the greater the glory.”
+> Not everything that’s hard is good of course, but almost everything good is hard. As Cicero said, “The greater the difficulty, the greater the **splendor**.” Or, if you prefer, Seneca: “The greater the **torment** the greater the glory.”
 
 > Think back to the turning points in your life, the pivotal moments, the experiences that made you you. Most, if not all, of them involve overcoming that voice in your head telling you to give up.
 
@@ -24,7 +46,7 @@ Protests have **subsided** in Iran, but **clerics** cannot yet proclaim victory.
 The regime has **quelled** the protests but Iranians are still **seething**.  
 
 He went to the bandits' **lair** all by himself!  
-We were so bored in the **ashram** at night, absolutely nothing goes on in an **ashram** at night.  
+We were so bored in the **ashram** at night, absolutely nothing goes on in an **ashram** at night. -  
 **Cheese grater**.  
 She recognized the **grating** voice of Dr. Sarnoff.  
 
