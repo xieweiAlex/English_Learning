@@ -1,26 +1,60 @@
 
-Since we have ironed out most of the uncertainties when the project starts, the overall development process is smoother, and the software quality is greatly improved.  
+## Week 2 
+
+Pouring it out or stirring at this point can make your yogurt **runny**, which you don’t want.  
+
+This **seismic** shift gonna affect everything.  
+Have **grandiose** aims but puny abilities,great ambition but little talent.  
+
+Have you ever stopped to ask why the four points on a compass—north, south, east, west—are called the “cardinal directions”?  
+This is a reference to the cardinal virtues—courage, temperance, justice, wisdom—which guide us and tell us where to go.  
+
+The market, or any given stock isn't always in an uptrend, if they were, investing would be a cakewalk.  
+Social-media posts and satellite imagery provide a torrent of data, but can overwhelm and confuse.  
 
 
-However, sometimes teeth look yellow because the hard enamel has eroded, revealing the dentin underneath. Dentin is a naturally yellow, bony tissue that lies underneath the enamel.  
-peroxide for whitening teeth.  
-Hydrogen peroxide is a natural bleaching agent that also kills bacteria in your mouth.  
-If you want whiter teeth, cut back on your sugar intake.  
+I'd **caution** you ... 
+I'm very busy today but I will **sandwich** that job in after tea.
+**dial back** 
+**give in** to it. 
+**Cap driver** 
+Great chat, Thanks, **ciao**
+**Pity love** 
+> The idiom "**chink in one's armor**" refers to an area of vulnerability. It has traditionally been used to refer to a weak spot in a figurative suit of armor. The standard meaning is similar to that of **Achilles**' heel.  
+
+Enjoy the **reciprocal** feeling, it's dangerous 
+The **convicts** were **deported** to a **deserted** island.  
+Rock climbing has **conditioned** me to take over those obstacles at ease.  
+A **briny** wind blew, **rustled** the trees.  
+She is not a **psychic**, nor a **homicide** detective, nor a **kook**. -  
+**perfunctory**  
+
+Paul shocked the ladies with his **racy** stories.  
+I began to like New York, the **racy**, adventurous feel of it at night and the satisfaction that the constant **flicker** of men and women and machines gives to the restless eye.  
+
+Since we have **ironed out** most of the uncertainties when the project starts, the overall development process is smoother, and the software quality is greatly improved.  
+
+With the indifferent attitude, good **happy-go-lucky** life words.  
+
+> A true stoic knows how to take those emotions, and to **transmute** them in a way will set them up for success.  
+
+However, sometimes teeth look yellow because the hard **enamel** has eroded, revealing the **dentin** underneath. Dentin is a naturally yellow, bony tissue that lies underneath the enamel.  
+**Peroxide** for whitening teeth.  
+**Hydrogen peroxide** is a natural bleaching agent that also kills bacteria in your mouth. -  
+If you want whiter teeth, **cut back** on your sugar intake.  
 
 
 A **Mickey Finn** (or simply Mickey) is a slang term for a drink laced with a drug (especially **chloral hydrate**) given to someone without their knowledge in order to **incapacitate** them. 
 Serving someone a Mickey Finn is most commonly referred to as **slipping a mickey**, sometimes spelled "slipping a mickie".  
 
-You want to be known as a go-getter who gets the job done well.  
-Nothing can abash him.  
-The girl was abashed by the laughter of her classmates.  
-The brassy boys put their tongues out at us.  
+You want to be known as a **go-getter** who gets the job done well.  
+Nothing can **abash** him.  
+The girl was **abashed** by the laughter of her classmates.  
+The **brassy** boys put their tongues out at us. -  
 
-Some fup thoughts from our recent (long) debate where Paul valiantly took on the crowd.  
+Some fun thoughts from our recent (long) debate where Paul **valiantly** **took on** the crowd.  
 
-
-**adhere to**  
-
+I'd **adhere to** the separation of migration and refactoring.  
 
 There were more reasons to say no than yes: It was outside my **wheelhouse**; it would be a ton of work; it would be the kind of project that would upset a lot of people.  
 Although Stoicism is a philosophy that stresses independence and strength, moral **rectitude** and inner-life, it’s essential that we don’t mistake this as a justification for isolation or loneliness.  
@@ -46,7 +80,7 @@ Protests have **subsided** in Iran, but **clerics** cannot yet proclaim victory.
 The regime has **quelled** the protests but Iranians are still **seething**.  
 
 He went to the bandits' **lair** all by himself!  
-We were so bored in the **ashram** at night, absolutely nothing goes on in an **ashram** at night. -  
+We were so bored in the **ashram** at night, absolutely nothing goes on in an **ashram** at night.   
 **Cheese grater**.  
 She recognized the **grating** voice of Dr. Sarnoff.  
 
@@ -141,7 +175,7 @@ Yaml is the **lingua franca** of cloud config (although verbose...)
 Everything he owned was **sequestered**. -  
 **Vouchsafe** me a spirit of faith and knowledge.  
 The tone of the article is **intemperate**. -  
-The picture showed this **impish** kid with this like wicked smile on his face. -  
+The picture showed this **impish** kid with this like wicked smile on his face.   
 
 ## Week 5
 
@@ -187,7 +221,7 @@ She **deftly** wove the flowers into a **garland**.
 **nirvana**  
 That skirt of hers is positively **indecent**.  
 
-The hills are covered in **lush** green vegetation. -  
+The hills are covered in **lush** green vegetation.   
 I've been **cutting down** on running.  
 **cruciferous** vegetables.  
 
@@ -213,7 +247,7 @@ He watched her with **unremitting** attention. -
 Jesus is most often portrayed as loving, empathetic, and forgiving. Jesus also had a **fiery**, uncompromising (even sarcastic) side when it came to addressing **biblical** truth and morals (make no mistake, bitcoin is all about the truth and morality of sound money). These angry Jesus stories in the Bible are **hard-hitting**… similar to toxic bitcoin maxis.  
 During this season we celebrate the birth of Jesus… ALL of his character traits… and the, **albeit imperfect**, manifestation of those within the bitcoin community.  
 
-He was acclaimed for his acerbic wit and **repartee**. -  
+He was acclaimed for his acerbic wit and **repartee**.   
 This diplomat possessed an excellent gift for **repartee**.  
 **ballsy**  
 
@@ -272,7 +306,7 @@ This man is a **menance**, it had been proven during the covid pandemic.
 she is **grandiose**, exactly like the narcissit, but the locus of the grandiosity, the content of the grandiose fantasy, it's different.  
 
 
-Vegetarianism has **shed** its **cranky** image. -  
+Vegetarianism has **shed** its **cranky** image.   
 
 He is **resigned** to the noise, the mess, the constant **upheaval**. 
 My father is **paranoid** about being robbed.  
@@ -384,7 +418,7 @@ The bill, which will be attached to “must pass” legislation for this Congres
 **Trout** is another type of delicious freshwater fish, similar to salmon.   
 
 With scars from the **heyday** of Webvan and Pets.com still fresh in the investor psyche, people are asking, “Isn’t this just a dangerous new bubble?”  
-How Netflix **eviscerated** Blockbuster is an old story, but now other traditional entertainment providers are facing the same threat. -  
+How Netflix **eviscerated** Blockbuster is an old story, but now other traditional entertainment providers are facing the same threat.   
 The days when a car **aficionado** could repair his or her own car are long past, due primarily to the high software content.  
 
 > First of all, when an economist considers price, they consider the total price, including some intangible things like the time it takes to set up, **reeducate** everyone, and convert existing processes. All the things that we like to call “**total cost of ownership**.”  

@@ -24,7 +24,7 @@ All who attend a Vipassana course must conscientiously undertake the following f
 Students are therefore kindly requested to **make do** with the simple vegetarian meals provided.  
 
 No shorts, tank tops, tights or **revealing** clothing.
-It is not an escape from the **trials and tribulations** of everyday life. -  
+It is not an escape from the **trials and tribulations** of everyday life.   
 
 We're gonna discuss the unhealthy incentives that driving media in a **perilous** direction.  
 If you can't get a dude starring at you, it's time for a **makeover**.  

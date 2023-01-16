@@ -1,4 +1,6 @@
 
+**condition**
+
 **diminish**
 
 **vanish**

@@ -32,7 +32,7 @@ I taught you the **fake crying bit**, it doesn't work on me.
 
 I have to stop them from being so **chummy**.  
 To drive my **snotty** kids to the grocery store, to get the fancy cranberries that I hate, jut to help her bring you two back together.   
-Leave that alone, you **hobo**. -  
+Leave that alone, you **hobo**.   
 Alright, put your **binky** in the bowl, and **come on in**.  
 It's in the **Talmud**, and that's what I'm **counting on**.  
 We can discuss your future in **smut** over a Nicoise salad.  
