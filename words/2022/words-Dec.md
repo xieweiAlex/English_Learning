@@ -1,4 +1,11 @@
 
+He got stuck in a revolving door.  
+The world doesn't revolve around you.   
+
+
+With a background blending engineering and finance, Lyn uses a **dispassionate** long-term quantitative and qualitative approach to filter through the noise and find value in stocks and markets around the world.  
+
+
 ## Week 2 
 
 Pouring it out or stirring at this point can make your yogurt **runny**, which you don’t want.  
