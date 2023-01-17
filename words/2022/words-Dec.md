@@ -1,10 +1,15 @@
 
-It's very cool, it's not garish or tacky in any way.  
+**irrigate** and **fertilize**.  
 
+**Irate** customers in China have been demanding **rebates** and protesting in **showrooms**.  
+The **tomb** of King and his wife, Coretta Scott King, in Atlanta at sunrise today.  
+The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts. -  
 
+Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits. - 
+It's very cool, it's not **garish** or **tacky** in any way.  
 
-The party needs to canvass the uncommitted voters.  
-We got a lot of acrobatic types of people.  
+The party needs to **canvass** the **uncommitted** voters.  
+We got a lot of **acrobatic** types of people.  
 **blitzkrieg**  
 
 
@@ -21,8 +26,8 @@ In things for which I was least fit, so as I may truly say, my soul **hath** bee
 **celibate**  
 **soba**  
 
-He got stuck in a revolving door.  
-The world doesn't revolve around you.   
+He got stuck in a **revolving** door.  
+The world doesn't **revolve** around you.   
 
 
 With a background blending engineering and finance, Lyn uses a **dispassionate** long-term quantitative and qualitative approach to filter through the noise and find value in stocks and markets around the world.  
@@ -35,12 +40,12 @@ Pouring it out or stirring at this point can make your yogurt **runny**, which y
 This **seismic** shift gonna affect everything.  
 Have **grandiose** aims but puny abilities,great ambition but little talent.  
 
-Have you ever stopped to ask why the four points on a compass—north, south, east, west—are called the “cardinal directions”?  
-This is a reference to the cardinal virtues—courage, temperance, justice, wisdom—which guide us and tell us where to go.  
+Have you ever stopped to ask why the four points on a compass—north, south, east, west—are called the “**cardinal directions**”?  
+This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go. -  
 
-The market, or any given stock isn't always in an uptrend, if they were, investing would be a cakewalk.  
-Social-media posts and satellite imagery provide a torrent of data, but can overwhelm and confuse.  
+> The market, or any given stock isn't always in an uptrend, if they were, investing would be a **cakewalk**.  
 
+Social-media posts and **satellite imagery** provide a **torrent** of data, but can overwhelm and confuse.  
 
 I'd **caution** you ... 
 I'm very busy today but I will **sandwich** that job in after tea.
