@@ -1,4 +1,26 @@
 
+It's very cool, it's not garish or tacky in any way.  
+
+
+
+The party needs to canvass the uncommitted voters.  
+We got a lot of acrobatic types of people.  
+**blitzkrieg**  
+
+
+In things for which I was least fit, so as I may truly say, my soul **hath** been a stranger in the course of my **pilgrimage**.”  
+"Can't you just remember everything?" Daryl questioned as he furrowed his brow. 
+
+**adroit**  
+**jungian**  
+**prep**  
+**expurgate**  
+**nonchalance**  
+**carpal** tunnel  
+**deleterious**  
+**celibate**  
+**soba**  
+
 He got stuck in a revolving door.  
 The world doesn't revolve around you.   
 
