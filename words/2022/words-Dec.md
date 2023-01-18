@@ -1,4 +1,16 @@
 
+There was something cold and sinister about him.  
+
+
+When you induce fear in an animal, the most common response you'll see is freezing or fleeing.  
+
+scrappy: determined, argumentative, or pugnacious.  
+
+
+Footgun (plural footguns) (programming slang, humorous, derogatory) Any feature whose addition to a product results in the user shooting themselves in the foot.  
+Yaml is full of footguns and its friendliness is deceptive.  
+
+
 **irrigate** and **fertilize**.  
 
 **Irate** customers in China have been demanding **rebates** and protesting in **showrooms**.  
@@ -574,6 +586,10 @@ You're handsome, **debonair**...
 > No, it's all good. I got it.  
 
 I've never read it. My ears are **perked** … time/place?  
+
+**Good try**.  
+
+
 
 ### Jan 
 
