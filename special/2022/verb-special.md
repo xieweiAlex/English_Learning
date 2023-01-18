@@ -1,4 +1,7 @@
 
+**clench**, **clamp**  
+
+**induce**
 
 **deceptive**
 

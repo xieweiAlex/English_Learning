@@ -288,7 +288,7 @@ Don't be **bashful**.
 Even genuine naivete is not free of the **snares of power**  
 
 you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
-if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger. -  
+if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger.   
 
 The door **creaked** as she opened it.   
 Lord Commander, it's my duty to tell you I believe this mission to be **reckless**, **foolhardy**, and an insult to all the brothers who are killed by wildings.    

@@ -1,15 +1,22 @@
 
-There was something cold and sinister about him.  
+
+“This reading of many authors and books of every sort may tend to make you discursive and unsteady.” —Seneca  
+> So that is what we challenge you to do today: to decide on a topic to swarm for the rest of the year.
 
 
-When you induce fear in an animal, the most common response you'll see is freezing or fleeing.  
 
-scrappy: determined, argumentative, or pugnacious.  
+We are surrounded by over-sharers and **gossip mongers**.  
+two years after Trump-supporting insurrectionists **erected** a **gallows** and threatened to kill the then-vice president for not overturning the results of the 2020 election.  
+Trump's influence appears to be **waning** in Texas, per the Texas Tribune.  
 
+There was something cold and **sinister** about him.  
 
-Footgun (plural footguns) (programming slang, humorous, derogatory) Any feature whose addition to a product results in the user shooting themselves in the foot.  
-Yaml is full of footguns and its friendliness is deceptive.  
+When you **induce** fear in an animal, the most common response you'll see is freezing or fleeing.  
 
+**scrappy**: determined, **argumentative**, or **pugnacious**. -  
+
+**Footgun** (plural footguns) (programming slang, humorous, **derogatory**) Any feature whose addition to a product results in the user **shooting themselves in the foot**.  
+Yaml is full of **footguns** and its friendliness is **deceptive**.  
 
 **irrigate** and **fertilize**.  
 
@@ -24,9 +31,8 @@ The party needs to **canvass** the **uncommitted** voters.
 We got a lot of **acrobatic** types of people.  
 **blitzkrieg**  
 
-
 In things for which I was least fit, so as I may truly say, my soul **hath** been a stranger in the course of my **pilgrimage**.”  
-"Can't you just remember everything?" Daryl questioned as he furrowed his brow. 
+"Can't you just remember everything?" Daryl questioned as he **furrowed** his **brow**. 
 
 **adroit**  
 **jungian**  
@@ -41,8 +47,7 @@ In things for which I was least fit, so as I may truly say, my soul **hath** bee
 He got stuck in a **revolving** door.  
 The world doesn't **revolve** around you.   
 
-
-With a background blending engineering and finance, Lyn uses a **dispassionate** long-term quantitative and qualitative approach to filter through the noise and find value in stocks and markets around the world.  
+With a background **blending** engineering and finance, Lyn uses a **dispassionate** long-term quantitative and qualitative approach to filter through the noise and find value in stocks and markets around the world.  
 
 
 ## Week 2 
@@ -70,7 +75,7 @@ Great chat, Thanks, **ciao**
 
 Enjoy the **reciprocal** feeling, it's dangerous 
 The **convicts** were **deported** to a **deserted** island.  
-Rock climbing has **conditioned** me to take over those obstacles at ease.  
+Rock climbing has **conditioned** me to take over those obstacles **at ease**.  
 A **briny** wind blew, **rustled** the trees.  
 She is not a **psychic**, nor a **homicide** detective, nor a **kook**. -  
 **perfunctory**  
@@ -287,7 +292,7 @@ It's both an **emollient** and a natural perfume.
 
 **Priming effect**  
 **acidic** vs **sour** vs tart  
-He watched her with **unremitting** attention. -  
+He watched her with **unremitting** attention.   
 **wrongdoing**  
 
 Jesus is most often portrayed as loving, empathetic, and forgiving. Jesus also had a **fiery**, uncompromising (even sarcastic) side when it came to addressing **biblical** truth and morals (make no mistake, bitcoin is all about the truth and morality of sound money). These angry Jesus stories in the Bible are **hard-hitting**… similar to toxic bitcoin maxis.  
