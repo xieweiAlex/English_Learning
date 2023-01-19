@@ -1,6 +1,19 @@
 
+Longer-range missiles like the American-made Tomahawk that could take out launch sites in China or North Korea in the event of war.  
 
-“This reading of many authors and books of every sort may tend to make you discursive and unsteady.” —Seneca  
+
+
+I made my way home to the dreary provinces by train.  
+beastie  
+rostrum  
+clan  
+
+
+
+You definitely not going to get the **synapses** in your brain working unless you're typing these commands.   
+
+> This reading of many authors and books of every sort may tend to make you **discursive** and unsteady. —Seneca  
+
 > So that is what we challenge you to do today: to decide on a topic to swarm for the rest of the year.
 
 
