@@ -1,14 +1,16 @@
 
-Longer-range missiles like the American-made Tomahawk that could take out launch sites in China or North Korea in the event of war.  
+Today, we're excited to gain more exposure to the scintillating self-storage industry by recommending Extra Space Storage (NYSE: EXR), which uses a similar business model to Life Storage.  
 
+"I follow mediterranean diet, besides that I eat lots of eggs."  
+"The whole class is going, except John."  
+"Besides the class, Mary is also going."  
 
+Longer-range missiles like the American-made **Tomahawk** that could take out launch sites in China or North Korea in the event of war.  
 
-I made my way home to the dreary provinces by train.  
-beastie  
-rostrum  
-clan  
-
-
+I made my way home to the **dreary** provinces by train.  
+**beastie**  
+**rostrum**  
+**clan**  
 
 You definitely not going to get the **synapses** in your brain working unless you're typing these commands.   
 
