@@ -1,13 +1,15 @@
 
-You're so perky.  
-No one is more gifted than you.  
-Let's get out of here - Just don't be conspicuous.  
-I feel you and I are kindred spirits.  
+**Temporal gap**.  
 
-I haven't been out with a man other than my husband in 12 years.  
-That's not a problem. Couple of things have changed, I can bring you up to date.  
+The cat was sitting on an upturned **crate**.  
 
+You're so **perky**.  
+No one is more **gifted** than you.  
+Let's get out of here - Just don't be **conspicuous**.  
+I feel you and you and I are **kindred spirits**.  
 
+I haven't been out with a man **other than** my husband in 12 years.  
+That's not a problem. Couple of things have changed, **I can bring you up to date**.  
 
 I kind of learned a long time ago that TE and Ni are not gonna **captivate** a room.  
 Things gonna **fall flat** if I don't **cater to** those people.  
@@ -29,9 +31,7 @@ I made my way home to the **dreary** provinces by train.
 You definitely not going to get the **synapses** in your brain working unless you're typing these commands.   
 
 > This reading of many authors and books of every sort may tend to make you **discursive** and unsteady. —Seneca  
-
 > So that is what we challenge you to do today: to decide on a topic to swarm for the rest of the year.
-
 
 
 We are surrounded by over-sharers and **gossip mongers**.  
@@ -39,7 +39,6 @@ two years after Trump-supporting insurrectionists **erected** a **gallows** and 
 Trump's influence appears to be **waning** in Texas, per the Texas Tribune.  
 
 There was something cold and **sinister** about him.  
-
 When you **induce** fear in an animal, the most common response you'll see is freezing or fleeing.  
 
 **scrappy**: determined, **argumentative**, or **pugnacious**. -  

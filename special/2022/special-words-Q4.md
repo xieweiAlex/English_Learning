@@ -1,4 +1,6 @@
 
+**rosy**, **bleak**
+
 **boomerang**
 
 **reciprocate**, **reciprocal**
