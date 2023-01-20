@@ -14,7 +14,7 @@ The tone of the article is **intemperate**. -
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
 The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores. -  
 I can't permit you to **temporize** any longer. -  
-Too many scrambled eggs often would always make my stomach a little **queasy**. -  
+Too many scrambled eggs often would always make my stomach a little **queasy**.   
 Straight line **parallel** to the corners of the mouth, and a **radian**. -  
 **Substrate** **mycelium** , grow in the **substate**. -  
 You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  

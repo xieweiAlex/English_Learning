@@ -2,12 +2,19 @@
 
 Expanding vocabulary for a non native-speaker is tedious and time-consuming. I try to record the **words or phrases** I encounter everyday with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight, if it can inspire someone else, that's even better 💖.  
 
-### 2022  
+
 [Words Review](./words-review.md)
+
+### 2023
+[Jan Words](./words/2023/words-Jan.md) |
+
+
+### 2022  
 
 [Dec Words](./words/2022/words-Dec.md) |
 [Nov Words](./words/2022/words-Nov.md) |
 [Oct Words](./words/2022/words-Oct.md) |
+
 [Sep Words](./words/2022/words-Sep.md) |
 [Aug Words](./words/2022/words-Aug.md) |
 
