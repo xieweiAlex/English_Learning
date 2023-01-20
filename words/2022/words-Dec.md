@@ -1,5 +1,19 @@
 
-Today, we're excited to gain more exposure to the scintillating self-storage industry by recommending Extra Space Storage (NYSE: EXR), which uses a similar business model to Life Storage.  
+You're so perky.  
+No one is more gifted than you.  
+Let's get out of here - Just don't be conspicuous.  
+I feel you and I are kindred spirits.  
+
+I haven't been out with a man other than my husband in 12 years.  
+That's not a problem. Couple of things have changed, I can bring you up to date.  
+
+
+
+I kind of learned a long time ago that TE and Ni are not gonna **captivate** a room.  
+Things gonna **fall flat** if I don't **cater to** those people.  
+This gets **thwarted** with 3rd function, which is introverted feeling, which is all about how things feel to me.  
+
+Today, we're excited to gain more exposure to the **scintillating** self-storage industry by recommending Extra Space Storage (NYSE: EXR), which uses a similar business model to Life Storage. -  
 
 "I follow mediterranean diet, besides that I eat lots of eggs."  
 "The whole class is going, except John."  
@@ -177,7 +191,7 @@ Court **upholds** arrest of Andrew Tate.
 **gargantuan**  
 The **lurid** color is the life itself.  
 
-It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics. --  
+It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics. -  
 The new management faces some **knotty** problems.  
 The **chutney** should be a thick, **pulpy** consistency.  
 The crowd went absolutely mad. It was **bedlam**. -
@@ -193,7 +207,7 @@ Given China’s **perennial** **secrecy**, we won’t ever know the true death t
 Over in Ukraine there is speculation that Russia is **girding** itself for a new offensive, and maybe the mobilisation of more conscripts.   
 **Britons** in their thirties are stuck in a dark age.  
 
-A **Herculean** Choice: **Virtue or Vice**. -  
+A **Herculean** Choice: **Virtue or Vice**.   
 
 ## Week 1
 
@@ -219,7 +233,7 @@ After weeks of **chipping away** , my pantry was down to only **healthy-ish** fo
 
 > And think about it – exercising literally is maintenance. It’s hedging against the weight and the possible injuries and struggles of the future  
 
-Insults alone cannot **defile** a person's honour. -  
+Insults alone cannot **defile** a person's honour.   
 What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
 I've never read it. My ears are **perked** … time/place?  
 
@@ -261,7 +275,7 @@ He didn't just insult and shout at his co-workers, but was proud of his **guile*
 He was a man of **stupendous** **stamina** and energy.  
 **gradient**  
 
-He is God's chosen lamb to **expiate** sin, to **propitiate** wrath. -  
+He is God's chosen lamb to **expiate** sin, to **propitiate** wrath.   
 To **propitiate** someone means to satisfy them. When we say God is **propitiated**, we mean God is satisfied, hist justice is satisfied.   
 
 A **pet peeve** is something that you find particularly annoying.  

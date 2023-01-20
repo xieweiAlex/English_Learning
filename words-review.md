@@ -8,15 +8,10 @@ She is not a **psychic**, nor a **homicide** detective, nor a **kook**. -
 **Hydrogen peroxide** is a natural bleaching agent that also kills bacteria in your mouth. -  
 The **brassy** boys put their tongues out at us. -  
 The art of **hula** was seen as **lascivious** and almost **heretical**. And so hula got pushed into underground scenes and were maintained in secrecy. -  
-It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics. --  
-A **Herculean** Choice: **Virtue or Vice**. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
-Insults alone cannot **defile** a person's honour. -  
-What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
 Everything he owned was **sequestered**. -  
 The tone of the article is **intemperate**. -  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
-He is God's chosen lamb to **expiate** sin, to **propitiate** wrath. -  
 The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores. -  
 I can't permit you to **temporize** any longer. -  
 Too many scrambled eggs often would always make my stomach a little **queasy**. -  
@@ -36,7 +31,6 @@ And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate
 **Putrefaction** refers to the breaking down and gradual **liquefaction** of tissue by bacteria. -  
 I didn't want to hear the **sordid** details of their relationship. -  
 The newspaper launched a **vitriolic** attack on the president. -  
-Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
 Politicians like to **pontificate** about falling standards. -  
 He was neither overly worried nor **briskly** **peremptory**. -  
 The trustworthiness is the essential condition of **comity**. -  
