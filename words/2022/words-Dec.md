@@ -73,7 +73,7 @@ This diplomat possessed an excellent gift for **repartee**.
 **ballsy**  
 
 It's gonna slow down our intention to invest is kind of the first line of defense of everybody, and it's **balderdash**.  
-Too many scrambled eggs often would always make my stomach a little **queasy**. -  
+Too many scrambled eggs often would always make my stomach a little **queasy**.   
 
 ## Week 4 
 

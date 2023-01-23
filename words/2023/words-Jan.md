@@ -1,4 +1,48 @@
 
+neon-lit.  
+Hong Kong was an assault on the senses, noisy, smelly, a city of extremes - from gaudy mansions on Victoria Peak to the "dark satanic" sweatshops at the north end of Kowloon.  
+In Taipei, where I was studying Chinese, the streets thronged to the sound of two-stroke scooters spewing acrid smoke that enveloped the city in a blanket of smog so thick you could often see barely two blocks.  
+If Hong Kong and Taipei were Asia's raucous teenagers, Japan was the grown-up.  
+Yes, Tokyo was a concrete jungle, but it was a beautifully manicured one.  
+In front of the Imperial Palace in Tokyo, the skyline was dominated by the glass towers of the country's corporate titans.  
+Rather the bureaucracy can be terrifying, while huge amounts of public money are spent on activities of dubious utility.  
+Tokyo is home to superlative restaurants.  
+Studio Ghibli makes the world's most enchanting animation (sorry, Disney); sure, J-pop is awful, but Japan is undoubtedly a soft-power superpower.  
+A hundred and fifty years after it was forced to open its doors, Japan is still sceptical, even fearful of the outside world.  
+
+
+
+> Hijack the conversation. 
+> Holding the conversation in hostage. 
+
+It's a peaceful, prosperous country with the longest life expectancy in the world, the lowest murder rate, little political conflict, a powerful passport, and the sublime Shinkansen, the world's best high-speed rail network.  
+
+
+**Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
+
+He likes girls that play the **coquette**. -   
+It is a **sacrilege** to offend democracy.  
+We as well hope to **aggrandize** our business with you.  
+The Nordic detective is often **careworn** and **rumpled**. -  
+Let's look at the most important part—the **grading rubric**. -  
+New businesses may qualify for **tax remission**.  
+We lost our way in the **labyrinth** of streets.  
+**psychiatry**  
+
+
+What makes **academic prose** so **turgid**?  
+Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
+
+She received **fellowships** from the Wellcome Trust, the Forum of European Philosophy and the British Academy, among others.  
+MBTI 4-letter **Nomenclature**. -w  
+
+Get Close With Mortality: Go To A **Cemetery**  
+The Economist explains: How humans healed the **ozone** layer.  
+
+So it's been really **illuminating** and a good conversation starter.  
+**Where does it come into play**?  
+
+> Life is not picking on you. This is just what’s happening, period. It happens to involve you…but it does not revolvearound you. 
 
 **diatribe**
 **rankle**  
@@ -8,9 +52,8 @@
 **ravenous**  
 **rostrum** 
 
-
-
 **Temporal gap**.  
+
 
 The cat was sitting on an upturned **crate**.  
 

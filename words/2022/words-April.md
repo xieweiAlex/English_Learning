@@ -113,8 +113,6 @@ Boeing had to **scale back** its ambitions.
 > From the start, he had the natural **inclination** to be an **impresario**, to convince people to pursue a goal that often only he could see, and then to coordinate and push them toward the creation of that goal.  
 
 Time to **limber up**.  
-He likes girls that play the **coquette**.   
-
 If you **put off** things today, they don’t magically disappear tomorrow. They just get added to the list of things you want to do.  
 
 I feel as though I'd eaten a **spool** of thread.  
