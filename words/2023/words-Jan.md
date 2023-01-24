@@ -1,22 +1,20 @@
 
-neon-lit.  
-Hong Kong was an assault on the senses, noisy, smelly, a city of extremes - from gaudy mansions on Victoria Peak to the "dark satanic" sweatshops at the north end of Kowloon.  
-In Taipei, where I was studying Chinese, the streets thronged to the sound of two-stroke scooters spewing acrid smoke that enveloped the city in a blanket of smog so thick you could often see barely two blocks.  
-If Hong Kong and Taipei were Asia's raucous teenagers, Japan was the grown-up.  
-Yes, Tokyo was a concrete jungle, but it was a beautifully manicured one.  
-In front of the Imperial Palace in Tokyo, the skyline was dominated by the glass towers of the country's corporate titans.  
-Rather the bureaucracy can be terrifying, while huge amounts of public money are spent on activities of dubious utility.  
-Tokyo is home to superlative restaurants.  
-Studio Ghibli makes the world's most enchanting animation (sorry, Disney); sure, J-pop is awful, but Japan is undoubtedly a soft-power superpower.  
-A hundred and fifty years after it was forced to open its doors, Japan is still sceptical, even fearful of the outside world.  
+## Week 3
 
-
+It's a peaceful, **prosperous** country with the longest life expectancy in the world, the lowest murder rate, little political conflict, a powerful passport, and the **sublime** **Shinkansen**, the world's best high-speed rail network.  
+**neon-lit**.  
+Hong Kong was an **assault on the senses**, noisy, smelly, a city of extremes - from **gaudy** mansions on Victoria Peak to the "dark satanic" **sweatshops** at the north end of **Kowloon**.  
+In Taipei, where I was studying Chinese, the streets **thronged** to the sound of **two-stroke scooters** **spewing** **acrid** smoke that **enveloped** the city in **a blanket of smog** so thick you could often see barely two blocks.  
+If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up. -  
+Yes, Tokyo was a **concrete jungle**, but it was a beautifully **manicured** one.  
+In front of the Imperial Palace in Tokyo, the **skyline** was dominated by the glass towers of the country's corporate titans.  
+Rather the bureaucracy can be terrifying, while huge amounts of public money are spent on activities of **dubious** utility.  
+Tokyo is home to **superlative** restaurants.   
+**Studio Ghibli** makes the world's most **enchanting** animation (sorry, Disney); sure, J-pop is awful, but Japan is undoubtedly a soft-power superpower. -  
+A hundred and fifty years after it was forced to open its doors, Japan is still **sceptical**, even fearful of the outside world.  
 
 > Hijack the conversation. 
 > Holding the conversation in hostage. 
-
-It's a peaceful, prosperous country with the longest life expectancy in the world, the lowest murder rate, little political conflict, a powerful passport, and the sublime Shinkansen, the world's best high-speed rail network.  
-
 
 **Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
 
@@ -29,8 +27,7 @@ New businesses may qualify for **tax remission**.
 We lost our way in the **labyrinth** of streets.  
 **psychiatry**  
 
-
-What makes **academic prose** so **turgid**?  
+What makes **academic prose** so **turgid**?   
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
 
 She received **fellowships** from the Wellcome Trust, the Forum of European Philosophy and the British Academy, among others.  
@@ -54,13 +51,12 @@ So it's been really **illuminating** and a good conversation starter.
 
 **Temporal gap**.  
 
-
 The cat was sitting on an upturned **crate**.  
 
 You're so **perky**.  
 No one is more **gifted** than you.  
 Let's get out of here - Just don't be **conspicuous**.  
-I feel you and you and I are **kindred spirits**.  
+I feel you and I are **kindred spirits**.  
 
 I haven't been out with a man **other than** my husband in 12 years.  
 That's not a problem. Couple of things have changed, **I can bring you up to date**.  
@@ -81,7 +77,7 @@ I made my way home to the **dreary** provinces by train.
 **beastie**  
 **clan**  
 
-You definitely not going to get the **synapses** in your brain working unless you're typing these commands.   
+You definitely not going to get the **synapses** in your brain working unless you're typing these commands. -   
 
 > This reading of many authors and books of every sort may tend to make you **discursive** and unsteady. —Seneca  
 > So that is what we challenge you to do today: to decide on a topic to swarm for the rest of the year.
@@ -319,6 +315,20 @@ I've never read it. My ears are **perked** … time/place?
 
 **Good try**.  
 
+
+You're so **perky**.  
+No one is more **gifted** than you.  
+Let's get out of here - Just don't be **conspicuous**.  
+I feel you and I are **kindred spirits**.  
+
+I haven't been out with a man **other than** my husband in 12 years.  
+That's not a problem. Couple of things have changed, **I can bring you up to date**.  
+I kind of learned a long time ago that TE and Ni are not gonna **captivate** a room.  
+Things gonna **fall flat** if I don't **cater to** those people.  
+This gets **thwarted** with 3rd function, which is introverted feeling, which is all about how things feel to me.  
+
+
+
 ## Interesting 
 
 What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible.   
@@ -336,4 +346,6 @@ Tesla **in tatters**.
 
 It's gonna slow down our intention to invest is kind of the first line of defense of everybody, and it's **balderdash**.  
 Too many scrambled eggs often would always make my stomach a little **queasy**.   
+
+I made my way home to the **dreary** provinces by train.  
 
