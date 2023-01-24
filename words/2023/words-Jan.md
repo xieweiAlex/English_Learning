@@ -1,4 +1,14 @@
 
+> It is safe to say that both governments are still in the process of understanding the power and scope of what cryptocurrencies have to offer.  
+> It is also worth noting that, should this joint effort be successful, it will not be the first gold-backed cryptocurrency.  
+
+
+
+
+He was more **forthcoming** about his past than they expected.  
+The new song is latest off of Smith’s **forthcoming** new album, Gloria.  
+
+
 ## Week 3
 
 It's a peaceful, **prosperous** country with the longest life expectancy in the world, the lowest murder rate, little political conflict, a powerful passport, and the **sublime** **Shinkansen**, the world's best high-speed rail network.  

@@ -152,7 +152,7 @@ It is a **sacrilege** to offend democracy.
 
 Chinese didn't obtain the equal position and **condign** respect. -  
 Colin **drifted off** into a **fitful** sleep.  
-They quickly stripped me of my clothes and **bound** me like a **mummy** in a **gossamer web**. -  
+They quickly stripped me of my clothes and **bound** me like a **mummy** in a **gossamer web**.   
 **asunder**  
 The car started with a loud **splutter**.  
 
