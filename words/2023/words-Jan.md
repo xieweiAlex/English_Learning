@@ -1,21 +1,25 @@
 
-skin biopsy.  
-A biopsy is usually a minor surgical procedure.  
-I managed to get home without (further) mishap.  
-dendrite  
-jaunt, jaunty  
-sensualist.  
-You vulgar little maggot.  
-You have to admit, in spite of its almost meretricious color, it's a damn good piece of painting.  
+Epictetus called it fueling the habit bonfire. 
+Maybe you want to cut the inessential out of your life.  
 
 
+it needs to be **dreamy**. 
+The pleasure needs to **outweigh** the pain of savings.  
 
-A gold bug is someone who expounds the virtues of gold as an investment, and who thinks its price will perpetually increase.  
 
+skin **biopsy**.  
+A **biopsy** is usually a minor surgical procedure.  
+I managed to get home without (further) **mishap**.  
+**dendrite**  
+**jaunt**, **jaunty**  
+**sensualist**.  
+You **vulgar** little **maggot**. -  
+You have to admit, **in spite of** its almost **meretricious** color, it's a damn good piece of painting. -  
+
+A **gold bug** is someone who **expounds** the virtues of gold as an investment, and who thinks its price will perpetually increase.  
 
 > It is safe to say that both governments are still in the process of understanding the power and scope of what cryptocurrencies have to offer.  
 > It is also worth noting that, should this joint effort be successful, it will not be the first gold-backed cryptocurrency.  
-
 
 He was more **forthcoming** about his past than they expected.  
 The new song is latest off of Smith’s **forthcoming** new album, Gloria.  
