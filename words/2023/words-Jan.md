@@ -1,4 +1,9 @@
 
+The main focus of their ire is that, starting Feb. 13, 2023, it will cost twice as many of the program’s reward points, called stars, to earn a free cup of hot coffee.  
+When companies pare rewards programs back, there is often significant customer pushback.  
+
+
+
 Not cheating on your spouse, not sexually assaulting a captive person, these are hardly achievements worthy of being feted for.  
 
 Those with a penchant for large-mouthed bass, trout, catfish, and other freshwater fish may be getting dangerous doses of PFAS, aka “forever chemicals,” according to a new study.  
