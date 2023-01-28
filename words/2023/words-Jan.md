@@ -1,20 +1,20 @@
 
-The main focus of their ire is that, starting Feb. 13, 2023, it will cost twice as many of the program’s reward points, called stars, to earn a free cup of hot coffee.  
-When companies pare rewards programs back, there is often significant customer pushback.  
+The main focus of their **ire** is that, starting Feb. 13, 2023, it will cost twice as many of the program’s reward points, called stars, to earn a free cup of hot coffee.  
+When companies **pare** rewards programs back, there is often significant customer pushback.  
+
+Not cheating on your spouse, not sexually assaulting a **captive** person, these are hardly achievements worthy of being **feted** for. -  
+
+Those with a **penchant** for **large-mouthed bass**, **trout**, catfish, and other **freshwater** fish may be getting dangerous doses of PFAS, aka “forever chemicals,” according to a new study.  
+Introverted function is very long and **drawn out**.  
+Looking to break a diplomatic **logjam** with Germany, the Biden administration is set to provide several dozen of its main battle tanks to Ukraine in a major **policy reversal**.  
+
+How much happier Marcus would have been had he been more able to see the good in people, and how much better a leader he could have been had he leaned into their strengths rather than **disdained** their weaknesses.
+We have to focus on what is special and unique about them instead of **zeroing in** on the ways they are not as good as us.  
+We have to engage with what they bring to the table, not **lament** the things they take from it. Then we have to work to make those people around us better…not write them off as hopeless and broken.
 
 
-
-Not cheating on your spouse, not sexually assaulting a captive person, these are hardly achievements worthy of being feted for.  
-
-Those with a penchant for large-mouthed bass, trout, catfish, and other freshwater fish may be getting dangerous doses of PFAS, aka “forever chemicals,” according to a new study.  
-Introverted function is very long and drawn out.  
-Looking to break a diplomatic logjam with Germany, the Biden administration is set to provide several dozen of its main battle tanks to Ukraine in a major policy reversal.  
-How much happier Marcus would have been had he been more able to see the good in people, and how much better a leader he could have been had he leaned into their strengths rather than disdained their weaknesses.
-We have to focus on what is special and unique about them instead of zeroing in on the ways they are not as good as us.  
-We have to engage with what they bring to the table, not lament the things they take from it. Then we have to work to make those people around us better…not write them off as hopeless and broken.
-
-Epictetus called it fueling the habit bonfire. 
-Maybe you want to cut the inessential out of your life.  
+Epictetus called it fueling the habit **bonfire**. 
+Maybe you want to cut the **inessential** out of your life.  
 
 it needs to be **dreamy**. 
 The pleasure needs to **outweigh** the pain of savings.  
