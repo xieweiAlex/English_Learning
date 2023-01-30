@@ -1,4 +1,79 @@
 
+
+once the codebase **in parity**.  
+
+Not something you can **bank on**.  
+
+**Hedonic adaptation** is part of the human ability to continuously adjust to **ever-changing** circumstances. Euphoria **dissipates**. **Rage calms**. Even the terrible force of **grief** eventually **recedes**.  
+That is to say, though the day-to-day effects of major events continue, our emotions **regain** a kind of **equilibrium**.  
+
+For one thing, the definition of “happiness” is notoriously **hazy**, as is the definition of well-being, making it hard to compare studies — and human beings, for that matter.  
+**Novelty** also **wears off** fairly quickly, so if you've moved to a new city or taken a new job, you may feel an increase in happiness because you’re experiencing something new.  
+
+**On a cold morning**. 
+**in the morning**. 
+
+Nutrition **Lowdown**. -  
+**acidic**, **acetic**, sour, tart, **citric acid**
+
+**slur**  
+**kitsch**  
+**flunky**  
+**dreary**, **dreamy**  
+**picturesque** scenery    
+
+He is so **tame** that he agrees with everybody. -  
+
+They gonna feel real chaotic and **hectic**, which they really don't like.  
+they might just be kind of like wandering like **laxadaisically** through the aisles and not really noticing.  
+
+Those desires will **cloud** your reality. This happens a lot of times when people are mixing politics and business.  
+> Cynicism is easy. **Mimicry** is easy. Optimistic contrarians are the rarest breed.  
+
+CEO Mark Zuckerberg said in his typically **terse** initial earnings comment. "I appreciate the patience and I think that those who are patient and invest with us will end up being rewarded."
+
+> In 1,000 parallel universes, you want to be wealthy in 999 of them. You don’t want to be wealthy in the fifty of them where you got lucky, so we want to **factor luck out of it**.
+> If you are very skilled in a field, you will notice when a lucky break happens in your field, and other people who aren't **attuned to it** won’t notice. So, you become sensitive to luck.
+
+
+**abreact**  
+**comely**  
+**magnanimous**  
+**eroticism**  
+**deject**  
+
+**glimmer**  
+**behest**  
+**ferret**  
+**burgundy**  
+**mural**  
+In China, each couple is required to carry out a **eugenic** plan strictly.  
+**dilapidated** building. -  
+**shoddy**  
+He has always lived his life by a hopelessly **quixotic** code of honor. -  
+**hodgepodge**  
+**truant**  
+**squabble**  
+**numskull**  
+
+
+When Liu Xitong was asked by a film crew to write four words in Chinese **calligraphy**, he agreed immediately, **heartily**, and for reasons the crew did not yet know.  
+It was then that Liu shared his own story. For practicing truthfulness, compassion, and **forbearance**, just as the 70 million other Chinese citizens who took up the spiritual practice of Falun Gong, Liu was the target of the CCP’s **persecution** campaign.  
+
+
+As a young man, Hercules decided to go into **solitude** to meditate on which path he would pursue: the path of **virtue or vice**.  
+She paid close attention to the impression she made on others as she wished to be **held in high regard**.  
+
+> Of all the real good Things that Heaven grants to **Mortals**, there is not any one that is to be attain’d without Application and Labour.  
+To the right of Hercules is Vice. She is dressed **promiscuously** and attempts to seduce Hercules with **caresses**.  
+> In their Youth they are **bred up** in **Indolence**, and all manner of Delicacy; and pass thro’ their old Age with Difficulties and Distress.
+
+The brain **detoxifies**.  
+**Epilepsy** is a **neurological** condition that causes **unprovoked**, **recurrent** seizures. A seizure is a sudden rush of **abnormal** electrical activity in your brain.  
+
+How Goldman Sachs went from **apex** predator to Wall Street **laggard**.  
+
+
 The main focus of their **ire** is that, starting Feb. 13, 2023, it will cost twice as many of the program’s reward points, called stars, to earn a free cup of hot coffee.  
 When companies **pare** rewards programs back, there is often significant customer pushback.  
 

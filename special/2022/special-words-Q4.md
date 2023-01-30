@@ -1,4 +1,10 @@
 
+**equilibrium**
+
+**forbearance**
+
+**consequential**, **inconsequential**
+
 **lament**
 
 **forthcoming** 

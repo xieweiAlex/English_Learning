@@ -13,10 +13,6 @@ They're **incels**. (involuntary celibate)
 
 > This means the same old recommendations apply: get regular exercise, eat diverse and plant-based foods, sit less, **cut back on** alcohol, and get more sleep.
 
-CEO Mark Zuckerberg said in his typically **terse** initial earnings comment. "I appreciate the patience and I think that those who are patient and invest with us will end up being rewarded."
-
-In 1,000 parallel universes, you want to be wealthy in 999 of them. You don’t want to be wealthy in the fifty of them where you got lucky, so we want to **factor luck out of it**.
-If you are very skilled in a field, you will notice when a lucky break happens in your field, and other people who aren't **attuned to it** won’t notice. So, you become sensitive to luck.
 
 Rishi Sunak’s promise of stability is a low bar for Britain Reasons to be cheerful are **scant**.  
 As he wrote, “Philosophy calls for plain living, not for **penance**…our lives should observe a happy medium between the ways of the sage and the ways of the world at large.   
