@@ -1,7 +1,9 @@
 
+Back then, women on TV were mostly seen as eye candy.
+
+## Week 4
 
 once the codebase **in parity**.  
-
 Not something you can **bank on**.  
 
 **Hedonic adaptation** is part of the human ability to continuously adjust to **ever-changing** circumstances. Euphoria **dissipates**. **Rage calms**. Even the terrible force of **grief** eventually **recedes**.  
