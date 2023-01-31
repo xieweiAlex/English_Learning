@@ -1,5 +1,10 @@
 
-Back then, women on TV were mostly seen as eye candy.
+**pathos**.  
+**karaoke** 
+**slapstick**  
+**blase**  
+
+Back then, women on TV were mostly seen as **eye candy**.
 
 ## Week 4
 
@@ -58,7 +63,6 @@ He has always lived his life by a hopelessly **quixotic** code of honor. -
 **squabble**  
 **numskull**  
 
-
 When Liu Xitong was asked by a film crew to write four words in Chinese **calligraphy**, he agreed immediately, **heartily**, and for reasons the crew did not yet know.  
 It was then that Liu shared his own story. For practicing truthfulness, compassion, and **forbearance**, just as the 70 million other Chinese citizens who took up the spiritual practice of Falun Gong, Liu was the target of the CCP’s **persecution** campaign.  
 
@@ -88,7 +92,6 @@ Looking to break a diplomatic **logjam** with Germany, the Biden administration 
 How much happier Marcus would have been had he been more able to see the good in people, and how much better a leader he could have been had he leaned into their strengths rather than **disdained** their weaknesses.
 We have to focus on what is special and unique about them instead of **zeroing in** on the ways they are not as good as us.  
 We have to engage with what they bring to the table, not **lament** the things they take from it. Then we have to work to make those people around us better…not write them off as hopeless and broken.
-
 
 Epictetus called it fueling the habit **bonfire**. 
 Maybe you want to cut the **inessential** out of your life.  
@@ -443,6 +446,11 @@ I kind of learned a long time ago that TE and Ni are not gonna **captivate** a r
 Things gonna **fall flat** if I don't **cater to** those people.  
 This gets **thwarted** with 3rd function, which is introverted feeling, which is all about how things feel to me.  
 
+Not something you can **bank on**.  
+**On a cold morning**. 
+**in the morning**. 
+
+
 
 
 ## Interesting 
@@ -464,4 +472,10 @@ It's gonna slow down our intention to invest is kind of the first line of defens
 Too many scrambled eggs often would always make my stomach a little **queasy**.   
 
 I made my way home to the **dreary** provinces by train.  
+
+Back then, women on TV were mostly seen as **eye candy**.
+**Novelty** also **wears off** fairly quickly, so if you've moved to a new city or taken a new job, you may feel an increase in happiness because you’re experiencing something new.  
+
+Those desires will **cloud** your reality. This happens a lot of times when people are mixing politics and business.  
+
 
