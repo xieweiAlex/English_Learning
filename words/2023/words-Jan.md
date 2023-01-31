@@ -1,4 +1,15 @@
 
+Nice little clank form the metal card. 
+
+There are no glib answers because no answers apply to everybody. These kinds of questions ultimately do have answers, but they have personal answers.  
+I think the neutral state is actually a perfection state. One can be very happy as long as one isn’t too caught up in their own head. [4]
+self-actualize.  
+
+I try not to have more than one big desire in my life at any given time, and I also recognize it as the axis of my suffering. I realize the area where I’ve chosen to be unhappy. [5]
+
+
+**heady**.  
+
 **pathos**.  
 **karaoke** 
 **slapstick**  
@@ -32,7 +43,7 @@ Nutrition **Lowdown**. -
 He is so **tame** that he agrees with everybody. -  
 
 They gonna feel real chaotic and **hectic**, which they really don't like.  
-they might just be kind of like wandering like **laxadaisically** through the aisles and not really noticing.  
+they might just be kind of like wandering like **lackadaisicaly** through the aisles and not really noticing.  
 
 Those desires will **cloud** your reality. This happens a lot of times when people are mixing politics and business.  
 > Cynicism is easy. **Mimicry** is easy. Optimistic contrarians are the rarest breed.  
@@ -65,7 +76,6 @@ He has always lived his life by a hopelessly **quixotic** code of honor. -
 
 When Liu Xitong was asked by a film crew to write four words in Chinese **calligraphy**, he agreed immediately, **heartily**, and for reasons the crew did not yet know.  
 It was then that Liu shared his own story. For practicing truthfulness, compassion, and **forbearance**, just as the 70 million other Chinese citizens who took up the spiritual practice of Falun Gong, Liu was the target of the CCP’s **persecution** campaign.  
-
 
 As a young man, Hercules decided to go into **solitude** to meditate on which path he would pursue: the path of **virtue or vice**.  
 She paid close attention to the impression she made on others as she wished to be **held in high regard**.  
