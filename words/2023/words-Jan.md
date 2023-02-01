@@ -1,5 +1,6 @@
 
 Nice little clank form the metal card. 
+This is subject to change. 
 
 There are no glib answers because no answers apply to everybody. These kinds of questions ultimately do have answers, but they have personal answers.  
 I think the neutral state is actually a perfection state. One can be very happy as long as one isn’t too caught up in their own head. [4]
