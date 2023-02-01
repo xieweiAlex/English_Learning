@@ -1,8 +1,15 @@
 
-Nice little clank form the metal card. 
-This is subject to change. 
+Although it was off season, the hotel was fully occupied.  
+how am I preparing in the off season for what's to come.  
 
-There are no glib answers because no answers apply to everybody. These kinds of questions ultimately do have answers, but they have personal answers.  
+
+
+The Stoics studied both the patterns of human existence AND practiced premeditatio malorum—meditating on all possible and **improbable** outcomes.  
+
+Nice little **clank** form the metal card. 
+This is **subject to change**. 
+
+There are no **glib** answers because no answers apply to everybody. These kinds of questions ultimately do have answers, but they have personal answers.  
 I think the neutral state is actually a perfection state. One can be very happy as long as one isn’t too caught up in their own head. [4]
 self-actualize.  
 
