@@ -1,8 +1,22 @@
 
-Although it was off season, the hotel was fully occupied.  
-how am I preparing in the off season for what's to come.  
+The driver lost control and the car careen down the hill.  
+That will preclude him from escaping.  
+The old woman had a careworn look on her face.  
+He has a **predilection** for rich food.  
 
 
+
+ingenious
+transformative
+virtuous
+miraculous
+
+Transformative: causing or able to cause an important and lasting change in someone or something
+> One of the most transformative innovation in software is open source.
+
+
+Although it was **off season**, the hotel was fully occupied.  
+How am I preparing in the **off season** for what's to come.  
 
 The Stoics studied both the patterns of human existence AND practiced premeditatio malorum—meditating on all possible and **improbable** outcomes.  
 
