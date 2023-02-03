@@ -1,19 +1,19 @@
 
-The driver lost control and the car careen down the hill.  
-That will preclude him from escaping.  
-The old woman had a careworn look on her face.  
+> You don't know what it is, but it's there, like a **splinter** in your mind, driving you mad. It is this feeling that has brought you to me. Do you know what I'm talking about.  
+
+
+The driver lost control and the car **careen** down the hill.  
+That will **preclude** him from escaping. -  
+The old woman had a **careworn** look on her face.  
 He has a **predilection** for rich food.  
 
+**ingenious**
+**transformative**
+**virtuous**
+**miraculous**
 
-
-ingenious
-transformative
-virtuous
-miraculous
-
-Transformative: causing or able to cause an important and lasting change in someone or something
+**Transformative**: causing or able to cause an important and lasting change in someone or something
 > One of the most transformative innovation in software is open source.
-
 
 Although it was **off season**, the hotel was fully occupied.  
 How am I preparing in the **off season** for what's to come.  
@@ -24,10 +24,10 @@ Nice little **clank** form the metal card.
 This is **subject to change**. 
 
 There are no **glib** answers because no answers apply to everybody. These kinds of questions ultimately do have answers, but they have personal answers.  
-I think the neutral state is actually a perfection state. One can be very happy as long as one isn’t too caught up in their own head. [4]
-self-actualize.  
+I think the **neutral** state is actually a perfection state. One can be very happy as long as one isn’t too **caught up in their own head**. 
+**self-actualize**.  
 
-I try not to have more than one big desire in my life at any given time, and I also recognize it as the axis of my suffering. I realize the area where I’ve chosen to be unhappy. [5]
+> I try not to have more than one big desire in my life at any given time, and I also recognize it as the **axis** of my suffering. I realize the area where I've chosen to be unhappy.   
 
 
 **heady**.  
@@ -470,7 +470,7 @@ I've never read it. My ears are **perked** … time/place?
 You're so **perky**.  
 No one is more **gifted** than you.  
 Let's get out of here - Just don't be **conspicuous**.  
-I feel you and I are **kindred spirits**.  
+I feel you and you and I are **kindred spirits**.  
 
 I haven't been out with a man **other than** my husband in 12 years.  
 That's not a problem. Couple of things have changed, **I can bring you up to date**.  
@@ -482,6 +482,7 @@ Not something you can **bank on**.
 **On a cold morning**. 
 **in the morning**. 
 
+Nice little **clank** form the metal card. 
 
 
 

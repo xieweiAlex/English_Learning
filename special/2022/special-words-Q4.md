@@ -1,4 +1,8 @@
 
+**granular**
+
+**afterthought** 
+
 **equilibrium**
 
 **forbearance**
