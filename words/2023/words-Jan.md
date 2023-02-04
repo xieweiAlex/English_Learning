@@ -1,4 +1,19 @@
 
+undulation
+stand-in  
+agaric  
+He was a big strapping guy but short on brains.  
+rubric  
+He had a rather forbidding, saturnine manner.  
+
+
+We get the **buy in**.  
+**go south**. 
+
+That's our **edge** as a company.  
+
+
+
 > You don't know what it is, but it's there, like a **splinter** in your mind, driving you mad. It is this feeling that has brought you to me. Do you know what I'm talking about.  
 
 
