@@ -1,29 +1,4 @@
 
-**squeeze**
-
-**cloud**  
-**serve** 
-
-**dissect**
-
-**blindside**, **black-eyed**
-
-**clench**, **clamp**  
-
-**induce**
-
-**deceptive**
-
-**condition**
-
-**diminish**
-
-**vanish**
-
-**productize**
-
-**bounce** 
-
 ## Dec 
 
 **harden**

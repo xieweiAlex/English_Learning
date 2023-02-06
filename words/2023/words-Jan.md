@@ -1,4 +1,7 @@
 
+> One of the things that Stoicism helps us with is building some of that confidence—not ego—that confidence to **tune out** criticism that doesn’t matter, tune out people that don’t matter, to remember that some people don’t know what they’re talking about, and that you don’t have to listen to those people.  
+
+
 **under the gun**.  
 
 **calamitous**  
