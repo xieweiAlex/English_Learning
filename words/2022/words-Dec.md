@@ -26,7 +26,7 @@ I **immured** myself for four years, and studied the laws of the empire.
 
 The blood does not **coagulate** and they can die.  
 
-The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores. -  
+The Rome of beggars, **buskers**, **tumblers**, **quacks** and whores.   
 You have just landed a **coveted** on-site interview at your dream company.  
 
 > Seneca had money and privilege. Lots of it.
@@ -113,7 +113,7 @@ A **blackguard** is a **scoundrel**.
 **nocuous**  
 **halal**  
 Straight line **parallel** to the corners of the mouth, and a **radian**. -  
-**Substrate** **mycelium** , grow in the **substate**. -  
+**Substrate** **mycelium** , grow in the **substate**.   
 
 > The Stoics did not reject **worldly** pleasures. They rejected the reckless ones. The dangerous, **ephemeral** ones.
 
@@ -162,7 +162,7 @@ All the **bad breaks** could become **set-ups**; all the people who piss you off
 ## Week 3 
 
 
-The yogurt is set when it **jiggles** all **as one unit** if you carefully nudge the insert, and it does not run if you **tip** the pot a bit. -  
+The yogurt is set when it **jiggles** all **as one unit** if you carefully nudge the insert, and it does not run if you **tip** the pot a bit.   
 **hangup with it**.  
 
 **harden**
@@ -192,7 +192,7 @@ We **supplicate** your majesty to grant him **amnesty**. -
 And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
 He found that his **extremities** grew cold.  
 
-**Reptile** show from Didi's short video. -  
+**Reptile** show from Didi's short video.   
 
 China is **doubling down** on its complaints at the World Trade Organization as a trade war with the U.S. seems to be **morphing** into a broader tech war.  
 
@@ -201,7 +201,7 @@ tongue **scraper**
 
 Temporary crowns are typically made of **acrylic**.  
 I want you to live **unencumbered**.  
-**Putrefaction** refers to the breaking down and gradual **liquefaction** of tissue by bacteria. -  
+**Putrefaction** refers to the breaking down and gradual **liquefaction** of tissue by bacteria.   
 My thoughts are all in a **muddle**.  
 He **molested** children and was sent to jail.   
 

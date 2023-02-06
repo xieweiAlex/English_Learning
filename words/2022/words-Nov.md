@@ -105,7 +105,7 @@ They **ran a security check** on me.
 Am I **borderline** racist?  
 
 Mordant: harshly ironic or **sinister**.  
-His **mordant** **wit** appealed to students. -  
+His **mordant** **wit** appealed to students.   
 
 **suck it up**  
 In his wonderful book, A Better Man: A (Mostly Serious) Letter to My Son, Michael Ian Black points out how pervasive this **regressive** **admonition** is in our culture, even infusing itself into modern **tellings** of the **crucifixion** of Jesus Christ.   

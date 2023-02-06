@@ -1,4 +1,8 @@
 
+**methodical**
+
+## Jan 2023 
+
 **granular**
 
 **afterthought** 

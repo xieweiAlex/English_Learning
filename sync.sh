@@ -112,8 +112,37 @@ function cleanWordReview {
   # done
 }
 
+function ensure_trailing_spaces() {
+  echo "ensure_trailing_spaces..."
 
-action=$1
+  local file_path=$1
+  # local file_path="./words/2023/words-Jan.md"
+
+  # Read each line in the file
+  while read -r line; do
+    # If the line is not empty and doesn't end with more than 2 spaces
+    if [ ! -z "$line" ] && [ "${line: -3}" != "   " ]; then
+      line="$line  "
+    fi
+    # Append the line to the temporary file
+    echo "$line" >> "${file_path}.tmp"
+  done < "$file_path"
+
+  # Replace the original file with the temporary file
+  mv "${file_path}.tmp" "$file_path"
+
+  echo "ensure_trailing_spaces done"
+}
+
+
+
+# action=$1
+
+ensure_trailing_spaces "./words-review.md"
+ensure_trailing_spaces "./words/2023/words-Jan.md"
+
+
+exit 1
 
 echo "."
 if [[ "$#" -ne 1 ]]; then

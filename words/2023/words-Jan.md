@@ -1,18 +1,34 @@
 
-undulation
-stand-in  
-agaric  
-He was a big strapping guy but short on brains.  
-rubric  
-He had a rather forbidding, saturnine manner.  
+**under the gun**.  
 
+**calamitous**  
+succor  
+**archaeologist**  
+**harangue**  
+ransack  
+macerate  
+**uppity**  
+**capacitate**  
+**jihad**  
+
+**maudlin**. -  
+**celebs**  
+**capricorn**  
+
+**Shinkansen**  
+I was buying it for the probiotic benefits of fermented cabbage and **sulfites** kill bacteria so that kind of **defeats the whole point**.  
+
+**undulation**  
+**stand-in**  
+**agaric**  
+He was a big **strapping** guy but short on brains.  
+**rubric**  
+He had a rather forbidding, **saturnine** manner. -  
 
 We get the **buy in**.  
-**go south**. 
+**go south**.  
 
 That's our **edge** as a company.  
-
-
 
 > You don't know what it is, but it's there, like a **splinter** in your mind, driving you mad. It is this feeling that has brought you to me. Do you know what I'm talking about.  
 
@@ -22,24 +38,24 @@ That will **preclude** him from escaping. -
 The old woman had a **careworn** look on her face.  
 He has a **predilection** for rich food.  
 
-**ingenious**
-**transformative**
-**virtuous**
-**miraculous**
+**ingenious**  
+**transformative**  
+**virtuous**  
+**miraculous**  
 
-**Transformative**: causing or able to cause an important and lasting change in someone or something
-> One of the most transformative innovation in software is open source.
+**Transformative**: causing or able to cause an important and lasting change in someone or something  
+> One of the most transformative innovation in software is open source.  
 
 Although it was **off season**, the hotel was fully occupied.  
 How am I preparing in the **off season** for what's to come.  
 
 The Stoics studied both the patterns of human existence AND practiced premeditatio malorum—meditating on all possible and **improbable** outcomes.  
 
-Nice little **clank** form the metal card. 
-This is **subject to change**. 
+Nice little **clank** form the metal card.  
+This is **subject to change**.  
 
 There are no **glib** answers because no answers apply to everybody. These kinds of questions ultimately do have answers, but they have personal answers.  
-I think the **neutral** state is actually a perfection state. One can be very happy as long as one isn’t too **caught up in their own head**. 
+I think the **neutral** state is actually a perfection state. One can be very happy as long as one isn’t too **caught up in their own head**.   
 **self-actualize**.  
 
 > I try not to have more than one big desire in my life at any given time, and I also recognize it as the **axis** of my suffering. I realize the area where I've chosen to be unhappy.   
@@ -48,13 +64,13 @@ I think the **neutral** state is actually a perfection state. One can be very ha
 **heady**.  
 
 **pathos**.  
-**karaoke** 
+**karaoke**  
 **slapstick**  
 **blase**  
 
-Back then, women on TV were mostly seen as **eye candy**.
+Back then, women on TV were mostly seen as **eye candy**.  
 
-## Week 4
+## Week 4  
 
 once the codebase **in parity**.  
 Not something you can **bank on**.  
@@ -65,17 +81,17 @@ That is to say, though the day-to-day effects of major events continue, our emot
 For one thing, the definition of “happiness” is notoriously **hazy**, as is the definition of well-being, making it hard to compare studies — and human beings, for that matter.  
 **Novelty** also **wears off** fairly quickly, so if you've moved to a new city or taken a new job, you may feel an increase in happiness because you’re experiencing something new.  
 
-**On a cold morning**. 
-**in the morning**. 
+**On a cold morning**.  
+**in the morning**.  
 
 Nutrition **Lowdown**. -  
-**acidic**, **acetic**, sour, tart, **citric acid**
+**acidic**, **acetic**, sour, tart, **citric acid**  
 
 **slur**  
 **kitsch**  
 **flunky**  
 **dreary**, **dreamy**  
-**picturesque** scenery    
+**picturesque** scenery  
 
 He is so **tame** that he agrees with everybody. -  
 
@@ -85,10 +101,10 @@ they might just be kind of like wandering like **lackadaisicaly** through the ai
 Those desires will **cloud** your reality. This happens a lot of times when people are mixing politics and business.  
 > Cynicism is easy. **Mimicry** is easy. Optimistic contrarians are the rarest breed.  
 
-CEO Mark Zuckerberg said in his typically **terse** initial earnings comment. "I appreciate the patience and I think that those who are patient and invest with us will end up being rewarded."
+CEO Mark Zuckerberg said in his typically **terse** initial earnings comment. "I appreciate the patience and I think that those who are patient and invest with us will end up being rewarded."  
 
-> In 1,000 parallel universes, you want to be wealthy in 999 of them. You don’t want to be wealthy in the fifty of them where you got lucky, so we want to **factor luck out of it**.
-> If you are very skilled in a field, you will notice when a lucky break happens in your field, and other people who aren't **attuned to it** won’t notice. So, you become sensitive to luck.
+> In 1,000 parallel universes, you want to be wealthy in 999 of them. You don’t want to be wealthy in the fifty of them where you got lucky, so we want to **factor luck out of it**.  
+> If you are very skilled in a field, you will notice when a lucky break happens in your field, and other people who aren't **attuned to it** won’t notice. So, you become sensitive to luck.  
 
 
 **abreact**  
@@ -119,7 +135,7 @@ She paid close attention to the impression she made on others as she wished to b
 
 > Of all the real good Things that Heaven grants to **Mortals**, there is not any one that is to be attain’d without Application and Labour.  
 To the right of Hercules is Vice. She is dressed **promiscuously** and attempts to seduce Hercules with **caresses**.  
-> In their Youth they are **bred up** in **Indolence**, and all manner of Delicacy; and pass thro’ their old Age with Difficulties and Distress.
+> In their Youth they are **bred up** in **Indolence**, and all manner of Delicacy; and pass thro’ their old Age with Difficulties and Distress.  
 
 The brain **detoxifies**.  
 **Epilepsy** is a **neurological** condition that causes **unprovoked**, **recurrent** seizures. A seizure is a sudden rush of **abnormal** electrical activity in your brain.  
@@ -136,14 +152,14 @@ Those with a **penchant** for **large-mouthed bass**, **trout**, catfish, and ot
 Introverted function is very long and **drawn out**.  
 Looking to break a diplomatic **logjam** with Germany, the Biden administration is set to provide several dozen of its main battle tanks to Ukraine in a major **policy reversal**.  
 
-How much happier Marcus would have been had he been more able to see the good in people, and how much better a leader he could have been had he leaned into their strengths rather than **disdained** their weaknesses.
+How much happier Marcus would have been had he been more able to see the good in people, and how much better a leader he could have been had he leaned into their strengths rather than **disdained** their weaknesses.  
 We have to focus on what is special and unique about them instead of **zeroing in** on the ways they are not as good as us.  
-We have to engage with what they bring to the table, not **lament** the things they take from it. Then we have to work to make those people around us better…not write them off as hopeless and broken.
+We have to engage with what they bring to the table, not **lament** the things they take from it. Then we have to work to make those people around us better…not write them off as hopeless and broken.  
 
-Epictetus called it fueling the habit **bonfire**. 
+Epictetus called it fueling the habit **bonfire**.  
 Maybe you want to cut the **inessential** out of your life.  
 
-it needs to be **dreamy**. 
+it needs to be **dreamy**.  
 The pleasure needs to **outweigh** the pain of savings.  
 
 
@@ -153,7 +169,7 @@ I managed to get home without (further) **mishap**.
 **dendrite**  
 **jaunt**, **jaunty**  
 **sensualist**.  
-You **vulgar** little **maggot**. -  
+You **vulgar** little **maggot**.  
 You have to admit, **in spite of** its almost **meretricious** color, it's a damn good piece of painting. -  
 
 A **gold bug** is someone who **expounds** the virtues of gold as an investment, and who thinks its price will perpetually increase.  
@@ -165,7 +181,7 @@ He was more **forthcoming** about his past than they expected.
 The new song is latest off of Smith’s **forthcoming** new album, Gloria.  
 
 
-## Week 3
+## Week 3  
 
 It's a peaceful, **prosperous** country with the longest life expectancy in the world, the lowest murder rate, little political conflict, a powerful passport, and the **sublime** **Shinkansen**, the world's best high-speed rail network.  
 **neon-lit**.  
@@ -175,16 +191,16 @@ If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-u
 Yes, Tokyo was a **concrete jungle**, but it was a beautifully **manicured** one.  
 In front of the Imperial Palace in Tokyo, the **skyline** was dominated by the glass towers of the country's corporate titans.  
 Rather the bureaucracy can be terrifying, while huge amounts of public money are spent on activities of **dubious** utility.  
-Tokyo is home to **superlative** restaurants.   
+Tokyo is home to **superlative** restaurants.  
 **Studio Ghibli** makes the world's most **enchanting** animation (sorry, Disney); sure, J-pop is awful, but Japan is undoubtedly a soft-power superpower. -  
 A hundred and fifty years after it was forced to open its doors, Japan is still **sceptical**, even fearful of the outside world.  
 
-> Hijack the conversation. 
-> Holding the conversation in hostage. 
+> Hijack the conversation.  
+> Holding the conversation in hostage.  
 
 **Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
 
-He likes girls that play the **coquette**. -   
+He likes girls that play the **coquette**. -  
 It is a **sacrilege** to offend democracy.  
 We as well hope to **aggrandize** our business with you.  
 The Nordic detective is often **careworn** and **rumpled**. -  
@@ -193,7 +209,7 @@ New businesses may qualify for **tax remission**.
 We lost our way in the **labyrinth** of streets.  
 **psychiatry**  
 
-What makes **academic prose** so **turgid**?   
+What makes **academic prose** so **turgid**?  
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
 
 She received **fellowships** from the Wellcome Trust, the Forum of European Philosophy and the British Academy, among others.  
@@ -205,15 +221,15 @@ The Economist explains: How humans healed the **ozone** layer.
 So it's been really **illuminating** and a good conversation starter.  
 **Where does it come into play**?  
 
-> Life is not picking on you. This is just what’s happening, period. It happens to involve you…but it does not revolvearound you. 
+> Life is not picking on you. This is just what’s happening, period. It happens to involve you…but it does not revolvearound you.  
 
-**diatribe**
+**diatribe**  
 **rankle**  
 **trellis**  
 **cannibalize**  
 **dillydally**  
 **ravenous**  
-**rostrum** 
+**rostrum**  
 
 **Temporal gap**.  
 
@@ -243,10 +259,10 @@ I made my way home to the **dreary** provinces by train.
 **beastie**  
 **clan**  
 
-You definitely not going to get the **synapses** in your brain working unless you're typing these commands. -   
+You definitely not going to get the **synapses** in your brain working unless you're typing these commands. -  
 
 > This reading of many authors and books of every sort may tend to make you **discursive** and unsteady. —Seneca  
-> So that is what we challenge you to do today: to decide on a topic to swarm for the rest of the year.
+> So that is what we challenge you to do today: to decide on a topic to swarm for the rest of the year.  
 
 
 We are surrounded by over-sharers and **gossip mongers**.  
@@ -256,7 +272,7 @@ Trump's influence appears to be **waning** in Texas, per the Texas Tribune.
 There was something cold and **sinister** about him.  
 When you **induce** fear in an animal, the most common response you'll see is freezing or fleeing.  
 
-**scrappy**: determined, **argumentative**, or **pugnacious**. -  
+**scrappy**: determined, **argumentative**, or **pugnacious**.  
 
 **Footgun** (plural footguns) (programming slang, humorous, **derogatory**) Any feature whose addition to a product results in the user **shooting themselves in the foot**.  
 Yaml is full of **footguns** and its friendliness is **deceptive**.  
@@ -267,7 +283,7 @@ Yaml is full of **footguns** and its friendliness is **deceptive**.
 The **tomb** of King and his wife, Coretta Scott King, in Atlanta at sunrise today.  
 The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts. -  
 
-Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits. - 
+Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits. -  
 It's very cool, it's not **garish** or **tacky** in any way.  
 
 The party needs to **canvass** the **uncommitted** voters.  
@@ -275,7 +291,7 @@ We got a lot of **acrobatic** types of people.
 **blitzkrieg**  
 
 In things for which I was least fit, so as I may truly say, my soul **hath** been a stranger in the course of my **pilgrimage**.”  
-"Can't you just remember everything?" Daryl questioned as he **furrowed** his **brow**. 
+"Can't you just remember everything?" Daryl questioned as he **furrowed** his **brow**.  
 
 **adroit**  
 **jungian**  
@@ -288,12 +304,12 @@ In things for which I was least fit, so as I may truly say, my soul **hath** bee
 **soba**  
 
 He got stuck in a **revolving** door.  
-The world doesn't **revolve** around you.   
+The world doesn't **revolve** around you.  
 
 With a background **blending** engineering and finance, Lyn uses a **dispassionate** long-term quantitative and qualitative approach to filter through the noise and find value in stocks and markets around the world.  
 
 
-## Week 2 
+## Week 2  
 
 Pouring it out or stirring at this point can make your yogurt **runny**, which you don’t want.  
 
@@ -307,16 +323,16 @@ This is a reference to the **cardinal virtues**—courage, temperance, justice, 
 
 Social-media posts and **satellite imagery** provide a **torrent** of data, but can overwhelm and confuse.  
 
-I'd **caution** you ... 
-I'm very busy today but I will **sandwich** that job in after tea.
-**dial back** 
-**give in** to it. 
-**Cap driver** 
-Great chat, Thanks, **ciao**
-**Pity love** 
+I'd **caution** you ...  
+I'm very busy today but I will **sandwich** that job in after tea.  
+**dial back**  
+**give in** to it.  
+**Cap driver**  
+Great chat, Thanks, **ciao**  
+**Pity love**  
 > The idiom "**chink in one's armor**" refers to an area of vulnerability. It has traditionally been used to refer to a weak spot in a figurative suit of armor. The standard meaning is similar to that of **Achilles**' heel.  
 
-Enjoy the **reciprocal** feeling, it's dangerous 
+Enjoy the **reciprocal** feeling, it's dangerous  
 The **convicts** were **deported** to a **deserted** island.  
 Rock climbing has **conditioned** me to take over those obstacles **at ease**.  
 A **briny** wind blew, **rustled** the trees.  
@@ -338,7 +354,7 @@ However, sometimes teeth look yellow because the hard **enamel** has eroded, rev
 If you want whiter teeth, **cut back** on your sugar intake.  
 
 
-A **Mickey Finn** (or simply Mickey) is a slang term for a drink laced with a drug (especially **chloral hydrate**) given to someone without their knowledge in order to **incapacitate** them. 
+A **Mickey Finn** (or simply Mickey) is a slang term for a drink laced with a drug (especially **chloral hydrate**) given to someone without their knowledge in order to **incapacitate** them.  
 Serving someone a Mickey Finn is most commonly referred to as **slipping a mickey**, sometimes spelled "slipping a mickie".  
 
 You want to be known as a **go-getter** who gets the job done well.  
@@ -358,14 +374,14 @@ Gray whales and **minke** whales were spotted on 200 and 158 days of the year.
 
 > We can’t just hope to be able to do hard things when it counts. You have to cultivate the ability. No athlete just hopes to hit the game-winning shot—they practice it thousands of times. They take that shot in **scrimmages**, in pickup games, alone in the gym, on the ice, on the field, as they count down the clock in their head. They train for it.  
 
-> The Stoics knew that a life that is always easy is a kind of death. Because if it’s easy, you’re not growing. It’s like lifting weights: if you can do it without trying, you’re not going to get any stronger. The whole point—of life, of working out, of work—is to push yourself, and to grow as a result of pushing against and through that resistance.
+> The Stoics knew that a life that is always easy is a kind of death. Because if it’s easy, you’re not growing. It’s like lifting weights: if you can do it without trying, you’re not going to get any stronger. The whole point—of life, of working out, of work—is to push yourself, and to grow as a result of pushing against and through that resistance.  
 
-> Not everything that’s hard is good of course, but almost everything good is hard. As Cicero said, “The greater the difficulty, the greater the **splendor**.” Or, if you prefer, Seneca: “The greater the **torment** the greater the glory.”
+> Not everything that’s hard is good of course, but almost everything good is hard. As Cicero said, “The greater the difficulty, the greater the **splendor**.” Or, if you prefer, Seneca: “The greater the **torment** the greater the glory.”  
 
-> Think back to the turning points in your life, the pivotal moments, the experiences that made you you. Most, if not all, of them involve overcoming that voice in your head telling you to give up.
+> Think back to the turning points in your life, the pivotal moments, the experiences that made you you. Most, if not all, of them involve overcoming that voice in your head telling you to give up.  
 
 
-> I hope five or 10 more times during my lifetime as an investor, none of that should **diminish** the uncertainty or the pain of watching your net worth **shrivel** over the last 12 months as virtually everyone has, no matter how you invest, everyone has some degree of that.   
+> I hope five or 10 more times during my lifetime as an investor, none of that should **diminish** the uncertainty or the pain of watching your net worth **shrivel** over the last 12 months as virtually everyone has, no matter how you invest, everyone has some degree of that.  
 > what's equally important is that if you are the investor for whom a 30, 40, 50 percent or more decline was **unpalatable**.  
 
 Its mid-sized SUV with **gullwing** doors.  
@@ -374,13 +390,13 @@ Protests have **subsided** in Iran, but **clerics** cannot yet proclaim victory.
 The regime has **quelled** the protests but Iranians are still **seething**.  
 
 He went to the bandits' **lair** all by himself!  
-We were so bored in the **ashram** at night, absolutely nothing goes on in an **ashram** at night.   
+We were so bored in the **ashram** at night, absolutely nothing goes on in an **ashram** at night.  
 **Cheese grater**.  
 She recognized the **grating** voice of Dr. Sarnoff.  
 
 **Condensation** releases heat, and heat becomes the energy that drives huge upward **drafts** of air.  
 
-Your level of empathy compared to others is quite **pronounced**.
+Your level of empathy compared to others is quite **pronounced**.  
 If you try to sell $1B worth of crypto all at once, it's going to **depress** the market.  
 
 > It’s a hallmark of any compounding process: the most powerful outcomes are delayed.  
@@ -388,7 +404,7 @@ If you try to sell $1B worth of crypto all at once, it's going to **depress** th
 My Russian is a bit **rusty**.  
 They laughed, in a **derisive** way.  
 
-**I happen to believe** that ...   
+**I happen to believe** that ...  
 
 Benidorm Island is a small island and nature reserve and makes a great **excursion** for the whole family.  
 I went to Christmas **shindig** with my boyfriend at the time and his family is very religious the catholic and right before the eight they got into a circle held hands and prayed.  
@@ -408,52 +424,52 @@ The **lurid** color is the life itself.
 It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics. -  
 The new management faces some **knotty** problems.  
 The **chutney** should be a thick, **pulpy** consistency.  
-The crowd went absolutely mad. It was **bedlam**. -
+The crowd went absolutely mad. It was **bedlam**. -  
 Grandpa left, yet the **roly-poly** left me.  
 
-> His willingness to take adequate care of himself… He hardly ever needed medical attention, or drugs or any sort of salve or ointment.
-> Your challenge today is to properly solve, **once and for all**, one of those persistent problems you continually assign to your future self.
+> His willingness to take adequate care of himself… He hardly ever needed medical attention, or drugs or any sort of salve or ointment.  
+> Your challenge today is to properly solve, **once and for all**, one of those persistent problems you continually assign to your future self.  
 
 
 Nothing new looms, only reruns of what you’ve already experienced or read about in the **annals** of history.  
 
 Given China’s **perennial** **secrecy**, we won’t ever know the true death toll. At worst, we’ve estimated, it could reach 1.5m.  
-Over in Ukraine there is speculation that Russia is **girding** itself for a new offensive, and maybe the mobilisation of more conscripts.   
+Over in Ukraine there is speculation that Russia is **girding** itself for a new offensive, and maybe the mobilisation of more conscripts.  
 **Britons** in their thirties are stuck in a dark age.  
 
-A **Herculean** Choice: **Virtue or Vice**.   
+A **Herculean** Choice: **Virtue or Vice**.  
 
-## Week 1
+## Week 1  
 
-He considered himself the master of crypto universe, which the market has **disabused** him.   
+He considered himself the master of crypto universe, which the market has **disabused** him.  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 
 **riff a bit**.  
 **go terrible awry**.  
 **nuclear family**.  
 
-how it **gains popularity** 
+how it **gains popularity**  
 **prosperity and abundance**  
 > How should you live your life  
 
-All models are wrong is a common **aphorism** in statistics; it is often expanded as "All models are wrong, but some are useful". 
+All models are wrong is a common **aphorism** in statistics; it is often expanded as "All models are wrong, but some are useful".  
 
 As a veteran of the PaaS (Platform as a Service) discipline about a decade ago, and a DevOps enthusiast **at present**, I decided to **delve into** this topic, **peel off** the hype, and see what it’s about in practice.  
 Less than a decade ago, the common **paradigm** **neatly** divided the software stack into IaaS/PaaS/SaaS (infrastructure/platform/software as a service).  
-> We don’t need Platform as a Service. We need Platform as a Product.
+> We don’t need Platform as a Service. We need Platform as a Product.  
 
 I would get up in the morning around the same time each day and work out, but not in a forced, **burdensome** way. This was a new **phenomenon** for me.  
 After weeks of **chipping away** , my pantry was down to only **healthy-ish** foods.  
 
 > And think about it – exercising literally is maintenance. It’s hedging against the weight and the possible injuries and struggles of the future  
 
-Insults alone cannot **defile** a person's honour.   
+Insults alone cannot **defile** a person's honour.  
 What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
 I've never read it. My ears are **perked** … time/place?  
 
 
 **caricature** artist.  
-**in deference to**.   
+**in deference to**.  
 
 **Probiotics** might have some benefit to treating **halitosis**, but it doesn't appear they should be solely relied upon.  
 **tiff**  
@@ -469,12 +485,12 @@ Yaml is the **lingua franca** of cloud config (although verbose...)
 Everything he owned was **sequestered**. -  
 **Vouchsafe** me a spirit of faith and knowledge.  
 The tone of the article is **intemperate**. -  
-The picture showed this **impish** kid with this like wicked smile on his face.   
+The picture showed this **impish** kid with this like wicked smile on his face.  
 
 ## Conversation  
 
 
-> Take debt out of equation 
+> Take debt out of equation  
 > No, it's all good. I got it.  
 
 I've never read it. My ears are **perked** … time/place?  
@@ -494,16 +510,16 @@ Things gonna **fall flat** if I don't **cater to** those people.
 This gets **thwarted** with 3rd function, which is introverted feeling, which is all about how things feel to me.  
 
 Not something you can **bank on**.  
-**On a cold morning**. 
-**in the morning**. 
+**On a cold morning**.  
+**in the morning**.  
 
-Nice little **clank** form the metal card. 
+Nice little **clank** form the metal card.  
 
 
 
-## Interesting 
+## Interesting  
 
-What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible.   
+What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible.  
 People get quite **uppity** about politics.  
 
 We're **marinating** in a gendered, perhaps **patriarchal**, social system.  
@@ -517,11 +533,11 @@ A **pet peeve** is something that you find particularly annoying.
 Tesla **in tatters**.  
 
 It's gonna slow down our intention to invest is kind of the first line of defense of everybody, and it's **balderdash**.  
-Too many scrambled eggs often would always make my stomach a little **queasy**.   
+Too many scrambled eggs often would always make my stomach a little **queasy**.  
 
 I made my way home to the **dreary** provinces by train.  
 
-Back then, women on TV were mostly seen as **eye candy**.
+Back then, women on TV were mostly seen as **eye candy**.  
 **Novelty** also **wears off** fairly quickly, so if you've moved to a new city or taken a new job, you may feel an increase in happiness because you’re experiencing something new.  
 
 Those desires will **cloud** your reality. This happens a lot of times when people are mixing politics and business.  
