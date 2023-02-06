@@ -5,7 +5,7 @@ Dust **mites**, including their **carcasses** and **fecal matter**
 He also added that the Fed, for now, remains strongly committed to the **accommodative** policy given that the economic recovery still has plenty of **runway**.  
 These doubts had been **gnawing** at him for some time.  
 Grief **gnaws** my heart  
-While many still **deliberate** about cryptocurrencies’ mass adoption, the market has spoken, and its message is clear. 
+While many still **deliberate** about cryptocurrencies’ mass adoption, the market has spoken, and its message is clear.  
 Home prices have jumped over the past year as demand for houses **rocketed** when many Americans left cities for suburbia amid pandemic lockdowns  
 Have you ever jumped on a **trampoline**?  
 The idea that women consumers need your product more than you need them is **Neanderthal thinking**  
@@ -65,7 +65,7 @@ So instead of a burst of flavor, you just get that **mealy** texture.
 The hand-writing is **smudgy**.  
 But this conflict is really a family **squabble**.  
 Neandertal vertebrae were not **simian** at all  
-**clamber** 
+**clamber**  
 
 Every time I'm **going on a diet**, he **sabotages** me.  
 I wanted to buy the blouse , but I **balked** at the high price.  
@@ -73,7 +73,7 @@ It would be the first instance of a US city issuing **reparations** for decades 
 Proponents say it’s a good start for **grappling** with systemic racism, and could serve as a model for other cities, including neighboring Chicago  
 The Tokyo Olympics will bar international **spectators** from attending the event, which is set to start on July 23.  
 
-## Week 3 
+## Week 3  
 
 Let's get out of the **rat race**.  
 The reference is actually to investors who become too greedy at the **trough** and abandon their risk  
@@ -87,12 +87,12 @@ Workers in a factory must **clock out** when they leave.
 
 Americans are **Itching** to Travel Again – U.S. airports are now seeing travel activity **on par with** activity in March 2020, before restrictions went into place  
 Lumber has never been more expensive than in the current environment, and **crude** oil – which is used in paint, **drain pipes**, roof **shingles**, and **flooring** – has rallied over the past several months  
-Best Ever Instant Pot Beef Stew - This **mouthwatering** and easy to make Instant Pot Beef Stew is sure to become one of your favorite ever Instant Pot recipes!   
+Best Ever Instant Pot Beef Stew - This **mouthwatering** and easy to make Instant Pot Beef Stew is sure to become one of your favorite ever Instant Pot recipes!  
 
 China is a critical market for the company, so it wants to avoid any political controversies as it **makes inroads**  
 De Wit is 39, **genial**, **bespectacled**, a little **disheveled**, a chemist by training  
 Volatility **mellowed** after yesterday's tantrum, even though there was a lot of volume across markets  
-Motorbikes and trucks **hurtle** along the roads.   
+Motorbikes and trucks **hurtle** along the roads.  
 Some parents seem to live **vicariously** through their children.  
 He is an **officious** leader  
 This is a smart, yet soft and **feminine** look.  
@@ -104,7 +104,7 @@ While they are still ridiculously low by historical standards, the sudden rise t
 Mortgage companies posted record profits in 2020 as homeowners rushed to refinance and homebuyers **scooped up** inventory amid super-low rates and **an exodus** into the suburbs for some city dwellers.  
 HAVING BEEN born into the most **prosperous** period in human history, today’s youngsters have much to hope for  
 The **parable** of Hong Kong defies those looking for a simple answer. Even as China has **slapped down** democracy there, the territory is enjoying a financial boom.  
-This presents the free world with an **epoch-defining** question: how should it best secure **prosperity**, lower the risk of war and protect freedom as China rises?   
+This presents the free world with an **epoch-defining** question: how should it best secure **prosperity**, lower the risk of war and protect freedom as China rises?  
 
 **Dethrone** Elon Musk and become the #1 electric car company by 2025  
 Going from wet to dry batteries has the potential to put EV adoption into **hyperdrive**  
@@ -123,8 +123,8 @@ Those dark clouds **foreshadow** a storm.
 There is another point to be **borne** in mind.  
 Stop **glowering** at me, I've done nothing wrong.  
 I can offer you a very **enticing** compensation package.  
-**grinning** **cheekily** 
-They provided only **skimpy** details   
+**grinning** **cheekily**  
+They provided only **skimpy** details  
 Emily got into the car wearing jeans and a **skimpy** **tanktop**  
 
 She **babbled** a few words to him  
@@ -146,7 +146,7 @@ A **feral** cat
 We like to **make light of** any situation here in the U.K.  
 Through this system, **gone are the days** of concrete  
 He said it remains “one of the most destructive, **corrosive** attributes of an otherwise interesting and largely functioning system  
-Palantir’s stock set an all-time high of $45 per share on Jan. 27, which **coincided** with the trading **frenzy** sparked by Reddit traders in heavily bet against companies like GameStop.   
+Palantir’s stock set an all-time high of $45 per share on Jan. 27, which **coincided** with the trading **frenzy** sparked by Reddit traders in heavily bet against companies like GameStop.  
 I can't hear **properly**.  
 You're a **straight arrow**  
 Guests should **vacate** their rooms by 10.30 a.m  
@@ -158,7 +158,7 @@ it's not time to go out with **thimble**, it's time to go out with a bucket.
 **off the beaten path**  
 A dangerous winter storm **pummeled** Colorado, Wyoming, Nebraska, and Utah, dumping several feet of snow and forcing roads and airports to close.  
 
-## Week 2
+## Week 2  
 
 Individuals who use the passive communication style often act **indifferently**, **yielding** to others  
 **Thought to be** the most effective form of communication, the assertive communication style features an open communication link while not being **overbearing**  
@@ -172,14 +172,14 @@ But **bun in the unmarried oven**
 It looked as though the college would have to shut, but this week it was given a **reprieve**.  
 For me, coming here is a **reprieve**  
 She seemed invigorated, **full of life** and energy  
-He's a real **hunk**.
+He's a real **hunk**.  
 I thought she's want to go out with me, but **no dice**.  
 You're not wanted here, so **scram**!  
 to be cleverly cynical, to be superficially brilliant, to be **conspicuously** virtuous, to be cool, to be sophisticated, to be orthodox, to be a **snob**, to bully, to **pander**, to be **on the make**  
 He was a man **on the make**, trying to build his fortune.  
 For the same reason, **presumably**, that others cling so **tenaciously** to the idea that Obama was born outside the US: because they so want to believe it  
 He was **dogged** by his misfortune  
-**dodgy** 
+**dodgy**  
 Billy started to **snivel**. His mother **smacked** his hand  
 **Boil**, **broil**, **poach**, steam or roast your foods  
 **plummet**  
@@ -207,20 +207,20 @@ who couldn't imagine Cook’s **infamously** temperamental predecessor toleratin
 To be a good CEO, to get things accomplished, you have to be **personable**, you have to be a good communicator and a good listener, and Tim was all of those things  
 
 
-## Week 1 
+## Week 1  
 
 Investors haven’t fully **grasped** inflation is '**dead ahead**,’ economist Mark Zandi warns  
 2 Top SPAC Stocks to Buy Amid the Market **Carnage**  
-It was a **vantage** point for her “try stuff out” exploration project, so she reached out to the organization
-And **in no time** she was miserable. 
+It was a **vantage** point for her “try stuff out” exploration project, so she reached out to the organization  
+And **in no time** she was miserable.  
 
 Her colleagues, sick of the Melanie money **lament**, had begun avoiding her  
 his one solution, though not impossible, was taking too long to achieve and had a **lousy chance** of success  
-You are **legion**, Each of us is many. 
+You are **legion**, Each of us is many.  
 then see what you have to say to yourself and **jot down** your ideas.  
 
 A meal that is large. It’s also **untethered** from linear time  
-They are essential if you want to unleash Vim’s **latent** power. Even if you don’t use Vim, these techniques have many benefits for any developer   
+They are essential if you want to unleash Vim’s **latent** power. Even if you don’t use Vim, these techniques have many benefits for any developer  
 
 Here at The Motley Fool, we believe in Warren Buffett’s **credo** to be “greedy when others are fearful.”  
 I stay **abreast of new technology  
@@ -228,11 +228,11 @@ My first impressions of “world-class” is that its a saying and that feels a 
 Tidal, which was bought by rapper Jay-Z (and a few other artists) in 2015, aimed to compete with Spotify and Apple Music by offering exclusive music and videos. But those big competitors have mostly **edged it out**.  
 The government did make some **concessions** to the opposition  
 Cheaper hotels have made fewer **concessions**  
-In SF, you can't buy any **concessions**, but...doesn't everyone **sneak in** candy anyway?   
+In SF, you can't buy any **concessions**, but...doesn't everyone **sneak in** candy anyway?  
 Over the Lunar New Year, China **shattered** box office records, and last weekend, Tom & Jerry posted the second-best opening of any US release during the pandemic.  
 
-At one point on that trip, we hit one of the river’s nastiest **rapids**… and we quickly lost control.
-It was really scary and could've ended really badly...  But luckily, I spotted a safe way forward just **in the nick of time**.
+At one point on that trip, we hit one of the river’s nastiest **rapids**… and we quickly lost control.  
+It was really scary and could've ended really badly...  But luckily, I spotted a safe way forward just **in the nick of time**.  
 That said, plenty of investors are still **relishing** in the concept.  
 **fleshy**  
 
@@ -240,4 +240,4 @@ A **mannish** style of dress
 Right now, the general market sentiment is a **devil-may-care** attitude toward profitability and valuation  
 Lemonade (NYSE:LMND), which went public in July, is bringing modern technology to the **venerable** insurance industry  
 **Pare down** your E-mail inbox  
-U.S. stocks surge as treasury yields **pare** gains   
+U.S. stocks surge as treasury yields **pare** gains  

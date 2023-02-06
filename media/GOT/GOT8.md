@@ -1,4 +1,4 @@
-## E 6 
+## E 6  
 **oblivion** is the best I can hope for  
 This will never **torment** us  
 Danny is the one who's more **torn** here  
@@ -7,10 +7,10 @@ It was all part of playing the game to **simultaneously** keep him and Euron **i
 **heightens the stakes** of the night King and provide more fulfilment **arcs** for many of her beloved characters  
 
 
-## E 5 
+## E 5  
 If you hear them ringing the bells, **call off** the attack.  
 
-## E 4 
+## E 4  
 For those who **come after** us  
 Say something **snide**  
 He's **temperate** and **measured**. He's a man  
@@ -21,7 +21,7 @@ Your armies are **battle-weary** and **depleted**
 If John keeps the secret **buttoned down** and tells no one  
 she is willing to **roll the dice**  
 
-## E 2 
+## E 2  
 > She is always good at using the truth to tell lies  
 
 Maybe after I'm dead, I will march to the King's Landing and **rip** her **apart**  
@@ -29,12 +29,12 @@ I asked him to be my hand because he was good, and intelligent, and **ruthless**
 I will defend the **crypt** then  
 the **perils** of **self-betterment**  
 they call me giant's **bane**  
-**Suckled** me at her **teat** for three months, thought I was her baby   
+**Suckled** me at her **teat** for three months, thought I was her baby  
 I'm sorry we **parted** the way we did  
 Thoros isn't here anymore, so I hope you're not about to give a **sermon**  
 Dany comes to Sansa with a little bit of **olive branch**  
 
-## E 1 
+## E 1  
 How did you **sneak up on** me?  
 You're **insolent**  
 I'm **partial to** older gentleman  

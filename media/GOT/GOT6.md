@@ -1,6 +1,6 @@
 
 
-## E10 
+## E10  
 I perjured myself before the gods, I'm guilty of depravity, dishonesty, profligacy and arrogance.  
 Will you fight or defend your faith against heretics and apostates?  
 Please, Grand Mester.  I bear you no ill will  
@@ -10,27 +10,27 @@ For what's worth, I've been a cynic for as long as I can remmember.
 
 
 
-## E8 
+## E8  
 I will **crucify** the Masters.  
-It's **Double enveloping**   
+It's **Double enveloping**  
 A **pincer** move  
 I want him coming at us **full tilt**.  
 Did it ever once **occur to you** that I might have some insight?  
 As long as he lives, Ramsay's claim to Winterfell will be contested  
 
 
-## E7 
-I'd call that's a successful **gambit**, would you?   
+## E7  
+I'd call that's a successful **gambit**, would you?  
 The way all women look at him is frankly **irritating**.  
 You fulfilled your **oath** to Catelyn Stark against **all odds**  
-After **conferring** with his Holiness the High Septon, we've determined that Loras Tyrell ... 
+After **conferring** with his Holiness the High Septon, we've determined that Loras Tyrell ...  
 The love she had for her children, I was a little **awed** by it.  
 I'll launch him into Riverrun with a **catapult**.  
 Lower the **drawbridge**  
 We've **surrendered** our most valuable prisoner  
 
 
-## E 5 
+## E 5  
 The time has come to join the **fray**  
 To **come to my aid**?  
 You can't protect yourself when I ask Brienne to **cut you down**  
@@ -42,8 +42,8 @@ He seems **trustworthy**, a bit **gallivanting**, perhaps
 Eat something that isn't **moss**  
 
 
-## E 4 
-Tyrion **strikes** a deal
+## E 4  
+Tyrion **strikes** a deal  
 **Slander** a man in his own home, you might find yourself **crossing swords** with him.  
 money, **finery**, power  
 **Seeking out** family means seeking out **sin**  
@@ -79,25 +79,25 @@ A true leader **avails** himself of the wisest counsel he can, and no one is wis
 Then it appears we're at a bit of an **impasse**  
 
 
-## E 2 
+## E 2  
 He makes dwarf jokes, I make **eunuch** jokes.  
 **at once**, my load.  
 They **tied** you to the **mast** to **keep you from** jumping overboard  
 I'm not a **devout** man, obviously  
 
-## E 1 
+## E 1  
 They are dragons, they've never been **tamed**  
 
 He gave them the **very** land which they **reaved** and raped and murdered.  
-Shall I have a **grave** dug for her, my load? Or would you rather the men build a **pyre**?   
+Shall I have a **grave** dug for her, my load? Or would you rather the men build a **pyre**?  
 **Mowing down** tired, **outnumbered** Baratheons is the same as facing a prepared and **provisioned** Lannister army?  
-A **reckoning** will come, we need the North to face it, the entire North.    
-You shall always have a part in my heart, **meat and mead** at my table.   
+A **reckoning** will come, we need the North to face it, the entire North.  
+You shall always have a part in my heart, **meat and mead** at my table.  
 I'm thinking about locking Myrcella in a **crypt**.  
 It's **prophecy**, it's fate  
-She can be **overzealous** sometimes 
+She can be **overzealous** sometimes  
 But sin leads us away from the **sacred**. But only confession can **purge** sin.  
-I always **envied** Oberyn, he truely lived.    
+I always **envied** Oberyn, he truely lived.  
 Not an army, a **horde**.  
 I will grant **amnesty** to all brothers  
 **nightfall**  

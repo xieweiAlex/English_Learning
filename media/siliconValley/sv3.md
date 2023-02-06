@@ -1,5 +1,5 @@
 
-## E 10 
+## E 10  
 **No muss, no fuss**  
 he **stone-faced** to me  
 I **deftly** played Ross Loma against Index Ventures.  
@@ -12,7 +12,7 @@ you **caked my pants**
 Even **a whiff of** fraud is a **mortal sin** for VCs.  
 I'll expect you **off the premises** by end of day  
 a firm **no-shop clause**  
-as a **contemptible** asshole, you were talking about Erlich?   
+as a **contemptible** asshole, you were talking about Erlich?  
 
 
 ## E 9  
@@ -34,7 +34,7 @@ rumors spread like **light speed**
 This is **thorny**  
 the same **onerous** terms you accepted when you took Russ Hanneman's money  
 
-## E 7 
+## E 7  
 
 It's going to be **rad**  
 **Shuttering** a company in the tech world is almost a **rite of passage**, like **herpes simplex** one.  
@@ -47,7 +47,7 @@ I have an inbox full of **raves** here
 I'd like to **vie** for a lesser **sentence** **if after** he makes full **restitution** he would write a very **convincing** public apology.  
 that's a **tough sell**  
 even for a **plaintiff** who's more, uh, **sympathetic**  
-I see two **able-bodied**, entitled young white men...   
+I see two **able-bodied**, entitled young white men...  
 **dummy** out an email account in his name, sent a beta request to Hendricks, and then **voila**.  
 you're so **needy**  
 when we have a totally open and **hedonistic** relationship that allows for behavior like that. (She still lied to me)  
@@ -64,7 +64,7 @@ you're the **dogface**
 I'm **on the fence**  
 
 
-## E 5 
+## E 5  
 
 You do tend to **babble** on when you're under pressure.  
 **shylock**  
@@ -74,7 +74,7 @@ he's shown **mettle**.
 I found my **retainer** in the school dumpster.  
 Did you tell them that my Fage's **off-limits**?  
 
-## E 4 
+## E 4  
 This baby gonna **purr**  
 She has a **fiduciary** obligation as a member of the board  
 that's **factually** correct  
@@ -83,7 +83,7 @@ We will be **reconvening** tomorrow
 fuck me **sideways**  
 she is **slandering** my tech  
 
-## E 3 
+## E 3  
 
 She was pretty **adamant** that the whole box project here at Pied Piper was woefully misguided.  
 If I can control Laurie, do you really think I'd be looking out my office door at that **monstrosity**?  
@@ -91,7 +91,7 @@ at this time we just have to **roll over** and do it.
 we build a **skunk works**  
 If anyone **catched wind** of anything here, we're fucked.  
 This is it, **no turning back** now.  
-**shredder** 
+**shredder**  
 
 
 ## E 2  
@@ -107,7 +107,7 @@ you four eyes **turd**
 I stay here for a year, I pay no rent, you have no **recourse**  
 
 
-## E 1 
+## E 1  
 You madam, are a **shrew** **of the first order**.  
 if I didn't vote to remove you, then Laurie would've **adjourned** the meeting, replace my seat on the board with someone else at Raviga  
 That's the **gutsiest** thing I've ever seen.  

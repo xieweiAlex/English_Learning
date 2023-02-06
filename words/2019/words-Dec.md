@@ -1,5 +1,5 @@
 
-One of Japan’s most **skimmed-over** destinations is ready for a deeper dive.   
+One of Japan’s most **skimmed-over** destinations is ready for a deeper dive.  
 
 was tried in secret and sentenced to nine years in prison on **trumped-up** charges  
 
@@ -9,10 +9,10 @@ VimR is the **brainchild** of Tae Won Ha
 Russian **roulette**  
 feel likes it’s a really **chilled-out** drink  
 
-**lichen**: a **mossy** plaint they dig down through the snow to get at, except when all those **thawing**, and refreezing means they can't.   
+**lichen**: a **mossy** plaint they dig down through the snow to get at, except when all those **thawing**, and refreezing means they can't.  
 And when the snow turned to ice, what happens to the **reindeer**?  
 
-> Often we have a burst of motivation at the start of a project, but this quickly fades, and we fall back into our lackluster way 
+> Often we have a burst of motivation at the start of a project, but this quickly fades, and we fall back into our lackluster way  
 
 my new Yamaha **acoustic guitar**.  
 
@@ -38,7 +38,7 @@ American's **love affair** with driving is cooling.
 
 Buckle up for America’s ugly election and **faltering** economy  
 
-**territorial** sovereignty   
+**territorial** sovereignty  
 **single malt**  
 
 Unfortunately this does seem like a **forgone conclusion**  
@@ -57,13 +57,13 @@ It has been one of the most **agonizing** questions on college applications: Wha
 why bother moving if you can just **teleport**  
 
 Because there are so many variations of Linux, and more generally UNIX, it’s difficult for the hubot team to have **canonical** documentation for installing and deploying it to every version out there.  
-**Income to cost ratio**   
+**Income to cost ratio**  
 it also retains the **dubious honor** of having the lowest after-tax income across all countries, even though it also has the lowest rent and cost of living across the board  
 
 a **cliff-hanger** ending  
 Another year of political drama ends with a **cliffhanger**—an impeached president awaiting trial in the Senate  
 **Rewinding back** to January, this was not necessarily a predictable ending to the 2019 season  
-Roughly 800,000 federal employees were **furloughed** or compelled to work without pay   
+Roughly 800,000 federal employees were **furloughed** or compelled to work without pay  
 As a **manifestation** of America’s political **dysfunction**, the shutdown **foreshadowed** partisan battles to come  
 **platinum-blonde** **songstress**  
 
@@ -109,8 +109,8 @@ Now she’s changing gears, focusing on elegant, useful designs and **upending**
 If we do not act now we would be **derelict** in our duty  
 The **bitter** and **contentious** debate over Trump's impeachment comes ahead of votes expected to **fall** almost completely **along** **party lines**  
 only three Democrats have signaled they will **break ranks** to vote against one or both articles  
-But Republicans **charged** that Democrats were abusing the power of their majority to impeach the President
-From the **very moment** that the majority party in this House won, the inevitability that we would be here today was only a matter of what date they would schedule it
+But Republicans **charged** that Democrats were abusing the power of their majority to impeach the President  
+From the **very moment** that the majority party in this House won, the inevitability that we would be here today was only a matter of what date they would schedule it  
 As debate kicked off Wednesday morning, Republicans raised a series of procedural objections, forcing several **roll-call** votes on the floor before the debate on impeachment began  
 then **obstructed** the investigation by **defying** congressional subpoenas across the administration.  
 Trump has pushed back on the impeachment charges against him repeatedly on Twitter **leading up to** the vote  
@@ -125,7 +125,7 @@ Against the **insidious wiles** of foreign influence (I **conjure** you to belie
 We live in an age of **disinformation**, where **fact-free arguments** are advanced with the intention of distracting and dividing people in a democratic republic  
 It's about whether you believe President Trump and his successors from both parties should have a green light to invite foreign powers to meddle in our domestic elections. And that shouldn't be a **tough call**.  
 
-What was his reaction? Initially... silence! And then he tried several times to persuade me to change my mind. But my mind was **made up**.
+What was his reaction? Initially... silence! And then he tried several times to persuade me to change my mind. But my mind was **made up**.  
 She **flouted** the **proprieties**  
 
 The route from junior dev to senior dev is not a **clear cut path**, but there are certain things you can do in your day-to-day that can demonstrate the **mindset** of a senior dev and help **expedite** your promotion.  
@@ -141,7 +141,7 @@ While many in Macau appear **content**, there are still **grumbles**
 **spaced repetitions**  
 It produces long-term, durable **retention** of knowledge, and in my experience, once people start using it, they **swear by** it.  
 
-TIME has published a list of what it believes are the 10 most important **gadgets** introduced in the last decade, and three Apple products have **made the cut**, including the iPad, Apple Watch, and AirPods. 
+TIME has published a list of what it believes are the 10 most important **gadgets** introduced in the last decade, and three Apple products have **made the cut**, including the iPad, Apple Watch, and AirPods.  
 "Before the iPad's introduction in 2010, the idea of a 'tablet computer' was mostly relegated to slick science fiction movies and unwieldy laptop-adjacent monstrosities running terrible software,"  
 ipad kickstarted a **sea change** in personal computing  
 While competitors have **ample time** to catch up with their own **take on** tabled computing  
@@ -152,18 +152,18 @@ for early adopters and **fashion-deficient** nerds
 **ever-improving** software  
 **cement** them as the gold standard of truly wireless audio  
 
->  "Apple's iPad — like the iPhone before it — resulted in a cultural shift for personal computing, and **set the tone** for the next decade of portable devices."   
+>  "Apple's iPad — like the iPhone before it — resulted in a cultural shift for personal computing, and **set the tone** for the next decade of portable devices."  
 
 We’ll be **simultaneously** **densifying** our current space in 680 + 860 W. California adding an additional 275 total seats  
 The attached doc is your to-do list for the 860 bldg **densification**  
 
 **headshot**  
 
-**Rx**: A medical prescription.
+**Rx**: A medical prescription.  
 
 He started out as a wrestling-world **villain**. Now he’s one of Hollywood’s most **bankable** stars — and, more important, a "**genuinely** good dude."  
 
-But a few weeks ago, Murfie’s website went offline and nearly all communication from the company **ceased**   
+But a few weeks ago, Murfie’s website went offline and nearly all communication from the company **ceased**  
 **sidecar**  
 
 He could never be a **getaway driver** in a bank robbery.  
@@ -197,13 +197,13 @@ Investigators were **barreling forward** with **inadequate** evidence and “an 
 **Ever-increasing** spending can often lead to the same undesirable result in organizations  
 
 
-## Week 1 
+## Week 1  
 
 it's the difference between a **stagnant** pond and **free-flowing** river.  Instead of being stuck like a pond, a river has **purpose** and **direction**  
 If you need anything , just **give me a holler**.  
 
-Recovery and **prep**   
-Think about everything you've accomplished then **reorient** your thoughts to the future 
+Recovery and **prep**  
+Think about everything you've accomplished then **reorient** your thoughts to the future  
 They set the **tone** for your entire morning.  
 We're most **receptive** to this kind of reflection  
 **rote memory**  
@@ -217,14 +217,14 @@ Then someone who's the entrepreneur and **scrappy** like you come up and they're
 
 **capex**: capital expenditures  
 **put options**  
-**deleveraging** in 1930s    
+**deleveraging** in 1930s  
 Inevitably, the central bank prints new money **out of thin air**  
 
 **Miscarriage**  
-**Sea bass** 
+**Sea bass**  
 
 Once I started looking into it as an investment I was **hooked**  
-So I **swooped in** and got my offer accepted before anyone else had a chance to see it.   
+So I **swooped in** and got my offer accepted before anyone else had a chance to see it.  
 living below your **means**  
 **delayed gratification**  
 
@@ -232,7 +232,7 @@ He doesn't like allies being **two-faced**
 an **octa-core** Intel Xeon CPU  
 
 Wikipedia prefers to keep donations small so that they don't feel **beholden** to major **benefactors**  
-It feels like I **bailed out** a friend who’s run out of money again
+It feels like I **bailed out** a friend who’s run out of money again  
 
 You just have to be brave enough to be on that **bleeding edge**  
 find a quiet spot to **devour** its dinner  

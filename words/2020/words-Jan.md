@@ -1,4 +1,4 @@
-## Week 5 
+## Week 5  
 
 Customers **swear by** the olive oil, **rotisserie** chickens, and even the golf balls made by Costco's house brand, Kirkland  
 Costco's cooked rotisserie chicken is a **loss leader**  
@@ -7,7 +7,7 @@ Costco's cooked rotisserie chicken is a **loss leader**
 Costco's offerings as an **unbeatable** bargain. **Move over**, Lululemon  
 **Toss** the whole **shebang** around until the quinoa is evenly distributed  
 
-**jillion** dollars 
+**jillion** dollars  
 
 **Fresh off the boat**, I got no friends here  
 **wake up call**  
@@ -15,11 +15,11 @@ serving the interests of their **oligarch** masters, that's what people are **si
 They're not reading the **lines**  
 This isn't normal, it's **outrageous**, it's **infuriating**  
 **Hell or High Water** we're gonna make sure that is  
-**status quo**
+**status quo**  
 even more **bought out** society  
 they just don't care about anybody who has a different narrative than the narrative they want to **spout**  
 
-Apple today announced that it has closed all of its **corporate offices**, stores, and **contact centers** in mainland China through February 9 due to the Wuhan coronavirus **outbreak**, **out of** an abundance of caution.   
+Apple today announced that it has closed all of its **corporate offices**, stores, and **contact centers** in mainland China through February 9 due to the Wuhan coronavirus **outbreak**, **out of** an abundance of caution.  
 
 **point man**  
 **proponent**  
@@ -87,18 +87,18 @@ Im kind of stuck in **limbo** here
 **Anglo-Saxon**  
 **Briton**, **Brits**  
 
-he believed his **scheme** was **foolproof**
+he believed his **scheme** was **foolproof**  
 Veronica Wilhelm testified she did not consent to being filmed while sedated nor to having her tooth taken out while Lookhart was on the **hoverboard**  
 
 Insurance plans typically won't cover the cost of surgery, as this is considered an **elective** procedure  
-(caught in the **undertow** just caught in the undertow)
+(caught in the **undertow** just caught in the undertow)  
 
-## Week 4 
+## Week 4  
 
 **consumables**  
 
 Those kids their **saliva** is already half virus **particles** by weight in the first place  
-This virus **transfers** and **transmits** in an **asymptomatic** state 
+This virus **transfers** and **transmits** in an **asymptomatic** state  
 no fever, no **chills**, no **febrile** and pain nothing to indicate to you  
 the **stopgap** nature of this is really **gut checking** to see dump truck piles of dirt they meant to block people from leaving in infected area  
 
@@ -133,7 +133,7 @@ You don't have to **tie up** a 20% down payment
 **epidemic**  
 Huawei sought to steal confidential information from T-Mobile from 2012 to 2014 and that executives at the **top brass** of the company were **aware** of the effort  
 They fear that a "**rip and replace**" method, which would rip Huawei technology from carriers that use the equipment and replace it with something else would be particularly harmful to rural areas  
-**stubborn mystery**   
+**stubborn mystery**  
 as did some of the FBI **bureaucrats** the president so **reviled**.  
 **state secret**  
 First, there was the **inescapable** fact that, like Osama bin Laden, 15 of the 19 **hijackers** were Saudis  
@@ -148,12 +148,12 @@ When I saw it, I was **livid**
 once I see it, I can not **unseen** it  
 **deterministic**  
 
-For example, it can trigger **manic episodes** in those with **bipolar disorder**   
+For example, it can trigger **manic episodes** in those with **bipolar disorder**  
 and we're learning now, from researchers in Sweden and Germany, that insufficient sleep can even affect the **microbiota** in your gut.  
 But does that apply to everyone? I’m a **petite** **couch potato**. Do I really need the same amount of water  
 
-## Week 3 
-It's also quite a **light-hearted** and informal expression.
+## Week 3  
+It's also quite a **light-hearted** and informal expression.  
 
 The technology was **substandard**  
 The **scorching** sun is **parching** the grassland  
@@ -169,9 +169,9 @@ Supply is **conditioned** by production.
 His **boyhood** **conditioned** him to **hardship**  
 Some victims said they were intimidated and threatened with **excommunication**  
 **gingerly** placed her underwear in a bucket of cold water before going back to her **chores**  
-It’s so **ingrained**. There are so many people who go to church and just endure.
+It’s so **ingrained**. There are so many people who go to church and just endure.  
 And yet, as #MeToo has rocked mainstream culture, Amish women have **instigated** their own female-driven movement.  
-But I have seen a real **uptick** over the past 10 years in Amish women coming forward.
+But I have seen a real **uptick** over the past 10 years in Amish women coming forward.  
 A **patriarchal** and isolated lifestyle in which victims have little exposure to police, coaches, or anyone else who might help them  
 a religion that **prioritizes** **repentance** and forgiveness over actual punishment or **rehabilitation**  
 wearing a **pleated** **head covering** and long dress, her shoes and socks a **dull black**, as her local church rules  
@@ -200,7 +200,7 @@ The canoe was sucked into the **whirlpool**
 **telethon**, **radiothon**  
 **Rigatoni** is a form of tube-shaped pasta  
 
-but again the one who broke it should know this from CI **on the spot** 
+but again the one who broke it should know this from CI **on the spot**  
 I was smart, but **cocky**, and incredibly **sheltered**. I was the very **embodiment** of a stereotype  
 
 It's kind like a **tweener**  
@@ -212,12 +212,12 @@ he was tagged as a **quitter**
 he made a **beeline** to the bathroom  
 in **unison**  
 I feel extra **gassy** today  
-**fluorescent** lamp/light/paint   
+**fluorescent** lamp/light/paint  
 coughing clears the lungs of **mucus**  
 she applies **deodorant** to her armpits after she showers  
 **overhand** grip, **overhand** smash  
 **picket** sign, **picket** ship  
-**viva**: Spanish for long live 
+**viva**: Spanish for long live  
 Your **spleen** has wandered close to your heart  
 He vented his **spleen** on the assembled crowd  
 **vulva** adoration  
@@ -231,9 +231,9 @@ Her face was **freckled** all over
 
 In exchange, US has agreed to **halve** some of the new tariffs it has imposed on Chinese products  
 The ongoing dispute has disrupted trade flows, **dampened** global economic growth and **unnerved** investors.  
-"Together we are righting the wrongs of the past and delivering a future of economic justice and security," he said
+"Together we are righting the wrongs of the past and delivering a future of economic justice and security," he said  
 We hope both sides will **abide by** and keep the agreement in earnest  
-Attorney General William Barr who criticized Apple for not providing any “**substantive assistance**” in the case of unlocking two iPhones of a Florida shooter.
+Attorney General William Barr who criticized Apple for not providing any “**substantive assistance**” in the case of unlocking two iPhones of a Florida shooter.  
 
 This is not the first time that Apple has found itself **at odds** with law enforcement agencies  
 Data is encrypted to save it from **prying eyes** and protect users' privacy and there’s only one key to **decrypt** it which in this case is the unlock code of the iPhone  
@@ -245,7 +245,7 @@ Data is encrypted to save it from **prying eyes** and protect users' privacy and
 
 In order to give you a **glimmer** into what it looks like, ...  
 **prefrontal cortex**  
-You don't have to tell somebody that their **bald spot** is growing 
+You don't have to tell somebody that their **bald spot** is growing  
 
 Furthermore, many users were clearly relying upon their **puny** human memory to remember passwords  
 **marijuana**  
@@ -266,7 +266,7 @@ A good **pawn** never shamed his master
 she has **redeemed** her jewellery from **pawn**  
 a family of ducks **waddled** along the river bank  
 well, I have to **void** my **bladder**  
-He is a great, **pompous** **bladder** of a man 
+He is a great, **pompous** **bladder** of a man  
 I've learned you're **wee bit** **touchy**  
 **prof**  
 **uterus**, uterine  
@@ -278,13 +278,13 @@ football is a **manly** sport
 he dashed in **breathlessly**  
 
 I'll **buck** the trend here and say that a gear indicator is absolutely essential  
-It's no use trying to **buck** the system.
-a **neutered** **tomcat**
+It's no use trying to **buck** the system.  
+a **neutered** **tomcat**  
 "Are you mad at me?" is a **scourge** on relationships everywhere. Here's why.  
-Anyone who's been in love should know by now that occasional relationship **discord** is inevitable.   
+Anyone who's been in love should know by now that occasional relationship **discord** is inevitable.  
 
 
-## Week 2 
+## Week 2  
 
 Everyone wants a **physique** that is athletic, strong and **chiseled**  
 
@@ -292,7 +292,7 @@ Everyone wants a **physique** that is athletic, strong and **chiseled**
 Experts said the plans would likely end of the traditional " **one size fits all** " **advert** break.  
 
 **Parisian**  
-**Hegel** 
+**Hegel**  
 Many **aristocrats** were killed in the French Revolution.  
 The above approach could be fun, but if we’re not careful, it could become a **walled garden**. What happens outside of the commands Nu comes with?  
 **fade away**  
@@ -301,7 +301,7 @@ what if all viable exploration actually **takes place** with self-**replicating*
 The least **extrapolation** and the greatest avoidance of our own biases and preconceptions  
 But for machines (as we know them) it should only take modest **velocities** (of the order of a few tens of kilometers a second) and an ability to **withstand** thousands or tens of thousands of years of travel  
 But it does raise another intriguing, **albeit** slightly more assumption-ridden idea  
-**Nuts and bolts**, silicon and electrons simply don't do it. You have to be made of those fragile, **fussy**, but endlessly adaptable **carbon molecules**    
+**Nuts and bolts**, silicon and electrons simply don't do it. You have to be made of those fragile, **fussy**, but endlessly adaptable **carbon molecules**  
 You will appear as a **fussy** person  
 
 They really got that communist **lingo**, including **comrades** 😜  
@@ -309,17 +309,17 @@ They really got that communist **lingo**, including **comrades** 😜
 **humanoid** robot  
 The charity is completely **reliant on** public donations  
 traffic **jams**  
-**hibachi** fire pan   
+**hibachi** fire pan  
 **washboard**  
 **Spanking buttocks**  
 **wishbone**  
 
-Hitting a ball isn’t all that challenging, but hitting it well consistently is **maddeningly** difficult.
+Hitting a ball isn’t all that challenging, but hitting it well consistently is **maddeningly** difficult.  
 
 My phone's days are definitely **numbered**—the battery won't last more than an hour.  
 We're well into the **dog days** of summer.  
 
-I'm sorry I **stood you up**, but I had a family emergency last night.
+I'm sorry I **stood you up**, but I had a family emergency last night.  
 Scarlett **bailed on** us, she said she had to take care of her sick kitty  
 Sorry, man, I've gotta **bail**. **Something came up**  
 
@@ -345,7 +345,7 @@ it's an insult to those who have been **maimed** permanently damaged
 **false economy**  
 **superimpose** or replace content onto a video.  
 
-How Our Government Is Trying To **Gaslight** Us into A War With Iran
+How Our Government Is Trying To **Gaslight** Us into A War With Iran  
 They commit a lot of acts of **jihad** against Americans in a wheel they call us **infidels**.  
 We need to **sever** those ties with **petro-dollar**  
 
@@ -360,7 +360,7 @@ Nothing, it's just old and **dingy**, that's all.
 **dual** nationality  
 We must **cherish** experience acquired **at the cost of** blood  
 
-## Week 1
+## Week 1  
 
 They sell media at a 15% **markup**  
 
@@ -369,20 +369,20 @@ Ovilia is an **up-and-coming** developer
 
 I hear the GOP thinks women dancing are **scandalous**. Wait till they find out Congresswomen dance too! 💃  
 
-They were meant to help **prop up** farm prices and farmers.
+They were meant to help **prop up** farm prices and farmers.  
 Which is a really nice **sounding line**.  
 **hit song**  
 He "bounced around" a number of schools and saw a **psychiatrist** for three years, eventually attending a ranch for troubled teens where he cared for a horse to build a sense of responsibility  
 
 The **dusting** of snow over the trees made for beautiful **scenery**  
 
-Every other aspect of Vim is **irredeemable**. The codebase is **atrocious**   
+Every other aspect of Vim is **irredeemable**. The codebase is **atrocious**  
 The plugin API is **cumbersome** and **restrictive**  
 The dev community is **apathetic**  
 The **benevolent** dictator is **averse to** change  
 Yes, +python gives you access to Python’s libraries and syntax. But your code will be **littered** with calls to vim.eval() and vim.command()  
 Indentation is **haphazard**  
-Some of Vim’s source code isn’t even valid text. It’s not ASCII or UTF-8. The **venerable** file can’t figure out the encoding.
+Some of Vim’s source code isn’t even valid text. It’s not ASCII or UTF-8. The **venerable** file can’t figure out the encoding.  
 These **preprocessor** statements may seem **innocuous**, but they slow development and inhibit new features  
 Complexity **stemming from** cross-platform support may be **excusable**, but even something as simple as reading keyboard input is a nightmare in Vim  
 Figuring out Vim’s control flow is **harrowing**  
@@ -401,7 +401,7 @@ Even the way this article was tweeted out by the author was **sophomoric**
 Bram has always been professional and **courteous**  
 give time for the active community to **suss out** the issues and get them fixed  
 seems like it's a step in the right direction which finally someone had the **cojones** to do  
-  
+
 So it’s appropriate that there’s now tools that promote **wellness** around alcohol consumption  
 We saw product launches **of all stripes** in this space  
 
@@ -409,7 +409,7 @@ We saw product launches **of all stripes** in this space
 **prefrontal cortex**  
 His **prefrontal cortex** is **sparring** with his **amygdala**, in other words, his upper level self is battling with his lower level self  
 
-> Just as we all have different ranges for hearing pitch and seeing colors, we have different ranges for seeing and understanding things, we see things in our own way   
+> Just as we all have different ranges for hearing pitch and seeing colors, we have different ranges for seeing and understanding things, we see things in our own way  
 > Difference in thinking can be symbiotic and complimentary instead of disruptive  
 
 This is illogical and leads the **suboptimal** decision-making  
@@ -419,7 +419,7 @@ And it “**restocks** the **armory** of our immune system, helping fight malign
 ten days later, Trump signed a spending bill with about $1.4 billion **allotted** for it  
 **Aristotle** defined tragedy as a terrible outcome arising from a person's fatal **flaw**  
 
-When **scuffles** **broke out**, large numbers of **black-clad** protesters rushed to the scene while other protesters formed human chains to pass them various supplies including bricks, forcing police to bring in their own reinforcements.   
+When **scuffles** **broke out**, large numbers of **black-clad** protesters rushed to the scene while other protesters formed human chains to pass them various supplies including bricks, forcing police to bring in their own reinforcements.  
 
 It's very difficult to **take part** unless you're part of the family, because it's a very **tight-knit** sort of family thing  
 everybody get drunk, get some **eggnog**  

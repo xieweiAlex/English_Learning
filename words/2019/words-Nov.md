@@ -1,6 +1,6 @@
 
 
-Simply put, it's a series of (usually) LED lights that you place **on the rear of** your PC monitor or TV, creating a kind of **halo effect** that projects behind it.
+Simply put, it's a series of (usually) LED lights that you place **on the rear of** your PC monitor or TV, creating a kind of **halo effect** that projects behind it.  
 
 Having a light on behind your monitor, like a small **lamp**, greatly reduces **eyestrain** at night  
 Also very **moody** and **cozy**  
@@ -14,20 +14,20 @@ If you are one of the many people looking to **changeover** to a latex mattress 
 
 Because that gives me **equanimity**  
 **Cortisol** is toxic, and it causes **cloudy thinking**.  
-Remember, when you're under stress, the brain releases **cortisol**   
+Remember, when you're under stress, the brain releases **cortisol**  
 
-Guard body must not **fall through**, consider using a 'return' or 'throw' to exit the scope
+Guard body must not **fall through**, consider using a 'return' or 'throw' to exit the scope  
 
 This way, you will never get rid of your **dreaded** millions  
-LA-based Honey was founded in 2012 and has **flown** somewhat **under the radar** since its launch.   
+LA-based Honey was founded in 2012 and has **flown** somewhat **under the radar** since its launch.  
 
 You're not getting **cold feet**, are you?  
 
 **plywood**  
-a silver pillow top **plush** with no knowledge of the mattress **scam**    
+a silver pillow top **plush** with no knowledge of the mattress **scam**  
 Extreme **sagging**  
 
-I'll likely keep it because the eggs are so perfect, but just be aware of the **banshee** that gets released each time eggs are fully cooked
+I'll likely keep it because the eggs are so perfect, but just be aware of the **banshee** that gets released each time eggs are fully cooked  
 this tiny but **mighty** cooker will put out a continuous, **shrill**, miniature SIREN  
 **trumpet**  
 
@@ -41,23 +41,23 @@ We want to address all these things and be transparent about how we’re **payin
 **humanities**  
 New data from America’s Department of Education, released on November 20th, help **shed light on** this question  
 which was… **divisive** in its reception, **to say the least**.  
-Despite launch day **hiccups** and a lot of **poking fun** at its looks, Musk has said that so far, more than 250,000 customers have signed up   
+Despite launch day **hiccups** and a lot of **poking fun** at its looks, Musk has said that so far, more than 250,000 customers have signed up  
 
 **tablespoon**  
 **ceramic knife**  
 
 **shatter** immediately  
 **tug of war**  
-**crayfish**, **crawfish**   
+**crayfish**, **crawfish**  
 
-## Week 3 
+## Week 3  
 
 but in SMILE it is much longer because far more **corneal** tissue is modified by the **Femtosecond laser**  
 The SMILE procedure is quiet and **odourless**  
 From the surgery itself through the **postop** period, small-**incision** **lenticule** **extraction** has many things to recommend it  
 
 If you're underweight, you want to gain a balanced amount of **muscle mass** and **subcutaneous fat** rather than a lot of unhealthy **belly fat**.  
-ICE departs California gang member **convicted** of **manslaughter** on same day he's released from prison   
+ICE departs California gang member **convicted** of **manslaughter** on same day he's released from prison  
 
 We think of medical data as our last **sacrosanct** pieces of personal information  
 Two days after its big (and slightly **botched**) **unveiling**, the Cybertruck is already **racking up** a lot of interest.  
@@ -84,14 +84,14 @@ Your **pupils** must not be too large
 It's important to tell your surgeon all **pertinent information** relating to your health and medical history to ensure you achieve the best possible results  
 
 
-To **cut down** on bugs, Apple is changing how it develops its software
-Apple is also considering postponing some features from iOS 14 to a later update, possibly iOS 15, in order to put the **magnifying glass** on performance and stability
+To **cut down** on bugs, Apple is changing how it develops its software  
+Apple is also considering postponing some features from iOS 14 to a later update, possibly iOS 15, in order to put the **magnifying glass** on performance and stability  
 iOS 13 has seen a far **faster cadence** of bug-fix updates since it went live than any other major iOS release in more than a decade  
 
 He was arrested, found guilty of **draft evasion**, and **stripped** of his **boxing titles**  
 **draft evasion** is an **intentional** decision not to comply with the military **conscription** policies of one's nation  
 His actions as a **conscientious** objector to the war made him an **icon** for the larger **counterculture** generation  
-Ali **thrived** in the **spotlight** at a time when many fighters let their managers **do the talking**, and he was often **provocative** and **outlandish**
+Ali **thrived** in the **spotlight** at a time when many fighters let their managers **do the talking**, and he was often **provocative** and **outlandish**  
 **Kentucky**  
 
 The engine oil is the **lifeblood** of your engine  
@@ -107,13 +107,13 @@ Of course, it **scuffs** and scratches easily, too
 You’ll need a fixed storage space, which can be a challenge for apartment and small-house **dwellers**  
 
 
-## Week 2 
+## Week 2  
 
 training **apparatus**  
 **aqua** **aerobics**  
 **devil's advocate**  
 
-**passer-by**
+**passer-by**  
 
 Hong Kong is a city **on edge**  
 visitor arrivals and retail sales are **tanking**  
@@ -124,10 +124,10 @@ She **spearheaded** a failed attempt to pass controversial Beijing back national
 To **fast track** the bill  
 The government will formally withdraw the bill in order to **allay** public concerns  
 The local government's **intransigency** towards their demands is why universal **suffrage** is their ultimate goal  
-Could we avoid all this **mayhem** over the last two to three moths if Carrie Lam had simply withdrawn the bill back in June   
+Could we avoid all this **mayhem** over the last two to three moths if Carrie Lam had simply withdrawn the bill back in June  
 Unless we have assurance of universal suffrage, we will always have constant **encroachment** on our freedom  
-Hong Kong's returned to China was **enshrined** in 1984 with the signing of **sino-british** **joint** declaration
-Is China **reneging** on the pledge made in this book?   
+Hong Kong's returned to China was **enshrined** in 1984 with the signing of **sino-british** **joint** declaration  
+Is China **reneging** on the pledge made in this book?  
 Everything in this book does not involve a **clear-cut** yes or no  
 
 
@@ -157,15 +157,15 @@ So I go into this bar, and it’s **crammed** with young people
 
 If You Have a **Fender-Bender** With No Injuries  
 
-I only listen **out of pity**
+I only listen **out of pity**  
 Reviewers love them and have been **raving** about them. But, like any product, they’re not perfect  
 
 **stick figure**  
 **ingenious companies**  
 **LASIK eye surgery**  
-Thus **begins** a **hideously** costly and **drawn-out** negotiation that eventually yields the dollar amount that the doctor will get reimbursed
+Thus **begins** a **hideously** costly and **drawn-out** negotiation that eventually yields the dollar amount that the doctor will get reimbursed  
 If you have price tags for every procedure and require that every patient be charged the same price, all of that **bickering** and **chicanery** goes away  
-As does the need for **gargantuan** bureaucracies to process claims
+As does the need for **gargantuan** bureaucracies to process claims  
 **Fast forward** to last quarter  
 I have **owned up to** getting the Peak Google article wrong in the Daily Update  
 First, I should have been clear from the **get-go** that the analysis did not apply to YouTube  
@@ -174,37 +174,37 @@ First, I should have been clear from the **get-go** that the analysis did not ap
 The new one doesn’t click at all. Its glass touch surface floats above pressure sensors that detect force anywhere on the surface and trigger a **haptic** response, a **vibration** that your brain **interprets** as a click  
 To **aid** in the process, the Magic Trackpad apparently even generates its own **artificial** clicking noise  
 
-## Week 1 
+## Week 1  
 You can see why iPod Hi-Fi was a **hard sell**  
-**In no circumstance** should you give up   
+**In no circumstance** should you give up  
 Now how does that **circumstance** compare to HomePod  
 **High fidelity** audio  
 I was a **disciple**  
 I was having more and more **close calls**  
-I **berated** him for taking so much risk, "You gonna get yourself killed with that kind of riding!"   
+I **berated** him for taking so much risk, "You gonna get yourself killed with that kind of riding!"  
 Maybe I just wasn't **cut out to** ride, I'd be wise to give it up.  
-I was on a much more powerful bike, riding much more **briskly** than I was the first time
-It's **unequivocally** less risky 
+I was on a much more powerful bike, riding much more **briskly** than I was the first time  
+It's **unequivocally** less risky  
 **trailing off** the motorcycle begins leaning  
 You're braking past the point where the motorcycle **tips in**, with the focus on the front brake  
 This is **quintessentially** what that means  
 **ease off** the clutch  
-> continue to drag or trail the front brake. And ideally, we continue trailing on that front brake, even if we're only using one percent of total front brakes ability, until we arrive at the apex, we can see the exit of the corner   
+> continue to drag or trail the front brake. And ideally, we continue trailing on that front brake, even if we're only using one percent of total front brakes ability, until we arrive at the apex, we can see the exit of the corner  
 
 **coasting motion**  
 
-China **Roundup**: facial recognition lawsuit and cashless payments for foreigners
-This week, a lawsuit sparked a debate over the deployment of China’s **pervasive** facial recognition;   
+China **Roundup**: facial recognition lawsuit and cashless payments for foreigners  
+This week, a lawsuit sparked a debate over the deployment of China’s **pervasive** facial recognition;  
 Been keeping it in the rain and **frost** and **whatnot** for the other 8 years, with minor signs of rust here and there  
 
-He is in **bondage** to his ambition
+He is in **bondage** to his ambition  
 
-Super **absorbent** bath towel   
+Super **absorbent** bath towel  
 Traffic flow on a freeway is **unhindered** because there are no traffic signals, **intersections**, or **at-grade crossings** with other roads, railways, or pedestrian paths  
-These **ramps** (**slip roads**) allow for speed changes between the freeway and **arterial** **thoroughfares** and **collector roads**   
+These **ramps** (**slip roads**) allow for speed changes between the freeway and **arterial** **thoroughfares** and **collector roads**  
 
 You need to start step by step, and progress, rather than try everything **at one go**.  
-When you ride the bike, small amounts of combustion **by-products** work past the rings introducing, among other **contaminants**, water into the **crankcase**
+When you ride the bike, small amounts of combustion **by-products** work past the rings introducing, among other **contaminants**, water into the **crankcase**  
 This mixes with the oil and gets distributed through the engine where it can begin to **corrode** unseen but expensive **bits**  
 **bits and pieces**  
 
@@ -214,7 +214,7 @@ This mixes with the oil and gets distributed through the engine where it can beg
 **red eye flight**  
 motor oil is **carcinogens**  
 **dipstick**  
-**ovoid**, **egg shaped**
+**ovoid**, **egg shaped**  
 
 You may not include the names of other apps on the system in an attempt to **divert** requests to your app  
 
@@ -222,11 +222,11 @@ This **centripetal** force comes from the frictional force between the tire and 
 All my weight on the outside **foot peg**  
 **head spin**  
 
-I'm not an **audiophile**
+I'm not an **audiophile**  
 **inmates** in California can volunteer to help put out fires  
 I believe **ex-cons**(ex-convict) could make a great firefighters  
 
-leaving aside its stance on ads — is increasingly a tool for **stamping out** independent thought in Silicon Valley should be a real concern for an industry predicated on “Thinking Different”.
+leaving aside its stance on ads — is increasingly a tool for **stamping out** independent thought in Silicon Valley should be a real concern for an industry predicated on “Thinking Different”.  
 **Synonym**  
 When a user’s **utterance** is ambiguous enough that it resolves to multiple intents, SiriKit uses the order of the intents in the IntentsSupported key to determine which intent to send to your app  
 
@@ -235,7 +235,7 @@ Frankly, I find it deeply concerning that I might have any **trepidation** in wr
 
 The passenger should only sit in **pillion**  
 if your helmet doesn't have a **visor** installed.  
-The throttle should be used **judiciously** to avoid skidding the rear wheel 
+The throttle should be used **judiciously** to avoid skidding the rear wheel  
 Ride **prudently**  
 weight and speed being **analogous** to torque and speed of an engine  
 **gear teeth**  
@@ -247,18 +247,18 @@ after a long hard **arduous** day of testing brand new motorcycles
 **turn your stomach**  
 **constant-mesh gearbox**:  
 
-book of **gutsy** women
+book of **gutsy** women  
 
 Charles Kupperman failed to show up on Capitol Hill for a scheduled **deposition** on Monday  
 Apple Inc. on Wednesday again showed it can deliver growth even while its **bedrock** iPhone business declines.  
-Sensing inevitable concern around Google’s upcoming access to a **bevy** of health data   
-in more recent years it has struggled as the smartwatches category has grown and **encroached** and taken over Fitbit’s tracker territory.
-you are only trying to **gauge** their attitude, learn about their objections to remote work, and then adjust your plan **accordingly**
+Sensing inevitable concern around Google’s upcoming access to a **bevy** of health data  
+in more recent years it has struggled as the smartwatches category has grown and **encroached** and taken over Fitbit’s tracker territory.  
+you are only trying to **gauge** their attitude, learn about their objections to remote work, and then adjust your plan **accordingly**  
 Bad Weather **Contingency**  
 Hey, what's the plan if there is **inclement** weather and employees can't get to the office  
 I’d like to make a branch and try out an idea on [X], but I don’t want to do it **on the clock**. Can I do it from home?  
 This is a **tactical**, short-term suggestion  
 A **self-saboteur** has bought into the line that ‘by doing nothing, bad things won’t happen.’  
 LinkedIn is what happens when network effects **congeal**  
-But maybe this purchase will allow them a more **concerted** push to take on the Apple Watch
+But maybe this purchase will allow them a more **concerted** push to take on the Apple Watch  
 

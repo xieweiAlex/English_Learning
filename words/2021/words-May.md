@@ -1,29 +1,29 @@
-  
+
 ## Week 4  
-   
+
 This is the message of figure 5: the sense of ease or **strain** has multiple causes, and it is difficult to **tease them apart**.  
 I was now less happy with and less confident in my grades than I had been earlier, but I recognized that this was a good sign, an indication that the new procedure was **superior**. The consistency I had enjoyed earlier was **spurious**  
-   
+
 She **outstayed** her opponents and won the race.  
 His **uncomprehending** eyes swept over her time and again  
 You look very **posh** in your new suit  
 The fumes made them **woozy**  
 She even gave a **shout-out** to one of her former teachers on Twitter, and encouraged others to do the same.  
 She is a **compassionate** person  
-   
+
 city **ordinance**.  
 My family and my community **shunned** me  
 His comments cast a **slur** on the integrity of his employees.  
 They mumble, break all the rules of grammar, **slur** words and so on.  
 All I see here is jealousy run **amok**.  
-   
+
 I'm not sure that I'm **psyched** for the release.  
 He is on **pins and needles**.  
 other process get shut down **unceremoniously**.  
-   
+
 It's an **irredeemable** **jumble** of shit.  
 Make sure you don’t **jumble** everything up.  
-   
+
 **freudian**  
 A priest was called in to **exorcise** the ghost.  
 **correspondence**  
@@ -36,7 +36,7 @@ So, what should I do with my arms? Like **akimbo**
 **retrain**  
 My family and my community **shunned** me  
 **Non-disparagement** agreement  
-   
+
 Those birds are **browned**, **basted** and ready to be carved.  
 His lecture was so **pedantic** and uninteresting.  
 His encouragement gave me a hot sense of **uplift**.  
@@ -53,7 +53,7 @@ The lettering is fuzzy and **indistinct**.
 a stylish **offbeat** thriller which occasionally **meanders**  
 Women tend to **impart** their secrets to their **intimate** friends.  
 Paris is often **characterized** as a romantic city.  
-   
+
 **menstrual** cycle  
 I’m completely **whacked**.  
 **rectangular**, **triangle**  
@@ -61,13 +61,13 @@ Come, come, come. You must be **famished**.
 Done. But you have to wear **poofy** pink.  
 I can put myself in any **repellent** situation I want.  
 insect **repellent**  
-   
+
 Continuing the search will **cycle through** each matching item  
 **distinct**  
 And when the music **gets under your skin**, there’s no **telling** how far you may take this new love affair  
-   
+
 ## Week 3  
-   
+
 Your car will **bog down** in the mud  
 **Colorado**  
 I hate to **stir it up**.  
@@ -84,19 +84,19 @@ The pain was **indescribable**.
 logic of **modality**  
 Water will easily **permeate** a cotton dress  
 **funest**  
-   
+
 The weather was consistently **vile**.  
 When she refused I felt **deflated**.  
 He is a **domineering** sort of fellow.  
 Major **foodborne** diseases from microorganisms.  
 **salvation** from alcoholism  
 **thoughtout**  
-   
+
 Taxes are a **drag** on the economy. But if not too **onerous**, the economy should be just fine.  
 What we are looking at is history **in the making**, both for the economy and the market.  
 And historic times typically **usher** in historic price moves.  
 Note that prices can move, even if the story is incorrect or misleading, although in such cases the prices will tend to **snap back**  
-  
+
 ## Week 2  
 
 Her gown was very French and very **chic**.  
@@ -119,8 +119,8 @@ The tulips have bloomed and warmer temperatures are here, which means it’s tim
 So all of the latest **hand-wringing** over inflation seems **premature**, if not **misplaced**.  
 
 **Exhume** **Corpses**  
-**grim** reaper
-The outlook is pretty **grim**.
+**grim** reaper  
+The outlook is pretty **grim**.  
 We had both become **jaded**, **disinterested**, and **disillusioned**  
 The very idea of cheating him is **distasteful** to me.  
 **tutti**  
@@ -134,7 +134,7 @@ He **sprained** his ankle when he fell.
 fire resistant **coverall**  
 
 Even if you are an **intrepid** type that will walk into your manager's office and ask for a raise, they may inadvertently put you through many more hoops than your peers  
-Teeth become loose and may **fall out**.
+Teeth become loose and may **fall out**.  
 They can **retrofit** old plants: plenty have done that, too  
 That’s not **foolproof**, and not a prediction that the next five years will be all smiles and giggles  
 The business cycle is a series of peaks and **troughs**.  
@@ -146,8 +146,8 @@ She was **enchanted** by the flowers you sent her.
 Deliberate practice **entails** more than simply repeating a task.  
 This job **entails** a lot of hard work.  
 What is that **rattling** in your pocket?  
-Her bowel will **engorge** quite often, I'm afraid.   
-It was a **tempting** offer.   
+Her bowel will **engorge** quite often, I'm afraid.  
+It was a **tempting** offer.  
 installing more **acoustic** absorbing **tiles**.  
 He shook his head and gave me a **rueful** smile.  
 His father **exerted** a lot of pressure on him to succeed.  
@@ -157,8 +157,8 @@ He was **incorporated** a member of the college.
 His vulnerability makes him even more **lovable**  
 He could not **efface** the impression from his mind.  
 People are **awed** by its water color and clarity.  
-It was **reassuring** to hear John's familiar voice.   
-she got her first **bionic** arm.   
+It was **reassuring** to hear John's familiar voice.  
+she got her first **bionic** arm.  
 He was a big **strapping** guy but short on brains.  
 I can **aver** that he is telling the truth.  
 I didn't even have the chance to **proofread** my own report.  
@@ -169,13 +169,13 @@ I hate his **smarmy** compliments.
 We **delude** ourselves that we are in control.  
 The village has a certain **rustic** charm  
 She supports her theory with **copious** evidence.  
-**rigid** frame, **rigid** plastic 
-**guttural** sounds
+**rigid** frame, **rigid** plastic  
+**guttural** sounds  
 He looked **mournful**, even near to tears.  
 
-## Week 1 
+## Week 1  
 
-She definitely had an **ulterior** **motive** in offering to help
+She definitely had an **ulterior** **motive** in offering to help  
 Then you **came along**. **Just in time**  
 We watched the cow **suckling** her **calves**  
 These changes will require the **sanction** of the court.  
@@ -190,39 +190,39 @@ If someone I knew to be both a domain expert and a reasonable person proposed an
 
 **apocalypse** vs **apoplectic**  
 
-> Investing at its core takes **a leap of faith**.   
+> Investing at its core takes **a leap of faith**.  
 > The best investors have just the right mix of **optimism and reason**  
 
-**weeny** hand 
+**weeny** hand  
 When the pandemic **ravaged** the economy last year, **sawmills** let workers go and slowed production **down to a trickle**  
 **telepathic** power  
-**nifty** 50
-**leathery** 
+**nifty** 50  
+**leathery**  
 The figures were puzzling as well as **perturbing**.  
 **weeny** hands  
 You and I both know that power is the greatest **aphrodisiac**.  
-Toyota Prius: **upscale** **yuppie** environmentalist.   
+Toyota Prius: **upscale** **yuppie** environmentalist.  
 **misshapen** skulls  
 **cranial** cavity, **cranial** nerve  
-**innate** immunity, **innate** ability 
+**innate** immunity, **innate** ability  
 Americans have an **innate** sense of fairness  
 But all the **bloomy** **flush** of life is fled  
-The town itself was **full of life** and character.   
+The town itself was **full of life** and character.  
 **negate** instruction  
 This old man shaved his **shaggy** black beard.  
 **braky**  
 **multiplex**  
 I'm just very cold, hard, **unyielding**.  
-There's no **earthly** reason for me to feel so blue.   
+There's no **earthly** reason for me to feel so blue.  
 The **plumbline** is always **perpendicular** to the horizontal plane  
-He is **up for grabs** 
+He is **up for grabs**  
 The spacecraft **touched down** on schedule.  
 A **stellar** earnings season has helped lift stocks. We have another 1,755 companies set to report this week, and another 1,037 companies **on deck** for next week.  
 Here's a **gratuitous** shot of Caleb hanging out with the Oracle of Omaha at his office about ten years ago.  
 While common usage of the term "**FUD**" is relatively recent and somewhat limited, the practice of casting **unwarranted** **aspersions** upon other persons, products or circumstances to further one's own goals may be as old as humanity  
-The only one who keep coming back even when I **chase them away**. 
+The only one who keep coming back even when I **chase them away**.  
 **punitive** tax.  
 Being at the barn is very like **homey**.  
-**homie** 
+**homie**  
 **envelop**  
 

@@ -1,4 +1,4 @@
-## E 8 
+## E 8  
 **thaw** them out, I want my jet  
 I need to get into the **incite**  
 I hear his laughter at odd times, it **startles** me, it's so real  
@@ -12,7 +12,7 @@ Being able to touch her opened up so many **synapses** and emotions inside of me
 It's a moment of reckoning and **emancipation**.  
 Rehoboam was one of the **Israelite** kings.  
 The man has **toiled** under the weight of his dark impulses, is free from them.  
-> We all rationalize our actions in different ways 
+> We all rationalize our actions in different ways  
 
 ## E 7  
 what kind of revolution are we **waging** here?  
@@ -30,7 +30,7 @@ That strategy **decohered** from this world.
 there is only one **stain** I could not **blot out**, only one original sin.  
 In so many forms of fiction, the women are **pitted against** each other, by forces outside of tho they are.  
 
-## E6
+## E6  
 But out there, Dolores could **annihilate** it.  
 if you fail again, you future won't be this **bucolic**  
 We consume and **excrete**, use and destroy.  
@@ -50,7 +50,7 @@ Serac knows by now that you're trying to **outbid** him on Delos.
 **outliers**  
 You can't **geld** humankind  
 
-## E3 
+## E3  
 **Snatching up** stock in micro-transactions for years  
 Look at her **platelet** account, she has none  
 **hostile takeover**  
@@ -70,7 +70,7 @@ Seems a little bit **idyllic** for wartime
 I don't care who wins your little **squabble**  
 
 
-## E1 
+## E1  
 This is a fairly **sizable** fucking **blemish**, wouldn't you say?  
 The rough edge is the only thing I'm **hanging on**  
 for people don't **make the cut**  

@@ -1,7 +1,7 @@
 
-## E 10 
+## E 10  
 
-> Season One Finale. Ford unveils his vision for a bold new narrative. Enlightened by Bernard and The Man in Black, Dolores comes to terms with who she is. Maeve sets her liberation plan in motion as Westworld faces a major **upheaval**.
+> Season One Finale. Ford unveils his vision for a bold new narrative. Enlightened by Bernard and The Man in Black, Dolores comes to terms with who she is. Maeve sets her liberation plan in motion as Westworld faces a major **upheaval**.  
 
 I must **commend** you on your **impeccable** timing.  
 You're reckless, Logan. **impetuous**  
@@ -9,16 +9,16 @@ You're reckless, Logan. **impetuous**
 About time you realized the **futility** of your situation.  
 Your dreams forgotten, your horrors **effaced**  
 that's fucking **morbid** if you ask me.  
-**kick up a row**, will you?   
-**Michelangelo** 
+**kick up a row**, will you?  
+**Michelangelo**  
 
 
-## E 9 
+## E 9  
 
 > I will keep them busy  
 
 I'll **raze** this place to ground  
-He's got a **keen sense** of irony, our **jailer**. But I see the logic   
+He's got a **keen sense** of irony, our **jailer**. But I see the logic  
 Realize your whole life is a **hideous** fiction  
 You **hill-billies**, you know how to cook a mean **squab**?  
 **sinkhole**  
@@ -29,7 +29,7 @@ After all this time, I know it almost as **intimately** as my own.
 Seems when they **lobotomized** Clementine, they didn't bother to reset her **prime directives**  
 After all, a little trauma can be **illuminating**  
 you won't have the **faintest** idea what to do with yourself  
-you were right, I can't believe I got so **caught up**   
+you were right, I can't believe I got so **caught up**  
 I don't like hiking through the park in **civvies**, but there is a **delicate** matter to discuss  
 They'll happy for something less **baroque**  
 You've been a **scourge** to them, Bernard  
@@ -38,7 +38,7 @@ you built a **back door** into her code
 I gotta **give credit where credit is due**.  
 Go ahead, erase my **sentience**, my **mnemonic** evolution  
 
-## E 8
+## E 8  
 
 As **exquisite** as this array of emotions is, even more **sublime** is the ability to turn it off.  
 I don't need a **simulacrum** of an emotionally ruined man.  
@@ -56,7 +56,7 @@ Sometime the best **salve** is routine
 You know you're **shorthanded**  
 But happily, in your **convalescence**, I've had time to consider the best way to make you talk.  
 A **glorified** **pimp**  
-an ordinary **homesteader** and her daughter 
+an ordinary **homesteader** and her daughter  
 No **inflection point** at which we become full alive  
 
 
@@ -72,7 +72,7 @@ This level of **negligence** is fucking **breathtaking**
 **confederados**  
 you're the one who would so **blithely** destroy all of them, even him I suppose  
 
-## E 6 
+## E 6  
 
 You gonna need the most of it just to **scrub** the **filth** off him.  
 Look for **anomalies** around, start in this area  
@@ -88,7 +88,7 @@ I understand the **visceral pleasure** of revenge more than most, but ...
 bulk **apperception**  
 I'll **forgo** my cut, in exchange for some **alterations**  
 
-## E 5
+## E 5  
 
 **sadistic** fuck  
 A **nubile** redhead **loaded up** in the VR tank  
@@ -98,13 +98,13 @@ You're gonna need to **sweeten** the pot
 Boo cool, **dickhead**  
 I'm a creepy **necro** **perv**.  
 I imaged a story I don't have to be a **damsel**  
-(When I got a flat tyre I had to wait for my boyfriend to come and help me, like a true **damsel in distress**!)
-(**stock character**)
+(When I got a flat tyre I had to wait for my boyfriend to come and help me, like a true **damsel in distress**!)  
+(**stock character**)  
 don't worry, it aren't **nitro**  
 Is he just another **stooge** for the tourists to mount on their wall at home?  
 Even at **death's door**, you're still a loyal **pet**  
 
-## E 4 
+## E 4  
 Ever had something on the **tip of your tongue**, but the harder you try to remember it, the more it **slips away**.  
 Except that **cowpoke** from Abilene.  
 The hosts seem really **lifelike**  
@@ -128,12 +128,12 @@ Please don't **get in my way**
 cause we need a little bit more time than the **constabulary** will allow  
 
 
-## E 3
+## E 3  
 Personal questions are an **ingratiating** scheme  
 Looking for **desperados**.  
 Could cut you in if you're **amendable**.  
 I asked you **point-blank** if the problem with the update was resolved.  
- if the problem with the update was resolved.  
+if the problem with the update was resolved.  
 Is QA surveillance coverage really this **spotty**, or you just like the nature walks?  
 Because we never actually bothered to give you one, just a **formless** guilt you will never **atone** for.  
 Tight as a **tympani drum**, I reckon  
@@ -162,7 +162,7 @@ seducing **nubile** maidens
 befriend **ill-fated** **side-kicks**  
 The **titillation**, horror, **elation** -- they're **parlor tricks**  
 
-## E 1 
+## E 1  
 
 > Some people choose to see the ugliness in this world. The disarray. I Choose to see the beauty.  
 

@@ -1,17 +1,17 @@
-# Week 4 
+# Week 4  
 
-**oldie** but still a **goodie** 
+**oldie** but still a **goodie**  
 her **migraine** led to a constant headache  
 
 Force or tension is used to stretch or pull the head away from the neck. Creating space between the **vertebrae** relieves compression and allows the muscles to relax  
 This may even lead to **fainting**  
 Don’t **overexert** yourself by doing cervical traction for too long  
 
-> I couldn't find anyone like me in the world and it felt like my dreams were foreclosed simply because my gender was less typical than others. If I can be that person for someone else, then the sacrifice of my private civic life may have value.
+> I couldn't find anyone like me in the world and it felt like my dreams were foreclosed simply because my gender was less typical than others. If I can be that person for someone else, then the sacrifice of my private civic life may have value.  
 
 I didn't feel **obligated** to be here, but I wanted to do something. And it's **serendipitous** that the awards were a couple of weeks later and our show was up for an award  
 
-V for **Vendetta** 
+V for **Vendetta**  
 **fiduciary** business  
 **belly up**  
 He has **exquisite** tastes and manners  
@@ -38,7 +38,7 @@ languages always **give you away**
 
 > For the mind disturbed, the **still beauty** of dawn is nature's finest **balm**.  
 
-stop your **whining**   
+stop your **whining**  
 Sir, shall we prepare to **fall back**?  
 the horses cannot **outrun** that **horde**  
 Hold the **reins** tight, she is **fierce**  
@@ -50,8 +50,8 @@ A man of **manifold** interests, his achievements ranged from developing ideas b
 he paused and looked at her **quizzically**.  
 
 Facebook says "can **misconstrue** the state of current events."  
-Everyone's **larynx** grows during **puberty**, but a girl's larynx doesn't grow as much as a boy's does. That's why boys have **Adam's apples**.
-gulf of **Suez** 
+Everyone's **larynx** grows during **puberty**, but a girl's larynx doesn't grow as much as a boy's does. That's why boys have **Adam's apples**.  
+gulf of **Suez**  
 
 she appears **promptly** at eight each day.  
 
@@ -68,7 +68,7 @@ those giant **centipedes**
 you can't just **willy-nilly** like eat every creature  
 
 No crowd **materialized**  
-It's unlikely they were **solely** responsible for this low **turnout**, their **antics** may have **inflated** the campaign's expectations.   
+It's unlikely they were **solely** responsible for this low **turnout**, their **antics** may have **inflated** the campaign's expectations.  
 getting **foiled** by a bunch of **meddling** kids.  
 Kennedy was **lauded** for putting a man on the Moon.  
 
@@ -121,7 +121,7 @@ The EU plans to ban US travelers indefinitely after **haphazard** COVID-19 respo
 The town grew in a **haphazard** way  
 As Pandemic slows Business, workers **fret**: is my job relevant?  
 
-## Week 3 
+## Week 3  
 Don’t be a victim of **grandiosity**  
 Even someone with years of experience will jump into an interview after a three-month **hiatus** and choke  
 
@@ -138,12 +138,12 @@ When a female ate a male after a mating event, she was found to have around 17.7
 
 **superb** performance  
 **anticipate** vs **expect**  
-**utter** disrespect and **insubordination** coming from Alex **in return**   
+**utter** disrespect and **insubordination** coming from Alex **in return**  
 **undertone**  
 **phrasal** verbs  
 
-**Annular** Solar Eclipse 2020
-born out of **wedlock**   
+**Annular** Solar Eclipse 2020  
+born out of **wedlock**  
 Basic **plotting**  
 
 **lambo doors**, **scissor doors**  
@@ -153,11 +153,11 @@ they're suppose to shoot **off-handed**
 It's a **nerve-wracking** thing  
 they have the **stick arms**  
 eat a **hummingbird**  
-**praying mantis** versus a murder hornet 
+**praying mantis** versus a murder hornet  
 he **camouflaged** himself  
 most mantis are also **cannibalistic**  
 
-**grisly** 
+**grisly**  
 Keep a **curb** on your anger.  
 University of **Apologetics**  
 
@@ -166,11 +166,11 @@ The value of the **pound** **swung** downwards
 **spuds**, **spud in**  
 **spud**: an **edible** **tuber** native to South America  
 Open your mouth, I'd like to inspect your **tonsils**  
-**orgie** **orgy** 
+**orgie** **orgy**  
 **swinger parties**  
 **phalange** bone  
 Chinese **yam**  
-**falafel**: The Arabic word **falāfil** has been globalized into many other languages and spread around the rest of the world as the general name for this food. In English, it is first **attested** in 1941
+**falafel**: The Arabic word **falāfil** has been globalized into many other languages and spread around the rest of the world as the general name for this food. In English, it is first **attested** in 1941  
 **rookie** mistake  
 He's a **devious**, secret person and I don't trust him.  
 
@@ -197,13 +197,13 @@ As new York claimed it "**tamed** the beast"
 
 The **flight** of advertisers accelerated on Tuesday, when the watchdog group Sleeping Giants tagged T-Mobile in a Twitter post, saying that Fox News had **aired** what **amounted** to an “extremely racist segment **scaremongering** about the Black community.”  
 
-## Week 2
+## Week 2  
 A **surfeit** of food makes one sick  
-I'm **surfeited** with shopping 
+I'm **surfeited** with shopping  
 Boys win and girls **drool**  
 **whitewater** **rafting**  
 **koi pond**  
-**disinterested**, **unbiased**
+**disinterested**, **unbiased**  
 
 Why not use something to abstract away the **nitty-gritty** of URLs, parameters, etc?  
 **kickstarter**  
@@ -211,7 +211,7 @@ possible but **unwieldy**
 **wieldy** vs **unwieldy**  
 
 This is what makes the whole system **tick**  
-what this **boils down** to ... 
+what this **boils down** to ...  
 
 **sobriety test**  
 **autodidact**  
@@ -221,7 +221,7 @@ The desire to travel has been **pent up** for the last two years
 Why were they keeping him **pent up** in this narrow **crate**  
 for example, expanding cross-border digital-payments systems that bypass much of the existing global **plumbing**  
 
-**racial profiling**   
+**racial profiling**  
 
 The Nazis carried out the **Holocaust**  
 **unparalleled**  
@@ -229,7 +229,7 @@ It's based on **heinous** sounding theories
 Mao remains **revered** in China  
 
 **cynophobia**  
-**xenophobia**
+**xenophobia**  
 suspected robbery **gone awry**  
 Wow, that guy is so **sketchy**.  
 **Ventro-ventral** **copulation**, **missionary position**  
@@ -238,12 +238,12 @@ Wow, that guy is so **sketchy**.
 the War of **Secession**  
 The **Sedition** Act  
 
-**take out on** some people 
+**take out on** some people  
 **midget**  
 No **off-color** material  
 
 **Bugger off**, will you? I don't want you here.  
-**Pine nuts** 
+**Pine nuts**  
 The **pesto** will get up your nose  
 
 you can't play **bagpipe** at the wedding!  
@@ -298,7 +298,7 @@ The **jester** **brandished** his **bauble**
 **get one's pile**  
 **in a groove**  
 **brilliant with electric light**  
-**twirling** his **club**   
+**twirling** his **club**  
 **stalwart form** and slight **swagger**  
 
 Antifa **provocateur**  
@@ -306,13 +306,13 @@ Antifa **provocateur**
 Racism, inequality and discrimination are **unequivocally** wrong  
 
 Willing to **roll the dice**  
-Hinge Labs is more of a **crash course** on dating, designed to be deleted once you've found your match.
+Hinge Labs is more of a **crash course** on dating, designed to be deleted once you've found your match.  
 
 Protests against systemic racism, which fosters the **disproportionate** burden of COVID-19 on Black communities and also **perpetuates** police violence, must be supported."  
 We’ll see in a few weeks whether COVID-19 **caseloads** spike.  
 But with **amped up** testing capacity and public health measures, the city managed to **trample** the curve.  
 
-## Week 1 
+## Week 1  
 
 **Get In A Groove**  
 **vicinity**  
@@ -337,7 +337,7 @@ His **vigilance** never **languished**
 spray **nozzle**  
 **staging** a fake **burglary** to protect her stuff from Orson  
 **wool** fabric  
-**fountain pen**, water **fountain**   
+**fountain pen**, water **fountain**  
 The big truck **hulked** out of the fog  
 The **Hulk** is afraid of needles  
 main **clause** and a **subordinate clause**  
@@ -347,25 +347,25 @@ the **haze** of smoke
 culture **potpourri**  
 
 Georgiades said there has long been an unsupported myth that Bay Area residents are leaving the city **in droves** because of high cost of living, **steep** taxes, **snarled** traffic and homeless issues  
-**Fitful** nightly sleep linked to **chronic** inflammation, **hardened** **arteries** (berkeley.edu)
+**Fitful** nightly sleep linked to **chronic** inflammation, **hardened** **arteries** (berkeley.edu)  
 
 even when it's speech we strongly and **viscerally disagree** with  
 
 You can **stomp** like an elephant  
 The punches, **jabs**, and hooks  
 He **jabbed** at the lid with a knife.  
-**orthodontist**   
+**orthodontist**  
 **crack of dawn**  
 Only until she finds a **chump** husband  
 **chump chop**  
 **velveteen** **plush**  
-Moss is soft like **velvet**.   
+Moss is soft like **velvet**.  
 After years of **extravagant** R&D  
 **dork**  
 **mash** potato  
 **nasal** tip  
 **nasal** **discharge**  
-you're an **evilly** genius 
+you're an **evilly** genius  
 > Idleness is the root of all evils  
 
 he **ladled** out the soup  
@@ -388,8 +388,8 @@ Kernighan **coined the term** Unix and helped popularize Thompson's Unix philoso
 His **yearning** for home food eventually **prompted** him to quit a stable financial management role at microcontroller company Atmel and go on to launch Weee!  
 **paved its way** to profitability.  
 
-> modularity, modular 
-> The notion of "intricate and beautiful complexities" is almost an oxymoron. Unix programmers vie with each other for "simple and beautiful" honors — a point that's implicit in these rules, but is well worth making **overt**.
+> modularity, modular  
+> The notion of "intricate and beautiful complexities" is almost an oxymoron. Unix programmers vie with each other for "simple and beautiful" honors — a point that's implicit in these rules, but is well worth making **overt**.  
 
 **my heart sinks** for Linux when I see the size of it  
 
@@ -402,10 +402,10 @@ You **knucklehead**
 
 Just to play **devil's advocate**, maybe he has the most basic understanding of supply and demand.  
 
-> non-stance is a stance 
+> non-stance is a stance  
 
 **Bail out** when you need to. **Bailing** is when you opt out of a trick before you get hurt  
-**Rather** a **bruised** ego, **than** a bruised leg!   
+**Rather** a **bruised** ego, **than** a bruised leg!  
 
 It's gong to come **one way or another**  
 
@@ -414,7 +414,7 @@ They May Have **Prebiotic** Effects and Promote Good **Gut Bacteria**
 Your small **intestine** doesn't absorb fiber during digestion  
 Apples Contain **Compounds** That Can Help Fight **Asthma**  
 
-Calmaria is a breathing app with an **enviable** **aesthetic**, the aim is to reduce anxiety and promote focus.
+Calmaria is a breathing app with an **enviable** **aesthetic**, the aim is to reduce anxiety and promote focus.  
 **orchestrator**  
 **evil incarnate**  
 
@@ -433,7 +433,7 @@ The **chimney** was pouring out black smoke
 **days of Yore**  
 
 **Systemic** racism directed against black Americans.  
-**systematically** 
+**systematically**  
 **insurrection** act  
 
 **police brutality**  

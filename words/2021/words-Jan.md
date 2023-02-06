@@ -1,16 +1,16 @@
 
-## Week 4 
+## Week 4  
 
 Meanwhile, most Republicans are **coalescing** around the argument that impeaching a former president is **unconstitutiona**  
 
 The GameStop **saga** will **ripple** far into the future.  
-Tying it all together: J&J’s vaccine won’t need to land many of the logistical **somersaults** required by the other two approved vaccines, which means it could supercharge the vaccination rollout in the coming months.   
+Tying it all together: J&J’s vaccine won’t need to land many of the logistical **somersaults** required by the other two approved vaccines, which means it could supercharge the vaccination rollout in the coming months.  
 
 A number of prominent investors say the stock market is all **discombobulated** because of the historic stimulus measures deployed by the government  
-What Citron has experienced in the past 48 hours is **nothing short of** shameful and a sad commentary on the state of the investment community
+What Citron has experienced in the past 48 hours is **nothing short of** shameful and a sad commentary on the state of the investment community  
 Believe it or not, 2021 is now in **full swing**  
 We haven't heard the end of this **outcry**  
-The U.S. economy is still clearly **ailing** with unemployment at **elevated** levels.   
+The U.S. economy is still clearly **ailing** with unemployment at **elevated** levels.  
 
 Fintech **behemoth** Robinhood **drew the ire** of Reddit this week when it restricted trades of GameStop amid an epic short squeeze that’s causing **havoc** from Wall Street to the White House.  
 Regulatory reforms instituted after the global financial crisis ensured that the U.S. banking sector was in **rude health** as the pandemic arrived.  
@@ -25,13 +25,13 @@ They’re trying to stop the **attrition** of their rights
 I can't find a **plausible** motive for anyone  
 A top post on the subreddit this morning calls the decision “market manipulation,” with angry comments calling for users to “dump robinhood for good” and **lamenting** the ensuring fall in stock prices that shortly followed the announcement.  
 However, Apple's apps do not track users or share data for advertising purposes, so this seems to be a **bemusing** foundation for the lawsuit.  
-in December, Facebook paid for a series of full-page advertisements in national newspapers to **berate**  iOS 14 App Tracking Transparency, saying that it harms small businesses.   
+in December, Facebook paid for a series of full-page advertisements in national newspapers to **berate**  iOS 14 App Tracking Transparency, saying that it harms small businesses.  
 Hedge funds are **reeling** and amateurs are **touting** their new power.  
 When you look at long-term historical returns on companies of different sizes, the results **bear out** this framework  
 no need for resumes, recruiter calls, or **haranguing** your friends for referrals.  
 Rand Paul **spars** with ABC host over election integrity  
 
-### Week 3 
+### Week 3  
 
 Morgan Stanley estimates that households have received transfers **in excess of** lost income by $612 billion  
 In February 2020, the US unemployment rate hit a 50-year low of 3.5%, which reflected a **searingly** hot job market during the first three years of Trump's presidency  
@@ -61,13 +61,13 @@ President Biden is facing so many challenges on the **homefront**, it’s easy t
 One of a series of moves the Trump administration made in its last few days to **rankle** Beijing.  
 Biden’s team will also take a **hard line** on China  
 Many QAnon conspiracy theorists were **dejected** after the inauguration failed to **materialize** into the “Great Awakening” that had been **prophesied**.  
-If you made it through the pandemic **unscathed**, like many in the higher-income brackets did, you tried to **level up your crib**.   
+If you made it through the pandemic **unscathed**, like many in the higher-income brackets did, you tried to **level up your crib**.  
 The economy is **poised** for recovery.  
 He is a remarkably **poised** young man  
 
 The candidate didnt rush to final solution, communication was clear, and **on point**  
 The coding **velocity** was reasonable  
-Sorting the array takes \mathcal{O}(n\log{n})O(nlogn), so overall complexity is \mathcal{O}(n\log{n} + n^2)O(nlogn+n 2). This is **asymptotically** equivalent to \mathcal{O}(n^2)O(n2).
+Sorting the array takes \mathcal{O}(n\log{n})O(nlogn), so overall complexity is \mathcal{O}(n\log{n} + n^2)O(nlogn+n 2). This is **asymptotically** equivalent to \mathcal{O}(n^2)O(n2).  
 **Penicillin** was sold over the counter until the 1950s  
 There have been repeated calls to **reinstate** the death penalty  
 technically I can't refer to myself as an attorney until I'm **reinstated** and make **restitution** to my victims family. I'm a lawyer, and I'm a good one.  
@@ -126,18 +126,18 @@ Squirrels are **arboreal** creatures.
 As is usually the case in economics, it’s complicated — and everyone has a **pet theory**  
 You're new here, so I'll forgive the **patronizing** tone.  
 
-## Week 2 
+## Week 2  
 The warning sparked criticism from a colleague who **took offense** at the use of the word “Nazi” and **prompted** GitHub’s HR team to **reprimand** the Jewish employee. Two days later, he was fired.  
 The clear **insinuation** is that a Jewish Hubber was fired for calling a group of people (that included **Neo-Nazi** white supremacists) ‘Nazis,’” they wrote  
 I don’t see how either of those **comport** with GitHub’s values  
 This is the type of failure I **aspire** to be  
 But others believe the U.S. slowdown was an **aberration**.  
-the market is **shoveling**, it's just **sloughing off** all of this violence and craziness   
+the market is **shoveling**, it's just **sloughing off** all of this violence and craziness  
 He was **cooped up** in a tiny room.  
 Such matters **transcend** human understanding  
 I think Intel's problem **transcends** leadership.  
-> first mover advantage 
-> Build strong levees, don't try to predict hurricanes. 
+> first mover advantage  
+> Build strong levees, don't try to predict hurricanes.  
 
 Rule No. 1: Invest in companies with **unquantifiable** greatness; a secret sauce that gives them **an edge**  
 **Prescient** investors knew this and **clung to** the greatest businesses within it  
@@ -146,15 +146,15 @@ Team Tom seeks buying opportunities in **out-of-favor** industries, where short-
 A **stout** balance sheet and steady free cash flow allow a company to thrive, whether the economy is soaring or struggling  
 An old filter is not only going to be less effective — and crazy slow — but also really **gross** and **grimy**  
 **Noontime** snooze  
-**bucking bronco**   
+**bucking bronco**  
 
 Corporate earnings will be in **full bloom**, and the inauguration of President-elect Biden will dominate the **headlines**  
 No matter how many things are going on around you, or how **on edge** you feel  
 While others are **wriggling around**, fixating on **uneven terrain** or the loud snorer, you’ll have a **combat-tested** system for sleep  
-Business leaders are publicly **recoiling** from the GOP after party officials thrust Arizona into the center of Trump’s failed effort to overturn the election results, further dividing an already **fractured** party   
+Business leaders are publicly **recoiling** from the GOP after party officials thrust Arizona into the center of Trump’s failed effort to overturn the election results, further dividing an already **fractured** party  
 My personal opinion is that we just **ought to** settle back and **take our lumps** and start fresh  
 The car is in **pristine** condition.  
-**commonweal** activities/organize
+**commonweal** activities/organize  
 A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**.  
 I don't like **flips of the coin**.  
 He looked suddenly **sombre**, **pensive** 😔.  
@@ -163,7 +163,7 @@ He looked suddenly **sombre**, **pensive** 😔.
 But winning over this market will also pit Coupa against smaller rivals that may have more **piecemeal** solutions  
 Stocks **shed** gains as Biden preps stimulus request  
 Here's how the first **tranches** of stimulus funds were used, and where Goldman Sachs predicts the next wave will go.  
-profits may still be **elusive**, but investors like growth sectors. In fact, many of the new companies that came to market in the past six months have those **pedigrees**, and a lot of them are in growing market segments.   
+profits may still be **elusive**, but investors like growth sectors. In fact, many of the new companies that came to market in the past six months have those **pedigrees**, and a lot of them are in growing market segments.  
 I've bought my **fair share** of tickets, so I'll wear the **dunce cap**, too. But, it does make us do irrational things, sometimes.  
 **lotto tickets**  
 A pimple occurs when a **pore** gets **clogged**. The end result depends on the materials that **plug up** the **pore**  
@@ -180,20 +180,20 @@ The scheme is still **on the anvil**
 
 a wecker beat-up **jalopy**  
 whey **protein**  
-**clove**
+**clove**  
 The **clover** **sprang up** green and **luscious**.  
 It'll be a nice way to **bookend** the pregnancy.  
 **frieze** cloth, **frieze** carpet  
 She **grasped** hold of the **banister** to support herself.  
 There is a **profusion** of flowers in the garden in summer  
 He acted **in accordance with** his beliefs  
-Police surrounded Twitter HQ this week in preparation of Pro-Trump Rally that **fizzled out**.   
+Police surrounded Twitter HQ this week in preparation of Pro-Trump Rally that **fizzled out**.  
 Is it necessary to decide between **remunerative** work and meaningful work?  
 inside the remarkable **rift** between Trump and Pence  
 **eggnog**  
-**pyjama**
+**pyjama**  
 The conference might **reconvene** after its opening session  
-Trump's approval rating **craters** in final days 
+Trump's approval rating **craters** in final days  
 He did not **speculate** on the future of his **tenuous** career.  
 Moreover, Verizon, T-Mobile (NASDAQ:TMUS), and ATMoreover, Verizon, T-Mobile (NASDAQ:TMUS), and AT&T (NYSE:T) have **formed** an **oligopoly** in the U.S. for this essential service -  T (NYSE:T) have **formed** an **oligopoly** in the U.S. for this essential service  
 You’re totally exhausted. You have to be up in three hours for **picket**  
@@ -220,7 +220,7 @@ Fish take in oxygen through their **gills**.
 **tailpipe**  
 **buckwheat**  
 **starboard**  
-house **flipper**, lid **flipper** 
+house **flipper**, lid **flipper**  
 He is home by six every day regular as **clockwork**  
 a small **Polaroid** **snapshot**.  
 **squawk**  
@@ -233,7 +233,7 @@ I'm not married yet, my **ovaries** are shrinking.
 A slow **comedown** accelerated through Sunday, with Monday continuing the selling pressure with little **respite** for traders attempting to “buy the dip.”  
 The market continues to rally as it looks toward the future – a future with a **receding** pandemic thanks to the vaccines, and a future where life starts getting back to normal  
 
-## Week 1 
+## Week 1  
 
 a **wee** joke  
 Thailand, with its natural **splendor** and **nonsensical** **exchange rate**, is one of the most **well-established** hubs for **digital nomads**  
@@ -311,14 +311,14 @@ eagle's **talons**
 
 A little bird was **bobbing** its head up and down  
 It's going to be **nip and tuck** to get past that half a point.  
-Successful investing is about owning businesses and **reaping** the huge rewards provided by the dividends and earnings growth of our nation's   
+Successful investing is about owning businesses and **reaping** the huge rewards provided by the dividends and earnings growth of our nation's  
 **Coyotes** are beautiful animals that can become a **nuisance**  
 The Myth of the **Megalith**  
 Tesla was in our **pole position**  
 they work **complementary**, they're perfect **in tandem**.  
 No matter how you **slice** it, this was one for the record books.  
 Not sure I ever graduated past PG-13…but there is a decent chance my first **R-rated** **flick** was Love, Actually.  
-In Super Mario, I need to get to that **flagpole** before a turtle shell **projectile** sends me plummeting to my death.
+In Super Mario, I need to get to that **flagpole** before a turtle shell **projectile** sends me plummeting to my death.  
 **pivotal moment**  
 It's the old **adage**, divide and conquer.  
 She was relieved to see his face **light up** with a **boyish** **grin**  
@@ -337,12 +337,12 @@ A difficulty has **cropped up** at work.
 **sophomore** student  
 sewage **disposal**, **sludge disposal**  
 Man's first landing on the moon was a **feat** of great daring.  
-a fatty oil from **halibut** **livers**   
+a fatty oil from **halibut** **livers**  
 **wingman**  
 **footlocker**  
 **Ouija** helps me make all my big decisions  
 Each passenger slept on the **berth** allotted to him  
-**beanbag** chair   
+**beanbag** chair  
 a mischievous **goblin**  
 **roper**  
 **loaner**  
@@ -361,9 +361,9 @@ He fled wearing only a **sarong** and a **tattered** shirt
 He climbed into the **cockpit** of the fighter.  
 the search intensified as **dusk** approached  
 **ringside** tickets; a **ringside** seat.  
-**Fuchsia** Red, **light fuchsia**   
+**Fuchsia** Red, **light fuchsia**  
 You can still eat breakfast while you are **slimming**.  
 analytic **geometry**  
-That question is a real **puzzler**
+That question is a real **puzzler**  
 the Russian **ruble**'s showing signs that it's stabilizing  
 

@@ -1,27 +1,27 @@
 
-GOT III E 11
----
+GOT III E 11  
+---  
 There is a **precedent** to relieve a Kingsguard of his duties. The king will exercise that **prerogative**.  
-(**royal prerogative**, the **prerogative** of mercy)
+(**royal prerogative**, the **prerogative** of mercy)  
 These fine men will escort you to your **quarters** in the Red Keep.  
-(living **quarters**, **lodging** **quarters**, general quarters)
+(living **quarters**, **lodging** **quarters**, general quarters)  
 You're a bit of **mischief**, aren't you?  
 You are what? A **procurer**.  
 I lie awake all night staring at the **canopy**.  
-(bed **canopy**)
+(bed **canopy**)  
 Your mother would want you to **carry on**.  
 Such an **ingrate** I spent days with the **goldsmith** getting the details just right.  
 You think I'd let that old **lecher** put his hands on me?  
 Let's see, you started a **brawl** in the streets with Ned Stark and **disappeared** from the capital.  
 He can't **disown** you. You're all he's got.  
-(He **disowned** his reprobate son)
-Too **scrawny**. Not like those crows at Castle Black 
+(He **disowned** his reprobate son)  
+Too **scrawny**. Not like those crows at Castle Black  
 The signal for the attack will be a **bonfire**.  
 Aren't you **marvelous**, absolutely **singular**.  
 
 
-GOT III E 10
-----
+GOT III E 10  
+----  
 what's **sheep shift**? -- That's **vulgar** word for **dung**.  
 Roslin caught a fine fat **trout**.  
 Her brothers gave her a pair of **wolf pelts** for her wedding.  
@@ -33,11 +33,11 @@ People **snigger** when I marry a young girl
 Calling himself young wolf, how's that for **pomposity**?  
 Robb Stark offered **amnesty** for the ironborn if they gave us Theon.  
 They handed him over **trussed** and hooded.  
-(The policeman **trussed up** the thief with ropes)
+(The policeman **trussed up** the thief with ropes)  
 Do **eunuchs** have a **phantom** cock?  
 Next time you think about naked girls, would you feel an **itch**?  
 You stinky meat, you **reek**.  
-(the **reek** of cattle **dung**)
+(the **reek** of cattle **dung**)  
 One the first night of the full moon, I will **hunt down** every islander still in our lands and **flay them living**.  
 I can not give up the lands I've seized, the **stronghold** I've taken.  
 What's your name? - Gilly, for the **gillyflower**.  
@@ -45,7 +45,7 @@ His **fangs** were as long as bastard swords.
 The Kind does not have time for this **drudgery**.  
 And you take credit because you dropped a **leech** into the fire?  
 I'll punish them with any arm **at my disposal**.  
-(**at your disposal**)
+(**at your disposal**)  
 
 
 GOT III E9  
@@ -57,24 +57,24 @@ I heard what your brother did to you, pressed your face into fire like you're a 
 And the girl wear silver as her **dowry**.  
 But if she had her way, I'd be back in Volantis and play my **harp**.  
 I feel like I've been **remiss** in my duties.  
-   
+
 **counteract** a man's influence.  
 **Sunk Cost Fallacy**.  
 TDD won’t work in **Limbo** because each of a hundred thousand programmers can’t **saddle** all the other programmers with even one failed test  
-   
+
 But try another editor for one hour. I feel the difference. It makes me **puke**.  
 I despise the **obnoxious** ads.  
 (My brother-in-law is an **obnoxious** **know-it-all**)  
-   
+
 That concludes a **whirlwind** tour of the mighty docker run command, which would most likely be the command you'll use most often.  
 (a **whirlwind** political campaign)  
 (The car whirled out of sight)  
 Throughout this tutorial, you'll run docker run multiple times and leaving **stray** containers will eat up disk space.  
 Hence, as a **rule of thumb**, I clean up containers once I'm done with them.  
 For simplicity, you can think of an image **akin** to a git repository - images can be committed with changes and have multiple versions  
-   
+
 Pain + **reflection** = progress  
-   
+
 Google systematically **steamrolled** over all existing search options until it was almost impossible to imagine conducting a search without it.  
 In those early days, Google’s need to “not be evil” wasn’t some sort of **clairvoyant** **incantation** against an inevitable future.  
 **Incarnation**  
@@ -91,15 +91,15 @@ You seem like my wine, perhaps you'd like a **flagon** to help you ponder.
 Only a **flagon**? ---- A **barrel** then.  
 She panic, her panic **seeps** to her meat, darkens it, **fouls** the flavor.  
 How many people live in Westeros, The darkness will **devour** them all, she says.  
-   
-   
+
+
 Just a **sprain**. Heading back home 2 stay off and ice  
 8 years ago, we **crawled** into bed for the first time since our life was completely **derailed**  
 Julie and I **squeezed** together under the blankets in the hope that we'll have something to hang onto as the **bleak** darkness of grief **pressed down** on us.  
 Those 8 years ago, for many more mornings, days and nights, I **howled** with **grief**.  
 She sells her **sheath** and you sell you blade.  
 You look **radiant**, your grace.  
-   
+
 The **usurper** Balon Greyjoy.  
 I shall build a **shrine** for myself, at the next **brothel** I visit.  
 You can drink, you can joke, you can engage in **juvenile attempts** to make your father uncomfortable. but you will do your duty.  
@@ -133,7 +133,7 @@ I met him in the back of **hut**.
 Well, we've **stymied** the corruption.  
 So why did **Citadel** take your chain? Did you **fondle** one boy too many?  
 Dying **paupers** I assume. Men with no families to complain.  
-   
+
 GOT III E6  
 ----  
 **I've spent my whole life waiting for that**.  
@@ -143,7 +143,7 @@ I **knelt** beside his cold body, and said the old words.
 As **restitution** for this betrayal, he demands Harrenhal and all its **attendant** lands.  
 Why should I let that old **ferret** choose my bride for me?  
 We have a war to fight, I have no time to **haggle**.  
-**haggle over every ounce**.   
+**haggle over every ounce**.  
 He'll **make time** for you.  
 And you will swear to tell your father the truth, that I had nothing to do with your **maiming**.  
 Should we drink this? -- I don't **partake**.  
@@ -222,7 +222,7 @@ We took a fight to him, he couldn't **withstand** us.
 **Far be it from me** to **hinder** true love.  
 You think you're good with that **bow**, you little **twat**?  
 (Twat is a slang word for the human **vulva**, also used as a **derogatory** **epithet** for a foolish person.)  
-   
+
 I'd have **turned** you all **away** if I wasn't a godly man.  
 **If only** the **Master of Coin** had such power.  
 For years I've heard the little finger is a **magician**.  
@@ -261,7 +261,7 @@ My mother's always had a **penchant** for drama.
 Wheat, **barley**, apples. We've had a blessed harvest.  
 To win his **shield**, an **Unsullied** must go to the slave **marts** with a silver mark, find a newborn and kill it before its mother's eyes.  
 What a soft **mewling** fool this one is.  
-You will be fair to them. You won't **mutilate** them to **make a point**.    
+You will be fair to them. You won't **mutilate** them to **make a point**.  
 The **warlocks**.  
 I only know the wall is a **long way off**.  
 My mother always told me you **Westerosi** were a **grim** lot. Grim, bearded, **stinking barbarians** that would **row** across Narrow sea and steal us from our beds.  
@@ -275,7 +275,7 @@ His **proclivities** were the worst kept secret at **court**.
 I wouldn't **tangle** with you.  
 **Margaery Tyrell** **dotes** on **filthy** **urchins** for a reason.  
 She dresses like a **harlot** for a reason.  
-She married a traitor and known **degenerate** like **Renly** Baratheon for a reason.   
+She married a traitor and known **degenerate** like **Renly** Baratheon for a reason.  
 He was very **gallant**.  
 Many years before that, one of the boys came down with the **pox**.  
 So I sat with him all through the darkness. Listened to his **ragged** little breaths, his coughing, his **whimpering**.  

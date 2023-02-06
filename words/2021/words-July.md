@@ -1,17 +1,17 @@
 
-## Week 4 
+## Week 4  
 > It's tough to feel more obvious than that.  
 
-They observed an **implausibly** high negative correlation between two estimates that their respondents made: the level of benefit and the level of risk that they attributed to the technologies. 
-a **nonevent** that is inflated by the media and the public until it fills our TV screens and becomes all anyone is talking about.
+They observed an **implausibly** high negative correlation between two estimates that their respondents made: the level of benefit and the level of risk that they attributed to the technologies.  
+a **nonevent** that is inflated by the media and the public until it fills our TV screens and becomes all anyone is talking about.  
 So I encourage you to look at the trends and not misunderstand and **over-focus** on the **wiggles**  
 
 How do I **square** this?  
 The building **commences** once the down payment is received  
 A **salient** event that attracts your attention will be easily retrieved from memory.  
-He lives alone in a **suspiciously** **tidy** apartment.   
+He lives alone in a **suspiciously** **tidy** apartment.  
 that people who let themselves be guided by System 1 are more strongly **susceptible** to availability biases than others who are in a state of higher vigilance.  
-Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**. -
+Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**. -  
 
 Biden called on local governments to “take all possible steps” to **disburse** the funds. Evictions could begin as soon as Monday  
 after hours of **wrangling**, Democrats could not muster support to extend the ban  
@@ -55,7 +55,7 @@ She was **radiant** with health.
 the **sweet spot** is two to three days a week.  
 
 
-## Week 3
+## Week 3  
 
 We believe the tradeoffs associated with China’s new policies include the significant cost to existing investors in the AST space which seems to be **fomenting** more broad-based shareholder fears, and a loss of innovation in the education space  
 If you’re **paring down** your accounts, don’t close your oldest credit card — it’s what gives you a long credit history  
@@ -63,7 +63,7 @@ If you’re **paring down** your accounts, don’t close your oldest credit card
 They’d often be just as happy with a front end that home users would **balk at** for its ugliness as a front end that typical home users would love  
 It's taken a lot of **ingenuity** and salesmanship to make it happen.  
 We often talk about the Federal Reserve using a **bazooka** to tackle markets and economy. This is bazooka, cannons and tanks all **at once**.  
-**punchy** pills... have perverse side effect.     
+**punchy** pills... have perverse side effect.  
 The Federal Reserve is literally a banking **cartel**. Plain and simple as that.  
 
 I made him **hold off** for another forty-five minutes.  
@@ -89,11 +89,11 @@ And some Allies said any **blowback** would not matter long anyway.
 He had been taught to **abhor** people who did this **wicked** thing.  
 The old man's a real **cold fish**. I've never seen him laugh.  
 
-The kitchen was **clean as a whistle**.   
+The kitchen was **clean as a whistle**.  
 We don’t try to time the market, and we don’t **fret** when the stocks go up and down.  
 You will find the **clay** perfectly **pliable** as long as it stays fairly **moist**  
 
-Google employees say they're unsure which products will **make the cut**.
+Google employees say they're unsure which products will **make the cut**.  
 The hostages **emerged** from their **ordeal** **unscathed**.  
 **paralegal**  
 Something was **niggling** her.  
@@ -107,7 +107,7 @@ the volatility was an **eerie** reminder of how quickly investor sentiment can t
 Job growth is probably the most important **prognosticator** for real estate demand in home price.  
 Careful you don't **tread** in that **puddle**  
 
-## Week 2 
+## Week 2  
 
 Disney is **chipping away at** Netflix's dominance.  
 Beijing has **chipped away at** Hong Kong’s reputation of accountable, transparent governance and respect for individual freedoms  
@@ -125,12 +125,12 @@ it both incredibly useful as a strategy of resilience, and highly commercializab
 This came in handy because the years during which Stoicism was developed were full of political **upheaval**  
 There wasn’t a large sense of the scale of what humans can do in **antiquity**  
 There's **scarcely** a business in the world that isn't a potential customer of DocuSign, and even though the company recently passed its one millionth client, there's no end in sight for its growth  
-Three prisoners are still **on the loose**.   
-**tournament** competition. 
+Three prisoners are still **on the loose**.  
+**tournament** competition.  
 
 The movie makes no **pretension** to reproduce life.  
 I **desiderate** the resources of a family.  
-Who wants to **put up with** the toughness if you don't love it. 
+Who wants to **put up with** the toughness if you don't love it.  
 **live up to one's words**.  
 
 **FOIA**: Freedom of Information Act  
@@ -143,23 +143,23 @@ We **condole** with you on your **misfortune**.
 **Crucian** **carp**, **grass carp**.  
 **Gerbils** are pets in many American homes.  
 He knew that he might soon **lapse** into unconsciousness.  
-colored **glaze**   
+colored **glaze**  
 That's **comforting**  
-Roses grew in **profusion** against the old wall.   
+Roses grew in **profusion** against the old wall.  
 **cheat day**  
 **fall short**  
 The show is a **spinoff** of the British show Pop Idol.  
 Ginny was **irrepressibly** rebellious.  
 Her stare was **malevolent**, her mouth a thin line.  
-**malevolent** vs **malicious** 
-His article is stuffed with **shibboleth**.   
+**malevolent** vs **malicious**  
+His article is stuffed with **shibboleth**.  
 BBQ'ing may be the **epitome** of American summer, but it's also a hallmark of pandemic socializing.  
 The best storytellers always define a clear purpose **prior to** **crafting** their story.  
 > Do you have a **burning desire** to tell this story? If so, why?  
 
 **endowment** effect  
 Paffrath **extols** the virtues of the FHA 203k loan which enabled him to purchase a home with 3.5% down and borrow the fix up.  
-I always get the **jitters** before exams.   
+I always get the **jitters** before exams.  
 Hi, guys. I'm sorry I went **bonkers**.  
 She was **dumbfounded** by the terrible news  
 Making **banal** **remarks** was one of his bad habits.  
@@ -171,7 +171,7 @@ You have my interest **piqued**.
 Artificial intelligence (AI) recommendation algorithm responsible for TikTok’s **meteoric rise** to the top of the social media digital entertainment **landscape**.  
 TikTok focuses on **serendipitous** discovery powered by its AI recommendation engine  
 
-## Week 1 
+## Week 1  
 
 About $6 trillion in stimulus money is **swishing** around, and more appears to be on the way.  
 buying shares of Chinese companies might simply be **fool's gold** for investors  
@@ -191,7 +191,7 @@ The most extensive approach is a full **thesaurus**.
 He is **reputed** to be the best heart surgeon in the country  
 
 Amazon basically **turned commerce on its head**, and **turned deliver on its head**.  
-technology could be about to **turn that on its head**    
+technology could be about to **turn that on its head**  
 Owning a home does **confer** real benefits, if you're married, you have kids.  
 The more people that own their home, the more the society becomes **sclerotic**.  
 America's success has made it **sclerotic**.  
@@ -204,10 +204,10 @@ He feels removed from the Starks not only because of his knowledge of his own fa
 They found him in a **gloomy**, downbeat mood.  
 
 That was just the beginning of the **fiasco**  
-Then Oracle sued, claiming that the process was unfairly **tilted in favor of Amazon**.   
+Then Oracle sued, claiming that the process was unfairly **tilted in favor of Amazon**.  
 The whole place **reeked** of neglect.  
 His manner **reeks** prosperity.  
-She intends to **buckle down** and write a musical.   
+She intends to **buckle down** and write a musical.  
 
 **affluent** society  
 She gave him a **contemptuous** look.  
@@ -218,10 +218,10 @@ Markdown has become a **maze** of different implementations, termed “flavors�
 Frank was very **evasive** about the matter.  
 She is as **timorous** as a rabbit.  
 And tenderness, too-but does that appear a **mawkish** thing to **desiderate** in life?  
-Statistics produce many observations that appear to beg for **causal** explanations but do not lend themselves to such explanations.
+Statistics produce many observations that appear to beg for **causal** explanations but do not lend themselves to such explanations.  
 **cutting corners**  
-**chemotherapy**
+**chemotherapy**  
 Have I got a **doozy** of a story for you!  
 **flabbergast**  
-MEPs insisted on a package without **wiggle room**. 
+MEPs insisted on a package without **wiggle room**.  
 

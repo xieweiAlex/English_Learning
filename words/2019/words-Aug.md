@@ -1,21 +1,21 @@
 
 **Viagra**, **Sildenafil**  
-Use **rewetting** drops even when your eyes don’t feel dry    
+Use **rewetting** drops even when your eyes don’t feel dry  
 While it’s tempting to wear your contacts from the time you open your eyes until you **conk out** at night  
 **botnet**  
 In addition to protecting eyes from dirt, dust and **a laundry list of** **projectiles**, sunglasses are the best way to ensure that they won't suffer from **cataracts**, keratitis and other **eye ailments** caused by **UV radiation**  
 
 food **craving**  
-**Senseless** 
-**landfall** 
+**Senseless**  
+**landfall**  
 Being basic doesn't **negate** that pumpkin spice tastes good.  
 It's a blend of **cinnamon**, **nutmeg**, ginger, **allspice** and **cloves**, and those spices together are delicious when used in the right types of food. -    
 
 He was a bit **scatterbrained**, but in that brilliant sort of way  
 **q-tips**: Cotton **swab**  
 Don't be **square**  
-And when you're at a **dive bar**, you order something **obnoxiously** high end
-Individual bars may be considered to be **disreputable**, **sinister**, of **poor upkeep**, or even a detriment to the community.
+And when you're at a **dive bar**, you order something **obnoxiously** high end  
+Individual bars may be considered to be **disreputable**, **sinister**, of **poor upkeep**, or even a detriment to the community.  
 It's an **inquiry** that somehow manages to make you sound both silly and **pretentious**.  
 
 We **equate** this course to a full life-coaching program, some of which run in the thousands of dollars  
@@ -42,7 +42,7 @@ which can **adversely affect** your health over time
 It's quite useful when I get **long-winded** questions  
 We can do **small talk** later, dear.  
 
-Some **imprudent** ideas 
+Some **imprudent** ideas  
 A **polemicist**'s role is not sufficient for a leader. A leader must display strategic **acumen** that incorporate respect for those nations that have stood with us when trouble loomed.  
 **half-measure** book  
 he has **upsides**, and **downsides**  
@@ -52,7 +52,7 @@ Those numeric keys act kind of **joy stick** for controlling your mouse pointer.
 Keto as a trend **popped up** in the last year or so, a **reincarnation** of the low **carb** **Atkins diet** that became popular in the 1970s. 👀  
 So the only way to increase your "brain power"... is to focus on **cultivating** your mind.  
 
-I'm suppose to do something but pretty **strapped** now.   
+I'm suppose to do something but pretty **strapped** now.  
 **ran afoul of** the law.  
 
 They are very much **pumped** and **enthused** to always part of my channel.  
@@ -62,10 +62,10 @@ her parents are absolutely **lambasted** her
 **conspiracy**  
 **oxidation**  
 
-I'm doing a 50% off **fire sale**, this week only
+I'm doing a 50% off **fire sale**, this week only  
 Did I hit **rock bottom** here?  
 
-## Week 3 
+## Week 3  
 
 It happens when 2000 when 5 people left the team **in close proximity**  
 Jobs actually **poached** Cook while he was working at Compaq in 1989  
@@ -75,7 +75,7 @@ Articles and articles were written signaling **doom** and **gloom** for the comp
 The room is so quiet that you could hear a **gnat fart**  
 
 **thwarted** **burglary**  
-White House **blindsided** by Iranian Foreign Minister Zarif's G-7 appearance   
+White House **blindsided** by Iranian Foreign Minister Zarif's G-7 appearance  
 Zarif had intended to travel to China today — the first stop of an Asia swing to **canvass** support for the nuclear deal.  
 
 they keep rubbing their money in people’s faces with their **tax dodging** and wealth **flaunting**  
@@ -85,8 +85,8 @@ not some **trickster** who lied his way onto the "Forbes" list.
 You daughter, she looks more **voluptuous** than ever.  
 
 In 1997, the G7 provided $300 million to the effort to build the **containment** of the **reactor** meltdown at **Chernobyl**  
-we had horrible trade deals and I'm **straightening** them out.    
-The **chandelier** hit the floor with a **crack**   
+we had horrible trade deals and I'm **straightening** them out.  
+The **chandelier** hit the floor with a **crack**  
 **superposition**  
 **entanglement**  
 
@@ -120,13 +120,13 @@ This ted talk put me to sleep; not out of boredom—**out of fear**
 
 He is massive popular in spite of his **reclusive** and more introverted nature  
 **low self-esteem**  
-**relay attack** ??   
+**relay attack** ??  
 **punch line**  
-His **calm demeanor** **charismatic** 
+His **calm demeanor** **charismatic**  
 **hand rub**  
 There are three **modalities** in which we represent the world in our own heads  
 Visual, Audio, **kinesthetic**  
-Join some kind of activity the **focal point** around which socializing can occur   
+Join some kind of activity the **focal point** around which socializing can occur  
 That's enough of a **digression** for now  
 Keanu has more **compassion** than almost anyone else.  
 **broken-down** car  
@@ -135,14 +135,14 @@ generally more happier when life throws you **curveballs**
 
 you're **breathtaking**  
 
-> How To Be Popular As An Introvert
+> How To Be Popular As An Introvert  
 
 **law and order**  
 so far China has been **abiding** by the One Country Two System Promise, which I believe the **rioters** are **hell bent** on trying to **provoke** China to react and “break the promise”  
 These countries are the ones that are the **nosy**, can’t stop meddling in others' business type who are guilty of trying to **instigate** and create unrest in other countries  
 
 Almost from the very first stories of Jobs and Woz we hear **egregious** episodes about Jobs **scamming** Woz out of his rightful **remuneration**  
-**ageist**, **ageism**   
+**ageist**, **ageism**  
 **obedient**  
 **stranded**  
 Maybe you are good with **colloquialisms**?? I assure you these are all quite trivial skills  
@@ -155,7 +155,7 @@ People don't realize those jobs are mostly meetings, and most of your code has b
 Running 20 queries and **putting out** fire in prod doesn't count, usually  
 Can I **bum** a smoke?  
 
-**lumbar** spinal cord 
+**lumbar** spinal cord  
 **lumbar** support  
 
 **cholesterol**  
@@ -171,7 +171,7 @@ Think of the left and right pointers as **synonymous** to the previous and next 
 The type of the variable declared in the conforming class must be the same type as declared in the protocol, it cannot be a **covariant** (inheritance related) type  
 
 
-## Week 2 
+## Week 2  
 
 Tesla is pitching customers on a new rental offering for solar power as a way to **revive** the **flagging fortunes** of its renewable energy business.  
 
@@ -184,9 +184,9 @@ this basically a big **cauldron** of boiling oil
 They're conquering and **pillaging**  
 I think **offal** is awful.  
 
-Taylor Swift **VMA** award moment ruined by kanye west
-**VMA**: MTV Video Music Award
-Kanye West **snatched** her microphone and delivered the **quote** that would shape the next decade for two of music's biggest superstars.   
+Taylor Swift **VMA** award moment ruined by kanye west  
+**VMA**: MTV Video Music Award  
+Kanye West **snatched** her microphone and delivered the **quote** that would shape the next decade for two of music's biggest superstars.  
 **I'mma let you finish**  
 Beyonce in the audience, **gaped** in horror  
 He handed back to **dazed** Swift.  
@@ -215,9 +215,9 @@ People who develop **Alzheimer**'s tend to sleep more during the day, taking n
 
 **death squads**  
 So the US immediately began training up Cuba **exiles** to invade Cuba and **overthrow** Castro.  
-**blockade** 
+**blockade**  
 Except for one guy, who was bloody **livid**.  
-**DEFCON**: defense **readiness** condition
+**DEFCON**: defense **readiness** condition  
 **test ban treaty**  
 **contra groups**  
 The Cold war was now **taking its toll** on both superpowers.  
@@ -234,10 +234,10 @@ It describes the tendency in visual culture to **depict** the world and women fr
 Donald Trump Acts Like A **Villain** To **Energize** His Base  
 
 He calls himself a **gaffe machine**, the machine is **overdrive** right now.  
-anyone can make a **slip of tongue**   
+anyone can make a **slip of tongue**  
 
 **preposition**  
-Remove the thorn from the **tread** 
+Remove the thorn from the **tread**  
 China is set to **leapfrog** the U.S in AI.  
 
 Tucker Carlson earned a much deserved "vacation". Maybe there is a long term "**sabbatical**" coming  
@@ -254,14 +254,14 @@ He tried typing in his license plate but the DMV website wouldn't accept it. The
 
 **snorkeling** lessons  
 **lukewarm water**  
-Britain is **lukewarm** about the proposal
+Britain is **lukewarm** about the proposal  
 **french press**  
 TechLead is a true ex-googler proceeds to **bombard** with info ads  
 Java, for all you **Masochists**  
 Only a **masochist** could ever love such a **narcissist**  
 
 
-## Week 1 
+## Week 1  
 **charcoal**  
 **valet** parking  
 
@@ -269,7 +269,7 @@ Swimming **goggles**
 Buses involve **religiously** checking pick-up schedules, planning routes, and experiencing a serious lack of cleanliness  
 I always **jot down** notes and schedule events in my calendar.  
 
-**Truman doctrine**
+**Truman doctrine**  
 Hey Stalin, after all your trials and **tribulation**, you must be pretty happy to be standing here in Berlin.  
 Did anybody notice how the **graffiti** on the Berlin Wall says "Punish me severely"?  
 
@@ -277,11 +277,11 @@ Also, please understand that I really don’t want to be known as a **gunslinger
 Sorry, I **digress**  
 
 **Formulate** an opinion by living the experience otherwise your words means nothing and are just pure **conjecture**  
-a **knockdown** blow
+a **knockdown** blow  
 It was a **dingy** hotel  
 military **posturing**  
 **the world was their oyster**  
-**indebtedness**   
+**indebtedness**  
 the market reflect the growth **ebbs and flow** of the good and the bad.  
 Europe has the political **fragmentation**  
 whether its a more **autocratic** system  
@@ -292,7 +292,7 @@ You're **sketching out** a continuation of some dramatically trends that have al
 Two **collided** into one  
 
 **Otic** solution  
-Now add to the **murky** waters your unanswered questions about   
+Now add to the **murky** waters your unanswered questions about  
 Union Square is the **teeming** commercial hub of the city  
 Numerous **upscale** boutiques, restaurants, **nightspots** and galleries occupy the spaces tucked between the larger buildings  
 Remove all the **cruft** from Xcode's file headers  
@@ -315,7 +315,7 @@ Conquer the elements on your bike, and the sense of empowerment—and **smugness
 
 **Probiotic** supplements are forms of living bacteria and **yeasts** that provide health benefits when taken in liquids, powders or **capsules**  
 Fortunately, these symptoms usually **subside** after a week or two of taking the probiotic.  
-May Contribute to **Small intestine** Bacterial **Overgrowth**   
+May Contribute to **Small intestine** Bacterial **Overgrowth**  
 
 every **synagogue**, every **mosque**  
 mass shooting **epidemic**  
@@ -325,7 +325,7 @@ mass shooting **epidemic**
 **obstetrician**  
 **eustachian tube**  
 
-YAML is an extremely **finicky** and fragile language.   
+YAML is an extremely **finicky** and fragile language.  
 
 > Everything happens for a reason and that whole negative experience was really a blessing **in disguise**  
 
@@ -338,10 +338,10 @@ It's frequently a **gateway**.
 
 We're not finding many **ratty** things  
 motorcycle is a **terminal illness**  
-**tried-and-true** platforms   
+**tried-and-true** platforms  
 **Vespa** or **moped** or **hover round**  
 **do-it-all** bike  
-**cast-aside** **cult** favorite like the Honda Rebel 300   
+**cast-aside** **cult** favorite like the Honda Rebel 300  
 **off-road** adventure  
 they can handle lots and lots of different scenarios with **aplomb**  
 you'll notice how **sleek** and **aerodynamic** this bike looks  
@@ -351,7 +351,7 @@ you can see it from the **get-go**
 this put me in a aggressive **tuck down** position  
 You start to hit **potholes** and bumps, bruises, this gonna **transmit** all that back to the rider  
 You **hit the nail on the head**  
-I'm on my **tippy toes** on this bike   
+I'm on my **tippy toes** on this bike  
 
 **semi trailer**  
 The president followed that up by saying he could **ratchet** tariffs even higher—even above 25%  

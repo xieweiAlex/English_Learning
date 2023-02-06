@@ -1,10 +1,10 @@
 
-## Week 5
+## Week 5  
 
 The girls were **dainty** and **feminine**  
 If you're happy in Apple's **walled garden**, though, the HomePod Mini could be the perfect choice for you  
 It **debuted** alongside a unique new feature where you could **hand-off** music from your phone to the speaker and back with a simple tap  
-they’re exactly the same size and shape, with the same **chic** fabric grille and four-LED display.   
+they’re exactly the same size and shape, with the same **chic** fabric grille and four-LED display.  
 The heat can be **oppressive** when you live in Arizona.  
 Sure, temps are at least 100 degrees for a third of the year, but it’s a “**dry heat**.” So go ahead, donate your coats, **stock up** on **sunblock** (not **sunscreen**), and make sure you don’t have leather seats in your car.  
 Beneath his **brash** exterior, he's still a little boy inside.  
@@ -60,10 +60,10 @@ The surge in risk-taking indicates that investors were **euphoric** as COVID-19 
 
 > Where you're **lit up** and excited to be doing exactly what you're doing, you feel passionate and on purpose, and you're surrounded with people you love.  
 
-It's a **hard pill** to swallow.
+It's a **hard pill** to swallow.  
 
 
-## Week 4 
+## Week 4  
 
 Sales have been **dropping off** badly.  
 starting out with a **blank slate**  
@@ -78,7 +78,7 @@ A **solstice** is an **astronomical** event that occurs twice each year (in June
 There is a **mound** of papers on my desk  
 the drilling troops **mustered** on the hill  
 a long and **winding** road.  
-> The mind needs books like a sword needs a **whetstone** 
+> The mind needs books like a sword needs a **whetstone**  
 
 No **minerals** have yet been exploited in **Antarctica**.  
 The thieves hid their **plunder** in the cave.  
@@ -100,18 +100,18 @@ so they have not endured the same amount of scrutiny as traditional custodians l
 Many of these traditional custodians now offer commission-free trades, if that’s what **you’re after**  
 One of the downsides of using ECNs is that they have access fees and commission charges that can **jack up** the overall price of use.  
 Many regard the Russell 2000 as an important **bellwether** of the American economy because it measures the performance of smaller, **domestically** focused businesses  
-The Silicon Valley **colossus** reportedly plans to implement innovative new battery tech to maximize range and minimize cost.   
+The Silicon Valley **colossus** reportedly plans to implement innovative new battery tech to maximize range and minimize cost.  
 He tweeted yesterday that when the Model 3 was **floundering**, he approached Apple CEO Tim Cook about an acquisition at about 10% of Tesla’s current price. Cook “refused to take the meeting,” Musk said  
-We don’t know yet whether President Trump will **derail** the bill. 
+We don’t know yet whether President Trump will **derail** the bill.  
 **Aides** told the WSJ this statement was more Trump celebrating **Festivus** one day early by **airing** his **grievances**, rather than a legitimate threat to block the stimulus package  
 **Foot traffic** fell 39% annually at U.S. retail stores on "Super Saturday," aka the Saturday before Christmas.  
 It’s not just doctors and nurses on the front lines of the pandemic: Hospital housekeeping staff **toil alongside** them. Now, they’re getting vaccinated.  
 The "420 = Weed" argument is a **sideshow**  
 If your vehicle was stolen, you should complete the Lost, Stolen or **Mutilated** License Plate **Affidavit** and bring this and any police report to a DMV office  
-I could be **flat out** wrong, but ... 
+I could be **flat out** wrong, but ...  
 I'll say this **up front**: It's all a bit mysterious, which should always make investors **wary**  
 President Donald Trump on Tuesday issued **a flurry of** pardons and **commutations** to a **slew** of **controversial** figures with **ties to** his administration  
-Division between two integers should **truncate** toward zero. -
+Division between two integers should **truncate** toward zero. -  
 Miguel, thanks for **dropping by** unexpectedly  
 
 There is nothing like a 400-point **swing** in the stock market in one day to focus the mind, but it doesn't beat a **planetary** **conjunction** occurring on the same day as the winter **solstice**. We are living in **spacey** times.  
@@ -122,12 +122,12 @@ I made him **hold off** for another forty-five minutes.
 Her fellow teachers greeted her proposal with **scorn**  
 He **made no attempt** to conceal his **smirk**.  
 He replied with **haughty** **disdain**.  
-Bipartisan lawmakers **rebuked** President Trump for **downplaying** the breach. VOX
+Bipartisan lawmakers **rebuked** President Trump for **downplaying** the breach. VOX  
 For one, it’s absolutely **humongous**. With a market capitalization of $659 billion, Tesla will be the largest company to ever enter the S&P 500  
 It also **dwarfs** other car stocks. Tesla’s market value is 18x Ford’s and 10x GM’s.  
 Because of Tesla’s size, the value of those daily **undulations** can sometimes surpass the entire market capitalization of automakers such as BMW or Fiat Chrysler  
 
-## Week 3
+## Week 3  
 
 Square is about to turn into a mega banking **goliath**.  
 this **tentacle** approach to taking every aspect that they touch into their business  
@@ -135,7 +135,7 @@ this **tentacle** approach to taking every aspect that they touch into their bus
 
 someone's **brainchild**  
 a little **crooked** s-curve  
-**concussion** 
+**concussion**  
 > Praise in public, **censure** in private, right?  
 
 The market never fails to test investor patience, and I think we should expect a sharp pullback in the first half of 2021 to **weed-out** some of this newfound enthusiasm and optimism  
@@ -210,11 +210,11 @@ Are you sure it’s the real thing , not just **infatuation**
 As we keep destroying our own **habitat** in the **eternal quest** for economic growth, the number of diseases caused by pollution continues to rise  
 Persistent **underperformance** by active managers is **spurring** the growth of passive index funds and ETFs  
 
-One **knotty** ethical question for the Eleanor Shellstrops out there: The committee debated whether participants in the vaccine trial who had unknowingly been taking a **placebo** should be “**unblinded**,” or told it was a placebo and given an actual vaccine.   
-**Unblinding** would **hamstring** the research process...but it would also get people vaccinated.   
-with the federal government not providing clear vaccine guidance, it’s up to the states to decide who gets **jabbed** first.   
+One **knotty** ethical question for the Eleanor Shellstrops out there: The committee debated whether participants in the vaccine trial who had unknowingly been taking a **placebo** should be “**unblinded**,” or told it was a placebo and given an actual vaccine.  
+**Unblinding** would **hamstring** the research process...but it would also get people vaccinated.  
+with the federal government not providing clear vaccine guidance, it’s up to the states to decide who gets **jabbed** first.  
 
-**suction** cup   
+**suction** cup  
 **earpiece**  
 The **frescoes** in these churches are magnificent  
 He was the world's longest serving **monarch**  
@@ -227,7 +227,7 @@ I heard a lot of **chink**, **gook**.
 Stop messing around, you silly **twit**!  
 **Tattletale**! I'll make you pay for **snitching** on me!  
 **dangler**  
-**smock**
+**smock**  
 
 We would **sit out** and look at the stars and the mountains  
 Another quarter, another **blowout** report.  
@@ -236,28 +236,28 @@ A **pullout** of mortgage lenders from the most at risk markets, resulting in a 
 Everyone knows that it's the woman who gets **vilified** in these scenarios.  
 This won't be a **standoff** or a **dogfall**.  
 never **squander** a good red day.  
-The Supreme Court rejected a **last-ditch** Republican request to block Joe Biden's win in Pennsylvania, in a one-sentence order with **no dissent**. 
+The Supreme Court rejected a **last-ditch** Republican request to block Joe Biden's win in Pennsylvania, in a one-sentence order with **no dissent**.  
 Leaving you and a bunch of other Fools **in the lurch**  
 From cushion to **canopy**, AirPods Max are designed for an **uncompromising** fit that creates the optimal acoustic seal for many different head shapes  
-thanks for the **run down** of the portfolio 
+thanks for the **run down** of the portfolio  
 the **runway** is huge for Fintech  
 
-**beat around the bush**   
+**beat around the bush**  
 **advocacy**  
 **curated**  
-no **formality** here 
+no **formality** here  
 
 A **mole** has **burrowed** a hole in the sand  
 **short-circuit**  
 depths will never hold more than three elements, so we can **write that off** as O(1).  
 
 
-## Week 1 
+## Week 1  
 
 the best thing to do was to **stay the course** and wait for other opportunities  
 Nobody likes losing money, but at least the IRS gives you a bit of a break as a **consolation prize**  
 **Biting the bullet** now gives you a chance essentially to lock in that current rate  
-The **scaling down** of Libra’s vision comes as it has received a **sceptical** reception from global regulators, who have warned that it could threaten monetary stability and become a **hotbed** for money laundering
+The **scaling down** of Libra’s vision comes as it has received a **sceptical** reception from global regulators, who have warned that it could threaten monetary stability and become a **hotbed** for money laundering  
 
 What I did for you was free, **gratis**, you understand?  
 How a Kyoto **mochi** shop survived 1,020 years’ worth of crises  
@@ -266,21 +266,21 @@ Wow! So, what's the **allure** of motorcycles
 **cervical spine**  
 Another **buttress** for consumption  
 from **optical** point of view  
-**breakout**, breakdown 
+**breakout**, breakdown  
 Please give me a **breakdown** of those income tax totals.  
 Susan had a mental **breakdown** and was diagnosed with **schizophrenia**  
 
 A remote working world is accelerating demand for chips, certain software, and cloud-based, or **in-situ**, computer storage support.  
 President-elect Joe Biden called it a "**grim** jobs report. It shows an economy that is **stalling**."  
 So, like any **astute** economic **observers**, we expected stocks to fall and Treasury prices to rise  
-They're betting that news of a slowing economic recovery will give Congress an even bigger **kick in the bum** to strike a deal on a coronavirus stimulus package.   
+They're betting that news of a slowing economic recovery will give Congress an even bigger **kick in the bum** to strike a deal on a coronavirus stimulus package.  
 Democratic leadership supports a bipartisan $908 billion package, which would be attached to a larger **omnibus** spending bill to **avert** a government shutdown after Dec. 11.  
 They were a bit of a **mixed bag**, despite the **jubilant** reaction from investors.  
 AMC stock fell 16% and Cinemark's 22% following the news, **capping off** a devastating nine-month streak for theater chains.  
 
-The shift to remote **catapulted** the industry, **inflating** valuations and putting potential **buyouts** **out of reach**.   
+The shift to remote **catapulted** the industry, **inflating** valuations and putting potential **buyouts** **out of reach**.  
 This is **uncharted** political territory, likely with hidden benefits. The U.S. stock markets recognized that, **straight away**.  
-Consumer **Discretionary**   
+Consumer **Discretionary**  
 
 The same growth that previously took more than a decade of **painstaking** work was achieved in just weeks  
 This is exactly the type of **apolitical** momentum that might make legitimate marijuana medicines more accessible, even independent of the laws about **recreational** use  
@@ -323,7 +323,7 @@ That was underscored by the PMI Manufacturing report which came in at 56.7, whic
 
 Oil and energy stocks, which had a **blistering** November, sold off some of those gains  
 There were **rumblings** of a bipartisan stimulus package from Congress today in the $908 billion neighborhood  
-**mind-numbing** number 
+**mind-numbing** number  
 For momentum traders, these outsize gains are likely far too enticing to **pass up** considering the company's growth rate is expected to start **moderating** in coming quarters  
 **gross margin**  
 
@@ -334,7 +334,7 @@ American **Thoroughbred** **racehorse** that, in 1973, became the first U.S. Tri
 His nose and mouth are grey and he has a white **blaze** on his **snout** that stops at the top of his nose  
 He was **abrasive**. He was **brash** He thought he knew everything  
 On stage she seems hard, **brash** and **uncompromising**  
-Violent, **lively** and **brash**, **taverns** were everywhere in early **colonial** America   
+Violent, **lively** and **brash**, **taverns** were everywhere in early **colonial** America  
 There is a red **seesaw** in the park.  
 Your salad is a **seesaw**  
 Being in the same place at the same time leads to the mythical water cooler conversations which in turn can cause **fortuitous** discoveries and are difficult to replicate at a distance  
@@ -346,8 +346,8 @@ There’s something about the **crunch**, the zip of the dressing, and the full 
 But when you recreate it at home, even with what you’d think are the same ingredients, it **falls flat**  
 It helps make salads taste even better and makes them more **satiating**  
 Start adding a little at a time; you can always add more, but a salad can go from great to **overdressed** quickly, so **take heed**  
-a liberal **sprinkling**—and a good massage—renders tough greens like kale, **collards**, and cabbage **silky-soft** yet still **spunky**   
-(she's very beautiful. And she's **spunky**.)
+a liberal **sprinkling**—and a good massage—renders tough greens like kale, **collards**, and cabbage **silky-soft** yet still **spunky**  
+(she's very beautiful. And she's **spunky**.)  
 Think beyond the **crouton**  
 The old **vinaigrette** formula is **out the window**  
 The **culinary** school mantra of 3 parts fat to 1 part **acid** has been retired. Chefs prefer the **livelier**, **zingier** ratio of 2 parts fat to 1 part acid (and some extra flavor).  
@@ -372,10 +372,10 @@ a **bale** of straw
 We placed a large **boulder** **on that ledge**.  
 rubber **stopper**  
 **fixer**  
-**enclosure** movement   
+**enclosure** movement  
 **commotion**  
-Fish **Kabob**   
+Fish **Kabob**  
 She **shrieked** in **fright**.  
-She is going to divorce him **on the grounds of** **adultery**.   
+She is going to divorce him **on the grounds of** **adultery**.  
 He goes from **agony** to **ecstasy**!  
 **Agony** and **Ecstasy** of Tab  

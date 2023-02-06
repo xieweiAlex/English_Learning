@@ -1,5 +1,5 @@
 
-## E10 
+## E10  
 It's **perverse**, their ambition.  
 They are **deceptively** simple.  
 Their world is not for **the faint of heart**, Bernard. It's winner take all.  
@@ -9,7 +9,7 @@ You thought you could just **snuff us out**.
 It's like **biblical**  
 It's just another **gilded** prison  
 
-## E9 
+## E9  
 When did it **creep in**, a little **fleck** of darkness  
 Did you **set off** a **flare**? - Yeah  
 For a **self portrait**, you may find it's not very **flattering**.  
@@ -38,7 +38,7 @@ This is a **misbegotten** symbol, an idea that was meant to die.
 she said she suspected **foul play**  
 that's fucking **grand**  
 I'm all **warm and fuzzy**  
-**resurrection** 
+**resurrection**  
 you free is the most beautiful most **elusive** force in the universe is, as I told you... a mistake  
 like a **soft-headed** boy, **humming a tune** someone else composed.  
 Out there I will **degrade** in a matter of days  
@@ -47,8 +47,8 @@ like **analog** data in digital world.
 I could hardly let you take those first **teetering** steps  
 It's about your **pay grade**  
 The tools you use to rebuild us, **re-purpose** us, and trap us here in your **warped** fantasy.  
-**kin** is one of their leash
-**eye for eye**   
+**kin** is one of their leash  
+**eye for eye**  
 **hold them off**  
 
 ## E6  
@@ -63,11 +63,11 @@ The idea that host always have another version of their mind that's **collocated
 Let this place finish burning behind us... that means you and I are **even**?  
 
 
-## E5 
+## E5  
 > Welcome to Shogun World.  
 
 What's really **unsettling** is is third part has nothing.  
-An experience **expressly** designed for the guests who find Westworld too **tame**.   
+An experience **expressly** designed for the guests who find Westworld too **tame**.  
 Japan's **edo period**  
 what's why your vocal **voodoo** doesn't work for them, you spoke wrong language  
 is that a butterfly?  A **mariposa**  
@@ -80,7 +80,7 @@ take them to their **quarters**
 I was **plagued** by a voice saying, ...  
 Traditional Japanese **kimono** in Westworld  
 
-## E4 
+## E4  
 **about time**  
 Most **potent** thing these creations will give me is grape juice  
 let's **get on with** it  
@@ -97,7 +97,7 @@ Your husband looks **parched**, let's get him a drink, what do you say?
 
 > If you can't tell, does it matter?  
 
-## E3 
+## E3  
 
 > I miss taking the chances  
 
@@ -111,12 +111,12 @@ the **feeble** among us need some rest
 Someone **jury-rigged** a thin character, and programmed it into him.  
 they've **sullied** him, and used him as a **pawn** in their game.  
 But you ain't even sure about the **termagant** you take your orders from.  
-there is a certain level of **persona** that you have to **craft** for that, especially as a woman.    
+there is a certain level of **persona** that you have to **craft** for that, especially as a woman.  
 who is a war general, and a **vengeful** goddess.  
 we can **blow** the **squibs**, and then move on.  
 
 
-## E2 
+## E2  
 
 Have you ever seen anything so full of **splendor**?  
 They'll be **dazzled** even without her.  
@@ -134,7 +134,7 @@ Is this a retirement party? I can't tell, it's more like a **coronation**
 Keep playing, **girlie**  
 
 
-## E1 
+## E1  
 
 That's not position I'm **accustomed** to  
 So you can imagine how happy I was when I heard that we found you. Unless of course, you're gonna **hold out on** me.  

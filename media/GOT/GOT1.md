@@ -78,7 +78,7 @@ Watch yourself, **midget**.
 Don't ask me to stand aside as you climb on that **pyre**.  
 Take off your **collars**. Go if you wish, no one will stop you.  
 
-## GOT 
+## GOT  
 She always comes back with **scrapes** and **bruises**. She's so **clumsy**.  
 **Bar** the doors.  
 My role is to be **sly**, **obsequious** and without **scruples**.  

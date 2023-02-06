@@ -1,8 +1,8 @@
 
-## E 11 
+## E 11  
 Things turned ugly when Frank, Jackie and Heather **square off** in the first debate.  
 
-## E 6 
+## E 6  
 Did you **partake** of the product?  
 **As though** we meet the first time.  
 His stands on carbon emissions is **deplorable**.  
@@ -15,7 +15,7 @@ It was so **endearing**.
 She's **dead set on** convincing this guy for your benefit.  
 
 
-## E 5 
+## E 5  
 I know this put you **on a ledge**.  
 It's my reputation **at stake**, I don't want to look **foolhardy**.  
 getting **hitched**.  
@@ -23,7 +23,7 @@ getting **hitched**.
 Two front page **bylines** on the same day for Ms. Baldwin?  
 You kicked out a **pit bull** and you **let in** a dragon.  
 He's the only guy that can keep a **disaster** from becoming a **catastrophe**.  
-**Touche**
+**Touche**  
 Do you think they like me? - No, they **adore** you.  
 They're like a **broken record**.  
 I can **caucuses** for you.  
@@ -33,14 +33,14 @@ Enjoy the **Northern light**
 
 
 ## E 4  
-You **dust off** some 60-year-old precedent and think you're justified?   
+You **dust off** some 60-year-old precedent and think you're justified?  
 Just an **unlikely** choice, give how **vociferous** she...  
 Of course it's a **slugfest**, that's doesn't mean we're losing.  
 I'm gonna take **flak** everyday that Corrigan remains in jail.  
 There is protocol, there's basic **decorum**.  
 You wanted to **sideline** me.  
 Don't **flatter** yourself  
-**what's on your mind**, Mr. President? 
+**what's on your mind**, Mr. President?  
 
 ## E 3  
 **brass tacks**. If you could do anything, what would it be?  
@@ -53,7 +53,7 @@ there is more than one way to **skin that cat**
 We're not **men of excess**, though, are we?  
 He is a **thug**, smart, but still a thug, don't **cower to** him.  
 
-## E 2 
+## E 2  
 
 A **grandstanding**.  
 What concerns me even more than the military comment is your **demeanor**.  
@@ -62,7 +62,7 @@ Of course I was, I was trying to **rile you up**.
 When the wind's blowing at **gale force**, there's no point in sailing against it.  
 Yes, a man was **maimed**, his family members were killed.  
 
-## E 1 
+## E 1  
 He is **at his wit's end**, the republicans won't send him a single bill he can sign.  
 Your work so far and... it's **toothless**.  
 Let's keep it quiet, let's keep it **cordial**. Thanks for your work.  

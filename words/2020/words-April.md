@@ -1,24 +1,24 @@
-## Week 5
+## Week 5  
 **pseudonymous**  
 **a state of art**  
 
-**resurgence** of the virus 
+**resurgence** of the virus  
 **jam-packed**  
 
-**Prominent** at time and then **went under**
+**Prominent** at time and then **went under**  
 no way to **recourse**  
 **watering hole**  
-**strawman** 
+**strawman**  
 **poker chips**  
 
 **daikon**  
 **paraffin** **wax**  
 **sand down**  
 **groomsman**  
-some people are said to have **psychic**   
+some people are said to have **psychic**  
 The garden is a **blaze** of color  
 He can wear a little **blazer** to school.  
-**Ripped out**, **rip apart** 
+**Ripped out**, **rip apart**  
 They **ripped us off** at that hotel  
 
 COVID-19 can push kidneys into failure, send the body’s immune system into **catastrophic** **overdrive**, and cause blood **clots** that **impede** circulation to the lungs, heart, or brain  
@@ -26,11 +26,11 @@ COVID-19 can push kidneys into failure, send the body’s immune system into **c
 The coronavirus pandemic has **upended** the gun-rights organization during what should be **heady times** for the group  
 in the middle of presidential election and with gun owners **riled up** over what they see as an effort by authorities to **trample on** their Second Amendment rights.  
 
-It doesn't even **aspire to** be really anonymous 
+It doesn't even **aspire to** be really anonymous  
 **rendezvous** point  
 **inherent**  
 
-**feasible** vs plausible 
+**feasible** vs plausible  
 **beefing up**  
 
 **peephole** in the door  
@@ -42,11 +42,11 @@ A **reverent** gentleman is here to see you.
 **shush**  
 **cranberry**  
 Can't talk! I'll be in my **stall**.  
-This is a **stall tactic**, Your Honor.   
+This is a **stall tactic**, Your Honor.  
 A sliver of glass **nicked** my hand  
 English **Scones**  
 
-He made **strenuous** attempts to stop her   
+He made **strenuous** attempts to stop her  
 As you may have heard, our industry has been under **strenuous** attacks by certain US copyright holders  
 We thank you for your past loyalty and **patronage** and wish you health and safety during the present health crisis and beyond  
 JavaScript **Sorcerer** 🧙  
@@ -59,10 +59,10 @@ What Is **Contemporary Art**
 My mother lives **upstate** new York.  
 **Canoodling**? - well, I can't say **hump** or **screw**...  
 **humanitarian**  
-**Wiener Dog**: **dachshund** 
+**Wiener Dog**: **dachshund**  
 **In a puff of smoke**  
 
-Before HIV was understood, a **folklore** arose in Uganda that a person could become **deathly** sick because of a **hex**   
+Before HIV was understood, a **folklore** arose in Uganda that a person could become **deathly** sick because of a **hex**  
 an earthquake deep beneath the Indian Ocean triggered a **tsunami** that devastated the Indonesian **archipelago**, killing nearly 230,000 people  
 
 He was a bit **scatterbrained**, but in that brilliant sort of way  
@@ -70,7 +70,7 @@ A **voracious** appetite for learning
 Frankly, if you think you are the best engineer a year out of college, you are **deluding** yourself  
 
 **wagyu** steak  
-a **landlocked** republic in south central Africa   
+a **landlocked** republic in south central Africa  
 **mucous** **membrane**  
 
 He was **bamboozled** into joining the club.  
@@ -79,7 +79,7 @@ In his anger he hit the man, and a fight **ensued**.
 He cut his food up into **teeny** pieces.  
 He acknowledged his mistake with a **wry** **grimace**.  
 **jellyfish**  
-He scrubbed the sink and **bathtub** 
+He scrubbed the sink and **bathtub**  
 We gonna get a triple **whammy**  
 
 I'm an **apothecary** of that hospital.  
@@ -113,14 +113,14 @@ Some have been forced to **euthanize** their pigs
 I was until I reached the **age of reason**  
 **sanctity of life**  
 Silicon Valley has become **Sanctimonious** Valley  
-Too much the moral **arbiter** of the world
+Too much the moral **arbiter** of the world  
 
-Boeing has walked away from a $4.2 billion deal with Embraer, accusing the Brazilian aircraft manufacturer of failing to meet the **fine print**.   
+Boeing has walked away from a $4.2 billion deal with Embraer, accusing the Brazilian aircraft manufacturer of failing to meet the **fine print**.  
 
-## Week 4 
+## Week 4  
 
 Make sure it's hot, like **piping hot**.  
-**Salmonella** 
+**Salmonella**  
 
 how this two **cohere**  
 
@@ -135,10 +135,10 @@ they're hurting the pool by doing that, this is **purely** an act of **vandalism
 **centennial**  
 **mining rigs**  
 game-**theoretic**  
-**punitive**   
+**punitive**  
 
 Is he going crazy or did he actually have an **epiphany**?  
-**prana**, **Qi**
+**prana**, **Qi**  
 
 She was very **gregarious**.  
 I took pleasure in **tormenting** my teachers.  
@@ -177,7 +177,7 @@ Order on him is shoot **on sight**
 **aspirational** and **inspirational**  
 
 he **mumbleed** a few words and left  
-**vietnamese** 
+**vietnamese**  
 
 I look **dejected** and **forlorn**, as if I had no home to go to.  
 she looked **sorrowful** and **dejected**.  
@@ -192,23 +192,23 @@ The walls were **draped** with the maps
 **arcane**  
 **deadpan**  
 
-**throwback**
+**throwback**  
 
-Democrats and the White House said they're close to reaching a deal to **replenish** a fund for small-business loans.
-a shooting **rampage** in canada   
+Democrats and the White House said they're close to reaching a deal to **replenish** a fund for small-business loans.  
+a shooting **rampage** in canada  
 Essential, but not **eligible**  
 Marijuana companies are used to being denied by large institutions: Big banks won’t touch the stuff, fearing legal **blowback**  
 **pot-belly**  
 
 
-## Week 3 
+## Week 3  
 
 I can't stand by with partisan **gridlock**  
 
-**efficacy** test   
+**efficacy** test  
 No, I don’t presume any kind of **inoculation** or anything from the trial  
 **mandatory**, **mandate**  
-We **leveled off** new cases 
+We **leveled off** new cases  
 **out of woods**  
 a lot of people can’t do because they’re under so many more **stressors**, and have so many more immediate concerns.  
 
@@ -216,7 +216,7 @@ a lot of people can’t do because they’re under so many more **stressors**, a
 **dignify**  
 **educated guess**  
 
-You will want to try creating some **deviant** nodes and mixing them in the network to fully test.
+You will want to try creating some **deviant** nodes and mixing them in the network to fully test.  
 
 **Hostile takeover**  
 
@@ -261,7 +261,7 @@ she was holding the cat in her arms and petting it **tenderly**
 
 I'm a very jealous and **possessive** man.  
 
-Like a good pain **au chocolat**, yesterday’s news from French consumer **behemoths** LVMH and L’Oréal is **bittersweet**
+Like a good pain **au chocolat**, yesterday’s news from French consumer **behemoths** LVMH and L’Oréal is **bittersweet**  
 LVMH said it’s hopeful for a **relaxation** of lockdowns in May or June and will reopen some manufacturing **plants** **accordingly**  
 
 Trump’s Guidelines to Reopen Economy Put **Onus** on Governors  
@@ -285,16 +285,16 @@ crash **cymbal**, small **cymbals**
 the piece ends with **cymbal crash**  
 the **aroma** of roasting coffee beans.  
 
-**hit home** 
-> A priest, a rabbit, and a monk walk into a bar.  The rabbit says, "I think I'm a typo." 
+**hit home**  
+> A priest, a rabbit, and a monk walk into a bar.  The rabbit says, "I think I'm a typo."  
 
 **Advanced economy**  
-The Treasury said all major carriers would be covered. $5.8 billion is **earmarked** for American Airlines, while $3.2 billion is headed to Southwest Airlines, according to the companies. 
+The Treasury said all major carriers would be covered. $5.8 billion is **earmarked** for American Airlines, while $3.2 billion is headed to Southwest Airlines, according to the companies.  
 
-**Cumulative** GDP loss over 2020 and 2021: about $9 trillion, more than the economies of Japan and Germany combined. 
+**Cumulative** GDP loss over 2020 and 2021: about $9 trillion, more than the economies of Japan and Germany combined.  
 I am grateful to say that I can easily sleep eight hours, uninterrupted. Which makes my recent daytime **drowsiness** all the more baffling  
 
-My eye doctor hates the **flinch** I have every time he tries to get near my eyes.
+My eye doctor hates the **flinch** I have every time he tries to get near my eyes.  
 
 The bride and the **bridesmaids** usual carry **bouquets**.  
 The **musket** **discharged** loudly  
@@ -313,12 +313,12 @@ She **fell over** and **slid** across the shiny floor
 they **resemble** each other in shape but not in color  
 **superintendent** engineer  
 he is the **superintendent** of this school  
-the horses were **swiftly** **corralled**. 
+the horses were **swiftly** **corralled**.  
 the kids were kept in the small **corral**  
 I'm not going back to social **oblivion**  
 The ancient civilization fell into **oblivion**.  
 
-## Week 2 
+## Week 2  
 
 > I don't want it sounds arrogant, but I think I can win it by 5:0  
 
@@ -326,7 +326,7 @@ She is still **taunting** us from the **grave**.
 do we have to make an appointment **beforehand**?  
 **antenatal** training, **antenatal** development  
 
-Negative **mentality**   
+Negative **mentality**  
 **fiat money** system  
 **stimulant**  
 **mimic** human intuition  
@@ -369,7 +369,7 @@ When we did, our board of directors **sided** with him
 penal **colony**  
 A **colony** of seals lay **basking** in the sun  
 **dispersal** area  
-**hammerhead** shark
+**hammerhead** shark  
 **doorpost**: a **jamb** for a door  
 if there an **apocalypse**, good luck.  
 **windscreen**  
@@ -380,7 +380,7 @@ I saw a pack of **hyenas** take down a young **wildebeest**.
 **omniscience**  
 
 as authorities world-wide **implored** citizens to main lockdowns despite the Easter holiday weekend.  
-I also want to express my **heartfelt thanks** and appreciation to all of you for your loyalty to AirAsia   
+I also want to express my **heartfelt thanks** and appreciation to all of you for your loyalty to AirAsia  
 
 **looted** and **pillaged**  
 **plagiarize**  
@@ -423,7 +423,7 @@ She posted a poll on Twitter, asking "are you a bad **hombre** or a nasty woman?
 One dark, **stormy** night I visited the dying woman.  
 **bribery**  
 
-They were all **crammed in** together   
+They were all **crammed in** together  
 The **collateral deaths** are going to be way out number  
 they hopefully **resuscitate** you  
 **whisky** you **off** to the hospital  
@@ -469,7 +469,7 @@ Bank got caught in **crossfire**
 It's a bit like the bank is **constipated**  
 seek any **forbearance** on your mortgage.  
 
-Is China **Ground Zero** for a Future Pandemic?
+Is China **Ground Zero** for a Future Pandemic?  
 **late wife**  
 **traditional healers**  
 **mortality rate**  
@@ -486,16 +486,16 @@ Some of China's border regions are themselves relatively **impoverished**, raisi
 **hypertension**  
 While you **prematurely** fill out a 2020 scorecard, keep a close eye on...  
 
-**grippe**, **grippy**   
+**grippe**, **grippy**  
 He was **spurred** on by ambition  
 **infotainment** screen  
 When chained together, three of the reported Safari flaws could have allowed **malicious** sites to **impersonate** any legit site a victim trusts and access camera or microphone  
 
 ## Week 1  
 
-> Cal me Wyatt
+> Cal me Wyatt  
 
-**bootstrap** process 
+**bootstrap** process  
 **upfront cost**  
 **sybil attack**  
 
@@ -522,18 +522,18 @@ Pain in the **arse**
 **facilitator**  
 **bon appetit**  
 
-> Rahm Emanuel, famously said: “You never want a serious crisis to go to waste.”
+> Rahm Emanuel, famously said: “You never want a serious crisis to go to waste.”  
 
 The police are **guardians** of law and or  
 modern **welfare state**  
 
 **xenophobia** and racism related to the 2019-20 coronavirus pandemic”: they range from **taunts** to outright assault.  
 **demonisation**  
-Not all surveillance is inherently **malign**   
+Not all surveillance is inherently **malign**  
 
 I'm back to being the big **screw-up**  
 Her house is **furnished** with excellent taste  
-**ether**: a colorless volatile highly inflammable liquid formerly used as an **inhalation** **anesthetic**
+**ether**: a colorless volatile highly inflammable liquid formerly used as an **inhalation** **anesthetic**  
 **fuzz**: **derogatory** **slang term** for police offers  
 the **fuzz** isn't letting them through  
 You could touch the duck's **fuzz**  
@@ -541,11 +541,11 @@ The travellers were **marooned** by the **blizzard**
 She **leered** at him, showing **mossy** teeth. Harry **backed away**  
 
 
-school **dormitory**   
+school **dormitory**  
 France and Great Britain decided on a **preemptive** strike  
 some **teething** issues being resolved.  
 **hawker center**  
-**AWOL**: absent without leave   
+**AWOL**: absent without leave  
 
 If you took a **black light** to the sheets of a nude sleeper, he explained, you might detect **fecal matter** or **urine**  
 **yellow jackets**  
@@ -559,7 +559,7 @@ the watch has a **luminous** dial
 He said it's a **dicey** job market, you never know.  
 He was saved from the **jaws** of death  
 **bouncy** 1960s **tunes**  
-Wait, you're such a mystery, always **dashing off**. 
+Wait, you're such a mystery, always **dashing off**.  
 you look very **dashing**.  
 He **clasped** my arm with fear  
 I can't believe my **sperm** have low **motility**  
@@ -579,23 +579,23 @@ You're finally free from **downer** Dan, and I have my old Serena back.
 **Moulin rouge**  
 I'll do whatever you want. I'm **putty**.  
 
-> For all of us asking, “When will this end?” it’s a light at the end of the tunnel.
+> For all of us asking, “When will this end?” it’s a light at the end of the tunnel.  
 
 The South Asian country is a global hub for the **garment** industry—garment exports accounted for 84% of the country’s total exports last fiscal year  
 We Like Our Recessions Like We Like Our **Vendettas**  
 Best-case scenario: like our favorite **necklines—shaped** like a V.  
 **cooped-up** consumers could **embark on** a **spending spree** that **catapults** output back up.  
-Worst-case scenario: An L-shaped recession, where output **plummets** **to the floor** and stays there. 
+Worst-case scenario: An L-shaped recession, where output **plummets** **to the floor** and stays there.  
 **containment measures** may be necessary for 18 months.  
 a “**Nike swoosh**”-shaped recession  
-The question is, what's **in store** for Apple's Weather app?   
-Xerox is ending its **hostile takeover** bid for HP.
+The question is, what's **in store** for Apple's Weather app?  
+Xerox is ending its **hostile takeover** bid for HP.  
 **M&A** deal volume hit a seven-year low in Q1.  
 **Scarcity** Encourages Hoarding  
 people are more likely to value something when it suddenly becomes **scarce**  
 Telling people that there's a **run on** face masks only makes them more likely to stock up before supplies **run out**  
 the steps implemented in South Korea and **ration** certain masks while there is a critical shortage  
-**respiratory**, **respirator** 
+**respiratory**, **respirator**  
 Heavy duty N95 masks and other medical-grade respirators should be reserved by law for health care facilities with an **amnesty** for people who hoarded them to provide an incentive to sell them to hospitals who are eager to buy  
 
 

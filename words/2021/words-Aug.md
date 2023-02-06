@@ -1,25 +1,25 @@
 
-## Week 4 
+## Week 4  
 He was **reprimanded** for playing **truant**.  
 The boy was **enthralled** by the stories of adventure.  
 He was a **stand-in** for my regular doctor.  
-**Undivided attention** 
+**Undivided attention**  
 The oldest **extant** document is dated 1492.  
 My normal **markup**'s 20 percent. But this is a specialty item.  
 The army **put down** the rebellion.  
 She finally agreed to have the **wretched** animal **put down**.  
-During the **flush times**, salespeople were **surly**, waiters **snobby**. -
+During the **flush times**, salespeople were **surly**, waiters **snobby**. -  
 
-The Verge found that Rogan's influence has diminished since he went to **frolic** in Spotify’s **walled garden**.   
+The Verge found that Rogan's influence has diminished since he went to **frolic** in Spotify’s **walled garden**.  
 Jackson Hole **Symposium**  
 Moving your security from **tactical** to **strategic**  
-**dumbfound**
+**dumbfound**  
 Hamilton looks **crestfallen**.  
 **oil shale**  
 The water is filthy with **fecal matter**.  
 She **gallantly** battled on alone.  
 They are **time-bound**.  
-**Intestinal** tract, **intestinal** flora   
+**Intestinal** tract, **intestinal** flora  
 
 Her behaviour was **exemplary**.  
 You must have managed to escape, you clever, **ingenious**, intelligent Toad!  
@@ -30,7 +30,7 @@ We do not want any **extraneous** information on the page.
 **weep** and **sniffle**  
 
 **Invariably**, everyone feels late when they arrive.  There are endless examples of people **lamenting** how late they were in 2011 or 2013 or 2016, when Bitcoin’s price was $5, $100, and $600, respectively  
-Bitcoin **maximalists**  (gone **snorkeling**)
+Bitcoin **maximalists**  (gone **snorkeling**)  
 Throw a few dollars into Bitcoin in the hopes that maybe you hit the **jackpot**, like you might do with lottery tickets  
 Cook proved that he could lead the company though **tumultuous** times, and has been an important voice for social justice and civil rights in the process  
 
@@ -41,11 +41,11 @@ He had a considerable Elizabethan library to **delve** in.
 Very dirty can be filthy or **squalid**.  
 **wine and dine**  
 
-**claustrophobic**
+**claustrophobic**  
 **bulimic**  
 "But my **horoscope** said..." - "We DEFINATELY don't go THERE!"  
 
-## Week 3 
+## Week 3  
 If you have feedback, story tips, or any other recommendations, I'm **all ears**.  
 Focus Blocks are my **oasis**. Focus Blocks are my time away from the storms of life.  
 I see surging demand in the economy and strong corporate profits, while the Fed seems to be more **fixated** on the unemployment rate being slightly higher than they want it to be.  
@@ -77,7 +77,7 @@ Your silence **implies** **tacit** consent to these proposals.
 Why do the aged tend to be **taciturn**?  
 She was alone and unloved, but she did not **repine**.  
 She always looks **immaculate**.  
-The two sides called a **truce** to avoid further **bloodshed**.   
+The two sides called a **truce** to avoid further **bloodshed**.  
 The air was **frosty**.  
 She was still at the **pinnacle** of her career.  
 **breadboard**  
@@ -107,7 +107,7 @@ Some people do not want to admit that they have **blue blood**.
 So how do you train your **Muse**?  
 **lube** oil  
 
-much **obliged**   
+much **obliged**  
 Poverty **obliged** her to live a hard life.  
 Could you **oblige** me with ten yuan?  
 
@@ -117,7 +117,7 @@ He is unlikely to **alter** his game plan.
 The plane landed with a **jolt**.  
 He is **unrivaled** in bravery.  
 One is the **eulogistic** word freedom, and the other is the **opprobrious** word chance.  
-**suffocate**
+**suffocate**  
 The move mirrors a similar interest shown by Walmart’s **sworn enemy** Amazon, which wants to hire someone to head up cryptocurrency products  
 You’ll be joining a **tight-knit** team with experience at places like xxx.  
 **Stratified** flow, **stratified** society  
@@ -128,7 +128,7 @@ His face is **etched** onto his brain.
 He would **repudiate** all debts incurred by his son.  
 **asterisk**  
 
-## Week 2 
+## Week 2  
 
 His comment was **trenchant** and **perceptive**.  
 Strait of **Malacca**.  
@@ -171,16 +171,16 @@ German troops were heavily **indoctrinated** with anti-Bolshevik, anti-Semitic, 
 Hitler saw the only solution as conquest—**expropriating** the resources, such as **Lebensraum**, through war that could not be won through failing capitalist system.  
 both economies also became more **isolated** and expanded under conditions of exceptional **autarky**.  
 
-**Moral wounds** have this **peculiarity**— they may be hidden, but they never close; always painful, always ready to bleed when touched, they remain fresh and open in the heart.
+**Moral wounds** have this **peculiarity**— they may be hidden, but they never close; always painful, always ready to bleed when touched, they remain fresh and open in the heart.  
 
 This kind of freedom is **licentious**.  
 He was **captivated** by her beauty.  
 Twenty million years ago, Idaho was populated by dense **primordial** forest.  
 The police are checking out his **alibi**.  
-The company voted to **enfranchise** its 120 women members.   
+The company voted to **enfranchise** its 120 women members.  
 I was a **dunce** at chemistry.  
 **slapstick** comedy  
-Spender concludes that, in mixed classes, if the girls are as **boisterous** and **pushy** as the boys, they are considered "unladylike", if they are **docile** and quiet, they are ignored.   
+Spender concludes that, in mixed classes, if the girls are as **boisterous** and **pushy** as the boys, they are considered "unladylike", if they are **docile** and quiet, they are ignored.  
 Are you telling me the porn actually **sedated** you?  
 He's gone into **detox**.  
 They only made a **perfunctory** effort.  
@@ -191,7 +191,7 @@ His eyes were **suffused** with tears
 The **gist** of something is the main point or key idea.  
 He **parried** the unwelcome question very skilfully.  
 Because we **thrust**, we don't **parry**  
-Yet the dollar remains the **linchpin** of the global system.   
+Yet the dollar remains the **linchpin** of the global system.  
 That **ladder** looks a little **shaky**.  
 The country was **mired** in recession.  
 Mind that cup, you **clumsy** **oaf**!  
@@ -225,7 +225,7 @@ The family honor is **at stake**.
 the **mouthwatering** aroma of a baking pie.  
 There is no crisis that **compels** **hasty** legislation  
 
-## Week 1 
+## Week 1  
 
 This was a **fiendish** act of **wickedness**.  
 In that year, two **momentous** discoveries were made.  
@@ -234,12 +234,12 @@ In that year, two **momentous** discoveries were made.
 **dribble**  
 **chronicle**  
 We mustn't **let up** now.  
-**formalistic** method   
-he was **panting** when he reached the top   
+**formalistic** method  
+he was **panting** when he reached the top  
 She attended lectures only **sporadically**.  
 **ensconce**  
 
-The Winklevoss twins were his perfect **foils**: buttoned-down “Men of Harvard,” privileged **jocks** who, in many ways easy to see, appeared to represent the “Establishment.” -
+The Winklevoss twins were his perfect **foils**: buttoned-down “Men of Harvard,” privileged **jocks** who, in many ways easy to see, appeared to represent the “Establishment.” -  
 the **mugginess** can become quite overwhelming.  
 
 I still remember his **sly smile** as he said tentatively, “computer scientist?”  
@@ -252,7 +252,7 @@ Your only **recourse** is legal action
 I'm **afraid for** you vs I'm afraid of you  
 I'm **mad about** you  
 **carpal** region.  
-rather than **perching** your palm in front of keyboard, ideally actually you put you weight back into the chair.   
+rather than **perching** your palm in front of keyboard, ideally actually you put you weight back into the chair.  
 
 open-source intelligence proved that Russia **shot down** a Malaysian airline over Ukraine in 2014 and provided evidence of the scale of China’s **internment** of the Uyghurs  
 The **decentralized** and **egalitarian** nature of open-source intelligence **erodes** the power of traditional **arbiters** of truth and **falsehood**, in particular of governments and their spies and soldiers.  
@@ -266,15 +266,15 @@ While the US economy is steadily **clawing back** the jobs it lost during the pa
 **machination**  
 He gave an **ostentatious** yawn.  
 He is known for his **burning wit** and formidable **erudition**.  
-Here's another subtle yet important **factoid**.   
+Here's another subtle yet important **factoid**.  
 I grew to dislike the people from my background – they were uptight and **prissy**.  
 Littlefinger **hefted** the knife lightly in his hand, testing the grip.  
 A **callous** indifference to the suffering of others.  
 **miten**  
 **zoonotic**  
 Lucy's **torrent** of **howls** weakened to a snivel.  
-**pejorative** 
-That answer set off an internet **firestorm**.
+**pejorative**  
+That answer set off an internet **firestorm**.  
 He's gone into **detox**.  
 
 Critics argue that the aim is to make **divestiture** more difficult  
@@ -282,7 +282,7 @@ All rescue measures proved **ineffectual**.
 Hammer and **sickle**  
 He was so **meticulous** about everything.  
 
-**aberrance** **aberrancy**
+**aberrance** **aberrancy**  
 **slippy**  
 a rigid **dichotomy** between science and **mysticism**.  
 She gives **showbiz** parties **a wide berth**.  
@@ -299,13 +299,13 @@ He had a chance to confess and **expiate** his guilt
 economically **feasible**  
 
 He is a **misanthropic** **villain**, although he differs from other villains.  
-(He was **paranoid**, **self-obsessed** and **misanthropic**)
+(He was **paranoid**, **self-obsessed** and **misanthropic**)  
 Humans were the cause of the **hellscape** that was once planet earth and the matrix.  
 **Friedrich Nietzsche**  
-**Friedrich Engels**, **Friedrich Hegel**   
-The heartbeat was **feeble** and **irregular**.   
+**Friedrich Engels**, **Friedrich Hegel**  
+The heartbeat was **feeble** and **irregular**.  
 
-I have only **scratched the surface** of their feature sets in keeping with the spirit of this book
+I have only **scratched the surface** of their feature sets in keeping with the spirit of this book  
 His book **commingles** sarcasm and sadness.  
 The definition of **sedulous** is someone who is **diligent**, hard working and persistent.  
 She is **assiduous** in her efforts to learn French.  
@@ -330,6 +330,6 @@ FSH **spurs** egg maturation in **ovary**.
 In fact, he once took a **hiatus** from acting to study shoemaking.  
 I've always loved the **hustle** and **bustle** of big cities.  
 **hustler**.  
-**oligarch** capitalism   
+**oligarch** capitalism  
 The next game will be a real test of their **mettle**.  
 In this week’s Millennial Money, we’re discussing the biggest shift in television since the **advent** of cable  

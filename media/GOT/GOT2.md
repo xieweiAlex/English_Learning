@@ -1,5 +1,5 @@
 
-## E 2 
+## E 2  
 GOT II Episode 2  
 ---  
 It was **well struck**, your grace.  
@@ -52,7 +52,7 @@ You were to be the **centerpiece** of my next **deception**
 My brother Jaime **rots** in a Northern **stockade**.  
 Are you fond of **riddles**?  
 One of those **dimpled chins** all the girls like.  
-   
+
 Meh, what a **noob** code, could've made Solution 2 shorter like this.  
 This results in a very **jarring** and frustrating transition between modes. Let's reduce this delay to 0.1 seconds.  
 
@@ -115,7 +115,7 @@ We **set out** for King's Landing without Lady Melisandre.
 **humility**  
 Being repeatedly **humiliated** by Robb Stark is **time-consuming**.  
 We are **swollen**, **bloated**, **foul**.  
-   
+
 Brother **fornicates** with sister in the bed of kings.  
 (**Fornication** is generally **consensual** **sexual intercourse** between two people not married to each other. For many people, the term carries an **overtone** of moral or religious **disapproval**)  
 Are we're surprised when the fruit of their **incest** is rotten?  
@@ -128,7 +128,7 @@ How am I suppose to prove myself by **pillaging** **piss-poor** fishing villages
 The Starks have **overextended** their lines.  
 They want to return home and gather the harvest before the **crops** **turn**.  
 **hurrah**.  
-I remember reading an old **sailor**'s **proverb**     
+I remember reading an old **sailor**'s **proverb**  
 The **substance** burns so hot, it melts flesh like **tallow**.  
 (**Tallow** is a rendered form of beef or **mutton** fat, processed from **suet**. It is solid at room temperature. Unlike suet, tallow can be stored for extended periods without the need for **refrigeration** to prevent **decomposition**, provided it is kept in an **airtight** container to prevent **oxidation**.)  
 The jars are put in **catapults** and **flung** at the enemy.  
@@ -164,7 +164,7 @@ Better at **amputation**, I'm afraid.
 Yes, you look positively **forlorn**.  
 Your brothers **desert** you?  
 We have the Lannisters **on the run**.  
-  
+
 August only **accommodates** trained, well-behaved, quiet and **potty-trained** dogs under its pet policy  
 
 E7  
@@ -178,7 +178,7 @@ I **suppose** you've been **underfed** your whole life.
 Do you know what legacy means? It's what you **pass down** to your children, your grandchildren.  
 The great hall has 35 **hearths**.  
 If you're going to **pose** as a **commoner**, you should do it **properly**.  
-   
+
 I need **fennel root** for those with fever, **willow bark**. Mostly I need **milk of poppy**.  
 The **hounds** will find the **scent** again, I'll beat them until they do. I'll **whip** all the men until I've both those boys in hand.  
 And once I've got them, the **pampered** little shits...  

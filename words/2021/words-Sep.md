@@ -7,7 +7,7 @@ Japan deserves better than an **inoffensive** prime minister.
 Allbirds' **superfine** **merino** **fabric** is comfortably **snug** and expertly conforms to fit the **contours** of your foot, while the mesh tree fabric is form-fitting and **stretchy**, hugging your feet in all the right places  
 By placing your order, you accept the gift as a form of taxable **imputed** income.  
 
-**cerebral** palsy, **cerebral** **cortex**
+**cerebral** palsy, **cerebral** **cortex**  
 Virgin Galactic (SPCE) can return to the final frontier, and the news sent its stock price **skyward**.  
 Airbnb has expanded to unique stays like **yurts**, **houseboats**, and caves to lure adventure-hungry remote workers.  
 China's new reality is **rife with danger**.  
@@ -32,7 +32,7 @@ Their quarterly meetings were **anodyne** affairs.
 He rubbed his arms and **stiff** legs.  
 A **decrepit** old man sat on a park bench.  
 
-Love, like death, a universal **leveller** of mankind.   
+Love, like death, a universal **leveller** of mankind.  
 He could not support his family on his **meager** salary.  
 All rescue measures proved **ineffectual**.  
 Such comparisons are obviously **specious** and self-serving.  
@@ -42,23 +42,23 @@ The bird gave a startled **squawk**.
 Well, I'm in a **quandary**, and I need your help.  
 Women tend to **impart** their secrets to their intimate friends.  
 Will you please not **suspect** my **venerable** ancestors?  
-shake **shack** 
+shake **shack**  
 You throw a **pebble** in a pool and it **ripples**.  
 
 The function of the **kidneys** is to **excrete** wastes from the body.  
 The **congregation** stood to sing the **hymn**.  
 nine-year **compulsory** education  
-The storm **wrought** **havoc** in the south. 
+The storm **wrought** **havoc** in the south.  
 
 The colourful flags added to the **gaiety** of the occasion.  
 **Palmy** times for stockbrokers.  
 This caused such a **ruckus** all over Japan that they had to change their mind.  
 And you tell me she's not a **knockout**.  
-ARK ETFs have been struggling in 2021 after a **stellar** 2020, but let’s be real: almost everyone had a **knockout** 2020. 
+ARK ETFs have been struggling in 2021 after a **stellar** 2020, but let’s be real: almost everyone had a **knockout** 2020.  
 U.S. equity markets were flat on Friday as investors took a **breather** from a **hectic** trading week which saw stocks plunge on Monday then bounce back with a strong two-day rally Wednesday and Thursday.  
 
 
-## Week 4 
+## Week 4  
 
 Today banks are much more **stringent** on their requirements.  
 **Dysbiosis** (also called **dysbacteriosis**) is a term for a **microbial** **imbalance** on or inside the body.  
@@ -108,7 +108,7 @@ That's an **inferiority complex** where short men overcompensate by being aggres
 He replied with **haughty** **disdain**.  
 There was a dark **smudge** on his **forehead**.  
 That idea **enrages** many of her **detractors**.  
-But the company quickly **fell behind**, missing payments earlier this month and leaving thousands of employees **in a lurch** 
+But the company quickly **fell behind**, missing payments earlier this month and leaving thousands of employees **in a lurch**  
 China is caught in a very tough spot with no easy options. Act quickly with a bailout and be viewed as **condoning** the financial **excess** that led to the problem.  
 (I don't **condone** violence in any shape or form)  
 The government will likely rescue it but the equity and some bond holders will be wiped out to **obviate** moral hazard.  
@@ -131,7 +131,7 @@ Japanese is turning into a confused **mishmash** of languages.
 They made their **getaway** on a stolen motorcycle.  
 The boys looked pretty **raunchy** after a night of drinking.  
 
-## Week 3
+## Week 3  
 
 The **whirlpool** sucked down the boat.  
 His continuous chatter **vexes** me.  
@@ -154,13 +154,13 @@ French Foreign Minister Jean-Yves Le Drian **fumed** on Thursday, comparing Bide
 Secretary of State Tony Blinken tried to **mop things up** by praising France as a crucial ally in the Indo-Pacific, but to **no avail**.  
 **Between the lines**: This move could be **in part** intended for domestic **conception** after a major international **snub**, and with a presidential election **looming** in April.  
 
-Tech companies and the US government have an **interdependent**, but at times fraught, relationship.
+Tech companies and the US government have an **interdependent**, but at times fraught, relationship.  
 The company’s 2018 algorithm change made users angrier, although it was **billed** as promoting healthy engagement.  
 Other analysts say the comparisons to Lehman Brothers are **overblown** and that the Chinese government will probably, **begrudgingly**, step in to prevent Evergrande from triggering a broader **meltdown**.  
 
 The **concessions** did little to **placate** the students.  
 Apple and Google **bow to** pressure in Russia to remove Kremlin critic’s **tactical** voting app.  
-How did this **weather vane** of the US economy become a car crash of a corporation?   
+How did this **weather vane** of the US economy become a car crash of a corporation?  
 He just **flied into rage** at such a **peccadillo**!  
 Your response should express your thoughts clearly and **succinctly**, **lasting** one to two minutes.  
 
@@ -180,7 +180,7 @@ The trip is **punctuated** by numerous philosophical discussions
 He knows that such persons are determined to **shoehorn** all of life's experience into the romantic view.  
 The book demonstrates that motorcycle maintenance may be **dull** and tedious **drudgery** or an enjoyable and **pleasurable** **pastime**, depending on attitude.  
 
-Convincing politicians to **cough up** more funds will be tough. 
+Convincing politicians to **cough up** more funds will be tough.  
 Decision is a quality **requisite** to a commander.  
 As a **beachhead** to attack America.  
 His days passed like this, slow and **methodical**.  
@@ -188,7 +188,7 @@ A scientist is usually a **methodical** person
 **growl**  
 He's a **malicious** and **malevolent** **malefactor** and **gangster**.  
 
-## Week 2
+## Week 2  
 Angels are **celestial** beings.  
 She supports her theory with **copious** evidence.  
 Even the most **finicky** eater will find something appetizing here.  
@@ -199,12 +199,12 @@ I have “quietly “ adored these **natty** dressers! It’s hard to announce t
 A window is a **viewpoint** of buffer.  
 On Friday, we’ll hear more about consumers’ **psyches** when the University of Michigan Consumer Sentiment and Expectations preliminary reports for September are released.  
 
-**ineluctable**
+**ineluctable**  
 **Penicillin** can **inhibit** the spread of the bacteria and inflammation.  
 Historical evidence lends **credence** to his theory.  
 She was a **statuesque** brunette.  
 She stood looking at Carmen with her mouth **agape**.  
-The boiled potato was **mealy**.   
+The boiled potato was **mealy**.  
 Take me to the **potty**. I need to **tinkle**.  
 
 His **canoe** was there, on the river below the **rapids**.  
@@ -243,7 +243,7 @@ With low housing supply, the market will still crash in 2021? Are you kidding me
 A **Mildew**-Resistant **Wet-Dry Bag** for **Fuss-Free** Storage.  
 
 
-## Week 1 
+## Week 1  
 
 Getting lost in the idea of perfection is a **hindrance**. Being with someone who is committed to going through the **ups and downs** of life together is truly priceless.  
 There’s a much more effective way to conquer your **vices**.  
@@ -256,9 +256,9 @@ James Clear **dishes out** life-changing insights like they're T-shirts on a col
 He prefers light **fictions** to serious novels.  
 This job report is the **nail in the coffin** to the taper happening this month.  
 I'll give the **scoundrels** a **drubbing** if I can!  
-But what happens when a stock truly takes a **shellacking** in the market after missed expectations or a disappointing forward outlook?   
+But what happens when a stock truly takes a **shellacking** in the market after missed expectations or a disappointing forward outlook?  
 Of course, Zoom needs a **multipronged** strategy to maintain a double-digit growth rate.  
-system **choke point**
+system **choke point**  
 **banal**, **trite**  
 It sounds **trite**, but it's true.  
 sales **proceeds**, net **proceeds**  
@@ -266,12 +266,12 @@ sales **proceeds**, net **proceeds**
 This is a **perilous** hour for all of us.  
 She wasn't very **fastidious** about personal hygiene.  
 **promiscuity**  
-**lancet** 
-GMT: **Greenwich Mean Time**, **Zulu time**   
-Cathie Wood was apparently **unfazed** by Zoom Video Communications Inc.’s post-earning decline. -
+**lancet**  
+GMT: **Greenwich Mean Time**, **Zulu time**  
+Cathie Wood was apparently **unfazed** by Zoom Video Communications Inc.’s post-earning decline. -  
 
 I didn't **make the cut** for the yearbook.  
-We're two months **in arrears** with the rent. 
+We're two months **in arrears** with the rent.  
 
 The city was filled with **incogitant** **litterbugs**.  
 Some day I will **reciprocate** your great kindness to me.  
@@ -289,8 +289,8 @@ We're all a bit **gauche** when we're young.
 **springboard** diving  
 He got rich by **devious** **means**.  
 
-His voice was **husky** with grief.
-This young man had all the **inclination** to be a **profligate** of the first water. 
+His voice was **husky** with grief.  
+This young man had all the **inclination** to be a **profligate** of the first water.  
 he succumbed to drink and a **profligate** lifestyle.  
 a **commendatory** letter.  
 **Novice** **rookie** **neophyte** **tyro**.  
@@ -307,14 +307,14 @@ She even **concocted** the story of the **wager**.
 Anywho, the staff would take the mushrooms, unwashed and still covered in dirt, and dump them into the **batter** which was a **concoction** of flour, salt and a **lemon lime** soda as the liquid.  
 Social Security **Shortfall**.  
 The Social Security Trust Fund will be **deficit spending** again this year, according to its annual report, released earlier today.  
-**Paltry** government bond yields and money market funds still aren't offering an attractive alternative to stocks
+**Paltry** government bond yields and money market funds still aren't offering an attractive alternative to stocks  
 In addition, lower immigration and **child-bearing** this year and next are contributing to the shortfall.  
 
-That's why Obama can meet the troop **drawdown** deadline.   
+That's why Obama can meet the troop **drawdown** deadline.  
 we've no **vital interest** in Afghanistan.  
 Your presidency and legacy will forever be labeled as a **abject** failure of leadership.  
 Do **sadistic** films deprave the viewers?  
-There's not a **vestige** of truth in the rumour.
+There's not a **vestige** of truth in the rumour.  
 
 And while Stripe’s mission to “increase the GDP of the Internet” is **impelled** by powerful global tailwinds, the company is also arguably overvalued, **beset** by real competition, and attempting a delicate balancing act between serving SMBs and enterprises.  
 At the incubator, the Collisons were encouraged to join forces with another **precocious** **duo**, united by family bonds.  

@@ -1,5 +1,5 @@
-## E 12 
-If you can make people care about Bojack Horseman, surely you can make them care about **emaciated** orphans with missing **limbs**.   
+## E 12  
+If you can make people care about Bojack Horseman, surely you can make them care about **emaciated** orphans with missing **limbs**.  
 **R-rated** movie  
 I know I'm a little **long in the tooth**, but I think you more than anyone would know not to **count out** an old pro.  
 There has to be a difference between **monogamy** and **monotony**  
@@ -8,7 +8,7 @@ I **run into walls** for days, but I look hot.
 that's the problem of all your ideas, they don't have **ground floor**  
 Hallow's Eve store in January, how **fiendish** **droll**.  
 
-## E 10, 11 
+## E 10, 11  
 
 I'm excited for you to read it, but I'm also **cripplingly** nervous.  
 I'll be back in a **jiff**, **skippy**.  
@@ -18,7 +18,7 @@ Todd is super weird, I think he is **onto** me.
 **crew neck** shirt  
 **true dat**  
 There is an entire **chapter** about me eating apple **fritters**.  
-I got something that's gonna get you a **shit-ton** of hearts or **digs** or smileys or whatever the hell you measure your journalism with.   
+I got something that's gonna get you a **shit-ton** of hearts or **digs** or smileys or whatever the hell you measure your journalism with.  
 The book turned out to be a total **hatchet job**.  
 I'm glad we buried the **hatchet** and everything is cool.  
 **Thump** me once in the stones and then we'll be **even**?  
@@ -46,7 +46,7 @@ my **knack** for coming up with plans
 **a leap of faith**  
 you **lovesick** dummies  
 
-## E 8 
+## E 8  
 Bojack tries to **mend fences**.  
 It makes me feel like **a third wheel**  
 An **off-the-clock** non-work-related social event?  
@@ -64,7 +64,7 @@ went into a **turnaround**.
 **for what it's  worth**, I think it took a lot of **guts** to do what you did back there.  
 
 
-## E 7 
+## E 7  
 Bojack **sabotages** himself with an epic **bender**  
 they didn't give you fake **bourbon** **on set**?  
 Somebody's got to **take the fall**  
@@ -74,14 +74,14 @@ if you don't **cut him loose**, you're never gonna be happy.
 You really **shat** the bed on this one.  
 
 
-## E 6 
+## E 6  
 probably just forgot, the **lazy bum**.  
 **drunken**  
 I will keep your little crush busy long enough for you to get rid of the **contraband**.  
 Am I **attracted to** her? Sure.  
 **two-crossed** man  
 
-## E 5
+## E 5  
 We need a fully body **cavity search**  
 They're **narrow-minded**, **mean-spirited** **dirtbags**.  
 **in and out**, like a **Protestant** on Christmas.  
@@ -102,7 +102,7 @@ She **used to** **run off** like this all the time in high school, too.
 I guess I was just hopping to get some **modicum** of **closure**.  
 
 
-## E 4 
+## E 4  
 I don't have a job, I don't have any **prospects**.  
 I let Todd live rent-free in my **stately** **manse**, I'm his own personal **Mother Teresa**.  
 I think you have great depth of **untapped** potential, and I wish to mentor you in your..  art.  
@@ -113,22 +113,22 @@ There is **no time** for a **relapse**
 you **pompous** **affected** asshole!  
 **mon dieu**, never have I ever!  
 
-## E 3 
+## E 3  
 I can't believe you **pawned** my award.  
 You're way **out of line**  
 
-## E 2 
-These people **feed off** controversy, if you dignify the story with a response ...   
+## E 2  
+These people **feed off** controversy, if you dignify the story with a response ...  
 how did I **come off**?  
 because I'm famous and so **well-adjusted**  
 if you don't swallow your pride, this is never gonna **let up**.  
 Okay, from now on, full truth, **warts and all**.  
 she is **hot to trot**  
 
-## E 1 
+## E 1  
 
 Was initially dismissed by critics as broad and **saccharine** and not good.  
 But the family comedy **struck a chord** with America and went on to air for nine seasons.  
 I've had **tapeworms** that were less **parasitic**.  
 I don't want to live in a society where **premeal** isn't free.  
-  
+

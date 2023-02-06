@@ -1,5 +1,5 @@
 
-So when are we gonna see this baby? When is the **momentous** event?
+So when are we gonna see this baby? When is the **momentous** event?  
 Jane's **topless**.  
 Why do you think we're getting the **sneak preview**?  
 Maybe she's trying to create a **buzz**.  
@@ -11,7 +11,7 @@ It's a **must-lie** situation.
 I guarantee you've never seen anything quite so **objectionable**.  
 
 Jerry: (To George) **Easy big fella**.  
-You mean you were **shortchanged**.   
+You mean you were **shortchanged**.  
 Yes! I mean, if she thinks that's me she's under a complete **misapprehension**. That was not me, Jerry. That was not me.  
 
 Well, I found this rope and I kept **tugging** on it, and all these lobsters came up.  
@@ -20,29 +20,29 @@ You don't understand. This organ, it's very... **schizophrenic**.
 Oh, no, I can't. I'm **kosher**, we don't eat **shellfish**.  
 Wow. You're so **pious**.  
 Kramer, you **startled** me.  
-I still can't believe Michael **finked** on Kramer.   
+I still can't believe Michael **finked** on Kramer.  
 
 
 I'm **swamped**.  
-what am I supposed to do with all this **paella**?   
+what am I supposed to do with all this **paella**?  
 **you don't say**.  
 But he's afraid to fly alone. You know, he is kind of **withdrawn**.  
 No, it was **spur of the moment**.  
 **corned beef**.  
 He's **ripping you off**.  
 This will hardly put a dent in my **fumigation** bill.  
-It's an **orgiastic** feast for the senses, a **wanton** festival of sights, sounds and colors.   
+It's an **orgiastic** feast for the senses, a **wanton** festival of sights, sounds and colors.  
 Because his **moth**, you don't buy my raincoat?  
 
-To my **adoring** husband.   
-Who wouldn't like me in this **leotard**? I look amazing in this **leotard**.   
+To my **adoring** husband.  
+Who wouldn't like me in this **leotard**? I look amazing in this **leotard**.  
 Bottle wipe **supersedes** it.  
 
 Can't you switch for another **midget**?  
-So now, you're gonna keep going out with her for **spite**?   
+So now, you're gonna keep going out with her for **spite**?  
 
-Cause I will never forget that **flinty** voice. It is **tattooed in my brain**.   
-He is a male **bimbo**.   
+Cause I will never forget that **flinty** voice. It is **tattooed in my brain**.  
+He is a male **bimbo**.  
 **Horning in** my rock climbing trip today.  
 He asked me. - You put him **on the spot**.  
 
@@ -52,7 +52,7 @@ I was merely speaking **extemporaneously**.
 I like your place, it's very **unassuming**.  
 George doesn't work, he is **bum**. That's why he lives with us.  
 
-Yeah, **dandruff**, **kasha**, **mothball**, **cheap carpeting**. It's **potpourri**, really.   
+Yeah, **dandruff**, **kasha**, **mothball**, **cheap carpeting**. It's **potpourri**, really.  
 You wanna **lug** it uptown, it's yours.  
 I mean, somebody asks me where is Israel, I don't **fly off the handle**.  
 You're **grounded**.  
@@ -64,18 +64,18 @@ Nothing confrontational. Just two adults sitting down, trying to **clear the air
 
 I want you to have this job, but of course... **sodomy** is a prerequisite.  
 **Rest stop** supply.  
-Gino, you've **outdone** yourself this time. This is the best haircut I've ever had.   
-If I don't have the job, by the time he comes back, I'm **ensconced**.   
+Gino, you've **outdone** yourself this time. This is the best haircut I've ever had.  
+If I don't have the job, by the time he comes back, I'm **ensconced**.  
 I'd like to have **shoehorn** hands.  
 Look at him, he is **grotesque**. - You think?  - Do I think? He is **repugnant**.  
 It was a **cinch**.  
 
 Isn't there a better way to spend your **twilight** years?  
 I might be old, but I'm **spry**.  
-They say they never saw anybody **go after** balls with such **gusto**.   
+They say they never saw anybody **go after** balls with such **gusto**.  
 
 
-## Season 5 
+## Season 5  
 
 The woman is absolutely **mesmerizing**.  
 You're really **smitten**.  
@@ -83,24 +83,24 @@ You're really **smitten**.
 I'm **on a roll**! I'm just **willing** these great parking spots.  
 The most important thing is you help with the **bris**.  
 Why are all those people **milling** around my car?  
-**mohel**
+**mohel**  
 You know, you should **call that off**, Elaine. It's a **barbaric** ritual!  
 It's been a very **trying** couple of days around the hospital.  
 Oh look, a man is flying, a man is flying! And then ... **splat**.  
 The damage unfortunately, has **marred** an otherwise fine automobile, rendering it virtually **undrivable**.  
 You greedily, **callously** want to profit from it?  
 Listen to me, you **quack**.  
-Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up.   
+Embedded in the carpet fibers, deep, deep in the **shag**, broken glass. Bits of broken glass you can never get up.  
 One more peep, I'll **slice** you like a smoked **sturgeon**!  
 
 
 **Bologna** sandwiches.  
 I can not have this constant **bickering**.  
-Stress is very damaging to the **epidermis**.   
+Stress is very damaging to the **epidermis**.  
 My hands have got to be in **tip-top** shape.  
 **Keep the television down** and the conversation to a minimum.  
 
-The apples are mealy, the oranges are dry. I don't what's going on with the **papayas**! 
+The apples are mealy, the oranges are dry. I don't what's going on with the **papayas**!  
 What the hell is **plantain**?  
 God isn't **out to get you**, George.  
 She is extremely **dainty**.  
@@ -123,7 +123,7 @@ We could be **tried for murder**.
 He is **gypping** us.  
 
 **afraid not**.  
-**afraid so** 
+**afraid so**  
 Now I have to be real, that's when it all **falls apart**.  
 
 I think I'm **better off going** one on one.  
@@ -161,17 +161,17 @@ I'm just gonna **pop-in**. - Good, men love that.
 My home is a... **shrine** to you.  
 
 
-## Season 4 
+## Season 4  
 
 Are you very **fussy** about your pants?  
 It's not like **spotting** a **toupee**.  
-**diaphragm**
+**diaphragm**  
 I had green light, you **jaywalked**.  
 You'll **drag me into the sewer** with you.  
-Nothing, I was just giving her **the straight dope**.   
+Nothing, I was just giving her **the straight dope**.  
 Another couple of coffee with you, she'll **wind up** in a **convent**.  
 
-## Season 3 
+## Season 3  
 KRAMER: (**debonair** smile) Well, it’d be our little secret.  
 
 A car just bashed into a parked car, and **sped off**, right on my **block**!  
@@ -183,18 +183,18 @@ What kind of a sick **lowlife** would do a thing like that? You know those peopl
 The **intercom** buzzes, Jerry walks over and presses the button  
 Unless, she's one of these multiple sneezers, and he's holding his 'God bless you' **in abeyance**, until she completes the series.  
 **Don't sell yourself short** saying 'God bless you' to every Tom, Dick and Harry in great personal risk.  
-Robin: Maybe even someone who didn't say 'God bless you'. George: Well, **that's a given**.
+Robin: Maybe even someone who didn't say 'God bless you'. George: Well, **that's a given**.  
 
-Now you listen to me, suck face! You tell anybody, anything, and I will **carve** my **initials** in your brain tissue!
-I wasn't going to do anything until you got her all **juiced up** with your story about having the affair with the **matador**!
+Now you listen to me, suck face! You tell anybody, anything, and I will **carve** my **initials** in your brain tissue!  
+I wasn't going to do anything until you got her all **juiced up** with your story about having the affair with the **matador**!  
 Becky: **You have got some nerve**! You smash up my car, you don't admit it, and now you want to ask me out on a date?  
 Kramer is walking toward her door, hair **slicked** back, with a **bouquet** of flowers in his hand.  
 
-I see a very cheap man holding a sweater trying to **get away with** something. That's my **overview**.
+I see a very cheap man holding a sweater trying to **get away with** something. That's my **overview**.  
 You're still here. You're a **dynamo**.  
-George: So she starts vaccuming, back and forth, back and forth, her hips **swivelling**, her breasts, uh... (trying to think of a word)
-Jerry: **Convulsing**?
-George: **Convulsing**?
+George: So she starts vaccuming, back and forth, back and forth, her hips **swivelling**, her breasts, uh... (trying to think of a word)  
+Jerry: **Convulsing**?  
+George: **Convulsing**?  
 So we started drinking, and I'll tell you I don't know if it was the alcohol or the **ammonia**, but the next think I knew she was mopping the floor with me.  
 Jerry takes out a **hankerchief** and starts fake-crying in it.  
 
@@ -239,14 +239,14 @@ I'd also like to welcome back our little, **shrimpy** friend.
 He is a **holistic**.  
 
 
-## Season 1 
+## Season 1  
 
 
 Every time I come to the building, I'm gonna have to sneak around like a **cat burglar**.  
 **divine plan** (will of God)  
 You **numskulls**  
 how did you get the **goop** out of the top of the dishwashing liquid? It was like a brand-new **nozzle**.  
-Maybe you think we're **in cahoots**.   
+Maybe you think we're **in cahoots**.  
 
 Frankly, I prefer the company of **nitwits**.  
 I say this with **unblemished record** of staunch **heterosexuality**.  

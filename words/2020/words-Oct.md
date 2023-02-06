@@ -1,4 +1,4 @@
-## Week 5 
+## Week 5  
 The olives are crushed to a **pulp** by stone rollers  
 She lacks the **requisite** experience for the job  
 I have **discretionary** income  
@@ -7,14 +7,14 @@ I have **discretionary** income
 Good food and good conversation go **hand in hand**.  
 My view hasn't changed since then, but Slack's price-to-sales ratio has declined from 26 times to a more **palatable** 19  
 I can tell that you aren't **jazzed up** by group events.  
-**steroid hormone**
+**steroid hormone**  
 the order **cutoff** date!  
 Honey is an **antiseptic** and antibacterial ingredient that also has wound healing properties  
 **Makeshift** shelters for those left behind have **sprung up** all over the area.  
 
 you even have the **cojones** to open the stock market app  
 Spending on services increased, but not nearly enough to **recoup** losses from the pandemic  
-Google parent Alphabet also reported **blowout** earnings, with profits at $11.2 billion and revenue at $46 billion last quarter.   
+Google parent Alphabet also reported **blowout** earnings, with profits at $11.2 billion and revenue at $46 billion last quarter.  
 Every year, Netflix invests more money in **pumping out** original content (did you see Holidate?). **Execs** think that value for customers is worth a **pricier** subscription.  
 It's been an economic savior for some parts of the state that were **hollowed** out by the decline of manufacturing jobs, but some Pennsylvanians are against it on environmental grounds.  
 
@@ -35,14 +35,14 @@ There’s a lot of darkness in the world, so let’s **start off** with a messag
 It **edged up** in New York and California, though.  
 **Pfizer Labs**  
 The U.S.' vaccine game is **high-stakes**. Any **slip-ups** in the program—such as only four out of six candidates proving effective, or not enough people getting vaccinated—could mean we'll be dealing with the virus well into 2023  
-But if everything goes smoothly, we could **turn the tide** by July of next year.   
+But if everything goes smoothly, we could **turn the tide** by July of next year.  
 On Monday, Dr. Anthony Fauci told Yahoo Finance that the “primary **endpoint**” of a vaccine is “to prevent **clinically** recognizable disease,” aka **stamping out** symptoms, rather than eliminating the virus entirely  
 Texas's Economic **Makeover**  
 It would still take a historic **upswell** of Democratic support to flip the state in this election  
 But as new job seekers continue to **reshape** its economic **landscape**, Texas and its **meaty** 38 electoral college votes might be **up for grabs** when 2024 rolls around  
-A FEDERAL JUDGE rejected the Justice Department’s attempt to **represent** President Trump in a **defamation** lawsuit filed by E. Jean Carroll, who alleges he raped her in the 1990s. 
+A FEDERAL JUDGE rejected the Justice Department’s attempt to **represent** President Trump in a **defamation** lawsuit filed by E. Jean Carroll, who alleges he raped her in the 1990s.  
 It's **off to** a great start  
-**hang in there** 
+**hang in there**  
 
 **paramedic** ambulance  
 I'd like something for a **sunburn**  
@@ -52,21 +52,21 @@ stretch **briefts**
 swan **mussel**  
 **saltine** crackers  
 **mormon** doctrine  
-holy **hymn** in church 
+holy **hymn** in church  
 **equator**  
 **shuffleboard**  
 **padlock**  
 legal **formality**  
-Don't **talk down** to coworkers, including **subordinates**
+Don't **talk down** to coworkers, including **subordinates**  
 Donald Trump did not come to Washington to win the praise of the **beltway elites**  
 I suppose I can use one of the **less-frayed** cables I have at home to charge this phone."  
 You told us as much in our recent survey (more below), but broadly speaking, individual investors see **inclement** weather **on the horizon**  
 Rise In Virus Cases **Weigh On** Stocks, But Big Earnings Week Could Provide **Lift**  
-This enables you to **narrow down** the Zacks #1 Rank List to stocks that best fit your investing style
+This enables you to **narrow down** the Zacks #1 Rank List to stocks that best fit your investing style  
 Tech stocks have **buoyed** the market recovery, but SAP's **plunge** could **undermine** investor confidence in other software vendors facing similar **headwinds**  
-Don't **talk down** to coworkers, including **subordinates**
+Don't **talk down** to coworkers, including **subordinates**  
 
-### Week 4
+### Week 4  
 I got **tackled** in his office  
 the **payoff** phase  
 **gtfo** my room  
@@ -84,7 +84,7 @@ the seller was in **hospice**, going to die any day.
 Call it the **piggy bank** strategy  
 what helps me have some **semblance** of happiness  
 **Aristotle**  
-after spent 1500 to 2000 hours, I kind of started almost becoming **jaded** what it was like to be in that car   
+after spent 1500 to 2000 hours, I kind of started almost becoming **jaded** what it was like to be in that car  
 
 The pigs were **grubbing** about among the bushes  
 you silly **twit**  
@@ -102,7 +102,7 @@ she is an **enigma** to me.
 **newlywed**  
 **renaissance** music  
 **beanstalk**  
-national **emblem**, Olympic **emblem**   
+national **emblem**, Olympic **emblem**  
 her shirt has the company **emblem** on it.  
 course **syllabus**  
 **wigs off**  
@@ -117,7 +117,7 @@ An ethnic nationalist, Xi holds a vision of Chinese **revival** that draws on **
 He speaks in **Marxist** terms of class struggle and uses **Maoist** tactics such as self-criticism and rectification  
 The Chinese president sees himself as a savior, **anointed** to lead the country into a “**new era**” of greatness **propelled** by rising prosperity and political **devotion**  
 His rule has led to sweeping **crackdowns** on corruption and political **dissent** at home and an increasingly **strident** foreign policy  
-**coarse grain**   
+**coarse grain**  
 Xi Zhongxun lived through **hellish** periods of internal party **factionalism**  
 Some scholars suggest that the shame of that period pushed Xi not to question or **renounce** the extremities of Mao’s leadership, but to prove himself worthy to lead  
 he went on a “southern tour” to Shenzhen, **retracing** the footsteps of Deng Xiaoping  
@@ -128,12 +128,12 @@ A **pail** of water
 
 The **intravenous** drug has helped shorten the recovery time of some hospitalized Covid-19 patients.  
 
-**GI**: gastrointestinal
+**GI**: gastrointestinal  
 Do you take anything for your **bowels**  
 
-A NASA spacecraft successfully landed on an **asteroid** named Bennu more than 200 million miles away to grab some space rock samples.   
+A NASA spacecraft successfully landed on an **asteroid** named Bennu more than 200 million miles away to grab some space rock samples.  
 
-Just a reminder, if the six indicators above look like **hieroglyphics**, earlier this week we published a guide that walks you through our markets section. -
+Just a reminder, if the six indicators above look like **hieroglyphics**, earlier this week we published a guide that walks you through our markets section. -  
 Businesses have **shied away** from cryptocurrency transactions because of long transfer times and price volatility  
 But PayPal has **allayed** those fears by converting the cryptocurrency used to buy a coffee into dollars, pounds, or any other currency that the merchant would typically accept  
 Barack Obama delivered a **scathing** **condemnation** of Trump in his return to the campaign trail.  
@@ -145,7 +145,7 @@ However **sound** their reasoning is, it can be **upended** by a positive news s
 The **turnaround** in the stock’s fortunes may prove to be temporary. But if it's not, the short seller can face **runaway losses** as the expiration date on their positions approaches. They generally **opt to** sell out immediately even if it means taking a **substantial** loss  
 The stock may be heavily shorted for good reason, such as it has a **dismal** future outlook  
 
-**Plum tree** 
+**Plum tree**  
 Are a lot of girls carrying **mace**?  
 Civil **commotion**  
 **madam**, **maiden**  
@@ -177,30 +177,30 @@ In a ruling **handed down** on Wednesday, the U.S. Court of Appeals for the Nint
 
 it will be **painfully obvious** if you miss the needle in this haystack. Optimism becomes urgent  
 But there is another more **sinister** reason people dismiss new ideas. If you try something ambitious, many of those around you will hope, consciously or unconsciously, that you'll fail  
- Encouraging startups has been practiced for so long that it has become a custom 
+Encouraging startups has been practiced for so long that it has become a custom  
 One of their great favorites is Theranos. But the most **conspicuous** feature of Theranos's **cap table** is the absence of Silicon Valley firms  
 She is a **conspicuous** figure  
 
 After 3 up weeks in a row for the market (4 weeks for the Nasdaq), there's **bound to** be some profit taking and position **squaring** along the way.  
-As some countries face **resurgent** caseloads, China's strict lockdown, testing, and tracing programs have **tamped down** subsequent outbreaks and kept the coronavirus under control.   
+As some countries face **resurgent** caseloads, China's strict lockdown, testing, and tracing programs have **tamped down** subsequent outbreaks and kept the coronavirus under control.  
 China still has a **migraine** of a Q1 to recover from  
 Even with Q3's stats, it's only expected to **eke out** 1.8% growth this year, according to the IMF.  
 China's National Bureau of Statistics acknowledged it's hard to be #thriving while the global economy remains **in tatters**.  
 
 He decided to **scour** the sink  
 And that is an excellent **segue** into the notion of a bank note  
-Sorry I had to **bolt out** of our discussion Friday
+Sorry I had to **bolt out** of our discussion Friday  
 
-## Week 3
+## Week 3  
 
-**lump sum** payment 
+**lump sum** payment  
 A FEDERAL JUDGE **struck down** Trump’s plan to cut food stamps for 700,000 unemployed Americans  
 Why Is American Airlines So **Infuriating**?  
-With its industry **reeling**, the company is quietly betting that diminished competition will keep passengers coming — even as they **grumble** about poor service, late arrivals, and **jam-packed** flights.   
+With its industry **reeling**, the company is quietly betting that diminished competition will keep passengers coming — even as they **grumble** about poor service, late arrivals, and **jam-packed** flights.  
 **circuit breaker**  
 
 **vision acuity**  
-Once it vests, you officially own the stock, can **liquidate** the shares, and are **subject to** the **requisite** income tax due on the value of the grant   
+Once it vests, you officially own the stock, can **liquidate** the shares, and are **subject to** the **requisite** income tax due on the value of the grant  
 We're two months in **arrears** with the rent.  
 He's always so **frazzled** when I get home  
 
@@ -221,7 +221,7 @@ Our success is **contingent on** your support.
 It's **rounding the corner**  
 they're all **in unison** about this.  
 **a hot button issue**  
-we're not the lowest, but we're **among** the lowest   
+we're not the lowest, but we're **among** the lowest  
 I'm fortunately very under **levered**.  
 The whole **ball game** changed a lot  
 home **depot**  
@@ -241,7 +241,7 @@ It too is nestled into a graceful **arc** of **coastline**
 **Mole crabs** live a life much like clams, fishing for **debris** among the waves, but they are completely opposite in **temperament**  
 From the moment they’re exposed to the air, they **frantically** dig with their **hind legs** if the surface they’re on resembles wet sand even as little as a human palm wet with seawater  
 When you drop them on the sand, they right themselves like **roly-polies** and rebury themselves in a blink  
-The large ones that can’t help but be caught, and will sit in your hand embarrassed to be exposed are the **matronly** females, which you can confirm from the orange eggs packed among their leg joints
+The large ones that can’t help but be caught, and will sit in your hand embarrassed to be exposed are the **matronly** females, which you can confirm from the orange eggs packed among their leg joints  
 Why did every **starry-eyed** post-bubble founder **plop** their headquarters in a **dinky** suburb that would fight them for office space and housing forever after? Abundance is an accident  
 The political forces that would preserve the bay area’s structures **in amber**, even as its people **decamp**, cry that this growth isn’t natural  
 We have such a **meager window** into such an immiserated natural world, that we don’t realize how deeply natural this is. The most **intransigent** cause of a lack of imagination is, **after all**, a lack of **referrents**  
@@ -255,12 +255,12 @@ Microwaves only reach about an inch and a half deep into the food, and the rest 
 **Limousines** often have a **lengthened** **wheelbase**  
 
 **thistle**  
-**kabob** 
+**kabob**  
 Let's go for a **saunter** along the river  
 **rendition**  
-**locust** 
-**sera** 
-**kerb** 
+**locust**  
+**sera**  
+**kerb**  
 **slipnot**  
 **scatterbrain**  
 Sand is **finer** than **gravel**.  
@@ -290,7 +290,7 @@ silk **cocoon**
 **meteorologist**  
 **meteor**  
 
-## Week 2 
+## Week 2  
 
 **no-go topic**  
 These allow investors to make **wagers** based on the volatility index itself, rather than on the changes to individual names it attempts to represent  
@@ -303,10 +303,10 @@ what we were looking at, it's not necessary the **nadirs** or the bottom of thos
 **stop-loss point**  
 **whip out**  
 **trailing stop loss**  
-**parabolic** stop and reverse 
+**parabolic** stop and reverse  
 
 digital **nomad**  
-**eggshell** 
+**eggshell**  
 **yolk**  
 **beehive**  
 **starch**  
@@ -321,16 +321,16 @@ The professor made **mincemeat** of the speaker at the conference
 **Swedish checkers**  
 **meteorologist**  
 
-She carried an **armload** of boxes   
+She carried an **armload** of boxes  
 **magnifying glass**  
 I like pears better than **apricots**.  
 
-**Deride**: to laugh at **in scorn**, make fun of: ridicule   
+**Deride**: to laugh at **in scorn**, make fun of: ridicule  
 That newspaper columnist **derides** the mayor whenever he can  
 Must be deemed medically **advisable** by an IQLV surgeon  
-**ashtray** 
+**ashtray**  
 Road to **stardom**  
-**sapphire** 
+**sapphire**  
 **fried shallot**  
 **butternut**  
 **bloomers**  
@@ -344,18 +344,18 @@ It hurt, so she put some **aloe vera** on it
 **bloodhound**  
 **wolverine**  
 **Judas**  
-**standing ovation**   
+**standing ovation**  
 People **mingled** happily at the **carnival**.  
-**contango** 
+**contango**  
 
 She knows exactly how to **tug** at readers' **heartstrings**  
-all the **accolade** to xxx   
+all the **accolade** to xxx  
 she picked out her own **urn**  
 
 The song is too low for a **tenor**  
 I never joke when it comes to **vertigo**  
 telephone **handset**  
-**skyway**   
+**skyway**  
 **scriptwriter**, **screenwriter**  
 the girl **tinted** her hair green  
 the soils have a rusty **red tint**  
@@ -380,7 +380,7 @@ Hawaii **papaya**
 Apply **papaya** **pulp** on the skin  
 **masseur**  
 
-With the virus spreading renew, and the stimulus bill derailed, Powell's plea **fell on** **deaf ears**. 
+With the virus spreading renew, and the stimulus bill derailed, Powell's plea **fell on** **deaf ears**.  
 
 Insights that **pierce** the veil, crack the **cosmic egg**  
 Perhaps you used this now seemingly **defunct** one.  
@@ -392,9 +392,9 @@ something that is **legibly** impressive or valuable but has no **playbook**
 experts in the pharma industry still expect up to a 20% **spoilage rate**.  
 Many commercial airlines have **retrofitted** aircraft  
 This isn’t the cargo industry's first **mile-high** **rodeo**  
-Under pressure to digitize, producers are expected to **phase out** more low-skilled work in favor of data, IT, and remote operations positions.   
+Under pressure to digitize, producers are expected to **phase out** more low-skilled work in favor of data, IT, and remote operations positions.  
 
-It's something we all **fall prey to**.   
+It's something we all **fall prey to**.  
 long **corridor**  
 If you **subtract** 3 from 5, you get 2  
 You need a long series of data to be able to **discern** such a trend  
@@ -411,7 +411,7 @@ with voters saying by **2-to-1** that Biden has the better **temperament** to be
 The poll was conducted in the two days after the **unruly** and insult-filled debate Tuesday  
 A **trio** of White House journalists recently tested positive, and ABC News is quarantining staff who came in contact with Christie during a post-debate broadcast  
 
-## Week 1 
+## Week 1  
 I **weep** for the future of science.  
 The campfire **smoldered** for hours after the blaze **died out**.  
 hardly used in **mint condition**  
@@ -425,15 +425,15 @@ a K-shaped recovery describes the path of different **disaggregated** economic v
 Chicken **gizzard**  
 
 focus on **drawdown**  
-**EPS**: Earnings per share 
-PE **Multiple**
+**EPS**: Earnings per share  
+PE **Multiple**  
 The promised subsidies never **materialized**.  
-Farmers often enclose their land with **hedges**. 
+Farmers often enclose their land with **hedges**.  
 Stop **hedging** and answer my question directly!  
 
 Besides **defraying** the cost of home ownership, it would bring new units on the market by buying portions of existing second home  
 Nikola's shares have **rebounded** in the past few days after the **embattled** electric automaker made assurances it would hit targets.  
-I know some have fallen on **stony ground**.
+I know some have fallen on **stony ground**.  
 
 I don't know. A sense of **deja vu**.  
 **Fallout** from the presidential debate  
@@ -456,7 +456,7 @@ does artificial silk **crease** more easily than natural silk?
 **wecker** **beat-up** **jalopy**  
 human **placenta**  
 **dermatologist**  
-**Mutagenesis**   
+**Mutagenesis**  
 You're young. You probably don't have **glaucoma**.  
 **emerald green**  
 **emerald** necklace  

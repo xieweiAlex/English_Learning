@@ -1,6 +1,6 @@
 
 
-## Week 4 
+## Week 4  
 
 it's like **pandemonium** out in the streets  
 
@@ -12,10 +12,10 @@ Turn the bag **inside out** or place it inside a **pillowcase** or laundry bag t
 **deregulation**  
 When you're confronting both a) an economic crisis and b) a public health emergency, **the last thing you want to do** is **trip on red tap**  
 You've heard stories of companies **heroically** **rejiggering** their assembly lines to **churn out** emergency medical products  
-Distillers that **pivoted** to make hand sanitizer received some waivers from the government.   
-But **ethanol producers** sitting on millions of gallons of lower-grade alcohol are still **petitioning** the FDA to let them help out in the effort.   
+Distillers that **pivoted** to make hand sanitizer received some waivers from the government.  
+But **ethanol producers** sitting on millions of gallons of lower-grade alcohol are still **petitioning** the FDA to let them help out in the effort.  
 Because of the coronavirus, we might even start seeing some **midshipmen** with **mullets**  
-Stop **giggling** 
+Stop **giggling**  
 Wyoming **Asphalt** Sour, a dense oil used to make paving **bitumen**, sold at negative prices in mid-March. As in, producers are paying buyers to take **barrels** off their hands.  
 Some think the U.S. could enter a cold war with one of its biggest **frenemies**  
 
@@ -23,18 +23,18 @@ It's a sign of **detente**
 As today's report shows, the coronavirus outbreak is economically **akin to** a major hurricane occurring in every state around the country for weeks on end  
 
 
-excessive drinking and **promiscuity**   
+excessive drinking and **promiscuity**  
 **voluptuous** women  
 **sassy** girl  
 **hands-down** winner  
 **baby-talk**  
 **monkey business**  
 
-Many people have personal travel plans and we ask that you **heed** all government warnings and restrictions around travel. 
+Many people have personal travel plans and we ask that you **heed** all government warnings and restrictions around travel.  
 
 In recent weeks, President Trump and his administration have **promoted** public health measures that have effectively shut down large **swaths** of the U.S. economy. But now he's getting **antsy**.  
 At a news conference Monday night, Trump said he didn't want the "cure" (a **self-induced** economic recession)  
-he'd like to “have the country opened up and **raring** to go by Easter.”   
+he'd like to “have the country opened up and **raring** to go by Easter.”  
 The stock market is **mimicking** a **bucking bronco**, and analysts say growth could tank, unemployment could **soar**, and layoffs could be devastating as much of the country's economy is **put on hold** to contain the virus  
 This crisis is unique in that it **pits** economic growth against public health  
 A Mount Olympus-sized pile of advertising just **went poof**  
@@ -51,7 +51,7 @@ A **bumblebee** **stung** me on the check
 **snowplow**  
 The manager never **faltered** in his duty  
 
-Stocks are **coming off** their worst week since 2008
+Stocks are **coming off** their worst week since 2008  
 India has over 1.3 billion people and a **severely** **strained** healthcare system.  
 Hong Kong’s Economy Is in ‘**Deep Water**,’ Finance Chief Says  
 
@@ -70,26 +70,26 @@ But just because Trump **et al** have indulged in irresponsible optimism durin
 Optimism in a time like this is crucial. As with climate change and war, we need to be realistic, to face the problem **squarely**, while resisting fear and **fatalism**.  
 We need to retain our faith that human intelligence and decency will **prevail**.  
 Trump, **in spite of** all his missteps, has sense enough to seek the advice of Anthony Fauci, an authority on infectious diseases  
-Trump, for all his **missteps**, at least has the sense to rely for advice on Anthony Fauci, who since the **dawn** of the AIDS pandemic in the 1980s has been a **leading authority** on **infectious** disease.
-Now let me **spell out**, in this dark time, some of my hopes:
+Trump, for all his **missteps**, at least has the sense to rely for advice on Anthony Fauci, who since the **dawn** of the AIDS pandemic in the 1980s has been a **leading authority** on **infectious** disease.  
+Now let me **spell out**, in this dark time, some of my hopes:  
 
 The coronavirus crisis will bring about the end of the Trump **era**. In November, voters **appalled** by the incompetence and **mendacity** of the Trump administration will vote for Joe Biden, who will win **in a landslide**.  
 
-World leaders will recognize the **impracticality**, and immorality, of military spending. 
+World leaders will recognize the **impracticality**, and immorality, of military spending.  
 
-Led by the U.S., which spends more on arms than the next seven biggest spenders combined, nations will start **diverting** resources **away** from defense and toward measures for reducing climate change and poverty and improving health care and education.
+Led by the U.S., which spends more on arms than the next seven biggest spenders combined, nations will start **diverting** resources **away** from defense and toward measures for reducing climate change and poverty and improving health care and education.  
 
 If Trump gets re-elected, helped perhaps by federal payments to voters, things will still be okay. **Chastened** by the pandemic and subsequent economic depression, freed of the need to appease his right-wing base, **yearning** to go down in history as a savior, this **narcissistic**, **amoral bully** will turn out to be just the leader we need to guide humanity toward a green, just, peaceful future.  
 **egalitarian**  
 
-Returning the **boon**   
+Returning the **boon**  
 Visited a Chinese **orphanage** to help someone  
-they were clearly **overstretched**   
+they were clearly **overstretched**  
 our **modus operandi** has always been to try, fail, diagnose, redesign, and try again.  
 **uncompromising** standards no matter who was in charge  
 I was able to **step out** of my temporary **stint** as CEO after one year, in April 2017.  
 
-the **sensationalism** of the popular pres
+the **sensationalism** of the popular pres  
 Try to laugh at it instead of getting **uptight**  
 the children were all **agog** to see their presents  
 He was lurking **slyly** in the background  
@@ -104,9 +104,9 @@ Billions of people across the globe had their lives **upended** this week by the
 Platforms like Facebook, Twitter, and Instagram have become **lifelines** for human contact and important **headlines** in the era of #socialdistancing, putting pressure on Big Tech to **clamp down** on misinformation and potentially harmful viral **cure-alls**  
 Apple **trivializes** the concept of ‘work can be fun’.  
 
-## Week 3 
+## Week 3  
 he had a **goatee**  
-they have **ties** with American corporation   
+they have **ties** with American corporation  
 we're living with a **possum**  
 He fastened the dog to the **post** with a **thong**  
 Don't you have a **sprinkling** of common sense?  
@@ -116,25 +116,25 @@ when do I need to use **apostrophe**
 just **gimme** the damn thing  
 **swollen** face/head  
 
-deepen Google’s access to data on consumers, giving the company a **leg up** on rivals   
+deepen Google’s access to data on consumers, giving the company a **leg up** on rivals  
 **squeeze play**  
 
 Overall, the **stripped down** redesign aims to be more customized and simplified, addressing the less intuitive ways the messaging app works for Slack neophytes  
 
-That doesn't **square** with our economy’s structure.   
+That doesn't **square** with our economy’s structure.  
 That’s why everything **hinges** on lawmakers’ response to the economic fallout  
 The question is whether that’ll be enough calories to get us through this self-imposed **hibernation**.  
 **aftermath**  
 Thus far, companies have tried to tiptoe into the coronavirus crisis by **furloughing** and cutting down hours instead of **outright** layoffs  
 the former **Fed** chairs **strung together** highly technical words to say this: All the Fed can do is soften the inevitable **blow**.  
-Still, you couldn't imagine a better customer base for Blue Apron than a country of **hermits**.   
+Still, you couldn't imagine a better customer base for Blue Apron than a country of **hermits**.  
 **Egg on our face**  
 
 You gave **tweezers** to a mental patient?  
-One notorious gang leader is feeling pretty **smug**   
+One notorious gang leader is feeling pretty **smug**  
 
-> Kickstart your day by doing something that makes you feel accomplished
-> After your work day, you’ll need a routine to replace your commute
+> Kickstart your day by doing something that makes you feel accomplished  
+> After your work day, you’ll need a routine to replace your commute  
 
 **haggle with**  
 **bloodshot** eyes  
@@ -152,20 +152,20 @@ On Monday, the company said it is looking to hire a **mind-boggling** 100,000 wa
 
 Dow **plummets** nearly 3000 points as coronavirus anguish on Wall Street wages on  
 
-During World War II, Chrysler and GM began making **fuselages**, airplane engines, and tanks. Today, companies are also ditching their day-to-day to serve the greater need.
-The U.K. is talking to **Rolls-Royce**, manufacturer JCB, and other firms to help make **ventilators**.   
+During World War II, Chrysler and GM began making **fuselages**, airplane engines, and tanks. Today, companies are also ditching their day-to-day to serve the greater need.  
+The U.K. is talking to **Rolls-Royce**, manufacturer JCB, and other firms to help make **ventilators**.  
 Consumer goods companies are shifting priorities in order to keep stores stocked with **essential** items. They'll stop making nice-but-not-necessary goods, like **scented** bleach, and **crank out** the highest-priority items, like **food staples**.  
-The government is also **calling on** us, everyday citizens, to make extraordinary sacrifices.   
+The government is also **calling on** us, everyday citizens, to make extraordinary sacrifices.  
 no **trivia nights**  
 The "**epicenter**" of the pandemic has now shifted to Europe, the WHO said Friday.  
 One writer compared the hushed atmosphere in the north to a post-**apocalyptic** film. Yesterday, the country reported its largest one-day death count from the virus.  
 "I think Americans should be prepared that they are going to have to **hunker down** significantly more than we as a country are doing," he said.  
 Our routines may be a little **out of whack**, but at least the Earth still revolves around the Sun. This week, winter ends and spring begins.  
-**Scandinavian** airline SAS has mostly suspended its operations due to "essentially non-existent" air travel demand.   
+**Scandinavian** airline SAS has mostly suspended its operations due to "essentially non-existent" air travel demand.  
 
-## Week 2 
+## Week 2  
 
-For humans to understand bird sex, they must first throw out all thoughts of **mammalian** sex organs
+For humans to understand bird sex, they must first throw out all thoughts of **mammalian** sex organs  
 This same opening also serves a less-sexy purpose: the **expulsion** of **urinary** and digestive waste  
 When birds are feeling **frisky**, they rub their swollen **cloacas** together  
 This delicate **balancing act** can often take several attempts before resulting in successful **copulation**  
@@ -180,7 +180,7 @@ This is a **one-two punch**
 **fold back** into the flock  
 it's time to **coalesce** and they would join a **coalition**  
 
-These exposures are based on many **imprudent** sometimes nonsensical strategies.   
+These exposures are based on many **imprudent** sometimes nonsensical strategies.  
 which had failed to either **signal** or **avert** the crisis  
 Most of our exchanges were **one-sided**;  
 put real money **at stake** with their bets  
@@ -225,17 +225,17 @@ he **bid** $5 for an old book
 > rights are inseparable with duties  
 
 It's tiring and **mindless** work  
-**Hence**, she was known as a **seeress** and **prophetess** 
+**Hence**, she was known as a **seeress** and **prophetess**  
 she always makes some **theatrical** gesture  
 
 
-Russia just basically take a **kill shot** at US producers   
+Russia just basically take a **kill shot** at US producers  
 Russia's estimate **breakeven** price is around $45  
 This could be a straight-up **bloodbath** in the oil space  
 to **kickstart** a **feedback loop** of liquidation  
 most people are just gonna sitting on the **sidelines**  
 
-Little **squiggly** 
+Little **squiggly**  
 The Amish known for their **horse-and-buggy** way of life may seem like they would be overwhelmed by the rushing changes in technology and culture  
 
 Working-class whites rang the **death knell** for the Vermont senator’s campaign  
@@ -246,11 +246,11 @@ if America ever got a president with bunch of **lackeys** in Congress
 These insects could **decimate** the region's food supply, and it's concerned it could become a full-blown **plague**  
 people bang utensils to try and **ward off** an increasing **menace** to their living livelihood, all to **no avail**  
 A **voracious** appetite mean these locusts eat the equivalent of their own body weight in a single day  
-Beans, **maize**, pasture for animals, nothing stands a chance   
+Beans, **maize**, pasture for animals, nothing stands a chance  
 
 **acid test**  
 
-**home stretch**   
+**home stretch**  
 Rule number 1, no **blasphemy**  
 Don't you listen to these **nitwits**, you here me?  
 Call the **trustees**. Take that **tub of shit** down to the **infirmary**.  
@@ -259,11 +259,11 @@ Holy shit! That's like winning the **sweepstakes**, isn't it?
 **Take a big, wet bite outta** my ass is what.  
 I think a man working **outdoors** feels more like a man if he can have a bottle of **suds**. That's only my opinion...Sir  
 They have to **pry** the victim's jaws open with a **crowbar**  
-horse shit, **petrified**. 
+horse shit, **petrified**.  
 Tossing cells was just an excuse, truth is, Norton wanted to **size Andy up**.  
 
 
-## Week 1
+## Week 1  
 
 The **decoy effect** is defined as the phenomenon whereby add new  consumers change their preference between two options when presented with a third option – the “decoy” – that is “**asymmetrically dominated**”  
 
@@ -302,7 +302,7 @@ So you got **beat up** by a girl?
 **behind the back** **disparagement**  
 the **jet engine** culture for meeting adaptive challenges when most organizations are still flying a **prop plane**  
 Bridgewater **destigmatizes**(and even celebrate) making mistake  
-**confirmity** and **originality**   
+**confirmity** and **originality**  
 no one else had **discerned**  
 **seniority**  
 A **crusader** helping those who struggle with **bipolar disorder**  
@@ -316,7 +316,7 @@ some departments had become **overstretched** as we grew
 **time and motion study**  
 most of those areas couldn't **adequately** be delegated  
 the **blowup** of Long-Term Capital Management in 1998  
-what I was presenting seemed too **far-fetched** to them, especially when by all **outward** indicates the economy seemed to be **booming**
+what I was presenting seemed too **far-fetched** to them, especially when by all **outward** indicates the economy seemed to be **booming**  
 we couldn't find anyone who could **refute** our views  
 As in 1982, when conditions **deteriorated** and circumstances increasingly **transpired** as we'd predicated  
 We walked him through the numbers and he literally **turned white**  
@@ -326,23 +326,23 @@ pop has to run, he has to change the direction and bring people together, and st
 **Scotch Tape**  
 
 The idea of “**eliminating toil**” - or minimizing day-to-day **drudgery** - became a big part of the DevOps philosophy  
-They have over 1000 employees and **spun off** from their parent company in 2018
-they preferred their DevOps engineers to have **familiarity** with **off-the-shelf** tools 
+They have over 1000 employees and **spun off** from their parent company in 2018  
+they preferred their DevOps engineers to have **familiarity** with **off-the-shelf** tools  
 
 The battle **rages on**  
-return to **normalcy**   
+return to **normalcy**  
 
 3M Company MMM seems to have lost its **sheen**, thanks to increasing costs and tax rates  
 White House **concedes** US lacks enough test kits  
 
-IATA Chief Economist Brian Pearce said that because many airlines are loaded up with debt and barely **eke out** profits as it is, they’re not exactly in **fighting shape**.    
+IATA Chief Economist Brian Pearce said that because many airlines are loaded up with debt and barely **eke out** profits as it is, they’re not exactly in **fighting shape**.  
 
 U.N. officials say the current **locust** **infestation** is the worst they've seen in 25 years.  
 FAO and U.N. Secretary-General António Guterres have pointed to climate change as an **underpinning** factor in the locust **outbreak**.  
 A **harsh** **dry spell** in the region was interrupted by two powerful **cyclones** toward the end of last year  
 The suddenly **soaked** conditions proved ideal for the breeding and growth of desert **locust swarms**.  
 
-**shed pounds**   
+**shed pounds**  
 For some practical tips on how to get more **shut-eye**  
 To understand sleep-tracking data, I **delved** into how sleep works  
 
@@ -354,14 +354,14 @@ To understand sleep-tracking data, I **delved** into how sleep works
 It is primarily targeted at power users, developers and any people dealing with every day computing tasks and who want to have **fine-grained** control on their graphical environment  
 
 In addition, we were able to leverage **state-of-the-art** technology that we've developed over the **intervening** years  
-Did the speaker talk clearly and **audibly**?
+Did the speaker talk clearly and **audibly**?  
 
 **ingrown** **toenails**  
 **Zeitgeist**  
 that’s a shame, because no one better **epitomizes** the intense **financialization** of the American stock market from 2001 – 2007 than Angelo  
 walk away **scot-free** from ALL criminal prosecution is something I will NEVER forgive Eric Holder and Barack Obama for  
 who also **skated** from any criminal OR civil prosecution  
-This is a note about Countrywide’s quarterly earnings call in 2008, when Angelo, in response to an analyst’s question, said that sharply increasing mortgage **delinquencies** and failures were NOT limited to sub-prime, but were now in Alt-A mortgages, too.
+This is a note about Countrywide’s quarterly earnings call in 2008, when Angelo, in response to an analyst’s question, said that sharply increasing mortgage **delinquencies** and failures were NOT limited to sub-prime, but were now in Alt-A mortgages, too.  
 You could almost feel the **thermonuclear** energy coming off that call and spreading throughout the professional investment community  
 I'm an actor, and any actor **worth his salt** can cry **on cue**  
 No professional investor **worth his or her salt** trusted a single word they heard in the following months from Merrill and Bear and Goldman and Citi about the marks they had on their RMBS assets  

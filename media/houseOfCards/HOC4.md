@@ -1,10 +1,10 @@
 
 
 Slow down, **slugger**. I'm still trying to get **acquainted** here.  
-You saw my little **outburst**. - I enjoyed it.    
+You saw my little **outburst**. - I enjoyed it.  
 Let her at least looks like the president. I'll **scuttle** thee nomination if it comes to that later.  
 My brother George, **incurious** George.  
-But George, he got all **high-minded** about it. Thought we were bending too many laws.   
+But George, he got all **high-minded** about it. Thought we were bending too many laws.  
 Well, the last time I saw Cathy, she looked **at death's door**.  
 It's an **embolism**, they're saying, connected to her fall.  
 
@@ -22,19 +22,19 @@ Klein would be the strongest **bulwark** against calls for your impeachment.
 
 Whatever the Herald has is **circumstantial**.  
 
-## E 11 
+## E 11  
 
-> **Censure**: Less severe than **expulsion**, a censure (sometimes referred to as condemnation or denouncement) does not remove a senator from office. It is a formal statement of disapproval, however, that can have a powerful psychological effect on a member and his/her relationships in the Senate.
+> **Censure**: Less severe than **expulsion**, a censure (sometimes referred to as condemnation or denouncement) does not remove a senator from office. It is a formal statement of disapproval, however, that can have a powerful psychological effect on a member and his/her relationships in the Senate.  
 
 He went back on his deal because he's as **pliable** as his testimony.  
 Can you **for once** just take something **at face value** instead of fighting for it?  
 **As if** I can be washed clean of past sins.  
 We're in **damage control**.  
-What **gets you off**, Doug? Anything?   
+What **gets you off**, Doug? Anything?  
 That's why you're here to give me the **cold, hard** facts.  
 
 
-## E 10 
+## E 10  
 
 Romero was **privy to** information. Someone from within the party.  
 that's **conditional on** the president doing the right thing.  
@@ -42,16 +42,16 @@ Walker gonna plead the faith, Romero won't **rock the boat**.
 People who have been with you through **thick and thin**, who you thought would never fail you, they fail you.  
 
 
-## E 9 
+## E 9  
 
 He seems **on edge**.  
 There is **a bite to your tongue** that we might need to discuss.  
 She is a **loose end** and an addict. That's a bad combination.  
-**Draw it out**. Keep the committee going, but at a **slow burn**.   
-He is **tenacious**, he reminds me of you. 
+**Draw it out**. Keep the committee going, but at a **slow burn**.  
+He is **tenacious**, he reminds me of you.  
 
 
-## E 8 
+## E 8  
 
 Thanks you for your **unending** and **unwavering** support. Your steady hand kept this country running this past month.  
 Take a breath, Doug. We've only just **landed on our feet** here.  
@@ -62,13 +62,13 @@ The way you say that sounds so... **rote**.
 Alex **feeds off** **retribution**.  
 There is no **neutrality**, I expect total loyalty, or you are an enemy.  
 
-## E 6 
+## E 6  
 
 The silence is **deafening**.  
 After such a **protracted**, confusing, frankly, chaotic election, we deserve clarify.  
 This was nothing more or less than a **attempted coup**, **plain and simple**.  
 
-## E 4, E 5
+## E 4, E 5  
 **flipism**, flip a coin.  
 **worked up**.  
 
@@ -89,7 +89,7 @@ People **girding** themselves for a tragedy.
 Oh, I **got under your skin** the first time we met.  
 
 
-## E 11 
+## E 11  
 Planes take a **toll**. We are concerned a sudden organ rejection.  
 If we stay here, Conway **prances** around the country, playing his fighter-pilot image.  
 I know Edward Meechum **doctored** travel records, and I know you were there for all of it.  
@@ -102,12 +102,12 @@ You see, laughter is good for the pain, even better than this **morphine**.
 You pretended to try. Clare's support didn't just happen on its own, and you had the **gall** to take my hand, look me in the eye and lie to my face.  
 I will tell them that Conway is right and Brockhart is right, and that you completely **bungled** the ICO situation, how do you think Dunbar will do then?  
 **cobb salad**  
-It's a **crapshoot** whether I can win this, he can probably **fight that off**.   
+It's a **crapshoot** whether I can win this, he can probably **fight that off**.  
 There won't be a **dry eye** in Atlanta or across the rest of the country.  
 Loss makes us reevaluate what we **hold dear**.  
 
 
-## E9 
+## E9  
 The whole thing is **theatric**.  
 It's humid as hell, though. I just got here and I'm already **soaked**.  
 It's **muggier** than a street **hooker**'s **twat**.  

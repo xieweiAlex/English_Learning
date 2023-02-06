@@ -1,12 +1,12 @@
-## Week 5
+## Week 5  
 
 I could previously type around 80 to 100 WPM—not too **shabby**, but nothing amazing.  
 
-**snug** 
-**cheetah**
+**snug**  
+**cheetah**  
 **illegible**  
 Ikea is an **old hand** at **herding** customers through a **labyrinthine** store layout.  
-The wheels sank deeper into the **mire**. -
+The wheels sank deeper into the **mire**. -  
 **bog down**  
 
 That people are **contextualizing** you as an Oscar contender.  
@@ -63,7 +63,7 @@ After much legal **disputation** our right to resign was established.
 In the **sweltering** haze of summer-noon.  
 My darling gone for **evermore**!  
 **Parliament** can make and **unmake** any law whatever.  
-edible **fungus**
+edible **fungus**  
 **fungal** infection, **fungi**  
 **romp**  
 The U. S. A. has **assimilated** people from many European countries.  
@@ -74,7 +74,7 @@ Billy started to **snivel**. His mother smacked his hand.
 **follow suit**  
 a child in **tutelage**  
 
-a **buttload** of money 
+a **buttload** of money  
 In fact, I hear she's a real **ballbuster**.  
 
 jade **bracelet**  
@@ -83,24 +83,24 @@ Her speech was memorable for its **polemic** rather than its substance.
 **reparation**  
 They questioned the **veracity** of her story.  
 He was not a **prepossessing** in first sight.  
-**effeminate** behavior    
+**effeminate** behavior  
 **arthritis**  
 
 He is a big, **ham-handed** man who used to be a football player.  
 **corridor**  
 He was seen **canoodling** with his new girlfriend.  
 
-**woosh** 
+**woosh**  
 planned **obsolescence**  
- 
-There's too much crime and **gratuitous** violence on TV.
+
+There's too much crime and **gratuitous** violence on TV.  
 
 The draw for the **raffle** takes place on Saturday.  
 The key is to not let it **debilitate** you.  
 Your look fills beautifully, carries off my **palpitation**.  
 He wanted his sons to become strong, **virile**, and athletic like himself.  
 
-## Week 4
+## Week 4  
 
 Dee talked **incessantly** about herself.  
 **alimony**  
@@ -108,7 +108,7 @@ Dee talked **incessantly** about herself.
 He tried hard to **vindicate** his honor.  
 
 If Antiwork sounds a little…**absolute**, that’s by design.  
-the subreddit seeks to not only improve working conditions for employees **beleaguered** by the pandemic, but also to move toward the dissolution of work altogether.   
+the subreddit seeks to not only improve working conditions for employees **beleaguered** by the pandemic, but also to move toward the dissolution of work altogether.  
 The rapid growth of Antiwork and the **onset** of the Great Resignation highlight how Covid exacerbated **long-held** frustrations with work.  
 
 She gave him her best **winsome** smile.  
@@ -140,7 +140,7 @@ When the **verdict** came, it surprised people on both sides of the debate. A gr
 Satellite view: Russia **crowds** Ukraine.  
 Pics **du jour**: Bidens visit hospitalized kids.  
 The high cost of food is the topic **du jour**.  
-**de jure**   
+**de jure**  
 
 You **tramp**  
 Web3 fans and venture investors return fire after Jack Dorsey’s **disparaging** tweet.  
@@ -184,7 +184,7 @@ I'll have a vodka and **lime**.
 In men, **cholesterol** levels generally **level off** after age 50.  
 **dilapidate**  
 
-## Week 3 
+## Week 3  
 
 It involves a **neuroendocrine** effect and triggers our **fight-or-flight** response, causing hormones like **cortisol** to increase, shortly before we shift to a relaxation response.  
 
@@ -227,12 +227,12 @@ I have a **prodigious** amount of work to do before I leave.
 The typical 007 movie has two Bond girls: the girl friend and the **temptress**.  
 **noah**  
 **monomania**  
-**halfhearted** 
+**halfhearted**  
 
 I **commiserate** with you on the loss of your mother.  
 You'd better **commiserate** John on his recent misfortunes.  
 He **delights in** making **caustic** remarks.  
-Some chemicals are **caustic** by nature.   
+Some chemicals are **caustic** by nature.  
 **Nix** the anonymous letter; anyone would **crumble** under the weight of that humiliation.  
 
 they **lambasted** the report as a gross distortion of the truth.  
@@ -276,9 +276,9 @@ She tried to **lighten up** her speech with a few jokes.
 
 Far from being a dreamer, she's a **level-headed** **pragmatist**.  
 
-## Week 2 
+## Week 2  
 
-I'm not gonna let you **glom onto** my new hit show!
+I'm not gonna let you **glom onto** my new hit show!  
 
 He tried to **profiteer** from this dirty deal.  
 I've always known you were weird, but **this takes the cake**.  
@@ -291,14 +291,14 @@ Snails and octopuses are **molluscs**.
 
 This certified **chiller** asked fans to suggest 100 activities for him to do in space, which he intends to document and upload to YouTube.  
 China’s policymakers are **renowned** for stimulating growth when it **flags**.  
-This upstream price pressure has not yet generated much retail inflation, due to the **countervailing** effect of falling pork prices.   
+This upstream price pressure has not yet generated much retail inflation, due to the **countervailing** effect of falling pork prices.  
 Figures released on Thursday **allayed** those worries **somewhat**.  
 These are **laudable** goals. But authoritarian governments, such as Congo’s, countries with **rampant** corruption (Brazil) and human-rights abusers (Pakistan) have all been invited.  
 questions have been raised about America’s moral authority to host such an event after years of its own democratic **backsliding**.  
 
-**get out of hand** 
+**get out of hand**  
 **back down**  
-**barter** trade 
+**barter** trade  
 He **pilfer** from a cash register.  
 You don't have to call the **midwife** as soon as labour starts.  
 I just couldn't **wrap my head around it**.  
@@ -337,7 +337,7 @@ Our **overriding** concern is the **eradication** of **illiteracy**.
 My **overriding** objective is to help understanding.  
 **scrimp**: subsist on a **meager** **allowance**.  
 
-## Week 1 
+## Week 1  
 
 hair **follicle**  
 For years this **anomalous** behaviour has **baffled** scientists.  
@@ -385,7 +385,7 @@ Many of its practices seem **anachronistic**.
 It sort of resembled a **savanna** but without grass.  
 until the rooster **crow**.  
 
-She made an **impassioned** plea for help.   
+She made an **impassioned** plea for help.  
 the company has failed to impress investors despite **enduring** growth.  
 
 Not only are technologies advancing at **breakneck** speed, but they’re doing so at an exponential rate.  

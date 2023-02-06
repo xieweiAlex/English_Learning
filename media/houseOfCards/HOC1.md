@@ -4,7 +4,7 @@
 if he does, I've got a **fighting chance**.  
 there is no files, no **mug shot**, nothing.  
 This town is way too **incestuous**.  
-If you're serious about Tusk, you should **wine and dine** him. Make him feel very special.   
+If you're serious about Tusk, you should **wine and dine** him. Make him feel very special.  
 Of all the things I **hold in high regard**, rules are not in one of them.  
 **briefing**  
 I thought Remy **filled you in**.  
@@ -29,7 +29,7 @@ My father believes that success is **a mixture of preparation and luck**.
 We do like to run a **tight ship**  
 
 
-## E 12 
+## E 12  
 Should I prepared to press? - If he's **amenable**.  
 He wants to **tap** Raymond Tusk.  
 He'll **alienate** half the country.  
@@ -41,11 +41,11 @@ The assumption is you **strong-armed** him into closing the shipyard.
 **free-for-all**  
 She **blindsided** me, now she knows my eyes are **wide open**.  
 **hang in there**, Okay?  
-I have a **distaste** for **hypotheticals** as just you have a distaste for speculation   
+I have a **distaste** for **hypotheticals** as just you have a distaste for speculation  
 I don't **shackle** myself to people I don't know.  
 World Well isn't your **vassal**. - Yes, it is, entirely.  
 
-## E 11 
+## E 11  
 Has he been **bad-mouthing** about me?  
 Garret would never **go along** with something like this, even if he **hates my guts**.  
 I think he'd take it as an **affront**, like I'm trying to get rid of him.  
@@ -59,7 +59,7 @@ Then Linda **laid out** all the pros, and they clearly **outweighed** the **cons
 I hoped he wouldn't think I was **off my rocker**.  
 
 
-## E 10 
+## E 10  
 I made a **judgement call** that we could pass the bill without her help.  
 The two **renegades** who voted against the bill.  
 they will soon **indelibly** learn.  
@@ -73,7 +73,7 @@ When we started lobbying for the **meatpacking** industry.
 we can do this **off the books**  
 I think he's **glorified** **gofer**  
 a friend **set me up** with him  
-> I hate being kept in the dark. Waiting, speculating. 
+> I hate being kept in the dark. Waiting, speculating.  
 
 That's the last of it. - Better **make it count**, then.  
 You're **slurring** your words.  
@@ -81,7 +81,7 @@ I'm asking you a question, and it may **come across, as** **indelicate**, but ar
 Ruben was just **ecstatic**  
 
 
-## E 9 
+## E 9  
 **talking points**  
 Does Peter Russo honestly have the **gall** to lecture us on the purity of our rivers.  
 they **stonewalled** me  
@@ -100,7 +100,7 @@ It's better than him **torpedoing** the whole bus tour.
 Jim is a proud man, **tap into** that pride.  
 He **propositioned** you?  
 I think you don't want to go **hat in hand** to somebody who **used to** work for you.  
-that sounds you're both **leaning to NO** 
+that sounds you're both **leaning to NO**  
 we **have been very clear about** what we're asking.  
 let them **toss and turn** tonight.  
 It's **antagonizing** oil and gas  
@@ -118,7 +118,7 @@ You're **expecting**.
 But I've never considered this **any more or less than** a transaction between two **consenting** adults.  
 I think it's **over the hump**  
 
-## E 8 
+## E 8  
 you want me to be your **lapdog**, after I lost my fucking job?  
 **moral support**  
 They're going to **lay into** me **big time**.  
@@ -126,7 +126,7 @@ I saw you **cuss out** the **drill** **sergeant** when we were **knobs**.
 The library is a **sham**.  
 Most of you **cadets** probably don't know who I am.  
 
-## E 7 
+## E 7  
 an endorsement from you, would be a big **coup** for him.  
 I feel the same way about **condescension**.  
 You're just afraid I'm gonna **stand you up** again.  
@@ -139,26 +139,26 @@ My children **stay out of** the **limelight**.
 we have to be **discreet**  
 He'll **keep his nose out of it**.  
 You don't have to **mince words**  
-this is not a **Hail Mary**, Mr. President. This is a **well-thought-out** game plan.   
+this is not a **Hail Mary**, Mr. President. This is a **well-thought-out** game plan.  
 You want me to **pull up** now, sir?  
 
 ## E 6  
 So you've been wrong twice about this. Why should I believe you're right about **holding out**?  
 If I **water down** the bill, the president will still see me as a failure.  
 I can't **abide** falling back to **square one**  
-Come on, Slugline is just another **stepping stone** for you   
+Come on, Slugline is just another **stepping stone** for you  
 What's better than a **blank slate** in the right hands?  
 It's mostly **broad strokes**, but we can **hone** it.  
 the fist thing we need to address, is your **sobriety**  
-they will **chalk it up** as a **colossal** defeat   
+they will **chalk it up** as a **colossal** defeat  
 You let this situation **devolve** to where it is.  
-**Gut** the bill 
+**Gut** the bill  
 > Sometimes the only way to gain your superior's respect, is to **defy** him.  
 
 This thing is **up to fate**  
 
 
-## E 5 
+## E 5  
 Is it my job to **pander** to all my employees?  
 If we do this event, the whole staff **walks out**  
 I need your **manpower**  
@@ -185,7 +185,7 @@ If there had been a **party revolt**, I would've known about it
 We'll **cleave** you from the **herd**, and watch you die in the **wilderness**  
 you sound **tipsy**.  
 
-## E 3 
+## E 3  
 I have to get up to the negotiation table because some **two-bit** county administrator wants to ...  
 This is **cut and dry**, Frank.  
 Frank, I know you want to **swoop down** and **save the day**, but there's principle **at stake** here.  
@@ -203,9 +203,9 @@ Not just an Asian girl, a **valedictorian**
 
 ## E 2  
 Clares makes a **cold-blooded** move at work.  
-It's **degrading**, I know 
+It's **degrading**, I know  
 when the **tit**'s that big, everybody **gets in line**  
-You're well aware that I do not **drop the ball** on things like this   
+You're well aware that I do not **drop the ball** on things like this  
 check out the **masterhead**  
 I think you're **dismantling** what we've built over the ten years.  
 I'm **up to here** with them, Donald, for lying, for turning their back on you.  
@@ -214,12 +214,12 @@ You're **formidable**, Frank, people respect you.
 Let me be **sidelines** for this.  
 How very **deep throat** of you.  
 **editorial**  
-**out of shape** 
+**out of shape**  
 both **passive-aggressive** and **condescending**  
 It's golden, it's in **bull's eye**  
 have it **steam cleaned** **over the weekend**.  
-  
-## E 1 
+
+## E 1  
 I'm **awfully** sorry  
 It's a **chicken-shit** move  
 **hubris**, ambition --- I'm **livid**  

@@ -1,18 +1,18 @@
-## E 5 
+## E 5  
 If you lose to that, Richard, **look inward**.  
 The **manure** analogy  
 The sheer **banality** of it all is very upsetting.  
 I'm not a **vain** person  
 **bonus room**  
 You **marched me out** of the Hooli offices yourself and now you come **groveling** to me for assistance?  
-Purchase for Gavin a **quart** of **mint chocolate chip** ice cream
+Purchase for Gavin a **quart** of **mint chocolate chip** ice cream  
 They said it would make Jared seem a little more **officious**.  
 I'll be out here in the **bullpen**, in the old **gravel pit**.  
-It's just a light **saline** injection, 
+It's just a light **saline** injection,  
 
 
 ## E 4  
-  
+
 I just want to make sure we're **jibing** with your vision.  
 You cow-handed **poltroon**!  
 **Nail gun** discharges  
@@ -31,8 +31,8 @@ So Jian-Yang's whole **gambit** was for naught.
 No matter how **repugnant** their views are.  
 **do-over** that whole speech, fuck that guy.  
 **BRB**  
-  
-  
+
+
 ## E 3  
 you're **kindred spirit**, you have lots **in common**  
 that's so **gracious** of you, that would be **delight**  
@@ -56,7 +56,7 @@ I just didn’t feel like getting **reprimanded**.
 then you just have to **catch up** **on the fly** then.  
 which is **tantamount** to illegal **wiretapping**.  
 I'm so sorry if I **overstepped** my **bounds**.  
-  
+
 ## E 2  
 Richard just **obliterated** Pied Piper's **runway** hiring all those coders?  
 I was rewarded **primo** spot  
@@ -70,7 +70,7 @@ The fucking balls on this **egomaniac**.
 I'm hearing Pied-Piper is in a **free-fall**  
 Hoover, you're **implicating** me  
 I might be **twitchy**, I might **defecate** in my pants, and I might throw myself through a window  
-  
+
 ## E 1  
 it's hard to believe your **pathological** inability to make a decision finally **paid off**.  
 this is a fucking **black site**  
@@ -86,4 +86,4 @@ if Jack Barker's **insidious** box is allowed to go to market, we may all lose o
 We can not sacrifice our long-term **well-being** in the interest of **paltry**, **short-term** profits.  
 you threw a **full-on** **tantrum**  
 you can't sell your pizzas for nine bucks a **pop** without **taking a bath**, can you?  
-  
+

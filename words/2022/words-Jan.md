@@ -1,8 +1,8 @@
-## Week 4 
+## Week 4  
 
 **Effeminate** behaviour.  
 
-He didn't get married until he was **well into** his forties. 
+He didn't get married until he was **well into** his forties.  
 
 As the stock-trading screens turned red, one trader was heard to **quip** that at least some things are falling in price.  
 The result is 7% inflation that is **sapping** Americans' confidence and Biden’s popularity.  
@@ -15,7 +15,7 @@ It's **alimony** I got from my husband.
 His lies made her **bristle with rage**.  
 The brush is made of animal **bristles**.  
 Her face showed her **dejection** at missing the party.  
-Everyone has days when they feel **dejected** or down
+Everyone has days when they feel **dejected** or down  
 He seemed a bit **subdued** to me.  
 The lighting was **subdued**.  
 
@@ -23,7 +23,7 @@ The lighting was **subdued**.
 Real estate is one way to make potentially **ephemeral** wealth feel more comparable to other kinds.  
 It is **reductive** to think of Russia as a **petrostate**, but if you do **indulge in** that simplification you must recognize that it is a strategic petrostate more like UAE or Saudi than an Iraq, or **Algeria**.  
 But, in the end, as I **conceded** a year ago, not talking about this **morbid** symptom feels like a **cop out**. So, periodically, you have to.  
-(You're not going to **cop out** at the last minute, are you?) 
+(You're not going to **cop out** at the last minute, are you?)  
 
 
 He caught them **in the sack** together.  
@@ -31,14 +31,14 @@ Is it a **bona fide**, reputable organization?
 I do not **shirk** any responsibility in this matter.  
 Civilian trap in the **beleaguer** city has been **airlifted** to safety.  
 
-I gave up my job because I felt I was stuck **in a rut**.   
+I gave up my job because I felt I was stuck **in a rut**.  
 During the **rutting season** the big boars have the most terrible mating battles.  
 
-Facebook's (FB) grand plan to bring cryptocurrency, or more specifically stablecoins, to the social network's billions of users has reportedly **gone up in smoke**.   
+Facebook's (FB) grand plan to bring cryptocurrency, or more specifically stablecoins, to the social network's billions of users has reportedly **gone up in smoke**.  
 That has helped drive many of the explosive valuations we see today, however, the prospect of higher interest rates is starting to **weigh on** the sentiment.  
 Love this guy, he's honest, straight **to the point**. He doesn't present any bull sh*t.  
 
-**plyos**, **Plyometric** Training 
+**plyos**, **Plyometric** Training  
 
 That young boy of hers is **quite a handful**.  
 your **regnal** name.  
@@ -52,11 +52,11 @@ Targeted violence such as workplace violence isn’t necessarily a **spur-of-the
 Vocalizes a **grievance** toward someone else.  
 Peter is going through a challenging divorce, and his behavior at work has been **erratic** day to day.  
 
-Your sense of urgency and **poise** under pressure is supremely appreciated!
+Your sense of urgency and **poise** under pressure is supremely appreciated!  
 The enemy was put to **rout** all along the line.  
 
 He knows his predictions are **fodder** for skeptics. One obvious question: How could the S&P 500 advance 26.9% in 2021 -- its seventh-best performance in 50 years -- if stocks were poised to plummet?  
-Everything has consequences and the consequences this time may or may not include some **intractable**.   
+Everything has consequences and the consequences this time may or may not include some **intractable**.  
 
 They accused her of an **incestuous** relationship with her father.  
 a **truculent** speech against the new government.  
@@ -83,7 +83,7 @@ That **stems from** the fact that they tend to have high price-to-earnings ratio
 Slogans **petrify** our thinking.  
 **dyspeptic** symptom, dyspeptic vomiting.  
 
-## Week 3
+## Week 3  
 
 **gab** about DFW migration.  
 His book destroyed the **mystique** of monarchy.  
@@ -102,7 +102,7 @@ He takes **umbrage** against anyone who criticizes him.
 **unpalatable** but wholesome advice.  
 
 Kevin **capitulated**.  
-Its new deal to buy Activision Blizzard may **garner** it fresh scrutiny from regulators.
+Its new deal to buy Activision Blizzard may **garner** it fresh scrutiny from regulators.  
 **knapsack** problem  
 She's proud and stubborn, you know, under that **pliant** exterior.  
 As the wedding approached, the whole family went into **overdrive**.  
@@ -118,17 +118,17 @@ the broadest and most extreme” bubble ever in global real estate and an “**i
 Grantham is a **dyed-in-the-wool** value manager who’s been investing for 50 years and calling bubbles for almost as long.  
 
 She **importune** her husband for more money.  
-My room looks very **untidy**.   
+My room looks very **untidy**.  
 
 The role of **subservient** woman seems to be tied exclusively to Asians, and their “exotic” status tends to turn them into hyper-sexualized beings among other ethnicities.  
-energy **undulation**, **tidal** **undulation**.   
+energy **undulation**, **tidal** **undulation**.  
 even if it means I have to **cave in**.  
 I dislike **tardiness**.  
 
 Kate's new boyfriend is a very **couth** youth.  
 **porcelain** enamel  
 
-Would you **put away** your toys?   
+Would you **put away** your toys?  
 **erroneous**  
 Weather: Rain likely and **patchy fog**.  
 COVID pressures pushed the **underfunded** agency **over the edge**. "We’re running out of steam," the revenue agent said.  
@@ -166,7 +166,7 @@ That’s the secret sauce of **worthwhile** change. So, let’s stay **resolute*
 He became an **unwitting** **accomplice** in the crime.  
 
 An underwater volcano erupted in the Pacific Ocean on Saturday, raining ash on the nearby nation of Tonga and prompting tsunami **advisories** from Japan to California.  
-Malls and **big-box** stores have **proliferated**, while many older urban shopping districts have declined.   
+Malls and **big-box** stores have **proliferated**, while many older urban shopping districts have declined.  
 **Vectors of human diseases**.  
 My new roommate is **bending over backwards** to **ingratiate himself to me**.  
 **let the chips fall where they may**.  
@@ -180,11 +180,11 @@ Donald Trump is trashing Ron DeSantis in private as an **ingrate**.
 The two are among the most popular Republicans in the country, and as the former president eyes another run in 2024, he's **irked** by DeSantis' popularity and refusal to **rule out** running against him.  
 "He says DeSantis has no personal **charisma** and has a **dull personality**," the source added.  
 
-## Week 2 
+## Week 2  
 
 Tcoalescehe coach **admonished** the girls for being lazy.  
 Schools' COVID **synagogue** safe after 11-hour standoff.  
-**forsake**   
+**forsake**  
 She **forsook** the glamour of the city and went to live in the wilds of Scotland.  
 She got **huffy** and left, then Wil and I headed out to dinner.  
 
@@ -199,7 +199,7 @@ The **drumbeat** of war is sounding loud and the rhetoric has gotten rather **sh
 I'm not going to **opine on** who's right or who's wrong on this one.  
 
 Biden **boxed in** on Ukraine.  
-This book is a **prequel** of sorts talking about what kept other parts of Asia so poor.   
+This book is a **prequel** of sorts talking about what kept other parts of Asia so poor.  
 Russia has been **amassing** troops on the Ukrainian border for months, and talks aimed at **staving off** an invasion failed last week.  
 The U.S. claims to have intelligence indicating that Russia is sending **saboteurs** to eastern Ukraine for a potential "false flag" operation that would give Moscow a **pretext** to invade — likely within weeks.  
 Throat **swabs** will be required daily. In Tokyo, participants spit into **vials** for antigen tests.  
@@ -215,16 +215,16 @@ If I accept the job, it will mean **uprooting** my family and moving to Italy.
 The more **taste buds** you have, the more likely you are to **detest** **hoppy** beers.  
 
 **intestinal** tract  
-**intestine** 
+**intestine**  
 He **beguiled** me into signing this contract.  
 **fitful** bursts of energy.  
 a few hours' **fitful** sleep.  
 financial **tsunami**  
 
-Google is **shelling out** $1B to acquire the rest of London's colorful Central Saint Giles building, where it already occupies a number of floors.   
+Google is **shelling out** $1B to acquire the rest of London's colorful Central Saint Giles building, where it already occupies a number of floors.  
 
 **well-intentioned**.  
-She **put away** the clothes. 
+She **put away** the clothes.  
 Those are very **cogent** and reasonable conditions.  
 The U.S. and NATO view that as a complete non-**starter**.  
 Young children have difficulty **grasping** the finality of death.  
@@ -233,7 +233,7 @@ That Djokovic was allowed to play in the first place was greeted with a **torren
 You're gonna **rat me out** to Howard, aren't you?  
 
 
-## Week 1 
+## Week 1  
 
 The **relics** were objects of **veneration**.  
 **altar**  
@@ -265,7 +265,7 @@ We cannot simply rip and **replace** legacy assets.
 
 The meeting **engendered** several quarrels.  
 Fight against **hypochondria**.  
-They can get **worked up** and irrational sometimes.
+They can get **worked up** and irrational sometimes.  
 He uses **hypnosis** as part of the treatment.  
 
 Harris’ office has been **buffeted** by the departures of her communications director, Ashley Etienne, and press secretary, Symone Sanders, within the first year.  
@@ -297,12 +297,12 @@ What has he done to deserve that **termagant**?
 **cobra**  
 
 
-### Conversations 
+### Conversations  
 
 He wasn't the **brightest** guy.  
 My new roommate is **bending over backwards** to **ingratiate himself to me**.  
 
-As he puts it, omnichannel is the “term **du jour**” right now - but what exactly does it mean?
+As he puts it, omnichannel is the “term **du jour**” right now - but what exactly does it mean?  
 I want that **optionality** and I want it to be easy. I think that's the big thing that we have to really be **maniacally** focused on.  
 The customer doesn't **delineate** store versus online, that's Walmart experience.  
 I know those things gonna be **paramount** for us.  
@@ -316,7 +316,7 @@ don't be **snippy**, I came to see how you're doing.
 
 **Where were we**?  
 when 30 repetitions of these aren't even able to make your arm **quiver** anymore?  
-well, we still stick with the same theme of **tempo** but we move on to a more challenging exercise 
+well, we still stick with the same theme of **tempo** but we move on to a more challenging exercise  
 
 So please try to avoid wasting her time with female **jibber** **jabber**.  
 So many people around the country have **consigned** people's rights to the graveyard.  

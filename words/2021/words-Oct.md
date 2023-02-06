@@ -1,17 +1,17 @@
-## Week 4 
+## Week 4  
 
 **Boundless** **intemperance** in nature is a **tyranny**.  
 Don't **skimp** the butter in making a cake.  
 **makeover**  
 Some say this **state of affairs** just can't last.  
 **llama**  
-She is perceived as **vain**, spoiled, and **promiscuous**. -
+She is perceived as **vain**, spoiled, and **promiscuous**. -  
 Isn't dinner ready? I'm **famished**.  
 
 He was a **vociferous** opponent of Conservatism.  
 **comely**  
 **second thought**  
-**homogenous**, **hemogenize**
+**homogenous**, **hemogenize**  
 
 You **loathsome** pig.You're supposed to be **cheating with** me, not **on** me.  
 **willful**  
@@ -54,7 +54,7 @@ The **ordinary** feelings which make life **amiable** and **indolent**, were unk
 
 He was given only a wooden **pallet** with a blanket.  
 Stories about the shortages **plaguing** American firms can be found throughout the Federal Reserve’s “**Beige Book**”, a survey of economic conditions across the country that is published eight times a year.  
-A protester yelled “nice suit you f*cking shill”, and the **taunt** was met with cheer by his companion.   
+A protester yelled “nice suit you f*cking shill”, and the **taunt** was met with cheer by his companion.  
 
 People today are no **dimmer** than their Iron Age forebears.  
 job openings **outstrip** available workers. This gives confidence to the **strikers**.  
@@ -62,7 +62,7 @@ When unemployment was low and wages were growing fast at the beginning of 2020, 
 And over at the Atlanta Fed, the **wonks** who put together the real-time GDP estimate **reckon** that the economy is slowing at an **alarming** pace.  
 If the economic **trends turn**, that loss would become a **wipeout**.  
 
-## Week 3
+## Week 3  
 
 My boss **told me off** for being late for work.  
 **Can I pick your brain** for a second?  
@@ -118,12 +118,12 @@ He was a **rascal** from his birth.
 
 But it’s not a fully automated process, and that’s where Zillow is **in a pickle**.  
 It’s impolite to **gibe** at a foreign student’s English.  
-**runic** writing   
+**runic** writing  
 Chemistry isn't a **litany** of facts.  
 **oligopoly** market  
 His tone was **curt** and unfriendly.  
 Lack of sleep is a major factor in loss of **libido**.  
-She **powdered** her face and applied her **lipstick** and **rouge**.
+She **powdered** her face and applied her **lipstick** and **rouge**.  
 Someone wants to **flatline** him, huh?  
 I was vaccinated against **tetanus**.  
 Tony is very **cagey** about his family.  
@@ -142,11 +142,11 @@ This may affect your **entitlement** to compensation.
 We are generally very **conscientious** about our work.  
 A speech therapist cured his **stammer**.  
 The nation's **coffers** are empty.  
-**receding** hairline
+**receding** hairline  
 
 People flying into the city from outside the mainland will be **whisked** there directly, instead of to normal hotels, for at least two weeks of **confinement** and frequent testing.  
 For a while, state media suggested that the West’s vaccines were **shoddy**  
-Might economic **malaise** force China’s hand?   
+Might economic **malaise** force China’s hand?  
 The country’s repeated **skirmishes** in recent months with Delta-related outbreaks have prompted sudden and severe lockdowns  
 people stuck at home have been **splurging** on goods such as electronics and exercise gear  
 China makes such things **aplenty**  
@@ -159,9 +159,9 @@ Covid-19 has started down that path and will gradually become **endemic**.
 In that state, circulating and mutating from year to year, the coronavirus will remain a threat to the elderly and **infirm**.  
 **stick your head in the sand**  
 
-## Week 2 
+## Week 2  
 
-**shamless plug**
+**shamless plug**  
 Space **taunts** us because it' always there, it's always visible, it's directly across the cosmic window.  
 **hideous**  
 It’ll be a winter of **discontent**...and skyrocketing gas bills.  
@@ -192,7 +192,7 @@ Like a **sibling** rivalry… except there’s no **relation**.
 He is short-**fused** play-writer.  
 Everyone is talking about housing shortage, why do you think we could end up as a **glut**.  
 **Snarled** supply chains are considered one of the main drivers of higher prices this year.  
-GM won’t have to **cough up** the $1.9B it expected to pay for the recall of its Chevy Bolt EVs, after battery supplier LG committed to **footing the bill**.
+GM won’t have to **cough up** the $1.9B it expected to pay for the recall of its Chevy Bolt EVs, after battery supplier LG committed to **footing the bill**.  
 **drudgery**  
 Some words are really too **esoteric** for this dictionary.  
 **willful misconduct**  
@@ -221,7 +221,7 @@ The patient's blood refused to **clot**.
 Her death is an **irreparable** loss.  
 **repine**  
 
-## Week 1 
+## Week 1  
 
 Coconut milk is a nutrient-rich food you can consume somewhat **liberally**, although limited by its fat content.  
 What do you think a hit man would charge to **rub out** a couple of cats?  
@@ -273,7 +273,7 @@ he had an **impish** look about him.
 He was brought up in **penury**, without education.  
 **squabble**  
 There was a **triumphant** **glitter** in his eyes.  
-A **barge** was close inshore about a hundred yards away.
+A **barge** was close inshore about a hundred yards away.  
 **barge in**  
 **miscreant**  
 
@@ -292,17 +292,17 @@ He drank and **stifled** a **belch**.
 He needed aluminum **crutches** to walk.  
 This process begins by virtue of an inner need, an **inquietude**, a thought that stimulates one's mind and **anima** to accomplish it.  
 
-Dogecoin fans **swoon over** Elon Musk's floki update. 
+Dogecoin fans **swoon over** Elon Musk's floki update.  
 
-**spurious**
+**spurious**  
 We try to **preclude** any possibility of misunderstanding.  
 PayPal policies **stipulate** that sellers must prove buyers received an item.  
 The walls were black, cold and **slimy**.  
 **chlorine**  
-**misperceive** 
+**misperceive**  
 In this way, **endorphins** are the quicker-acting "feelings" while **dopamine** is the longer-acting **afterglow**.  
 Macy’s didn’t need a **pep talk** to take on the e-commerce king. The chain crushed Q2 earnings and reported that digital customers accounted for 41% of its 5 million new shoppers last quarter.  
-Do you **fixate** on the stock selection that led to more than half of the hypothetical positions losing value over five years and only two that beat the market?
+Do you **fixate** on the stock selection that led to more than half of the hypothetical positions losing value over five years and only two that beat the market?  
 After getting **roughed up** in September, stocks have entered a fourth quarter that's typically been bullish for equities, with the S&P gaining four out of every five years since WWII.  
 Haugen was so concerned that she gathered **reams** of internal research and distributed them to folks who could do something about it.  
 

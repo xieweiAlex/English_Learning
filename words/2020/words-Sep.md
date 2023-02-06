@@ -1,13 +1,13 @@
 
-## Week 4 
+## Week 4  
 Dreams of becoming a movie star suddenly don't seem so **far fetched**. 🎬  
-Still, the pandemic is **stunting** overall travel; those 600 million trips are down from 782 million last year.   
+Still, the pandemic is **stunting** overall travel; those 600 million trips are down from 782 million last year.  
 
 **writhe** with pain  
 **Writhe** in **agony**  
 **Step away** from the stolen vehicle, sir!  
 **stalwart** supporter  
-He summarized the **salient** points   
+He summarized the **salient** points  
 
 **tabloid** newspaper  
 I wouldn't feel any **guilt**, **per se** for leaving it.  
@@ -29,7 +29,7 @@ To boost current spending, Keynes **argued for** lower interest rates to lower c
 If higher current spending causes future prices to rise **concordantly**, future production and employment will remain unchanged  
 
 I'm not gonna leave you **holding the bag**.  
-Start with Nvidia: the company is perhaps the **shining example** of the industry transformation **wrought** by TSMC;   
+Start with Nvidia: the company is perhaps the **shining example** of the industry transformation **wrought** by TSMC;  
 **vertically integration**  
 **Color me** skeptical  
 What was so striking about Huang’s answer was not simply its **expansiveness** — I’ve **transcribed** the entire answer below ...  
@@ -41,11 +41,11 @@ she **bid** me take love easy
 Bannon's stake in the company was estimated at 1 to 5 million dollars, but he **divested** his holdings in April 2017 as required by his role as White House Chief Strategist. In March 2018  
 
 **Psychographics** is a **qualitative** methodology used to describe traits of humans on psychological attributes.[1] Psychographics have been applied to the study of personality, values, opinions, attitudes, interests, and lifestyles.  
-**blue chip** company 
+**blue chip** company  
 Their YouTube channel features an array of young people **doling out** tips on topics like grocery shopping on a budget, asking for a raise at work, and how to organize your closet for maximum efficiency  
 
 First of all, lose the **snippy** attitude.  
-**Intravenous** drug user 
+**Intravenous** drug user  
 The tulip **craze** suddenly cam crashing down  
 **oozy** ground base  
 **bubbly** water with lemon  
@@ -79,7 +79,7 @@ As I noted above, Apple has a **perpetual** license to ARM
 **ego cogito ergo sum**  
 **cotter** pin, **split pin**.  
 
-The second term **commences** in March 
+The second term **commences** in March  
 **smack** on the face  
 a **smacking** kiss  
 he is too **feverish** to rest  
@@ -94,9 +94,9 @@ The smell made her **retch**
 **thrice**  
 fat **paunches** have lean **pates**  
 
-## Week 3 
+## Week 3  
 
-**sagging** chains of the garage door mechanism   
+**sagging** chains of the garage door mechanism  
 He **snapped** a **twig** off a bush  
 
 **garlic chive**  
@@ -108,7 +108,7 @@ It also adds to the oil's climate **footprint**.
 The **blinds** were **drawn**.  
 From a gentle sunrise **coaxing** us into the daytime to the **boisterous** bells of an iPhone shocking us into sunshine  
 After much **trial and error**, I arrived at four sections that I needed to make changes in. Daylight activities, evening activities, bedroom conditions and waking  
-**circadian** clock   
+**circadian** clock  
 when it comes to a discussion on the way our bodies were designed, exercise should be **front and center**  
 **Millennia** ago, when the sun went down, both human and other **diurnal** animals would intuitively know that it’s time to **wind down**  
 the light colour was a warm **yellowish** light, not a corporate **fluorescent**  
@@ -125,7 +125,7 @@ A federal court granted a **preliminary injunction** halting the Trump administr
 
 Normal **cornea**  
 he was **munching** an apple  
-**Temporarily**   
+**Temporarily**  
 **tarp** on the shed  
 **crumby** soil, **crumby break**  
 permanent **magnetism**  
@@ -141,7 +141,7 @@ The problem arises when you **go overboard**
 **walnut kernel**, black **walnut**, **walnut** shell  
 **antacid**  
 **Amnesia** mercifully **obliterated** his memory of the accident  
-**rubella**: A contagious viral infection preventable by vaccine and best known by its distinctive red rash.   
+**rubella**: A contagious viral infection preventable by vaccine and best known by its distinctive red rash.  
 there is nothing wrong with a woman enjoying a little **erotica**  
 The shores are **strewn** with **wrecks**.  
 The floor was **strewn** with clothes  
@@ -149,7 +149,7 @@ blue **negligee**
 **everlasting** life  
 George paused, **momentarily** confused.  
 she **rued** the trip with him  
-**ribbed** **plate**   
+**ribbed** **plate**  
 academic **dissertation**  
 **herbalist** doctor  
 Let's keep the criticism general and **impersonal**  
@@ -179,14 +179,14 @@ The company, founded in 1990 as a **joint venture** between Acorn Computers, App
 What makes Arm’s privileged position viable is the same one that **undergirds** TSMC’s: neutrality  
 This was a completely **novel** idea: at that time all chip manufacturing was integrated a la Intel  
 Her cup **clattered** in the **saucer**  
-Another symptom that’s more **prevalent** with a cold: a wet cough where **phlegm** is involved.   
+Another symptom that’s more **prevalent** with a cold: a wet cough where **phlegm** is involved.  
 What can you **glean** from local health data to better evaluate your symptoms?  
 The enterprise cloud **biz** is **torrential**—lots of businesses need lots of data stored and analyzed  
 The flooding, caused by three days of **torrential rain**, is the worst in sixty-five years.  
-But the company, which **embarked on** a pricey expansion last year following a CEO **shakeup**, is not profitable.   
+But the company, which **embarked on** a pricey expansion last year following a CEO **shakeup**, is not profitable.  
 Rivals are **fuming**: Wrapping music, gaming, and video into one service could make it harder for users to leave the Apple **orchard**.  
 The U.S. also failed to explain why its tariffs, **levied** over accusations of IP theft and other unfair trade practices, deserve a **hall pass**.  
-**appellate court**   
+**appellate court**  
 That means that the **go-it-alone** **unilateralism** that has characterized the Trump administration’s approach to trade could soon **spread far and wide**, essentially **turning back the clock** to a time when trade rivalries between nations were settled not with legal arguments but with tariff walls, trade barriers, and **beggar-thy-neighbor** protectionism  
 When you listen to the **rhetoric** from the Trump administration, they argue that the United States is **better off** in a power-based, law of the **jungle system**  
 Soon after, the wheels of trade justice will **grind to a halt**, with essentially no way to ultimately resolve big trade disputes like the yearslong battle between Airbus and Boeing  
@@ -194,9 +194,9 @@ We’re getting to a point where we could soon prove a **counterfactual**
 He was arrested **on the spot**  
 
 Welsh **Kilt**  
-**aerosol** spray/can   
+**aerosol** spray/can  
 **undercover** FBI agents, **undercover** operation  
-**sputnik** 
+**sputnik**  
 I'm such a **dingus**!  
 **Appalling** weather  
 the enemy was **appalled** at our attack  
@@ -205,13 +205,13 @@ the enemy was **appalled** at our attack
 His body was solid and **taut**.  
 **Sagittarius**  
 
-## Week 2 
+## Week 2  
 
 The sound of the bell was **muffled** by the curtains  
 Product placement in Hollywood has existed almost since the **advent** of movies themselves, so by now we're all fairly immune to seeing **glaringly** obvious logos and brands on the big screen  
 
-**grasshopper**
-Teachers inform me that Todd's behaviour has improved **no end**.
+**grasshopper**  
+Teachers inform me that Todd's behaviour has improved **no end**.  
 She felt **heady** with success  
 It’s really hot and **stuffy** in here.  
 You should follow the doctor's **mandate**.  
@@ -223,7 +223,7 @@ nail **varnish**
 **asphalt** varnish  
 post-**coital** **contraception**  
 black **ebony**  
-Do you want a **bruiser**?   
+Do you want a **bruiser**?  
 Hawaii **Luau**  
 What is the **motif** of this year?  
 **flintstone**  
@@ -239,12 +239,12 @@ proud as a **peacock**
 Apple Has '**Lost Sight of** the Tech Industry's Founding Principles,' Says Epic Games CEO  
 They **anted up** 100,000 yuan to build a museum  
 **act/play the giddy goat**  
-**Giddy-Up** Little Doggies
+**Giddy-Up** Little Doggies  
 steep stairs may leave you **giddy** and **faint**  
 others would go **nutmeg** for it  
 **nutmeg**  
 seat the **telescope** on the **tripod**  
-**Sequoia** Capital 
+**Sequoia** Capital  
 The air was **fragrant** with **lavender**  
 **lavender** oil  
 **Alimony** trust  
@@ -260,18 +260,18 @@ she has a four-**carat** stone in her ring
 **quartz** watch  
 **landmark point**  
 this is a **landmark** day in my life  
-crematorium, **crematory** 
+crematorium, **crematory**  
 **horsing around**  
 
 **head on collision**  
 I can't believe you **pawned** my award.  
 You're way **out of line**  
 
-## Week 1
+## Week 1  
 
 I know how to respond because I am **perceptive** and **attentive** to others' behaviors.  
 This path helps you build your skills as an **accomplished** public speaker  
-This path **culminates** in an extended speech where you can apply what you've learned.
+This path **culminates** in an extended speech where you can apply what you've learned.  
 paths, levels and **electives**  
 
 What Bracey is saying is **tantamount** to **heresy**  
@@ -282,7 +282,7 @@ the U.S. Food and Drug Administration (FDA) do not monitor herbs and supplements
 One small study revealed that an herbal cough syrup containing **marshmallow root**, along with **thyme** and **ivy**, effectively relieved coughs resulting from common colds and respiratory tract infections  
 **wet cough**  
 
-President Donald Trumpp called on his fans to **inundate** the Atlantic's co-owner, laurene Powell jobs, with message after the magazine reported that he once called American soldiers killed in cobat "losers" and "suckers".   
+President Donald Trumpp called on his fans to **inundate** the Atlantic's co-owner, laurene Powell jobs, with message after the magazine reported that he once called American soldiers killed in cobat "losers" and "suckers".  
 
 Nation **grappled** with Gorge Floyd's killing, they lived it.  
 There was a good **turnout** for the concert  
@@ -300,14 +300,14 @@ a note of **discord** **crept** into their relationship
 His dogs were **inoculated** against **rabies**  
 **Alzheimer's** disease is a form of **presenile** **dementia**  
 I'm a crazy **rabid** squirrel! I want my cookies!  
-**Saran wrap**   
+**Saran wrap**  
 
 **Swig and toss**  
 **swig up**, **swig in**  
 TV **antenna**  
 air **embolism** in his **brain stem**  
 **boneheaded** decision  
-baby **caterpillar** 
+baby **caterpillar**  
 the **caterpillar** was transformed into a butterfly  
 he shouldn't **burlesque** the elder  
 The hill was **blotted** out by **mist**  
@@ -320,13 +320,13 @@ I was very **attracted to** men and fell **head over heels** many times
 the ship **heeled over** in the storm  
 milk **pudding**  
 the happy boy walked with **jaunty** steps  
-**Musket**
+**Musket**  
 the three **Musketeers**  
 The Nikkei 225 Stock Average is Japan’s primary stock index and a **barometer** of the Japanese economy  
 
 I don't want you sharing a **cubby** with Emma  
 Handing me a **pamphlet** on the resurgence **gonorrhea**?  
-There was a **tremble** in her voice 
+There was a **tremble** in her voice  
 large **artery**  
 **aortic** **valve**  
 **hazelnut** chocolate **chip** **scone**  
@@ -340,7 +340,7 @@ the tooth **relic** is in a special **casket**
 **Pesos** are used in Mexico  
 An owl is an **nocturnal** bird, while a sparrow is **diurnal**.  
 **feign** death  
-get frustrated with **inanimate** object 🐦   
+get frustrated with **inanimate** object 🐦  
 
 Another four units **on standby**, just in case we need it.  
 The **Poodle** is a dog **breed**  

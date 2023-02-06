@@ -1,4 +1,4 @@
-## Week 4 
+## Week 4  
 
 Investor's **skittish** attitude toward tech companies.  
 We know some stocks just won’t **make the cut**. But we also know they don’t have to.  
@@ -13,9 +13,9 @@ The movie had a really **tacky** ending
 Your suggestion has been **duly** noted.  
 **floral**  
 **tush**  
-**gerbil** invasion   
+**gerbil** invasion  
 I would **chalk this up** to typical profit taking after a spectacular run-up.  
-I spend an **inordinate** amount of my time in Vim. I do all my development in Vim and I have even customized my workflows for building code, running tests etc
+I spend an **inordinate** amount of my time in Vim. I do all my development in Vim and I have even customized my workflows for building code, running tests etc  
 
 there are no plans to **taper** their asset purchases; and that he would clearly communicate a change in policy before taking any action  
 these are the **very times** when owning a diversified portfolio of stocks makes the most sense  
@@ -35,7 +35,7 @@ Can you **waggle** your ears?
 **bathe**  
 I had the most **supremely** awful day.  
 **adios**  
-**tastefully** 
+**tastefully**  
 **defecate**  
 **indignantly**  
 **emphatically**  
@@ -44,7 +44,7 @@ The bus had to **deviate** from its usual route because of a road closure
 Naked, she stepped **gingerly** into the water.  
 these houses were **strung along** the thoroughfare.  
 He is highly **strung** for the game  
-**grotesquely** 
+**grotesquely**  
 the soldiers made a **headlong** rush for cover  
 **anatomically**  
 I can **aft** and **luffed** her to the open sea  
@@ -56,7 +56,7 @@ As she is such a pretty woman, many men would like to **take up with** her
 Their **ire** was **directed** mainly at the government.  
 Nobody wants fights. Let's **call it quits**  
 
-## Week 3 
+## Week 3  
 **faeces**  
 **lustily**  
 **pleadingly**  
@@ -84,13 +84,13 @@ Values and **mores** and practices are changing all the time.
 **rhyme**  
 **Loch Ness** monster  
 outreach  
-The boxers **slugged** it out to the finish.   
+The boxers **slugged** it out to the finish.  
 Bruce is a **spaz**, but he's one of the best doctors I know.  
 **sagittarius**  
 **creme**, **cream**  
 **crumble**  
 **eek**, **yikes**  
-what are you **jabbering** about, shipmate?    
+what are you **jabbering** about, shipmate?  
 You want to use **waxy** potatoes with thin skin rather than **starchy** potatoes like **russets**  
 North America’s first Bitcoin ETF got off to a **stellar** start in its debut, with investors exchanging $165 million worth of shares  
 We think the benefits will far **outweigh** the costs in the longer run  
@@ -99,19 +99,19 @@ Time is pressing. Mr Biden and his successors may not get a second chance to **r
 As we found ourselves spending more time at home over the past year, we decided to **liven things up** with a new four-footed member of the family  
 Since then, the stock is up well over 700%, **thrashing** the performance of the S&P 500 (SNPINDEX: ^GSPC) by more than 600 percentage points  
 Many things are **cyclical**, but our love of animals is **ever-present** — and growing  
-People will tighten their own belt buckles long before they let the **kibble** **run out**   
+People will tighten their own belt buckles long before they let the **kibble** **run out**  
 2020 may have been a **banner year** for pets, but we think spending on our furry friends will keep rising in 2021 and well beyond  
 He breathed in the **frosty** air.  
 "New Car Smell" Is the **Scent** of **Carcinogens**. Even Short Trips May **Overexpose** Us  
 However, the truth is that the president's ability to impact the economy and markets is generally **indirect** and **marginal**  
-**Relatively speaking**, presidential salaries are pretty **tame**.   
+**Relatively speaking**, presidential salaries are pretty **tame**.  
 capital **outlay**, initial **outlay**  
 The best equipment is costly but is well worth the **outlay**.  
-Boston-based LEK Consulting predicts that drones could account for 30% of same-day package deliveries by 2040. That sound you hear is Amazon's **drool** **hitting the floor**.   
-She is **meticulous** in her presentation of facts.   
+Boston-based LEK Consulting predicts that drones could account for 30% of same-day package deliveries by 2040. That sound you hear is Amazon's **drool** **hitting the floor**.  
+She is **meticulous** in her presentation of facts.  
 
-## Week 2 
-The booking is only **provisional**.   
+## Week 2  
+The booking is only **provisional**.  
 That there are not much that we can worry about, and the stock just kind of **petering** along, that can be a great opportunity to buy option  
 increasing their **ideation** capability  
 And life design will help you live into whatever version of you is now playing at the **Cineplex**  
@@ -119,12 +119,12 @@ Radical collaboration works on the principle that people with very different bac
 A well-designed life is not a life of **drudgery**  
 That may sound a bit **melodramatic**, but many people tell us that this is a good description of their lives  
 A painter can create an **artistic** masterpiece alone on a **windswept coast**, but a designer cannot create the iPhone alone, windswept beach or not  
-Most people do not have that one thing they are passionate about—that **singular** motivator that drives all of their life decisions and **infuses** every waking moment with a sense of purpose and meaning.
-Let’s face it, you’re not reading this book because you have all the answers, are in your dream job, and have a life **imbued** with more meaning and purpose than you can imagine
+Most people do not have that one thing they are passionate about—that **singular** motivator that drives all of their life decisions and **infuses** every waking moment with a sense of purpose and meaning.  
+Let’s face it, you’re not reading this book because you have all the answers, are in your dream job, and have a life **imbued** with more meaning and purpose than you can imagine  
 You have a **wicked problem**.  
 he’s had a lot of problems, and would say that this whole book comes out of his astonishing **ineptitude**  
 So the **unholy** union of Jacques Cousteau and Mrs. Strauss caused Dave to work on the wrong problem for over two years  
-The **premeds** were killing it in class.   
+The **premeds** were killing it in class.  
 Academically, he was getting crushed, as were his dreams of someday getting paid to **frolic** with the seals while speaking in a French accent  
 Someday, however, he still hopes to **frolic** with seals.  
 We also tend to get **mired** in what we call **gravity problems**.  
@@ -133,18 +133,18 @@ They fight it **tooth and nail**, with everything they've got.
 And we’ll let you in on a secret—no one has ever failed our class. In fact, it’s impossible to **flunk**.  
 **doctoral** **dissertation**  
 
-After Tesla's **cannonball** into bitcoin on Monday, more established parts of the **biz** world are **wading into** the crypto waters.   
+After Tesla's **cannonball** into bitcoin on Monday, more established parts of the **biz** world are **wading into** the crypto waters.  
 All the while, rich **gringos** are walking around the island and paying no or very little tax  
 
-> Any time a new tax reduction strategy comes along, you can bet the sharks will start circling, looking for weaknesses and ways to make things easier
+> Any time a new tax reduction strategy comes along, you can bet the sharks will start circling, looking for weaknesses and ways to make things easier  
 
-That’s happening in **Puerto Rico** **in spades**.
+That’s happening in **Puerto Rico** **in spades**.  
 Yet Mr. Mori suggested that he did not agree with the criticism **levied** against him, saying he had been misinterpreted  
 After Mr. Mori made his sexist **remarks** last week, a **backlash** **swiftly** followed, and he apologized the next day at a news conference  
 Many investors may **fall prey to** emotional decision making and trying to time or predict the market  
 If you miss opportunities like these in the months and years ahead, you may never **live it down**.  
 
-**wicked** problems 
+**wicked** problems  
 Chinese consumers are **fickle**  
 The weather here is notoriously **fickle**  
 **Fickle lover**  
@@ -171,22 +171,22 @@ He played a backhand **volley**.
 Lisa was **rankled** by his assertion  
 The police **vigorously** denied that **excessive** force had been used.  
 
-**sizable**
+**sizable**  
 this very **sizable** fiscal policy package.  
 it's on the **cusp**  
 we're evolving towards the **metaverse**  
-the market is **discerning**, it's a sign we're not in a bubble 
+the market is **discerning**, it's a sign we're not in a bubble  
 **parle**  
 **bub**  
 **zine**  
 **out of whack**  
-He gave the ball a good **whack**. 
+He gave the ball a good **whack**.  
 **wack**  
 I always took you for a nickel and **diming** **cheapskate**, Frank  
 Pigs on the farm go **oink**, oink.  
 **parkway**  
 **skywalk**  
-**overpass** 
+**overpass**  
 **goldie**  
 **goldilocks economy**  
 **alphabetize**  
@@ -194,7 +194,7 @@ Pigs on the farm go **oink**, oink.
 This report seemed to **hit all the right notes**: it clearly shows we're back **on the mend** from November's job losses  
 Cries for help were heard coming from the **mangled** concrete.  
 
-## Week 1 
+## Week 1  
 
 **Tepid** jobs recover  
 As for Jassy, he's been at Amazon since 1997 and built AWS from a minor **offshoot** of Amazon's e-comm operations to a cloud computing leader.  

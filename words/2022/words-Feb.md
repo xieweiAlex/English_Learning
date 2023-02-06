@@ -1,12 +1,12 @@
 
-## Week 4
+## Week 4  
 
 Howard wasn't **entitled** to an apology. The FBI were **entitled** to know about the Mars Rover incident, which proved he really was **irresponsible**.  
 I agree with your thesis as **enunciated** at the end of this video.  
 Excessive pressure can lead to **perforation** of the stomach wall.  
 Do not let the discussion fragment into a **desultory** conversation with no clear direction.  
 The poor old man is beginning to **dodder**.  
-Still hard for me to imagine Putin has simply lost his **marbles**, but these are important questions..   
+Still hard for me to imagine Putin has simply lost his **marbles**, but these are important questions..  
 If Russia is **drawn into** a long-lasting **partisan** war, so will the Russian people.  
 It is important that we **dovetail** our respective interests.  
 Do **heredity** and environment determine a man’s character?  
@@ -31,7 +31,7 @@ He **enjoined** obedience on the soldiers.
 I was appalled by the **loutish** behavior.  
 Is the current food crisis just another market **vagary**?  
 
-### Week 3 
+### Week 3  
 
 I'm no stranger to the **Crimson** **scourge** that's **dermatitis**.  
 I was ready to waste the last of my good **hemorrhoid** cream on you.  
@@ -40,17 +40,17 @@ Troops into two **breakaway** regions.
 The top 10% or so of the US income spectrum benefited from this policy at the expense of the bottom **deciles**.  
 Fed officials aren't the only government **bigwigs** being forced to change their investing habits.  
 
-There is also a little more complex **shoehorned** in there like storage, persistence is also a thing. 
+There is also a little more complex **shoehorned** in there like storage, persistence is also a thing.  
 There are still some **warts** when it comes to matching up Kubernetes thought-experiment land.  
 Beyond that, watch for a **perennial** story. I checked our historical archive and found we mentioned Argentina back in 1844, then first wrote about the IMF in Argentina in 1965. The country has long offered a **lamentable** tale of economic mismanagement.  
 Forgiving others means leaving space for your own heart in case **turnabout**.  
 
 A move that threatened to **scuttle** negotiations with the West over the future security of eastern Europe and that could be used to justify an **incursion** into the territories.  
 
-**countervailing** duties 
+**countervailing** duties  
 **barf bag**  
 That effort will be **bootless**.  
-**plausible deniability** 
+**plausible deniability**  
 Raj: Hey look at me.I don't have a **foreskin**. 😂  
 
 **dribs and drabs**.  
@@ -59,7 +59,7 @@ The city, **drab and dour** by day, is transformed at night.
 I want to be **cognizant** about people's time.  
 He displayed determination as well as powerful **oratory**.  
 The most furious **anarchist** become the most **barefaced** **apostate**.  
-many of our viewers have owned and unfortunately have **ridden down** so far. 
+many of our viewers have owned and unfortunately have **ridden down** so far.  
 I was surprised at his **candor**.  
 
 "The passion for stretching yourself and sticking to it, even (or especially) when it’s not going well, is the **hallmark** of the growth mindset. This is the mindset that allows people to **thrive** during some of the most challenging times in their lives.  
@@ -73,7 +73,7 @@ She is the most vocal and **pertinacious** of all the critics of the policy.
 We knew we were in for a pretty long, **jejune** evening.  
 I wasn't actually sick but I felt **lousy**.  
 
-How the **righteous** love to **bemoan** their role in middle management, and condemn those who actually might have an effect on the world. 
+How the **righteous** love to **bemoan** their role in middle management, and condemn those who actually might have an effect on the world.  
 
 CEO and founder Anthony Wood has always **turned a blind eye** to the market in favor of building a great long-term business, and today is no different.  
 
@@ -93,7 +93,7 @@ She's very **thorough** and **conscientious**.
 Meanwhile, vulnerable narcissists can be quiet and **reserved**.  
 
 The answer was lost in **a shout of** **ribald** laughter.  
-**glutinous** rice. -
+**glutinous** rice. -  
 I think you guys are blowing this **out of proportion**.  
 The 2 year old was "screaming and bleeding **profusely**." She was given first aid by a medic on-site.  
 
@@ -111,7 +111,7 @@ Nvidia-Arm is officially **kaput**.
 After a long sleep, he still felt **torpid**.  
 You should not **palter with** the truth.  
 
-## Week 2 
+## Week 2  
 **par for the course**.  
 
 The crowd went absolutely mad. It was **bedlam**.  
@@ -129,7 +129,7 @@ There was a nice **write-up** in the paper, even a **laudatory** editorial.
 It's in-your-**face** feminism, and it's meant to shock.  
 
 Several magnificent oil paintings **adorn** the walls.  
-They swear, they are ill-mannered and aggressive, **willful** as two-years-olds and utterly selfish.   
+They swear, they are ill-mannered and aggressive, **willful** as two-years-olds and utterly selfish.  
 a **tiddly** little pool.  
 
 It was a **squalid affair** involving prostitutes and drugs.  
@@ -142,7 +142,7 @@ These events can easily **outlast** the patience of most clients.
 **As I like to say**, there is nothing more **supremely** irritating than watching your neighbors get rich.  
 It seemed **prudent** to exit at the time, but for three years we underperformed painfully as the Japanese market went to 65x earnings.  
 A bubble that is beginning to look like a real **humdinger**.  
-She **penned** a June 2020 article about how businesses can protect themselves from cybercriminals.    
+She **penned** a June 2020 article about how businesses can protect themselves from cybercriminals.  
 Due to low inventory, fewer people want to list their home. This pushes inventory down further, making even more owners **reticent** to list.  
 Where the quality of humor, are smart **perspicacious**.  
 Opponents said this would **contravene** international **treaties**.  
@@ -163,16 +163,16 @@ Religious and **occult** predictions, however, boast no causal logic **whatsoeve
 He just **glowered** without speaking.  
 They laughed at my **puny** efforts.  
 
-Rooms are stuffed with **lavish** **furnishings**, some have **en suite** spas.   
+Rooms are stuffed with **lavish** **furnishings**, some have **en suite** spas.  
 She **caressed** his cheek lovingly.  
 He experienced several great social **vicissitudes** in his life.  
 Bill is so **avaricious** that he donates nothing to charity.  
 We must **stock up** for the winter.  
 
 
-## Week 1
+## Week 1  
 
-> However, these studies are so-called observational studies, which can not demonstrate causation.
+> However, these studies are so-called observational studies, which can not demonstrate causation.  
 
 I have also seen this **rodeo** before - an emerging market and the tell tale signs. I follow the money.  
 You ARE allowed to **fumble around** for a while and get frustrated.  
@@ -201,7 +201,7 @@ I will call it **improbable**, so where do you have our position marked?
 I thought **we are better than this**, I really did.  
 That's my **two cents**.  
 they had to **backstop** this.  
-When **all was said and done**, only one single banker went to jail.   
+When **all was said and done**, only one single banker went to jail.  
 Now you can **kick them in the teeth**.  
 Mark actually became **gracious** after the collapse and never said "I told you" to anyone.  
 
@@ -235,9 +235,9 @@ By 6pm, freezing temperatures will turn that rain into **sleet**.
 
 I don’t like his **cheeky** manner.  
 
-The calls for boycotts, for sponsors to cut ties, and for NBC to include human rights coverage, have put **Olympians** in a difficult spot, leaving some athletes **unnerved** and upset.
+The calls for boycotts, for sponsors to cut ties, and for NBC to include human rights coverage, have put **Olympians** in a difficult spot, leaving some athletes **unnerved** and upset.  
 
-**hit the skids**
+**hit the skids**  
 The car **skids**, the tires screech.  
 The stone **burnishes** well.  
 It also helps **burnish** his public image.  
@@ -248,7 +248,7 @@ The president was in a **pugnacious** mood when he spoke to journalists about th
 > Our dog passed away few hours before this was taken. -  
 
 
-I am not sure what it is, but I often encounter people who have become obsessed with preparing for the collapse - it is a **seductive** concept.
+I am not sure what it is, but I often encounter people who have become obsessed with preparing for the collapse - it is a **seductive** concept.  
 Along with most other companies, GameStop and AMC shares have **taken a beating** in 2022, and both are down at least 35% year-to-date.  
 But fake snow can have real problems. Remember all that water that goes into making it? It’s putting added **strain** on water supplies in an already **arid** region.  
 Athletes going to the Beijing Olympics have been told by cybersecurity firms to use **burner phones** to avoid getting snooped on.  
@@ -259,16 +259,16 @@ If you aren't in great shape already, choose another workout before **taking a s
 Big leveraged **buyouts** are continuing apace this year as well, with private equity firms Elliott Management and Vista Equity nearing an agreement to purchase Citrix Systems (CTXS) for about $13B.  
 "The buy the dip mentality has been **obliterated** in the market," declared Bill Gross, the founder and former chief investment officer of PIMCO.  
 
-### Conversation 
-I **envy** Leonard for growing up without that **anguish**.   
+### Conversation  
+I **envy** Leonard for growing up without that **anguish**.  
 I'm extremely uncomfortable with dance loud music and most other forms of alcohol-**induced** **frivolity**.  
 
-**Never have I had** so much business from one client. 
-**I second that**. 
+**Never have I had** so much business from one client.  
+**I second that**.  
 
 That's not **hyperbole**, I will be making changes because of what you just witnessed, I hope it hit you as hard as it hit me.  
 
-That sounds like a **grind**. 
+That sounds like a **grind**.  
 excuse me, can I **interject** something?  
 You used my **loofah**?  
 right, you're Howard's **entourage**.  
@@ -278,7 +278,7 @@ Your expectations have been **subverted**, haha.
 Would you **characterize** him as responsible?  
 I find being cast in the role of bad girl oddly **titillating**.  
 
-you little **ray of sunshine** is ready to **beam** again. 
+you little **ray of sunshine** is ready to **beam** again.  
 You rub every man on the planet but **draw the line** the me?  
 you know when you're sick, you're allowed to be **cranky** and say whatever you want, and other people's feelings don't matter?  
 Probably because I **exude** confidence, people are **drawn to** that, you know.  

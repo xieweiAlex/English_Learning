@@ -1,5 +1,5 @@
 
-## E 11 
+## E 11  
 Come see the movie, we'll **schmooze**, we'll **kibitz**...  
 Honestly, you'll probably be **better off** without me.  
 you really are the master of **spontaneous** **witticisms**.  
@@ -11,7 +11,7 @@ listen, **bozo**...
 I'm **swamped** here at work.  
 there is no reason to **sulk** about it  
 I don't think **moping around** the house with Diane all day is healthy.  
-I don't wanna **put you out**. - It's no bother.    
+I don't wanna **put you out**. - It's no bother.  
 It's such an **eyesore**  
 there is a real **stick-in-the-mud** dean there who doesn't like my **in-your-face** style  
 sounds like a real **bust-ass** super-**skank**  
@@ -23,14 +23,14 @@ He is a **groovy** dude.
 I'm the biggest agent in the entire **idyllic** New England village.  
 You're polluting my perfect **serene** dream life.  
 
-## E 8 
+## E 8  
 this isn't funny, no more **tomfoolery**.  
 **trigonometry**, advanced physics, or at the movies with Mr. Peanutbutter  
-when he gets excited, his ears so slightly **flop up** and **give him away**. 
+when he gets excited, his ears so slightly **flop up** and **give him away**.  
 it was **touch and go**  
 It's on my **tip of tongue**  
 
-## E 7 
+## E 7  
 **hippo**  
 What you got against Uncle Hanky, you **uppity** **cooze**?  
 I'm not **slinking** away  
@@ -41,7 +41,7 @@ I wanted to pitch you an **expose** on Hank Hippopolaous
 I'd love to **take down** Hippopolaous and finally **topple** the **acropolis** of **monstrous** **hypocrisy** that **ensconces** us.  
 you gonna **drag down** people close to you.  
 A **genocide** may or may not have been **perpetrated** in my name.  
-I'm **in your corner**
+I'm **in your corner**  
 
 
 ## E 6  
@@ -79,11 +79,11 @@ ABC sent us **limousines** to take us to the wrap party.
 I never been in a **limo**  
 
 
-## E 1, E 2 
-Oh, big **stud**, **running off** to **gallivant** with your **fillies**. 
+## E 1, E 2  
+Oh, big **stud**, **running off** to **gallivant** with your **fillies**.  
 I gotta say the "new you" seems a little **on edge**  
 Now grab the **binoculars**. I need dirt on Wanda's new gentleman friend.  
-So "Disneyland" is still **up for grabs**?    
+So "Disneyland" is still **up for grabs**?  
 No, we just took you at **face value**  
 I want to **swing for the fences**, you know?  
 

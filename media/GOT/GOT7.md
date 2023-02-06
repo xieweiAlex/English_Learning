@@ -1,9 +1,9 @@
-## E6 
+## E6  
 Bug they didn't, did they? So what you **whinging** about?  
 **bull's eye**  
 
 
-## E5 
+## E5  
 Maybe we can count on Tyrion to **intercede** on our behalf.  
 You saw the **crossbow**, you saw his body.  
 Ser Davos gets **carried away**  
@@ -16,13 +16,13 @@ To discuss an **armistice**.
 Nobody **glowers** quite like you.  
 
 
-## E4 
+## E4  
 The **spoils of war**  
 The playing field is nearly as **lopsided** as it was when we ended episode one.  
 Think about the **upkeep**, the more you own, the more it **weighs you down**.  
 Is that why you're so fucking **glum**, ah?  
 The **granaries** are being emptied and loaded into wagons, my lord.  
-I'm **merely** an **instrument** of the institution I represent of the institution I represent.   
+I'm **merely** an **instrument** of the institution I represent of the institution I represent.  
 Its **well-being** a matter of **arithmetic**, not **sentiment**.  
 We must **device** a way to raise their **spirits**  
 My hand, Qyburn, has made **overtures** to the Golden Company in Essos.  
@@ -32,7 +32,7 @@ Why would a **cutthroat** have a valyrian steel dagger?
 **loot** train battle  
 
 
-## E3 
+## E3  
 I didn't take you for a **bashful** girl  
 I've been sold like a **broodmare**  
 I've been raped and **defiled**  
@@ -49,22 +49,22 @@ It's really hard for me to **fathom**, it really is
 It's **dreary** in the North  
 The underlying region treated with some sort of **unguent**  
 Who **forbad** you, or anyone, to attempt to treat him?  
-Casterly Rock is an **impregnable** fortress. 
+Casterly Rock is an **impregnable** fortress.  
 Give me 10 good men, and I'll **impregnate** the bitch  
 Widow's **wail**  
 
 
 
-## E2 
+## E2  
 We haven't ever talked... **properly**, I wanted to remedy that.  
 He is **falling apart** again  
-As much as anything, to see Euron's pure, **psycho glee** at watching this happen between two of them
+As much as anything, to see Euron's pure, **psycho glee** at watching this happen between two of them  
 
 
 
-## E 1 
+## E 1  
 
-> Jon Snow: I will not punish a son for his father's sins, and I will not take a family home away from a family it has belonged to for centuries. That is my decision, and my decision is final.
+> Jon Snow: I will not punish a son for his father's sins, and I will not take a family home away from a family it has belonged to for centuries. That is my decision, and my decision is final.  
 
 Cersei tries to **even the odds**  
 We need to **shore up** our defenses  

@@ -1,5 +1,5 @@
 
-## Week 4
+## Week 4  
 
 Three-quarters of Americans say they’re feeling the **pinch**, and more than half blame President Biden, knocking his approval rating to an all-time low of 41%.  
 Twitter only snagged $3.7 billion in revenue last year, while Meta **raked in** almost $86 billion.  
@@ -34,7 +34,7 @@ China’s leaders still want investment and technology from the West, but they t
 
 They got mad, stood up, **stormed out** of the shop.  
 The **orgiastic** day of children is coming.  
-We mustn't **let up** now. 
+We mustn't **let up** now.  
 If somebody finds it hard to **make ends meet**, they have problems living on the money they earn.  
 
 One man died, and his body was **encased in** all the **debris**.  
@@ -45,7 +45,7 @@ The aged cheese had a **pungent** taste.
 
 The electorate had grown **disenchanted** with politics.  
 **feminine** vs **girly**  
-summer/winter **solstice**
+summer/winter **solstice**  
 He **plunked** into the lake.  
 I'm not ready to **plunk** my money into any of these.  
 **photogenic**  
@@ -57,9 +57,9 @@ The **prodigal** had returned.
 
 Rarely, if ever, does he **sidestep** a question.  
 
-I can **sell short** as well as **go long**. 
+I can **sell short** as well as **go long**.  
 Don't **sell yourself short**.  
-**That's a given**. 
+**That's a given**.  
 
 His head moved in an almost **imperceptible** nod.  
 The **enigmatic** designer is **no stranger** to scandal.  
@@ -69,7 +69,7 @@ The **enigmatic** designer is **no stranger** to scandal.
 **indefensible**  
 **Dolly** Girl  
 **OCD**: obsessive-compulsive disorder  
-**horoscope**
+**horoscope**  
 
 The **wisecrack** you believe is witty often is not.  
 **disarming**  
@@ -92,10 +92,10 @@ He was **dismantling** the disastrous “people’s **communes**” that had cau
 But it **dwelt on** those faults, especially the “catastrophe” of the Cultural Revolution between 1966 and 1976..  
 It is **impermissible** to overlook or **whitewash** mistakes, which in itself would be a mistake and would give rise to more and worse mistakes.  
 Mr Xi seems **oblivious** to this warning.  
-Yet it should be acknowledged that generating wild enthusiasm for **humdrum** ideas and governing is Mr Buttigieg’s specialty.   
+Yet it should be acknowledged that generating wild enthusiasm for **humdrum** ideas and governing is Mr Buttigieg’s specialty.  
 
 Keep the **gravy train** running.  
-**postural** issue 
+**postural** issue  
 Don't **deify** people even they're extremely influential.  
 Despite empty **pews** and sexual-abuse scandals, Catholic education is increasing in popularity.  
 Remote learning was difficult for her daughter. Once happy and outgoing, she became **withdrawn**.  
@@ -108,7 +108,7 @@ The 39-year-old, who used the mayoralty of Indiana’s fourth-biggest city to la
 a staggering **disparity**.  
 The **disdain** on the right reflected not only unconcern about racial injustice, but how much the Biden administration has riding on the spending bill.  
 
-## Week 3 
+## Week 3  
 
 Dorothea **let out** a **histrionic** groan.  
 **histrionic personality**  
@@ -122,7 +122,7 @@ She used to be a singer of some **renown**.
 **recuse**  
 **Macao**  
 **vindictive**  
-That's why Obama can meet the troop **drawdown** deadline.   
+That's why Obama can meet the troop **drawdown** deadline.  
 They depended on **animal husbandry** for their livelihood.  
 No minerals have yet been exploited in **Antarctica**.  
 The doctor wrote a **treatise** on alcoholism.  
@@ -153,7 +153,7 @@ The **exultant** crowds were dancing in the streets.
 
 Sharpen your **foresight** with Tom Standage, deputy editor of The Economist and editor of The World Ahead, as he explores a **provocative** vision of the future.  
 
-**Aryan**
+**Aryan**  
 **pester**  
 When he doesn't know the answer, he gets **huffy**.  
 He has to visit them on the **sly**.  
@@ -163,7 +163,7 @@ He was treated with **penicillin** injections.
 **ordinance**  
 His opponents viewed him as stubborn, **dogmatic**, and **inflexible**.  
 
-Talks between Xi Jinping and Joe Biden do not **herald** a **thaw**. 
+Talks between Xi Jinping and Joe Biden do not **herald** a **thaw**.  
 He is **blanching** **linen** in the sun.  
 He was chatting up a pretty **barmaid**.  
 The **acid test** of a good driver is whether he or she remains calm in an emergency.  
@@ -180,7 +180,7 @@ We should care for them and not **thwart** their enthusiasm.
 
 GDP is usually used as the **numerator** in the velocity of money formula though gross national product (GNP) may also be used as well.  
 In the **denominator**, economists will typically identify money velocity for both M1 and M2.  
-The sheets kept getting **snarled up**.   
+The sheets kept getting **snarled up**.  
 Definitely feel free to **circle back** with me when the time is right.  
 
 She decided on a **beige** **cashmere** sweater.  
@@ -188,7 +188,7 @@ He was offered a research **fellowship** at Yale.
 **glorious**  
 **calamity**  
 **clunky**  
-**polaroid**   
+**polaroid**  
 The cock's breast is **tinged** with **chestnut**.  
 Tears can be **cathartic** and releasing.  
 Don't **psychoanalyze** me, you **simp**!  
@@ -198,7 +198,7 @@ Such catastrophe was of course likely to **embitter** the French nation.
 I wouldn't **heckle** the comedian, he is very quick-witted.  
 Thanks, but I'm **on the wagon**.  
 
-## Week 2 
+## Week 2  
 
 True, there will be local and seasonal **flare-ups**, especially in **chronically** undervaccinated countries.  
 **Epidemiologists** will also need to watch out for new variants that might be capable of **outflanking** the immunity provided by vaccines.  
@@ -211,7 +211,7 @@ The **woes** of global trade in 2021 have not just been caused by disrupted supp
 **Imminent** fiscal **retrenchment** in many countries will help cool economies.  
 
 Ma Chun-man, known as “Captain America” for the costume he wore while on demonstrations, pleaded not guilty to violating the law, which was imposed at the **behest** of the mainland government to curb free speech in the city.  
-The Taliban will be urged to make their government more inclusive of other **factions**, a point on which they are unlikely to **give ground**.   
+The Taliban will be urged to make their government more inclusive of other **factions**, a point on which they are unlikely to **give ground**.  
 Without more balanced leadership that could prevent renewed war, Afghanistan’s **woes** **may yet** **redouble**.  
 (Like the best stories, this one **may yet have** a happy ending.)  
 
@@ -228,7 +228,7 @@ Alexander Lukashenko, Belarus’s dictator, gave the EU a **fright** by flying i
 European diplomats looking to **unwind** after a stressful week are unlikely to have a restful weekend.  
 
 The Krishna Lifting Mount Govardhan, a statue of the Hindu **deity** crafted in Cambodia nearly 1,500 years ago.  
-Despite its name, the **microbiome**, an ecosystem of microorganisms living in the body, plays a big role.   
+Despite its name, the **microbiome**, an ecosystem of microorganisms living in the body, plays a big role.  
 These random results are **antithetical** to a fair system.  
 
 **subjugate**  
@@ -280,7 +280,7 @@ More discriminating visitors now tend to **shun** the area.
 The new law will be a **charter** for **unscrupulous** financial advisers.  
 
 Those rules of **etiquette** have been **defunct** for years.  
-Many landlords are **rejoicing** at the sky-high rental rate increases they are charging tenants.   
+Many landlords are **rejoicing** at the sky-high rental rate increases they are charging tenants.  
 These domestic migrants often brought higher incomes to their new warm-weather **domiciles**, pushing home prices up.  
 Here's Why the Market **Soured** on Lemonade Stock Today.  
 Moreover, it seems the market isn't **keen on** Lemonade's proposed acquisition of competitor Metromile.  
@@ -300,7 +300,7 @@ I'm still feeling a little **woozy**, so I rest my head on his shoulder.
 **attic** window  
 Their success is the result of a **fortuitous** combination of circumstances.  
 
-If you're missing out on sufficient shut-eye-most likely seven to eight hours a night-you're probably irritable, dealing with **mind fog**, and have difficulty managing daily tasks.   
+If you're missing out on sufficient shut-eye-most likely seven to eight hours a night-you're probably irritable, dealing with **mind fog**, and have difficulty managing daily tasks.  
 How could such a **nonentity** become chairman of the company?  
 He clearly found the physical **exertion** **exhilarating**.  
 He is **well-intentioned** but a poor administrator.  
@@ -329,7 +329,7 @@ It all seemed useless and **inane**.
 
 The House has one version, which would make **preschool** free, subsidise child care, spend **lavishly** on climate **readiness** and expand Medicare, America’s federal health-insurance program.  
 
-## Week 1 
+## Week 1  
 
 They had the **foresight** to invest in new technology.  
 They gave me a strange **concoction** to drink.  
@@ -340,10 +340,10 @@ In the **cloister**, hell is accepted in advance as a **post obit** on paradise.
 The only road access is a **tortuous** mountain route.  
 Each and every one of these soldiers has proved his **mettle**.  
 In my fever I had a long consistent **delirium**.  
-She wrote in an original and highly **erudite** style.
+She wrote in an original and highly **erudite** style.  
 No one can **gainsay** his honesty.  
 **scotch** whisky, **scotch** tape  
-You'd **be better off** doing something   
+You'd **be better off** doing something  
 
 Zillow's AI pricing algorithms despite its access to ample data, **calling into question** the high balance sheet risk necessary to enable the scaling of iBuying business models.  
 His remarks were clearly not **displeasing** to her.  
@@ -351,15 +351,15 @@ His remarks were clearly not **displeasing** to her.
 **drippy**  
 I took **copious** notes.  
 I say we **nab** his **watery** **miscreant** ass now.  
-The stock market is in a **tailspin**.
+The stock market is in a **tailspin**.  
 He would **repudiate** all debts incurred by his son.  
 Performance, scalability and **fault-tolerant** considerations.  
 **choke point**  
 They **dredge** the bay for **gravel**.  
-Many of his warnings proved **prophetic**. -
+Many of his warnings proved **prophetic**. -  
 **poach**, **pilfer**  
 Make A Long **Harangue**  
-It's hard to win if your attitude adds friction to every **interpersonal** experience.
+It's hard to win if your attitude adds friction to every **interpersonal** experience.  
 
 A **sliver** of light showed under the door.  
 The town takes **immense** pride in recent achievements.  
@@ -389,7 +389,7 @@ moral **turpitude**.
 It decided to **perch** on our yacht.  
 go **awry**  
 She was **in a fury** over a plan that had **gone awry**.  
-**provisional** rules/regulation   
+**provisional** rules/regulation  
 **hyperbolic** function  
 From **gateway** to **air-lock**: Hong Kong’s economy  
 

@@ -1,11 +1,11 @@
 
-## Week 5 
+## Week 5  
 
 The snail left a trail of **slime** along the floor.  
 What's the priciest thing you've ever **splurged** on?  
 We'll **splurge** on a trip in France next year.  
 I think that's a **mentality**. I work my **tail off** every day.  
-**lop** his head off. 
+**lop** his head off.  
 Worn rugs increase the danger of **tripping**.  
 She is **tripping** along with her little steps.  
 I just prefer to be **suave**, do it with **panache** and **finesse**  
@@ -14,7 +14,7 @@ The cruel landlord would **bate** him no rent.
 He gave an **ostentatious** yawn  
 The French are **discreet** about money and flinch at **ostentatious** displays of wealth.  
 
-It is easy to **misconstrue** confidence as arrogance.   
+It is easy to **misconstrue** confidence as arrogance.  
 They **construed** her silence as meaning that she agree  
 **corned beef**  
 She watched them through a **slit** in the curtains.  
@@ -30,7 +30,7 @@ This is significant because the severe cases are those that **put a strain** on 
 It **overshoots** on the way up, corrects, stabilizes, and then **chops** around for a few months before usually heading higher. It happened in 1982–83, 2003–04, and 2009–11.  
 Looks like they **overshot** their destination by 10 years  
 There is no known **antidote** to the poison.  
-She was holding on to the rope **for dear life**.   
+She was holding on to the rope **for dear life**.  
 
 It’s been a **whirlwind** for investors and despite it all, the market is at an all-time high.  
 Technology does not need **vast troves** of personal data, stitched together across dozens of websites and apps, in order to succeed  
@@ -44,14 +44,14 @@ He's happy to **mooch** around the house all day.
 It all seemed useless and **inane**  
 she'll be coming soon, don't **fash** yourself.  
 Trying not to get **mauled** to death by our friend.  
-People were **awestruck** by the pictures the satellite sent back to earth.   
+People were **awestruck** by the pictures the satellite sent back to earth.  
 Everyone at court was **enchanted** by me!  
 He was **dismayed** by the sight of the burning house.  
 **fossilize**  
-He was a very **sensual** person.   
+He was a very **sensual** person.  
 They tried to avoid looking at his **grotesque** face and his crippled body.  
-The **erotic** is more of the imagination part.   
-I wouldn't **demean** myself by asking for charity.   
+The **erotic** is more of the imagination part.  
+I wouldn't **demean** myself by asking for charity.  
 I should **demote** you from senior minister to elder  
 
 ## Week 4  
@@ -60,8 +60,8 @@ I remember thinking “how simple, **no qualms** of conscience, no soul-searchin
 He gets quite a **snug** income in his job.  
 The jacket was a **snug** fit.  
 He showed us into a **snug** little **sitting room**.  
-I left the children tucked up **snugly** in bed.   
-Chutzpah is a Yiddish term that roughly translates to "**audacity**" or "**having the nerve**"   
+I left the children tucked up **snugly** in bed.  
+Chutzpah is a Yiddish term that roughly translates to "**audacity**" or "**having the nerve**"  
 The S&P 500 **tacked on** 1.1% and the Nasdaq added 1.6% as investors returned to risk  
 Homebuying **Bonanza**  
 That demand has **waned**, and CEO Michael Hsu said while the company anticipated slower tissue sales, the size of the decline in toilet paper came as a surprise  
@@ -75,7 +75,7 @@ Not in the front office. Who's in the **boiler room**?
 **Cadillac** goes electric  
 Cooperman has labeled the idea of a wealth tax foolish, and in interviews he has used a string of **expletives** to accuse Warren of ruining the American dream and called her a political charlatan.  
 
-Instead, they rely on the market as their primary **gauge** of the company's true value.   
+Instead, they rely on the market as their primary **gauge** of the company's true value.  
 That makes them question their entire investing thesis, not only **dissuading** them from buying additional shares but also putting pressure on them to sell off their existing position.  
 
 New York, Illinois, and Vermont are automatically **expunging** criminal records of some marijuana-related charges, and other states will prioritize awarding licenses to entrepreneurs from impacted communities.  
@@ -89,8 +89,8 @@ The iron's too hot, you'll **singe** the dress.
 In the eyes of the public, a divorced man is **footloose** and **fancy-free**.  
 **Nicotine** is both a **stimulant** and a **depressant**.  
 Your love for me is a natural **anti-depressant**.  
-She is one **ballsy** lady!   
-Their instincts warned them something was **amiss**.   
+She is one **ballsy** lady!  
+Their instincts warned them something was **amiss**.  
 His face is **etched** onto his brain.  
 A scientist is usually a **methodical** person.  
 His shirt was **spotted** with oil.  
@@ -113,7 +113,7 @@ They truly think of their lives as one **cog** in a machine.
 I've **terrorized** the city countless times  
 
 
-## Week 3 
+## Week 3  
 
 If your company's PTO rules don't have a **probationary** period, then I don't see a problem.  
 There is a lot of money **sloshing around** in capital markets right now, and a lot of investors are diving **headlong** into cryptocurrencies  
@@ -132,7 +132,7 @@ The sad story **wrung** my heart.
 Some people have mobility challenges that make walking an **ordeal**, or even impossible  
 
 The coat is worn **threadbare**.  
-**threadbare** subject   
+**threadbare** subject  
 Head **bent** over, Yeah, raised up **posterior**.  
 Instead, the walls are alive with the most **ornate** patterns.  
 His judgment seems to have **waned**.  
@@ -142,10 +142,10 @@ He had a quick **swill** of wine.
 He looked **sly** and **furtive**.  
 He went **berserk** and attacked a man in court.  
 He was **apoplectic** with rage at the decision.  
-**drippy** climate   
+**drippy** climate  
 These men look a bit **drippy**  
 **tangly**  
-Her kitchen was kept **immaculate**.   
+Her kitchen was kept **immaculate**.  
 Max **sighed**, sounding even more **downhearted**.  
 **sedimentary** rock  
 **petit** **bourgeois**  
@@ -154,16 +154,16 @@ Max **sighed**, sounding even more **downhearted**.
 Throughout all of this, I recall Brian’s calm focus and dedication in every one of our conversations, despite operating in a very noisy and **excitable** market.  
 US markets recover from early losses, S&P **notches** new record  
 Bitcoin rallied to a new all-time high, topping $63,000 as investors and HODL'ers are **salivating** about tomorrow's direct listing of Coinbase, the largest cryptocurrency exchange in the U.S  
-Last month, many European countries paused the use of AstraZeneca’s coronavirus vaccine because of concerns about **blood clots**.   
+Last month, many European countries paused the use of AstraZeneca’s coronavirus vaccine because of concerns about **blood clots**.  
 A search mission is **underway** after a boat **capsized** off the Louisiana coast. At least six people were rescued but several remain missing.  
 Bitcoin only has **imputed** value  
-**connoisseur** of sushi   
+**connoisseur** of sushi  
 She has a **cybernetic** body, but she's kept her human emotions  
 He was using the principles of **Psycho Cybernetics** to become one of the greatest body builders of all time.  
 
-## Week 2 
+## Week 2  
 
-Many Eastern Asians prefer to **hold their emotions in check** and instead express themselves with great politeness
+Many Eastern Asians prefer to **hold their emotions in check** and instead express themselves with great politeness  
 
 The 315-acre Lake Chabot is stocked with **trout** and catfish. There are also **bass**, **crappie**, and other fish  
 
@@ -171,7 +171,7 @@ On its current trajectory, South Asia, home to a quarter of humanity, will soon 
 Pressure has mounted for the government to open the **spigot** further by licensing new vaccines  
 It does not help that the current wave appears to be powered by more **virulent** strains of covid-19  
 It has since **limped** back to life, but the government is wary of making any moves that could delay recovery  
-**heave** 
+**heave**  
 
 What's the opposite of **fattening**? **Skinnying**, like in a negative way  
 Going to **emaciate** your portfolio  
@@ -194,10 +194,10 @@ Remember the **totem** in the movie, Inception? It’s an item that reminded peo
 Ocasio-Cortez became involved in a lengthy **probate** battle to settle his estate  
 
 The workers are **dishing** a gutter.  
-He had **reddish** brown hair.   
+He had **reddish** brown hair.  
 A **briny** wind blew, rustled the trees.  
 I am not allowed to cross the **transom**.  
-Garcia is well known for his **impish** sense of humor.   
+Garcia is well known for his **impish** sense of humor.  
 There was a dark **smudge** on his forehead.  
 She'll **blab** it all over the school.  
 The letter was **devoid** of warmth and feeling.  
@@ -210,10 +210,10 @@ It is important to **touch base** with your kids.
 E-commerce Retail Sales Have **Peaked** as a Result of the Pandemic  
 A **Landmark** Win for Google and Big Tech  
 Yellen is hoping to keep U.S. companies from **uprooting** and moving overseas to save money on taxes and from holding massive amounts of cash abroad, depleting funds from federal and local jurisdictions.  
-In a blog post on Friday, Amazon admitted to **scoring** an "**own-goal**" on itself and apologized to US Rep. Mark Pocan after initially denying that the company’s delivery drivers had to pee in bottles due to being overworked.   
+In a blog post on Friday, Amazon admitted to **scoring** an "**own-goal**" on itself and apologized to US Rep. Mark Pocan after initially denying that the company’s delivery drivers had to pee in bottles due to being overworked.  
 **Enough said** about that. Let's move on to error number four.  
 
-## Week 1 
+## Week 1  
 
 She claims she had a brief **fling** with him 30 years ago  
 We made a **tentative** arrangement to meet on Friday.  
@@ -229,18 +229,18 @@ Holman **thumped** the desk with his hand.
 You could see a same facial feature, on one person it's a **knockout**, for on another, it does nothing for you.  
 Beauty is The **Eye of the Beholder**.  
 A **boxy** jacket  
-She was **radiant** with health.   
+She was **radiant** with health.  
 
 I **have a thing** for you.  
 I'm **green**.  
-The 2008 financial crisis, which **cleaved** the market in half.
+The 2008 financial crisis, which **cleaved** the market in half.  
 I will be **better off** without you.  
 Nubile, young **temptress** **traipsing** around your house.  
 Microsoft CEO Satya Nadella has warned it causes burnout, and incoming Amazon CEO Andy Jassy said that with WFH, “You just don’t **riff** the same way,” which hurts innovation.  
-The book **delineates** rational and non-rational motivations/triggers associated with each type of thinking process, and how they complement each other    
-Good advice comes from people who have **indisputable** expertise.
+The book **delineates** rational and non-rational motivations/triggers associated with each type of thinking process, and how they complement each other  
+Good advice comes from people who have **indisputable** expertise.  
 A good mentor will do this with some care, and even some **trepidation**.  
-This whole father thing scares the heck **outta** me.   
+This whole father thing scares the heck **outta** me.  
 If he **veers** into advice, just listen respectfully and come back to the request  
 **kindred purpose**  
 By the way, that exercise in class went pretty well, and then we decided to **jettison** it anyway and keep the prior version of the exercise because it was more effective.  
@@ -270,8 +270,8 @@ Keep your **reframed** understanding of decision making **handy**, and be sure t
 Though it was **out of vogue** among his friends to consider getting involved in government and the public sector  
 It’s more of an inaction than an action, and your brain just hates that, the same way nature **abhors** a vacuum  
 Andy was a star **pupil**.  
-**churn**, 
-**wring** 
+**churn**,  
+**wring**  
 **manipulate**  
 
 but they can also **let go**, be in-the-moment, and improvise, coming up with ideas that are truly original  
@@ -287,9 +287,9 @@ Networking is just **hustling** people—it’s **slimy**.
 This isn’t favoritism—it’s just **communal** behavior  
 a lot of people have an instant **aversion** to the term “networking.”  
 Nature of the work. Salary and the friendliness of co-workers come in second and third, to complete this completely dysfunctional job-seeker **trifecta**.  
-You can’t know it from a **faulty** job description
+You can’t know it from a **faulty** job description  
 
-To some degree, it’s also a **numbers game**—the more connections you make, the more prototypes you run, the more opportunities will turn into offers.
+To some degree, it’s also a **numbers game**—the more connections you make, the more prototypes you run, the more opportunities will turn into offers.  
 Designers get **juiced** by what they call **wicked problems**  
 I am **out of shape**, and I’m frequently **winded** if I have to run for the train  
 They will help you know if you’re **on course** or **off course**  

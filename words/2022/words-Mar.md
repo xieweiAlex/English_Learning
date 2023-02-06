@@ -1,15 +1,15 @@
-### Week 5
+### Week 5  
 
 In this market, trading in your vehicle will fetch more money than ever. It will help **defray** the costs of buying another car, whether a new or used vehicle.  
 That's a market **gimmick**.  
 Disruptive innovation is **inexorable**.  
 
-Pleasure is addictive and **animal**; enjoyment is **elective** and human.   
+Pleasure is addictive and **animal**; enjoyment is **elective** and human.  
 Pleasure and enjoyment do not even have to **coincide**.  
 If I sought only pleasure, I would stay on my couch and **inadvertently** deny myself enjoyment, settling for a comfort that is animal and **evanescent**. It is a bad trade.  
 When we say to our kids, “Turn off the computer and go play outside,” we are **exhorting** them to choose enjoyment by doing something that requires more **voluntary effort**, does not create a dependency, and has more enduring benefits.  
 Read: How hobbies **infiltrated** American life.  
-> Enjoyment means refusing to be managed by pleasures, nor subjugated by joyless drudgery. Pursuing it is a declaration of independence from your base impulses, be they licentious or despotic. It is a key ingredient in creating the life you truly want
+> Enjoyment means refusing to be managed by pleasures, nor subjugated by joyless drudgery. Pursuing it is a declaration of independence from your base impulses, be they licentious or despotic. It is a key ingredient in creating the life you truly want  
 
 And that’s why when women **put down** other women, it’s even more **maddening** than any group of virgin basement men who try to tell me that my efforts to bring more women into bitcoin are considered sexist.  
 She **flipped out** and then she left.  
@@ -27,30 +27,30 @@ Or confidence that you took care of business and won't have to go when you're **
 Let the graphic above **sink in** — then share it with people who **trivialize** democratic **erosion**. Democracies are literally disappearing.  
 
 In a **performant** way with **low overhead**.  
-Not only would the claim be the biggest among airplane **lessors**, but it could be one of the largest single claims ever submitted. 
+Not only would the claim be the biggest among airplane **lessors**, but it could be one of the largest single claims ever submitted.  
 AerCap has only managed to **repossess** 22 aircraft and three engines located in Russia, out of a total of 135 planes and 14 engines on lease in the country.  
 
 insurance **indemnity**.  
 
-> The Humorous contest will be first (I am contestant #5) followed by the International Speech contest.
+> The Humorous contest will be first (I am contestant #5) followed by the International Speech contest.  
 
-**Didn't see that coming**. 
+**Didn't see that coming**.  
 **that was unexpected**.  
-**I never thought about that**. 
+**I never thought about that**.  
 
 
 Local **whiz** kid wins national science prize.  
 Plus, they’re often competitively priced — some CSAs start at around $10 per box — and offer **scrumptious** fruits and veggies like turnips, chayote squash, and unique melon varieties.  
 
 
-## Week 4 
+## Week 4  
 **peppercorn rent**.  
 This was abosolutely **crucible** of China's economic boom.  
 
 It’s going to take a while to **sort out**.  
 His already **infirm** body was **racked** by high fever.  
 **Copernicus**, the Earth revolves around the sun.  
-It was a **knotty** question.   
+It was a **knotty** question.  
 
 Honey and sugar are both carbohydrates composed primarily of **glucose** and **fructose**.  
 Many of the **antioxidants** found in honey are classified as **flavonoids**. Flavonoids have **anti-inflammatory** properties, which may provide some health benefits.  
@@ -61,7 +61,7 @@ China has insistently **sought to** shift the focus to the question of U.S. biol
 White House spokesperson Jen Psaki on Twitter called the claims "**preposterous**."  
 China **churns out** billionaires.  
 
-You **sold me**. 
+You **sold me**.  
 you **sold me out**.  
 I'm **all over you**.  
 **I'm over you**.  
@@ -75,7 +75,7 @@ Not flow to small and small moving **pathos**.
 illegal **Interlope**  
 
 
-## Week 3 
+## Week 3  
 
 This combination brought a massive amount of **untapped** labor into global markets within a rather short period of time, which allowed corporations to **geographically** arbitrage their operations.  
 But it did also help hundreds of millions of people rise out of **abject** poverty in these developing countries.  
@@ -84,7 +84,7 @@ Companies basically **traded away** resilience **in favor of** efficiency, while
 
 **Excavate** is a term that means to dig out and remove soil.  
 **racquet** / racket  
-A walk in the fresh air will **pep you up**.   
+A walk in the fresh air will **pep you up**.  
 Zelensky to seize the **bully pulpit**, calling on the U.S. to behave like a superpower.  
 
 **psychomotor** speed.  
@@ -105,11 +105,11 @@ I think open military aid is entirely off the table, still wouldn't rule out the
 She got a bit **tiddly** down the pub.  
 In fact, one study showed that **blanching** and freezing vegetables for up to 2 months did not significantly alter their phytochemical content.  
 uncooked kale contained a higher amount of **antioxidants** than fresh kale, suggesting that freezing may even increase the antioxidant content of certain vegetables.  
-This is the **regale** of the thought. -
+This is the **regale** of the thought. -  
 
 The area has also **sprouted** critic darlings like St. Vincent, Charley Crockett and Joshua Ray Walker.  
 Beijing's **tacit support** for Putin during Russia's invasion of Ukraine hasn't been lost on Europeans, who are viewing the Chinese government with growing skepticism.  
-Chinese officials and state media have widely **disseminated** pro-Russia disinformation and government censors have scrubbed the Chinese internet of pro-Ukraine views.
+Chinese officials and state media have widely **disseminated** pro-Russia disinformation and government censors have scrubbed the Chinese internet of pro-Ukraine views.  
 There was **audible** **booing** and **jeering** going on from the Chinese students **partway** through her question, and during the answer, they started to get up and just walked out of the room.  
 
 He employs an **irreverent** humor to salt his observation.  
@@ -117,7 +117,7 @@ You're witty & **irreverent** but still a kind person.
 I've **lived off** only Soylent, and I've lived off only on Huel.  
 The price is **horrid** no doubt but I had one shake this morning and felt really good and now one shake at night also feeling very good now.  
 
-## Week 2 
+## Week 2  
 
 The baker is **kneading** dough.  
 **Knead** the dough to the right **consistency**.  
@@ -144,16 +144,16 @@ two years of **feckless** negotiations.
 Her husband was a charming, but lazy and **feckless** man.  
 Another **curveball** could be **on tap** for today as the Labor Department publishes fresh Consumer Price Index data.  
 
-In the first days of war, Russia’s armored might **shrivelled** before the courage of the nation it had attacked.   
+In the first days of war, Russia’s armored might **shrivelled** before the courage of the nation it had attacked.  
 I'm not **uptight**, man.  
 Oil makes up about 45% of gas prices, which is why President Biden is playing **footsie** with the Iranians, Saudis and Venezuelans.  They have oil. Biden wants cheaper gas.  
 **Makeshift** arms are **pouring out of** Ukraine’s **ateliers**.  
 
-"They tried to **depict** the U.S., the West and NATO as not trustworthy and people in Taiwan as delusional to think the U.S. will protect Taiwan at all," Doublethink Lab CEO Min Hsuan Wu told Axios.
+"They tried to **depict** the U.S., the West and NATO as not trustworthy and people in Taiwan as delusional to think the U.S. will protect Taiwan at all," Doublethink Lab CEO Min Hsuan Wu told Axios.  
 **Burn pits** were used during the U.S. wars in Iraq and Afghanistan to dispose of all manner of waste, including metal, plastics, rubber, and human **excrement**.  
 Could some broader peace talks **beckon**? Probably not. It’s more in Mr Putin’s nature to double down, not **back down**.  
 
-**butterscotch**
+**butterscotch**  
 This is a **sea change** in job definition.  
 I have been nothing but a **truant** and a **vagabond**.  
 The **mousse** helps shape my hair.  
@@ -164,7 +164,7 @@ Ukraine took heavier losses **at the outset**, but Russia’s losses are conside
 Russian assets have become toxic, **for a lack of better expression**.  
 **Onshore markets** are **barricaded** and basically uninvestable, while offshore markets have been **hammered**.  
 
-## Week 1
+## Week 1  
 
 His **vacuity** was a handicap in these debates.  
 This color is bright but not **garish**.  
@@ -186,14 +186,14 @@ heartless **vulture** capitalists.
 Some have referred to Zuckerberg as "Zuckerborg" for his communications skills that can sometimes come of as **rehearsed** or **impersonal**.  
 During sleep, colon **motility** generally stops.  
 
-You kinda have to put your **blinders** on and focus on fundamentals. 
-**Recumbent** bicycle equipped with very comfortable office chair.
+You kinda have to put your **blinders** on and focus on fundamentals.  
+**Recumbent** bicycle equipped with very comfortable office chair.  
 **somatic** cell  
 
 Putin's war was **premeditated** and **unprovoked**. He rejected efforts at diplomacy.  
 Russia is said to **derive** a significant amount of money from the fees it imposes to use its airspace, or to land at one of its airports.  
 **In the hot seat**.  
-Powell has to **thread** a pretty thin needle.   
+Powell has to **thread** a pretty thin needle.  
 Moscow already **chafes** at being beholden to a country that was once its **protege** during Soviet times, and it's uncomfortable with China's growing presence in Central Asia, which Russia regards as its backyard.  
 China's leaders aren't willing to **indelibly** tie themselves to "Putin's **chariot**," Sun said. "For China, this is a **calculus**. There is benefit and cost.  
 Seniors **swoop in** as young chicks enter their first year in college.  
@@ -203,7 +203,7 @@ He seemed **aloof** and detached.
 He applied **varnish** to the table.  
 But the Russian **despot** has told his lie so many times that he apparently believes it himself.  
 
-## Conversation 
+## Conversation  
 How do we **square** this?  
 This is a **race to the bottom**.  
 You're **peeping**.  
