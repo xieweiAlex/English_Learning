@@ -138,11 +138,14 @@ function ensure_trailing_spaces() {
 
 # action=$1
 
-ensure_trailing_spaces "./words-review.md"
-ensure_trailing_spaces "./words/2023/words-Jan.md"
+function clean_all_files() {
+  for file_path in "${files[@]}"; do
+    echo "Current item: $file_path"
 
+    ensure_trailing_spaces "$file_path"
+  done
+}
 
-exit 1
 
 echo "."
 if [[ "$#" -ne 1 ]]; then
@@ -151,6 +154,9 @@ if [[ "$#" -ne 1 ]]; then
 fi
 
 echo ".."
+ensure_trailing_spaces "./words/2023/words-Jan.md"
+
+echo "..."
 if [[ $action == 'sync' ]];
 then
   echo -e "${GREEN}Update back words to origin files ${NC}" 
@@ -161,6 +167,8 @@ then
 
   # echo -e "${GREEN}Get new words for various resources to WORDS_REVIEW file.${NC}"
   getNewWords
+
+  ensure_trailing_spaces "$WORDS_REVIEW"
 elif [[ "$action" == 'countWords' ]]; then
   countWords
 elif [[ "$action" == 'pushBack' || "$action" == 'push' ]]; then
@@ -168,6 +176,9 @@ elif [[ "$action" == 'pushBack' || "$action" == 'push' ]]; then
 elif [[ $action == 'update' ]]; then
   echo "Get new words."
   getNewWords
+elif [[ $action == 'clean' ]]; then
+  echo "Clean all files with trailing spaces"
+  clean_all_files
 else 
   echo -e "${RED}Failed!${NC}"				
 	echo "this is invalid parameter: $action"		

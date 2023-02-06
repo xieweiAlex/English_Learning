@@ -1,3 +1,7 @@
+## HOC2.md ##  
+media/houseOfCards/HOC2.md  
+Should I find a way to **tip off** Dunbar? -  
+
 ## words-Jan.md ##  
 words/2023/words-Jan.md  
 **maudlin**. -  
@@ -26,6 +30,7 @@ She is not a **psychic**, nor a **homicide** detective, nor a **kook**. -
 The **brassy** boys put their tongues out at us. -  
 The art of **hula** was seen as **lascivious** and almost **heretical**. And so hula got pushed into underground scenes and were maintained in secrecy. -  
 It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics. -  
+The crowd went absolutely mad. It was **bedlam**. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
 Everything he owned was **sequestered**. -  
@@ -55,4 +60,49 @@ The speech—which would later become known as "This Is Water"—begins with a s
 ## words-Nov.md ##  
 words/2022/words-Nov.md  
 That long, **lugubrious** howl rose on the night air again! -  
+He soon proved himself a **redoubtable** warrior, and won the respect of other soldiers. -  
 you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
+
+## words-Oct.md ##  
+words/2022/words-Oct.md  
+A **swanky** rooftop lounge with a cool modern design, featuring regular DJs & events. -  
+
+## words-Aug.md ##  
+words/2022/words-Aug.md  
+Kamal was a vendor in Cairo's open-air **bazaar**. -  
+Insults alone cannot **defile** a person's honor. -  
+
+## words-July.md ##  
+words/2022/words-July.md  
+The 7-foot-1, 15-time NBA all-star has been **out and about**, **ingratiating** himself in his new community. -  
+They fell **prostrate** in worship. -  
+
+## words-June.md ##  
+words/2022/words-June.md  
+After a peanut flower is **pollinated**, the flower **wilts** and curves down. -  
+
+## words-May.md ##  
+words/2022/words-May.md  
+All whole grains are made up of three major components (3): **bran**, **germ**, **endosperm**. -  
+I leaned forward to **rumple** his hair, but he jerked out of the way. -  
+A **vicious** sell-off in risky assets **jolts** stablecoins. -  
+
+## words-April.md ##  
+words/2022/words-April.md  
+Stronger legs and **well-oiled** knee and hip joints from squatting make you less **brittle**. -  
+
+## words-Mar.md ##  
+words/2022/words-Mar.md  
+This is the **regale** of the thought. -  
+
+## words-Feb.md ##  
+words/2022/words-Feb.md  
+**glutinous** rice. -  
+
+## words-Dec.md ##  
+words/2021/words-Dec.md  
+The wheels sank deeper into the **mire**. -  
+
+## words-Nov.md ##  
+words/2021/words-Nov.md  
+Many of his warnings proved **prophetic**. -  
