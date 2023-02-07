@@ -8,17 +8,20 @@
 
 I think we may just **loiter** around above 4000 for another week or two. 
 
-> One of the things that Stoicism helps us with is building some of that confidence—not ego—that confidence to **tune out** criticism that doesn’t matter, tune out people that don’t matter, to remember that some people don’t know what they’re talking about, and that you don’t have to listen to those people.  
+**crony capitalism** 
+**took to the stage** 
+So why did he need to spend so many precious hours in his tent, writing by the **lamplight**, practicing philosophy in his journals? 
 
+> One of the things that Stoicism helps us with is building some of that confidence—not ego—that confidence to **tune out** criticism that doesn’t matter, tune out people that don’t matter, to remember that some people don’t know what they’re talking about, and that you don’t have to listen to those people.  
 
 **under the gun**.  
 
 **calamitous**  
-succor  
+**succor**  
 **archaeologist**  
 **harangue**  
-ransack  
-macerate  
+**ransack**  
+**macerate**  
 **uppity**  
 **capacitate**  
 **jihad**  
