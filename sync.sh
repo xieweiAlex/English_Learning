@@ -134,10 +134,6 @@ function ensure_trailing_spaces() {
   echo "ensure_trailing_spaces done"
 }
 
-
-
-# action=$1
-
 function clean_all_files() {
   for file_path in "${files[@]}"; do
     echo "Current item: $file_path"
