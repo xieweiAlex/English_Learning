@@ -1,11 +1,36 @@
 
-- turn in 
-- geography
-- come to the boil 
-- make the cut 
-- Her supercilious attitude enraged me.
+mansion  
+lusty  
+cupid  
+**in demand**  
+abet, youglish   
+They go into a kind of romantic cocoon.  
+gizzard  
+ladybug  
+A brainiac, with a cranium packed, full of more uranium.  
 
 
+
+unintended consequence  
+
+The **turnstiles** and ADA door will be activated in the near future but we do have two security guards on site to ensure access control for the floor.  
+
+**carcass** 
+A **miserly** father makes a **prodigal** son. -  
+**sinister**  
+**impaction**  
+**willow**  
+**kucklehead**  
+
+
+
+**turn in** 
+**geography**
+**come to the boil** 
+**make the cut** 
+Her **supercilious** attitude enraged me. -
+
+There was the usual romantic **postscript** at the end of his letter.  
 I think we may just **loiter** around above 4000 for another week or two. 
 
 **crony capitalism** 
