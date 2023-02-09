@@ -1,10 +1,17 @@
 
-While I do love Thanksgiving, it feels more and more like an anachronism. A brief pause in our escalators ever quickening churn higher. An old holiday we wheel out to say, look, we really are still all about community, family, and togetherness. Really about the transcendent.  
+
+All we can choose is what we do after they befall us. All we can influence is what they cause…
+"I can’t control that she died. I can’t do anything about that. All I can control is what her death causes, and I’m determined that it cause good things, not bad things. That’s what I’m focused on, is what does this cause? Like make sure it doesn’t cause more pain, see if it causes something else."  
+what will this cause? Will it put us out of commission or give us a new mission? Will it cause good things or bad things?
 
 
-He is obstinate and determined and will not give up.  
-blowfish  
+accuse her of being a **fabulist**.  
 
+While I do love Thanksgiving, it feels more and more like an **anachronism**. A brief pause in our escalators ever quickening churn higher. An old holiday we wheel out to say, look, we really are still all about community, family, and **togetherness**. Really about the **transcendent**.  
+
+
+He is **obstinate** and determined and will not give up. -  
+**blowfish**  
 Newsom could no longer let his state **play footsie** with those opposing the basic laws of physics.  
 California’s last remaining nuclear power plant was **set to close** in 2025 and under no reasonable scenario was this a responsible course of action but **mustering** the political support to keep it open seemed daunting.  
 
