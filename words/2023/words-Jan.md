@@ -1,31 +1,33 @@
 
+While I do love Thanksgiving, it feels more and more like an anachronism. A brief pause in our escalators ever quickening churn higher. An old holiday we wheel out to say, look, we really are still all about community, family, and togetherness. Really about the transcendent.  
 
 
-Newsom could no longer let his state play footsie with those opposing the basic laws of physics.  
-California’s last remaining nuclear power plant was set to close in 2025 and under no reasonable scenario was this a responsible course of action but mustering the political support to keep it open seemed daunting.  
+He is obstinate and determined and will not give up.  
+blowfish  
+
+Newsom could no longer let his state **play footsie** with those opposing the basic laws of physics.  
+California’s last remaining nuclear power plant was **set to close** in 2025 and under no reasonable scenario was this a responsible course of action but **mustering** the political support to keep it open seemed daunting.  
 
 
-It softens our solitude. It is a true friend.
-Books, especially those about philosophy, are that friend who should always be within arm’s reach.  
+It softens our **solitude**. It is a true friend.
+Books, especially those about philosophy, are that friend who should always be **within arm’s reach**.  
 
 
 With a **mixed bag** of economic data only getting more muddled, investors are looking to more specific indicators to assess the health and direction of the global economy.   
 There are practical issues to **iron out**.  
-What would totally upend your views?  
+What would totally **upend** your views?  
 
 **mansion**  
 **lusty**  
-cupid  
+**cupid**  
 **in demand**  
-abet, youglish   
-They go into a kind of romantic cocoon.  
-gizzard  
-ladybug  
-A brainiac, with a cranium packed, full of more uranium.  
+**abet**, youglish. -  
+They go into a kind of romantic **cocoon**.  
+**gizzard**  
+**ladybug**  
+A **brainiac**, with a cranium packed, full of more uranium.  
 
-
-
-unintended consequence  
+**unintended consequence**  
 
 The **turnstiles** and ADA door will be activated in the near future but we do have two security guards on site to ensure access control for the floor.  
 
@@ -83,6 +85,9 @@ We get the **buy in**.
 **go south**.  
 
 That's our **edge** as a company.  
+
+
+## Week 1 
 
 > You don't know what it is, but it's there, like a **splinter** in your mind, driving you mad. It is this feeling that has brought you to me. Do you know what I'm talking about.  
 
