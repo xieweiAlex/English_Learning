@@ -1,16 +1,33 @@
 
 
+Age has left its traces on her face.  
+
+
+Shares of rival crypto exchange Coinbase (NASDAQ:COIN) slumped 14% on Thursday, with CEO Brian Armstrong saying the SEC may want to get rid of crypto staking for retail customers entirely.   
+
+
+She's like a **pyro** in a room full of matches.  
+**exhume**  
+The **brassy** boys put their tongues out at us.  
+**ravenous**  
+**jaunt**  
+The **guerrillas** **exude** confidence. Every town, they say, is under their control.  
+**polymathy**  
+**polygamous**  
+**jughead**  
+He wore a faded red **flannel** shirt.  
+
+If your milk is very old and has started to **curdle**, become slimy, or grow mold, it’s best to throw it out.  
+
 **unfettered**  
 **conflagrate**    
-abash  
-grit, grits  
-olio  
-weed out  
-His skin felt cold and clammy.  
-headstrong  
-sinuses  
-
-
+**abash**  
+**grit**, **grits**  
+**olio**  
+**weed out**  
+His skin felt cold and **clammy**.  
+**headstrong**  
+**sinuses**  
 
 A hot shower and some **tylenol** seem to have helped.  
 **Tylenol**: an **analgesic** for mild pain; also used as an antipyretic  
