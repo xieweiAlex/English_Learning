@@ -1,11 +1,34 @@
 
 
-All we can choose is what we do after they befall us. All we can influence is what they cause…
+**unfettered**  
+**conflagrate**    
+abash  
+grit, grits  
+olio  
+weed out  
+His skin felt cold and clammy.  
+headstrong  
+sinuses  
+
+
+
+A hot shower and some **tylenol** seem to have helped.  
+**Tylenol**: an **analgesic** for mild pain; also used as an antipyretic  
+An **analgesic** or **painkiller** is any member of the group of drugs used to achieve analgesia, relief from pain.  
+**antipyretic** drugs  
+**ibuprofen**  
+**aspirin**  
+**morphine**  
+**narcotic**  
+
+
+Why This **Fabled** Economist Still Favors Index Funds Over Stockpickers.  
+
+All we can choose is what we do after they **befall** us. All we can influence is what they cause…
 "I can’t control that she died. I can’t do anything about that. All I can control is what her death causes, and I’m determined that it cause good things, not bad things. That’s what I’m focused on, is what does this cause? Like make sure it doesn’t cause more pain, see if it causes something else."  
-what will this cause? Will it put us out of commission or give us a new mission? Will it cause good things or bad things?
+What will this cause? Will it put us **out of commission** or give us a new mission? Will it cause good things or bad things?
 
-
-accuse her of being a **fabulist**.  
+Accuse her of being a **fabulist**.  
 
 While I do love Thanksgiving, it feels more and more like an **anachronism**. A brief pause in our escalators ever quickening churn higher. An old holiday we wheel out to say, look, we really are still all about community, family, and **togetherness**. Really about the **transcendent**.  
 
