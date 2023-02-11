@@ -1,4 +1,17 @@
 
+Okay, we're onto something, this makes sense or should we actually kill it?  
+
+he **blubbered** like a child who had been **spanked**.  
+
+splinter 
+grunt  
+
+you have the floor  
+chip away 
+
+scruffy  
+gambol  
+
 
 Age has left its traces on her face.  
 
