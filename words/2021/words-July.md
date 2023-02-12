@@ -11,7 +11,7 @@ The building **commences** once the down payment is received
 A **salient** event that attracts your attention will be easily retrieved from memory.  
 He lives alone in a **suspiciously** **tidy** apartment.  
 that people who let themselves be guided by System 1 are more strongly **susceptible** to availability biases than others who are in a state of higher vigilance.  
-Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**. -  
+Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**.   
 
 Biden called on local governments to “take all possible steps” to **disburse** the funds. Evictions could begin as soon as Monday  
 after hours of **wrangling**, Democrats could not muster support to extend the ban  

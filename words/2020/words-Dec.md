@@ -111,7 +111,7 @@ If your vehicle was stolen, you should complete the Lost, Stolen or **Mutilated*
 I could be **flat out** wrong, but ...  
 I'll say this **up front**: It's all a bit mysterious, which should always make investors **wary**  
 President Donald Trump on Tuesday issued **a flurry of** pardons and **commutations** to a **slew** of **controversial** figures with **ties to** his administration  
-Division between two integers should **truncate** toward zero. -  
+Division between two integers should **truncate** toward zero.   
 Miguel, thanks for **dropping by** unexpectedly  
 
 There is nothing like a 400-point **swing** in the stock market in one day to focus the mind, but it doesn't beat a **planetary** **conjunction** occurring on the same day as the winter **solstice**. We are living in **spacey** times.  

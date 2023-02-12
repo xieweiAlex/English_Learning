@@ -6,7 +6,7 @@ I could previously type around 80 to 100 WPM—not too **shabby**, but nothing a
 **cheetah**  
 **illegible**  
 Ikea is an **old hand** at **herding** customers through a **labyrinthine** store layout.  
-The wheels sank deeper into the **mire**. -  
+The wheels sank deeper into the **mire**.   
 **bog down**  
 
 That people are **contextualizing** you as an Oscar contender.  

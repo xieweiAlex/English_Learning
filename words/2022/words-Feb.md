@@ -93,7 +93,7 @@ She's very **thorough** and **conscientious**.
 Meanwhile, vulnerable narcissists can be quiet and **reserved**.  
 
 The answer was lost in **a shout of** **ribald** laughter.  
-**glutinous** rice. -  
+**glutinous** rice.   
 I think you guys are blowing this **out of proportion**.  
 The 2 year old was "screaming and bleeding **profusely**." She was given first aid by a medic on-site.  
 

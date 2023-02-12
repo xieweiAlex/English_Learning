@@ -105,7 +105,7 @@ I think open military aid is entirely off the table, still wouldn't rule out the
 She got a bit **tiddly** down the pub.  
 In fact, one study showed that **blanching** and freezing vegetables for up to 2 months did not significantly alter their phytochemical content.  
 uncooked kale contained a higher amount of **antioxidants** than fresh kale, suggesting that freezing may even increase the antioxidant content of certain vegetables.  
-This is the **regale** of the thought. -  
+This is the **regale** of the thought.   
 
 The area has also **sprouted** critic darlings like St. Vincent, Charley Crockett and Joshua Ray Walker.  
 Beijing's **tacit support** for Putin during Russia's invasion of Ukraine hasn't been lost on Europeans, who are viewing the Chinese government with growing skepticism.  

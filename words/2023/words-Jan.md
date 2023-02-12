@@ -1,23 +1,75 @@
 
-Okay, we're onto something, this makes sense or should we actually kill it?  
+## Week 2 
 
+He regaled us with some jokes.  
+This is the regale of the thought.   
+
+
+
+Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**.   
+
+If you want to avoid that, you can make clarified butter, or ghee. That way, you remove the lactose and proteins, leaving you with pure butterfat.  
+
+
+Many of you reading through this right now likely don't see the necessity for something like bitcoin in our personal lives; some of you might be occasionally tight on cash, others are living in a first-world **opulence**.  
+
+He is legendary for his fearlessness and **pugnacity**.  
+This is clearly designed to **befuddle** the public.  
+**capsize**  
+Bird **perched** on the branch  
+I like fishing for **perch** on vacation.  
+When he was little, a fever gave him **cerebral palsy**.  
+**epilepsia**  
+
+**adumbrate** ??  
+
+
+I have a **knack** for **impression**.  
+**reacquainted**  
+
+**taste buds**  
+It's a little **greasy** for my **palate**, said my insanely jealous mom. -  
+**exotic** tea  
+
+I was reading on this paper, and I heard this **commotion** up in your room.  
+This **mangy** raccoon had busted through your screen.  
+He must have **scampered** up to where Shel was.  
+He just stared at me with that **smug look** and then **bolted**.  
+**If only** I'd have got here earlier...  
+**Nocturnal**  
+**It all adds up**.  
+
+Considering the number of **transgressions** you've committed and he's **overlooked**, don't you think just this once, you could **return the favor**?  
+Just **hold your horses**.  
+The plethora of stuffed animals on your bed that stares at him during your **amorous** activities.  
+Your constant **tardiness**, your singing.  
+According to him, you're **oversensitive** and have a **temper**.  
+Tell leonard he can **drop dead**.  
+
+**A next of kin**, or a friend?  
+**maroon**  
+**lavender** haze.  
+**hazel**  
+All that **glitters** is not gold.  
+**idyllic**  
+
+Don't be so **dismayed**.  
+**condescending**, **patronizing**  
+**ozone**  
+
+Usually in your friend group, you are the **life of the party**.  
+Okay, we're **onto something**, this makes sense or should we actually kill it?  
 he **blubbered** like a child who had been **spanked**.  
-
-splinter 
-grunt  
-
-you have the floor  
-chip away 
-
-scruffy  
-gambol  
+**splinter**  
+**grunt**  
+**you have the floor**  
+**chip away**  
+**scruffy**. -  
+**gambol**  
 
 
-Age has left its traces on her face.  
-
-
-Shares of rival crypto exchange Coinbase (NASDAQ:COIN) slumped 14% on Thursday, with CEO Brian Armstrong saying the SEC may want to get rid of crypto staking for retail customers entirely.   
-
+Age has left its **traces** on her face.  
+Shares of rival crypto exchange Coinbase (NASDAQ:COIN) **slumped** 14% on Thursday, with CEO Brian Armstrong saying the SEC may want to get rid of crypto staking for retail customers entirely.  
 
 She's like a **pyro** in a room full of matches.  
 **exhume**  
@@ -33,7 +85,7 @@ He wore a faded red **flannel** shirt.
 If your milk is very old and has started to **curdle**, become slimy, or grow mold, it’s best to throw it out.  
 
 **unfettered**  
-**conflagrate**    
+**conflagrate**  
 **abash**  
 **grit**, **grits**  
 **olio**  
@@ -54,9 +106,9 @@ An **analgesic** or **painkiller** is any member of the group of drugs used to a
 
 Why This **Fabled** Economist Still Favors Index Funds Over Stockpickers.  
 
-All we can choose is what we do after they **befall** us. All we can influence is what they cause…
+All we can choose is what we do after they **befall** us. All we can influence is what they cause…  
 "I can’t control that she died. I can’t do anything about that. All I can control is what her death causes, and I’m determined that it cause good things, not bad things. That’s what I’m focused on, is what does this cause? Like make sure it doesn’t cause more pain, see if it causes something else."  
-What will this cause? Will it put us **out of commission** or give us a new mission? Will it cause good things or bad things?
+What will this cause? Will it put us **out of commission** or give us a new mission? Will it cause good things or bad things?  
 
 Accuse her of being a **fabulist**.  
 
@@ -69,11 +121,11 @@ Newsom could no longer let his state **play footsie** with those opposing the ba
 California’s last remaining nuclear power plant was **set to close** in 2025 and under no reasonable scenario was this a responsible course of action but **mustering** the political support to keep it open seemed daunting.  
 
 
-It softens our **solitude**. It is a true friend.
+It softens our **solitude**. It is a true friend.  
 Books, especially those about philosophy, are that friend who should always be **within arm’s reach**.  
 
 
-With a **mixed bag** of economic data only getting more muddled, investors are looking to more specific indicators to assess the health and direction of the global economy.   
+With a **mixed bag** of economic data only getting more muddled, investors are looking to more specific indicators to assess the health and direction of the global economy.  
 There are practical issues to **iron out**.  
 What would totally **upend** your views?  
 
@@ -91,7 +143,7 @@ A **brainiac**, with a cranium packed, full of more uranium.
 
 The **turnstiles** and ADA door will be activated in the near future but we do have two security guards on site to ensure access control for the floor.  
 
-**carcass** 
+**carcass**  
 A **miserly** father makes a **prodigal** son. -  
 **sinister**  
 **impaction**  
@@ -100,18 +152,18 @@ A **miserly** father makes a **prodigal** son. -
 
 
 
-**turn in** 
-**geography**
-**come to the boil** 
-**make the cut** 
-Her **supercilious** attitude enraged me. -
+**turn in**  
+**geography**  
+**come to the boil**  
+**make the cut**  
+Her **supercilious** attitude enraged me. -  
 
 There was the usual romantic **postscript** at the end of his letter.  
-I think we may just **loiter** around above 4000 for another week or two. 
+I think we may just **loiter** around above 4000 for another week or two.  
 
-**crony capitalism** 
-**took to the stage** 
-So why did he need to spend so many precious hours in his tent, writing by the **lamplight**, practicing philosophy in his journals? 
+**crony capitalism**  
+**took to the stage**  
+So why did he need to spend so many precious hours in his tent, writing by the **lamplight**, practicing philosophy in his journals?  
 
 > One of the things that Stoicism helps us with is building some of that confidence—not ego—that confidence to **tune out** criticism that doesn’t matter, tune out people that don’t matter, to remember that some people don’t know what they’re talking about, and that you don’t have to listen to those people.  
 
@@ -147,7 +199,7 @@ We get the **buy in**.
 That's our **edge** as a company.  
 
 
-## Week 1 
+## Week 1  
 
 > You don't know what it is, but it's there, like a **splinter** in your mind, driving you mad. It is this feeling that has brought you to me. Do you know what I'm talking about.  
 
@@ -265,7 +317,7 @@ How Goldman Sachs went from **apex** predator to Wall Street **laggard**.
 The main focus of their **ire** is that, starting Feb. 13, 2023, it will cost twice as many of the program’s reward points, called stars, to earn a free cup of hot coffee.  
 When companies **pare** rewards programs back, there is often significant customer pushback.  
 
-Not cheating on your spouse, not sexually assaulting a **captive** person, these are hardly achievements worthy of being **feted** for. -  
+Not cheating on your spouse, not sexually assaulting a **captive** person, these are hardly achievements worthy of being **feted** for.   
 
 Those with a **penchant** for **large-mouthed bass**, **trout**, catfish, and other **freshwater** fish may be getting dangerous doses of PFAS, aka “forever chemicals,” according to a new study.  
 Introverted function is very long and **drawn out**.  
@@ -528,7 +580,7 @@ They laughed, in a **derisive** way.
 Benidorm Island is a small island and nature reserve and makes a great **excursion** for the whole family.  
 I went to Christmas **shindig** with my boyfriend at the time and his family is very religious the catholic and right before the eight they got into a circle held hands and prayed.  
 When a predator is around, the squirrel doesn't **snarl**. Instead, it **whips** its tail **back and forth** to look big and **fearsome**.  
-The art of **hula** was seen as **lascivious** and almost **heretical**. And so hula got pushed into underground scenes and were maintained in secrecy. -  
+The art of **hula** was seen as **lascivious** and almost **heretical**. And so hula got pushed into underground scenes and were maintained in secrecy.   
 
 I am fortunate to know several **nonagenarians**, but to add to the robustness of the response, I put the question out with a number of friends with older grandparents or great-grandparents.  
 Court **upholds** arrest of Andrew Tate.  

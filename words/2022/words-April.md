@@ -39,7 +39,7 @@ The **balky** engine **sputtered** and stopped.
 He loves entertaining his friends with **ribald stories**.  
 **ribald** jokes.  
 
-Stronger legs and **well-oiled** knee and hip joints from squatting make you less **brittle**. -  
+Stronger legs and **well-oiled** knee and hip joints from squatting make you less **brittle**.   
 What does it take to **lay him low**?  
 His palms were **excoriated** by the hard labor of shoveling.  
 Still **nursing** a hangover from Twitter accepting Elon Musk’s buyout offer? Well, the only cure, they say, is to imbibe more. Here’s the latest on the deal that rocked the world.  

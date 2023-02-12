@@ -29,7 +29,7 @@ He became the **doyen** of British physicists.
 There was nothing **portentous** or solemn about him. He was bubbling with humour.  
 **endocrine** disrupter: **pesticides**, herbicides, **insecticides**.  
 
-I leaned forward to **rumple** his hair, but he jerked out of the way. -  
+I leaned forward to **rumple** his hair, but he jerked out of the way.   
 Most people continue to use good old-fashioned locks and keys to access their humble **abodes**.  
 
 ## Week 3  
@@ -88,7 +88,7 @@ A TFCC tear is split into two types. A Type 1 tear occurs when you fall and land
 
 If you put pressure on your wrists and pull on **sloper** holds, you risk suffering this injury.  
 The crypto infrastructure **cracks**  
-A **vicious** sell-off in risky assets **jolts** stablecoins. -  
+A **vicious** sell-off in risky assets **jolts** stablecoins.   
 
 The headline sent shares of Twitter (TWTR) into a **tailspin**, collapsing 25% to around $34, with the stock still trading violently at the time of writing.  
 

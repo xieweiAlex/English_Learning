@@ -22,7 +22,7 @@ Underwood's **roadkill**, not you.
 You're **fidgeting**.  
 To create some **ruckus** if nothing was going on?  
 **perjure** myself?  
-Should I find a way to **tip off** Dunbar? -  
+Should I find a way to **tip off** Dunbar?   
 
 ## E 10  
 They're upping the **ante**.  

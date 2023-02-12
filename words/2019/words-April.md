@@ -186,8 +186,6 @@ The physical **ailments** that **condemned** him to a lonely childhood
 coral **reef**  
 he was **kin** to the brothers.  
 The poor painter sold his paintings for a **paltry** sum of money.  
-Bird **perched** on the branch  
-I like fishing for **perch** on vacation.  
 The cells **proliferate** **readily** in **culture**.  
 Spectacle **bunker**.  
 The bad news **disquieted** him.  

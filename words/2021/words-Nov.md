@@ -356,7 +356,7 @@ He would **repudiate** all debts incurred by his son.
 Performance, scalability and **fault-tolerant** considerations.  
 **choke point**  
 They **dredge** the bay for **gravel**.  
-Many of his warnings proved **prophetic**. -  
+Many of his warnings proved **prophetic**.   
 **poach**, **pilfer**  
 Make A Long **Harangue**  
 It's hard to win if your attitude adds friction to every **interpersonal** experience.  

@@ -23,7 +23,7 @@ Federal Reserve Chair Jerome Powell’s tough-talking speech signals the Fed is 
 I started to wonder **the nature of** his questions.  
 We don't need to exchange **pleasantries**.  
 
-Kamal was a vendor in Cairo's open-air **bazaar**. -  
+Kamal was a vendor in Cairo's open-air **bazaar**.   
 Tax on **superfluity**.  
 She loved the **virile** young swimmer.  
 Jobs said yes, then **berated** his colleagues for wasting his time.  
@@ -115,7 +115,7 @@ So the next time you’re craving candy or sweets, consider **munching** on some
 **snake oil** scam.  
 
 We never saw a reduction in government **outlays** since 70s.  
-Insults alone cannot **defile** a person's honor. -  
+Insults alone cannot **defile** a person's honor.   
 The air in the garden was warm and **fragrant**.  
 
 Well, get **pissy** if you want mom, I've enjoyed the time we've had as a family.  

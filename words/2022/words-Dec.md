@@ -132,7 +132,7 @@ Vegetarianism has **shed** its **cranky** image.
 He is **resigned** to the noise, the mess, the constant **upheaval**.  
 My father is **paranoid** about being robbed.  
 **pecs**, **packs**  
-The leaves are a **variegated** red. -  
+The leaves are a **variegated** red.   
 Suddenly the buyer saw a cliff **dead ahead**.  
 The fighting has continued **unabated** for over 24 hours.  
 **underpass**  
@@ -209,7 +209,7 @@ He **molested** children and was sent to jail.
 
 I didn't want to hear the **sordid** details of their relationship. -  
 The man was brutish and **coarse**.  
-The newspaper launched a **vitriolic** attack on the president. -  
+The newspaper launched a **vitriolic** attack on the president.   
 
 North Texas pastor returns to **pulpit**.  
 For years, this belief was **perpetuated** by health officials and medical and nutrition associations alike, leading some people to avoid eating eggs.  
@@ -294,7 +294,7 @@ By imposing the daily apparatus of detection and enforcement, he has brought an 
 These **discrepancies** influence what is likely to ail you.  
 Politicians like to **pontificate** about falling standards. -  
 He was neither overly worried nor **briskly** **peremptory**. -  
-The trustworthiness is the essential condition of **comity**. -  
+The trustworthiness is the essential condition of **comity**.   
 The FTX founder and former CEO crafted an image as a **rumpled**, slightly mad **wunderkind**, napping on office beanbags and wearing shorts to meetings.  
 
 In a surprising tweet, McAfee said that the promise was simply a “**ruse** to onboard new users” before claiming that “it worked”.  
