@@ -142,7 +142,7 @@ function clean_all_files() {
   done
 }
 
-
+action=$1
 echo "."
 if [[ "$#" -ne 1 ]]; then
 	echo "no parameter inputted, default action to 'sync'"
@@ -176,8 +176,7 @@ elif [[ $action == 'clean' ]]; then
   echo "Clean all files with trailing spaces"
   clean_all_files
 else 
-  echo -e "${RED}Failed!${NC}"				
-	echo "this is invalid parameter: $action"		
-	echo "should be \"sync\", \"pushBack\", \"countWords\" or \"update\""
+  echo -e "Action \"${action}\" ${RED}Failed!${NC}"
+  echo "Action invalid, should be \"sync\", \"pushBack\", \"countWords\" or \"update\""
 fi
 

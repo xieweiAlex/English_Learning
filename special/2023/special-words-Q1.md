@@ -1,4 +1,7 @@
 
+**scarring** 
+**jarring** 
+
 **fulfilling**
 
 **rocky** 
