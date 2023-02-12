@@ -1,16 +1,18 @@
 
 ## Week 2 
 
-He regaled us with some jokes.  
-This is the regale of the thought.   
+Yes, the word "scruffy" is commonly used. It is an adjective used to describe something or someone that is untidy, shabby, or unkempt in appearance.  
+You might also describe a room as scruffy if it is cluttered with a lot of old and worn objects, or if it is dirty and in need of cleaning. In general, the word "scruffy" conveys a sense of neglect or disrepair.  
 
 
+
+He **regaled** us with some jokes.  
+This is the **regale** of the thought.   
+He sat with such **regal** dignity.   
 
 Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**.   
 
-If you want to avoid that, you can make clarified butter, or ghee. That way, you remove the lactose and proteins, leaving you with pure butterfat.  
-
-
+If you want to avoid that, you can make clarified butter, or **ghee**. That way, you remove the lactose and proteins, leaving you with pure butterfat.  
 Many of you reading through this right now likely don't see the necessity for something like bitcoin in our personal lives; some of you might be occasionally tight on cash, others are living in a first-world **opulence**.  
 
 He is legendary for his fearlessness and **pugnacity**.  
@@ -21,8 +23,7 @@ I like fishing for **perch** on vacation.
 When he was little, a fever gave him **cerebral palsy**.  
 **epilepsia**  
 
-**adumbrate** ??  
-
+The author's descriptions of the main character's childhood serve to **adumbrate** his later experiences and personality. 
 
 I have a **knack** for **impression**.  
 **reacquainted**  
@@ -31,9 +32,9 @@ I have a **knack** for **impression**.
 It's a little **greasy** for my **palate**, said my insanely jealous mom. -  
 **exotic** tea  
 
-I was reading on this paper, and I heard this **commotion** up in your room.  
-This **mangy** raccoon had busted through your screen.  
-He must have **scampered** up to where Shel was.  
+I was reading on this paper, and I heard this **commotion** up in your room. -  
+This **mangy** raccoon had busted through your screen. -  
+He must have **scampered** up to where Shel was. -  
 He just stared at me with that **smug look** and then **bolted**.  
 **If only** I'd have got here earlier...  
 **Nocturnal**  
@@ -50,7 +51,7 @@ Tell leonard he can **drop dead**.
 **maroon**  
 **lavender** haze.  
 **hazel**  
-All that **glitters** is not gold.  
+All that **glitters** is not gold. -  
 **idyllic**  
 
 Don't be so **dismayed**.  
@@ -59,12 +60,12 @@ Don't be so **dismayed**.
 
 Usually in your friend group, you are the **life of the party**.  
 Okay, we're **onto something**, this makes sense or should we actually kill it?  
-he **blubbered** like a child who had been **spanked**.  
+he **blubbered** like a child who had been **spanked**. -  
 **splinter**  
 **grunt**  
 **you have the floor**  
 **chip away**  
-**scruffy**. -  
+**scruffy**.   
 **gambol**  
 
 
