@@ -1,5 +1,45 @@
 
+
+**Pick a side**, but whatever you believe, intraday volatility has been significant on CPI days in recent months. 
+in a nailbiter that saw them defeat the Philadelphia Eagles 38-35 in the final minute of play  
+“I would not have traded places with any of them,” she said on the podcast. “They were on the hedonic treadmill, and they couldn’t get off. There was never enough.”  
+“being poor is not having too little, it is wanting more.” Epictetus,   
+True wealth is not simply having a lot, it is having enough. It is accepting yourself, it is focusing on what you control, on what actually matters in life. If you can embrace this, you’ll be richer than any billionaire, movie star, or pro athlete. You may do less, but you’ll have so much more.  
+
+Walmart’s purported goal: Become a services provider for other retailers. The companies announced the retail tech partnership last month, highlighting Walmart’s evolving business strategy.
+“This one announcement is just one piece that’s enabling this much larger flywheel and much grander ambition,”  
+
+
+
+
 ## Week 2 
+
+There are other people to whom these things would be hard, and they say, “Well, how do I get good at being pithy and selling ideas?”  
+You can very slowly but steadily and methodically improve your happiness baseline, just like you can improve your fitness. 
+One has to do the external thing anyway. We’re biologically hard-wired. It’s **glib** to say, “You can just turn it off.” Your own life experience will bring you back to the internal path. [7]
+Netscape. Satoshi Nakamoto is successful in that he created Bitcoin, which is this incredible technological creation that will have repercussions for decades to come.
+war. When you start a business, in a way, you’re going to war.
+This is also true when you’re working with individual people. If you’ve worked with somebody for five or ten years and you still enjoy working with them, obviously you trust them, and the little foibles are gone.
+I love working with Elad because I know when the deal is being done, he will bend over backward to give me extra. He will always round off in my favor if there’s an extra dollar being delivered here or there.  
+be. If I latch onto a feeling, if I say, “Oh, I’m happy now,” and I want to stay happy, then I’m going to drop out of that happiness.  
+overcome. When I was young, I had a lot of jealousy. By and by, I learned to get rid of it. It still crops up every now and then. It’s such a poisonous emotion because, at the end of the day, you’re no better off with jealousy.
+well. Maybe it’s politically incorrect to say you should choose your friends very wisely. But you shouldn’t choose them haphazardly based on who you live next to or who you happen to work with.
+When it comes to medicines for the mind, the placebo effect is 100 percent effective. When it comes to your mind, you want to be positively inclined, not incredulous in belief. If it is fully internal, you should have a positive mindset.
+He shows you the single-most important thing is to be present and hammers it home over and over again until you get it.
+We’re sitting indoors, wearing clothes, **well-fed**, and communicating with each other through space and time.
+
+
+
+The hunter is a stout lusty fellow.  
+
+
+Life and death situations  
+Why are you subjecting yourself to this?  
+
+turn a king into that most feared and detested thing -- a tyrant.  
+
+
+set me up for reading more.  
 
 Yes, the word "scruffy" is commonly used. It is an adjective used to describe something or someone that is untidy, shabby, or unkempt in appearance.  
 You might also describe a room as scruffy if it is cluttered with a lot of old and worn objects, or if it is dirty and in need of cleaning. In general, the word "scruffy" conveys a sense of neglect or disrepair.  

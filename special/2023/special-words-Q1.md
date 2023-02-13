@@ -1,4 +1,6 @@
 
+**entail**
+
 **scarring** 
 **jarring** 
 
