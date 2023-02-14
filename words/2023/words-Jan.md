@@ -1,14 +1,23 @@
 
+**skulk**  
+**allegorically**  
+**beanie**  
+**soothsaying**  
+**extraneous**  
+**infirm**  
+The whole hall is filled with joy and laughter -- there is only one who feels **distressful**.  
+**acrobatic**  
+**peasant**  
+
+Hemp seed shells may contain **trace amounts** of THC (less than 0.3%), the active compound in marijuana.  
 
 **Aspartame** is a non-nutritive sweetener (NNS). It has not been conclusively linked with any serious side effects or health problems.  
-A 2015 study suggests that aspartame was the largest source of methanol in the American diet. Methanol is toxic in large quantities, yet smaller amounts may also be concerning when combined with free methanol because of enhanced absorption.  
-
-
+A 2015 study suggests that **aspartame** was the largest source of **methanol** in the American diet. Methanol is toxic in large quantities, yet smaller amounts may also be concerning when combined with free methanol because of enhanced absorption.  
 
 “Whenever you get an impression of some pleasure, as with any impression, guard yourself from being carried away by it, let it await your action, give yourself a pause.  
 
-Nobody is going to listen to some old codger tell his war stories about when he got wiped out, I get that.  
-The power, the psychological power of a bubble to suck everybody in is prodigious, and we've known it since the Tulip bubble.  
+Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that. -  
+The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble. -  
 
 
 **Swat**  
@@ -27,12 +36,10 @@ He **clutched** the cane in his clammy hand.
 in a **nailbiter** that saw them defeat the Philadelphia Eagles 38-35 in the final minute of play  
 “I would not have traded places with any of them,” she said on the podcast. “They were on the hedonic treadmill, and they couldn’t get off. There was never enough.”  
 “being poor is not having too little, it is wanting more.” Epictetus,   
-True wealth is not simply having a lot, it is having enough. It is accepting yourself, it is focusing on what you control, on what actually matters in life. If you can embrace this, you’ll be richer than any billionaire, movie star, or pro athlete. You may do less, but you’ll have so much more.  
+> True wealth is not simply having a lot, it is having enough. It is accepting yourself, it is focusing on what you control, on what actually matters in life. If you can embrace this, you’ll be richer than any billionaire, movie star, or pro athlete. You may do less, but you’ll have so much more.  
 
-Walmart’s purported goal: Become a services provider for other retailers. The companies announced the retail tech partnership last month, highlighting Walmart’s evolving business strategy.
-“This one announcement is just one piece that’s enabling this much larger flywheel and much grander ambition,”  
-
-
+Walmart’s **purported** goal: Become a services provider for other retailers. The companies announced the retail tech partnership last month, highlighting Walmart’s evolving business strategy.
+“This one announcement is just one piece that’s enabling this much larger flywheel and much **grander** ambition,”  
 
 
 ## Week 2 
