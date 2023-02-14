@@ -1,7 +1,26 @@
 
+“Whenever you get an impression of some pleasure, as with any impression, guard yourself from being carried away by it, let it await your action, give yourself a pause.  
+
+
+
+Nobody is going to listen to some old codger tell his war stories about when he got wiped out, I get that.  
+The power, the psychological power of a bubble to suck everybody in is prodigious, and we've known it since the Tulip bubble.  
+
+
+**Swat**  
+**querulous**  
+**depressant**  
+**superscript**, **postscript**  
+**hoarse**  
+**seer**  
+He **clutched** the cane in his clammy hand.  
+
+
+> So is the firebase not updating ... 
+> No, it's not. 
 
 **Pick a side**, but whatever you believe, intraday volatility has been significant on CPI days in recent months. 
-in a nailbiter that saw them defeat the Philadelphia Eagles 38-35 in the final minute of play  
+in a **nailbiter** that saw them defeat the Philadelphia Eagles 38-35 in the final minute of play  
 “I would not have traded places with any of them,” she said on the podcast. “They were on the hedonic treadmill, and they couldn’t get off. There was never enough.”  
 “being poor is not having too little, it is wanting more.” Epictetus,   
 True wealth is not simply having a lot, it is having enough. It is accepting yourself, it is focusing on what you control, on what actually matters in life. If you can embrace this, you’ll be richer than any billionaire, movie star, or pro athlete. You may do less, but you’ll have so much more.  
@@ -30,21 +49,17 @@ We’re sitting indoors, wearing clothes, **well-fed**, and communicating with e
 
 
 
-The hunter is a stout lusty fellow.  
+The hunter is a **stout** **lusty** fellow. -  
 
+**Life and death situations**  
+Why are you **subjecting** yourself to this? -  
 
-Life and death situations  
-Why are you subjecting yourself to this?  
+Turn a king into that most feared and **detested** thing -- a tyrant.  
 
-turn a king into that most feared and detested thing -- a tyrant.  
+**set me up** for reading more.  
 
-
-set me up for reading more.  
-
-Yes, the word "scruffy" is commonly used. It is an adjective used to describe something or someone that is untidy, shabby, or unkempt in appearance.  
-You might also describe a room as scruffy if it is cluttered with a lot of old and worn objects, or if it is dirty and in need of cleaning. In general, the word "scruffy" conveys a sense of neglect or disrepair.  
-
-
+Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance. -  
+You might also describe a room as **scruffy** if it is **cluttered** with a lot of old and worn objects, or if it is dirty and in need of cleaning. In general, the word "scruffy" conveys a **sense of neglect or disrepair**.  
 
 He **regaled** us with some jokes.  
 This is the **regale** of the thought.   
