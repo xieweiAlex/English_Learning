@@ -1,7 +1,11 @@
 
+
+**Aspartame** is a non-nutritive sweetener (NNS). It has not been conclusively linked with any serious side effects or health problems.  
+A 2015 study suggests that aspartame was the largest source of methanol in the American diet. Methanol is toxic in large quantities, yet smaller amounts may also be concerning when combined with free methanol because of enhanced absorption.  
+
+
+
 “Whenever you get an impression of some pleasure, as with any impression, guard yourself from being carried away by it, let it await your action, give yourself a pause.  
-
-
 
 Nobody is going to listen to some old codger tell his war stories about when he got wiped out, I get that.  
 The power, the psychological power of a bubble to suck everybody in is prodigious, and we've known it since the Tulip bubble.  
