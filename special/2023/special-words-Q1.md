@@ -1,4 +1,10 @@
 
+**haphazardly**
+
+**baseline**
+
+**pithy**
+
 **entail**
 
 **scarring** 

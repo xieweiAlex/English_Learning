@@ -1,7 +1,16 @@
 ## words-Jan.md ##  
 words/2023/words-Jan.md  
+Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that. -  
+The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble. -  
+The hunter is a **stout** **lusty** fellow. -  
+Why are you **subjecting** yourself to this? -  
+Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance. -  
 It's a little **greasy** for my **palate**, said my insanely jealous mom. -  
-**scruffy**. -  
+I was reading on this paper, and I heard this **commotion** up in your room. -  
+This **mangy** raccoon had busted through your screen. -  
+He must have **scampered** up to where Shel was. -  
+All that **glitters** is not gold. -  
+he **blubbered** like a child who had been **spanked**. -  
 He is **obstinate** and determined and will not give up. -  
 **abet**, youglish. -  
 A **miserly** father makes a **prodigal** son. -  

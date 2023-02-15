@@ -1,4 +1,22 @@
 
+I don’t believe much in predictions for the future, as life has a way of coming at you from left field, but I’d cautiously dare to wager that 2023 will be the year of widespread Lighting adoption as more and more of us devote time and energy to helping it along its natural path to success.  
+
+
+**blissful ignorance**.  
+**time preference**  
+**value proposition**  
+
+
+> You are taking the orange pill, which represents Bitcoin, freedom and monetary sovereignty or the blue pill, which means fiat money, debt and blissful ignorance.  
+
+For those intimidated by that thought, you can’t expect people to understand bitcoin when they are hypnotized by fiat money, thinking it is a better viable option  
+Any orange-pilled pleb will tell you with conviction why bitcoin is the best thing since sliced bread, and the only other option to this is to have fun staying poor.  
+Once you realize money is an idea of what is valuable, and that idea isn’t concrete. You ponder.  
+Gold has been deemed a relic by Bitcoiners, and stocks are proving to be volatile amid massive overprinting by the Federal Reserve.  
+
+
+
+
 **skulk**  
 **allegorically**  
 **beanie**  
@@ -29,36 +47,36 @@ The power, the psychological power of a bubble to suck everybody in is **prodigi
 He **clutched** the cane in his clammy hand.  
 
 
-> So is the firebase not updating ... 
-> No, it's not. 
+> So is the firebase not updating ...  
+> No, it's not.  
 
-**Pick a side**, but whatever you believe, intraday volatility has been significant on CPI days in recent months. 
+**Pick a side**, but whatever you believe, intraday volatility has been significant on CPI days in recent months.  
 in a **nailbiter** that saw them defeat the Philadelphia Eagles 38-35 in the final minute of play  
 “I would not have traded places with any of them,” she said on the podcast. “They were on the hedonic treadmill, and they couldn’t get off. There was never enough.”  
-“being poor is not having too little, it is wanting more.” Epictetus,   
+“being poor is not having too little, it is wanting more.” Epictetus,  
 > True wealth is not simply having a lot, it is having enough. It is accepting yourself, it is focusing on what you control, on what actually matters in life. If you can embrace this, you’ll be richer than any billionaire, movie star, or pro athlete. You may do less, but you’ll have so much more.  
 
-Walmart’s **purported** goal: Become a services provider for other retailers. The companies announced the retail tech partnership last month, highlighting Walmart’s evolving business strategy.
+Walmart’s **purported** goal: Become a services provider for other retailers. The companies announced the retail tech partnership last month, highlighting Walmart’s evolving business strategy.  
 “This one announcement is just one piece that’s enabling this much larger flywheel and much **grander** ambition,”  
 
 
-## Week 2 
+## Week 2  
 
-There are other people to whom these things would be hard, and they say, “Well, how do I get good at being pithy and selling ideas?”  
-You can very slowly but steadily and methodically improve your happiness baseline, just like you can improve your fitness. 
-One has to do the external thing anyway. We’re biologically hard-wired. It’s **glib** to say, “You can just turn it off.” Your own life experience will bring you back to the internal path. [7]
-Netscape. Satoshi Nakamoto is successful in that he created Bitcoin, which is this incredible technological creation that will have repercussions for decades to come.
-war. When you start a business, in a way, you’re going to war.
-This is also true when you’re working with individual people. If you’ve worked with somebody for five or ten years and you still enjoy working with them, obviously you trust them, and the little foibles are gone.
-I love working with Elad because I know when the deal is being done, he will bend over backward to give me extra. He will always round off in my favor if there’s an extra dollar being delivered here or there.  
-be. If I latch onto a feeling, if I say, “Oh, I’m happy now,” and I want to stay happy, then I’m going to drop out of that happiness.  
-overcome. When I was young, I had a lot of jealousy. By and by, I learned to get rid of it. It still crops up every now and then. It’s such a poisonous emotion because, at the end of the day, you’re no better off with jealousy.
-well. Maybe it’s politically incorrect to say you should choose your friends very wisely. But you shouldn’t choose them haphazardly based on who you live next to or who you happen to work with.
-When it comes to medicines for the mind, the placebo effect is 100 percent effective. When it comes to your mind, you want to be positively inclined, not incredulous in belief. If it is fully internal, you should have a positive mindset.
-He shows you the single-most important thing is to be present and hammers it home over and over again until you get it.
-We’re sitting indoors, wearing clothes, **well-fed**, and communicating with each other through space and time.
+There are other people to whom these things would be hard, and they say, “Well, how do I get good at being **pithy** and selling ideas?”  
+You can very slowly but steadily and **methodically** improve your happiness **baseline**, just like you can improve your fitness.  
+One has to do the external thing anyway. We’re biologically hard-wired. It’s **glib** to say, “You can just turn it off.” Your own life experience will bring you back to the internal path. [7]  
+Netscape. Satoshi Nakamoto is successful in that he created Bitcoin, which is this incredible technological creation that will have **repercussions** for decades to come.  
+> When you start a business, in a way, you’re going to war.  
 
+This is also true when you’re working with individual people. If you've worked with somebody for five or ten years and you still enjoy working with them, obviously you trust them, and the little **foibles** are gone.  
+I love working with Elad because I know when the deal is being done, he will **bend over backward** to give me extra. He will always **round off** in my favor if there’s an extra dollar being delivered here or there.  
+If I **latch onto a feeling**, if I say, “Oh, I’m happy now,” and I want to stay happy, then I’m going to drop out of that happiness.  
+When I was young, I had a lot of **jealousy**. **By and by**, I learned to get rid of it. It still **crops up** every now and then. It’s such a poisonous emotion because, at the end of the day, you’re **no better off** with jealousy.  
+> Maybe it’s politically incorrect to say you should choose your friends very wisely. But you shouldn't choose them **haphazardly** based on who you live next to or who you happen to work with.  
 
+When it comes to **medicines for the mind**, the placebo effect is 100 percent effective. When it comes to your mind, you want to be positively inclined, not **incredulous** in belief. If it is fully internal, you should have a positive mindset.  
+He shows you the single-most important thing is to be present and **hammers it home** over and over again until you get it.  
+We’re sitting indoors, wearing clothes, **well-fed**, and communicating with each other **through space and time**.  
 
 The hunter is a **stout** **lusty** fellow. -  
 
@@ -73,10 +91,10 @@ Yes, the word "**scruffy**" is commonly used. It is an adjective used to describ
 You might also describe a room as **scruffy** if it is **cluttered** with a lot of old and worn objects, or if it is dirty and in need of cleaning. In general, the word "scruffy" conveys a **sense of neglect or disrepair**.  
 
 He **regaled** us with some jokes.  
-This is the **regale** of the thought.   
-He sat with such **regal** dignity.   
+This is the **regale** of the thought.  
+He sat with such **regal** dignity.  
 
-Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**.   
+Estimates of causes of death are **warped** by media coverage. The coverage is itself biased toward **novelty** and **poignancy**.  
 
 If you want to avoid that, you can make clarified butter, or **ghee**. That way, you remove the lactose and proteins, leaving you with pure butterfat.  
 Many of you reading through this right now likely don't see the necessity for something like bitcoin in our personal lives; some of you might be occasionally tight on cash, others are living in a first-world **opulence**.  
@@ -89,7 +107,7 @@ I like fishing for **perch** on vacation.
 When he was little, a fever gave him **cerebral palsy**.  
 **epilepsia**  
 
-The author's descriptions of the main character's childhood serve to **adumbrate** his later experiences and personality. 
+The author's descriptions of the main character's childhood serve to **adumbrate** his later experiences and personality.  
 
 I have a **knack** for **impression**.  
 **reacquainted**  
@@ -131,7 +149,7 @@ he **blubbered** like a child who had been **spanked**. -
 **grunt**  
 **you have the floor**  
 **chip away**  
-**scruffy**.   
+**scruffy**.  
 **gambol**  
 
 
@@ -384,7 +402,7 @@ How Goldman Sachs went from **apex** predator to Wall Street **laggard**.
 The main focus of their **ire** is that, starting Feb. 13, 2023, it will cost twice as many of the program’s reward points, called stars, to earn a free cup of hot coffee.  
 When companies **pare** rewards programs back, there is often significant customer pushback.  
 
-Not cheating on your spouse, not sexually assaulting a **captive** person, these are hardly achievements worthy of being **feted** for.   
+Not cheating on your spouse, not sexually assaulting a **captive** person, these are hardly achievements worthy of being **feted** for.  
 
 Those with a **penchant** for **large-mouthed bass**, **trout**, catfish, and other **freshwater** fish may be getting dangerous doses of PFAS, aka “forever chemicals,” according to a new study.  
 Introverted function is very long and **drawn out**.  
@@ -647,7 +665,7 @@ They laughed, in a **derisive** way.
 Benidorm Island is a small island and nature reserve and makes a great **excursion** for the whole family.  
 I went to Christmas **shindig** with my boyfriend at the time and his family is very religious the catholic and right before the eight they got into a circle held hands and prayed.  
 When a predator is around, the squirrel doesn't **snarl**. Instead, it **whips** its tail **back and forth** to look big and **fearsome**.  
-The art of **hula** was seen as **lascivious** and almost **heretical**. And so hula got pushed into underground scenes and were maintained in secrecy.   
+The art of **hula** was seen as **lascivious** and almost **heretical**. And so hula got pushed into underground scenes and were maintained in secrecy.  
 
 I am fortunate to know several **nonagenarians**, but to add to the robustness of the response, I put the question out with a number of friends with older grandparents or great-grandparents.  
 Court **upholds** arrest of Andrew Tate.  
