@@ -200,7 +200,6 @@ You’re totally exhausted. You have to be up in three hours for **picket**
 There’s a rock **jutting** into your **hip bone**  
 Your sports analogy of **buckling down** and going into **hyperdrive** really resonated with me.  
 We spent **inordinate** amount of time talking about this.  
-You can't just **spout off** a bunch of terms you don't understand  
 the last part is really just a **sellout** part.  
 The Capitol rioters-some carrying **nooses**, bats, **pipes** and **zip ties**.  
 

@@ -1,7 +1,14 @@
 
+If I have a vulva and I need lube for sex, there must be something wrong with me.  
+
+You can't just **spout off** a bunch of terms you don't understand  
+Little teapots with long spouts have become a fixture in many homes to flush out clogged nasal passages and help people breathe easier.  
+neti pots  
+Some tap water contains low levels of organisms — such as bacteria and protozoa, including amoebas.  
+
+
 One thing I **glossed over** a few minutes ago was exactly what the rng is doing.  
 "As you sow, so will you reap."  
-
 
 **analgesic**  
 **canoodle**  
