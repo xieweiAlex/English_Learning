@@ -1,4 +1,22 @@
 
+One thing I glossed over a few minutes ago was exactly what the rng is doing.  
+"As you sow, so will you reap."  
+
+
+**analgesic**  
+**canoodle**  
+
+**Sea change**.  
+
+**Conjure**  
+**unencumbered**  
+**arboreal**  
+**seer**  
+**turgid**. -  
+
+
+**It's on the house**.  
+
 I don’t believe much in predictions for the future, as life has a way of coming at you from left field, but I’d cautiously dare to wager that 2023 will be the year of widespread Lighting adoption as more and more of us devote time and energy to helping it along its natural path to success.  
 
 
@@ -13,8 +31,6 @@ For those intimidated by that thought, you can’t expect people to understand b
 Any orange-pilled pleb will tell you with conviction why bitcoin is the best thing since sliced bread, and the only other option to this is to have fun staying poor.  
 Once you realize money is an idea of what is valuable, and that idea isn’t concrete. You ponder.  
 Gold has been deemed a relic by Bitcoiners, and stocks are proving to be volatile amid massive overprinting by the Federal Reserve.  
-
-
 
 
 **skulk**  
