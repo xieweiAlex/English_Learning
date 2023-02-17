@@ -207,7 +207,7 @@ He **molested** children and was sent to jail.
 
 ## Week 2  
 
-I didn't want to hear the **sordid** details of their relationship. -  
+I didn't want to hear the **sordid** details of their relationship.   
 The man was brutish and **coarse**.  
 The newspaper launched a **vitriolic** attack on the president.   
 

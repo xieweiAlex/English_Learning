@@ -20,8 +20,6 @@
 
 **induce**
 
-**deceptive**
-
 **condition**
 
 **diminish**

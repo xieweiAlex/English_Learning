@@ -1,5 +1,5 @@
 
-One thing I glossed over a few minutes ago was exactly what the rng is doing.  
+One thing I **glossed over** a few minutes ago was exactly what the rng is doing.  
 "As you sow, so will you reap."  
 
 
@@ -17,21 +17,18 @@ One thing I glossed over a few minutes ago was exactly what the rng is doing.
 
 **It's on the house**.  
 
-I don’t believe much in predictions for the future, as life has a way of coming at you from left field, but I’d cautiously dare to wager that 2023 will be the year of widespread Lighting adoption as more and more of us devote time and energy to helping it along its natural path to success.  
-
+I don’t believe much in predictions for the future, as life has a way of coming at you from left field, but I’d **cautiously** **dare to wager** that 2023 will be the year of widespread Lighting adoption as more and more of us devote time and energy to helping it along its natural path to success.  
 
 **blissful ignorance**.  
 **time preference**  
 **value proposition**  
 
-
 > You are taking the orange pill, which represents Bitcoin, freedom and monetary sovereignty or the blue pill, which means fiat money, debt and blissful ignorance.  
 
-For those intimidated by that thought, you can’t expect people to understand bitcoin when they are hypnotized by fiat money, thinking it is a better viable option  
-Any orange-pilled pleb will tell you with conviction why bitcoin is the best thing since sliced bread, and the only other option to this is to have fun staying poor.  
-Once you realize money is an idea of what is valuable, and that idea isn’t concrete. You ponder.  
-Gold has been deemed a relic by Bitcoiners, and stocks are proving to be volatile amid massive overprinting by the Federal Reserve.  
-
+For those intimidated by that thought, you can’t expect people to understand bitcoin when they are **hypnotized** by fiat money, thinking it is a better viable option  
+Any orange-pilled **pleb** will tell you with conviction why bitcoin is the best thing since **sliced bread**, and the only other option to this is to have fun staying poor.  
+Once you realize money is an idea of what is valuable, and that idea isn’t concrete. **You ponder**.  
+Gold has been deemed a **relic** by Bitcoiners, and stocks are proving to be volatile amid massive overprinting by the Federal Reserve.  
 
 **skulk**  
 **allegorically**  
@@ -48,7 +45,7 @@ Hemp seed shells may contain **trace amounts** of THC (less than 0.3%), the acti
 **Aspartame** is a non-nutritive sweetener (NNS). It has not been conclusively linked with any serious side effects or health problems.  
 A 2015 study suggests that **aspartame** was the largest source of **methanol** in the American diet. Methanol is toxic in large quantities, yet smaller amounts may also be concerning when combined with free methanol because of enhanced absorption.  
 
-“Whenever you get an impression of some pleasure, as with any impression, guard yourself from being carried away by it, let it await your action, give yourself a pause.  
+“Whenever you get an impression of some pleasure, as with any impression, guard yourself from being **carried away** by it, let it await your action, give yourself a pause.  
 
 Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that. -  
 The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble. -  
@@ -68,9 +65,10 @@ He **clutched** the cane in his clammy hand.
 
 **Pick a side**, but whatever you believe, intraday volatility has been significant on CPI days in recent months.  
 in a **nailbiter** that saw them defeat the Philadelphia Eagles 38-35 in the final minute of play  
-“I would not have traded places with any of them,” she said on the podcast. “They were on the hedonic treadmill, and they couldn’t get off. There was never enough.”  
-“being poor is not having too little, it is wanting more.” Epictetus,  
-> True wealth is not simply having a lot, it is having enough. It is accepting yourself, it is focusing on what you control, on what actually matters in life. If you can embrace this, you’ll be richer than any billionaire, movie star, or pro athlete. You may do less, but you’ll have so much more.  
+“I would not have **traded places** with any of them,” she said on the podcast. “They were on the **hedonic treadmill**, and they couldn't get off. There was never enough.”  
+
+> “being poor is not having too little, it is wanting more.” Epictetus,  
+> True wealth is not simply having a lot, it is having enough. It is accepting yourself, it is focusing on what you control, on what actually matters in life. If you can embrace this, you’ll be richer than any billionaire, movie star, or **pro athlete**. You may do less, but you’ll have so much more.  
 
 Walmart’s **purported** goal: Become a services provider for other retailers. The companies announced the retail tech partnership last month, highlighting Walmart’s evolving business strategy.  
 “This one announcement is just one piece that’s enabling this much larger flywheel and much **grander** ambition,”  
@@ -151,7 +149,7 @@ Tell leonard he can **drop dead**.
 **maroon**  
 **lavender** haze.  
 **hazel**  
-All that **glitters** is not gold. -  
+All that **glitters** is not gold.   
 **idyllic**  
 
 Don't be so **dismayed**.  
@@ -385,7 +383,6 @@ CEO Mark Zuckerberg said in his typically **terse** initial earnings comment. "I
 **eroticism**  
 **deject**  
 
-**glimmer**  
 **behest**  
 **ferret**  
 **burgundy**  
@@ -519,7 +516,7 @@ I kind of learned a long time ago that TE and Ni are not gonna **captivate** a r
 Things gonna **fall flat** if I don't **cater to** those people.  
 This gets **thwarted** with 3rd function, which is introverted feeling, which is all about how things feel to me.  
 
-Today, we're excited to gain more exposure to the **scintillating** self-storage industry by recommending Extra Space Storage (NYSE: EXR), which uses a similar business model to Life Storage. -  
+Today, we're excited to gain more exposure to the **scintillating** self-storage industry by recommending Extra Space Storage (NYSE: EXR), which uses a similar business model to Life Storage.   
 
 "I follow mediterranean diet, besides that I eat lots of eggs."  
 "The whole class is going, except John."  
@@ -622,7 +619,7 @@ With the indifferent attitude, good **happy-go-lucky** life words.
 
 However, sometimes teeth look yellow because the hard **enamel** has eroded, revealing the **dentin** underneath. Dentin is a naturally yellow, bony tissue that lies underneath the enamel.  
 **Peroxide** for whitening teeth.  
-**Hydrogen peroxide** is a natural bleaching agent that also kills bacteria in your mouth. -  
+**Hydrogen peroxide** is a natural bleaching agent that also kills bacteria in your mouth.   
 If you want whiter teeth, **cut back** on your sugar intake.  
 
 
@@ -693,10 +690,10 @@ Court **upholds** arrest of Andrew Tate.
 **gargantuan**  
 The **lurid** color is the life itself.  
 
-It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics. -  
+It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics.   
 The new management faces some **knotty** problems.  
 The **chutney** should be a thick, **pulpy** consistency.  
-The crowd went absolutely mad. It was **bedlam**. -  
+The crowd went absolutely mad. It was **bedlam**.   
 Grandpa left, yet the **roly-poly** left me.  
 
 > His willingness to take adequate care of himself… He hardly ever needed medical attention, or drugs or any sort of salve or ointment.  

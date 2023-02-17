@@ -1,4 +1,12 @@
 
+**disenchanted**
+
+**glimmer**, **glitters** 
+
+**unfazed**
+
+**backstop**  
+
 **haphazardly**
 
 **baseline**
@@ -16,6 +24,7 @@
 
 **backfill**
 
+**gingerly** 
 **hurtle**
 
 **cornerstone**, **backbone**
@@ -23,6 +32,8 @@
 **methodical**
 
 ## Jan 2023 
+
+**deceptive**
 
 **granular**
 
@@ -57,6 +68,7 @@
 **productize**
 
 **off-the-shelf**
+**commoditized**
 
 **marinate**
 

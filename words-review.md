@@ -9,7 +9,6 @@ It's a little **greasy** for my **palate**, said my insanely jealous mom. -
 I was reading on this paper, and I heard this **commotion** up in your room. -  
 This **mangy** raccoon had busted through your screen. -  
 He must have **scampered** up to where Shel was. -  
-All that **glitters** is not gold. -  
 he **blubbered** like a child who had been **spanked**. -  
 He is **obstinate** and determined and will not give up. -  
 **abet**, youglish. -  
@@ -30,16 +29,12 @@ He likes girls that play the **coquette**. -
 The Nordic detective is often **careworn** and **rumpled**. -  
 Let's look at the most important part—the **grading rubric**. -  
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
-Today, we're excited to gain more exposure to the **scintillating** self-storage industry by recommending Extra Space Storage (NYSE: EXR), which uses a similar business model to Life Storage. -  
 You definitely not going to get the **synapses** in your brain working unless you're typing these commands. -  
 The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts. -  
 Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits. -  
 This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go. -  
 She is not a **psychic**, nor a **homicide** detective, nor a **kook**. -  
-**Hydrogen peroxide** is a natural bleaching agent that also kills bacteria in your mouth. -  
 The **brassy** boys put their tongues out at us. -  
-It is necessary to **disenchant** this mysticism aesthetics of practical aesthetics. -  
-The crowd went absolutely mad. It was **bedlam**. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
 Everything he owned was **sequestered**. -  
@@ -54,11 +49,8 @@ You can imagine the **avalanche** of correspondence from Nazi sympathizers **cas
 The potential of smart contract and the ability to **bestow** utilization rights, property rights, copyrights, usage rights. -  
 Chinese didn't obtain the equal position and **condign** respect. -  
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
-A study of **ophidian** **clitorises** suggests snakes are highly **sexed**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
 And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
-I didn't want to hear the **sordid** details of their relationship. -  
-Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
 Politicians like to **pontificate** about falling standards. -  
 He was neither overly worried nor **briskly** **peremptory**. -  
 The speech—which would later become known as "This Is Water"—begins with a simple **parable** of the young fish and the old fish. -  
