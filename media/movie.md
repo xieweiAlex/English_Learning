@@ -183,7 +183,7 @@ first, the **overture**
 Here comes **crescendo**!  
 A cow getting **crucified**. It's **hysterical**  
 The security of the **familiar**, the **tranquility** of repetition.  
-I enjoy them as much as any **bloke**.  
+I enjoy them as much as any **bloke**. -  
 for those who will listen, the **enunciation** of truth.  
 I **maced** that **detective**. Why did I do that?  
 **interrogation** cell  

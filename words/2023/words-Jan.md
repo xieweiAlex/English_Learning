@@ -1,11 +1,33 @@
 
-If I have a vulva and I need lube for sex, there must be something wrong with me.  
+Which precinct are you with?  
+I'm uncover right now, I'm a whore.  
+
+
+at hand  
+She's a black belt in **judo**.  
+He looked sly and furtive.  
+fash?? 
+talmud  
+shellacking  
+The hospice aims to ease the sufferings of the dying.  
+
+**decibel**  
+**habitat**  
+**psychotic**  
+**olio**  
+**heartrending**  
+**overcoat**  
+
+
+
+We've got a **nucleus** of about 10 million laying hens.  
+
+If I have a **vulva** and I need **lube** for sex, there must be something wrong with me. -  
 
 You can't just **spout off** a bunch of terms you don't understand  
-Little teapots with long spouts have become a fixture in many homes to flush out clogged nasal passages and help people breathe easier.  
-neti pots  
-Some tap water contains low levels of organisms — such as bacteria and protozoa, including amoebas.  
-
+Little teapots with long **spouts** have become a **fixture** in many homes to flush out clogged nasal **passages** and help people breathe easier.  
+**neti pots**  
+Some tap water contains low levels of **organisms** — such as bacteria and **protozoa**, including **amoebas**. -  
 
 One thing I **glossed over** a few minutes ago was exactly what the rng is doing.  
 "As you sow, so will you reap."  
