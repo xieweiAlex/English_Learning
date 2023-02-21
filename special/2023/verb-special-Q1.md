@@ -1,4 +1,8 @@
 
+**stage**
+
+**prop**
+
 **hypnotize**
 
 **warp**

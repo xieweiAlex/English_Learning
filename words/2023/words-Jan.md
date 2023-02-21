@@ -1,15 +1,55 @@
 
-Which precinct are you with?  
-I'm uncover right now, I'm a whore.  
+According to new research from Consumer Reports, many dark chocolate bars contain **cadmium** and **lead**, two heavy metals that can be harmful to your overall health.  
+
+We know what’s **stupid and lame**, what’s **low brow** or trash, what’s fake and what’s real, authentic and commercial.   
+The wiser and smarter we get should not **correspond** with an increase in **snootiness** or **elitism**.  
+Push yourself, have strong or **exacting** opinions for what you consume, for what you like.  
+
+> But **why on Earth** would you feel the need to have an opinion on what other people like? Why would you want to **denigrate** what they are **getting out of something**? Why would you need to **step on** their joy?
+
+**When life gives you lemons, make zest**.  
+
+An author could be considered **eclectic** if they draw on a range of literary traditions and styles in their writing, rather than sticking to a single genre or technique.  
+
+**fentanyl**  
+**cut back on**  
+
+I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -
+**predilection** ??  
 
 
-at hand  
+**ricochet**  
+**decree**  
+**analgesic** ??  
+**shellacking**  
+**acorn**  
+**ashram**  
+His manner is **supercilious** and arrogant. -  
+
+I will pull around the garage and **stage** something, you owe me **big time**.  
+
+The **crux** of the matter is that the 2021/2022 inflation came from a surge in fiscal policy that occurred in 2020/2021, not from a surge in bank loans.  
+**peg**  
+
+He was a **vociferous** opponent of Conservatism.  
+Strive for **rapport** with others. - 
+
+**March through** the question list. 
+
+The Stoics have been trying to **domesticate** feelings of anxiety and stress for two **millennia**. They didn't always win, but they managed to make progress. Through practice, practice, practice.  
+
+China had warned of retaliation over the downing of a balloon earlier this month, but the latest **salvo** in tension-filled U.S.-Sino relations came over arms sales to Taiwan.  
+
+Which **precinct** are you with?  
+I'm **uncover** right now, I'm a whore.  
+
+**at hand**  
 She's a black belt in **judo**.  
-He looked sly and furtive.  
-fash?? 
-talmud  
-shellacking  
-The hospice aims to ease the sufferings of the dying.  
+He looked **sly** and **furtive**. -  
+**fash**?? 
+**talmud**  
+**shellacking**  
+The **hospice** aims to ease the sufferings of the dying. -  
 
 **decibel**  
 **habitat**  
@@ -18,10 +58,7 @@ The hospice aims to ease the sufferings of the dying.
 **heartrending**  
 **overcoat**  
 
-
-
 We've got a **nucleus** of about 10 million laying hens.  
-
 If I have a **vulva** and I need **lube** for sex, there must be something wrong with me. -  
 
 You can't just **spout off** a bunch of terms you don't understand  
@@ -40,7 +77,7 @@ One thing I **glossed over** a few minutes ago was exactly what the rng is doing
 **Conjure**  
 **unencumbered**  
 **arboreal**  
-**seer**  
+**seer**. -   
 **turgid**. -  
 
 
@@ -65,7 +102,7 @@ Gold has been deemed a **relic** by Bitcoiners, and stocks are proving to be vol
 **soothsaying**  
 **extraneous**  
 **infirm**  
-The whole hall is filled with joy and laughter -- there is only one who feels **distressful**.  
+The whole hall is filled with joy and laughter -- there is only one who feels **distressful**. -  
 **acrobatic**  
 **peasant**  
 
@@ -88,9 +125,6 @@ The power, the psychological power of a bubble to suck everybody in is **prodigi
 **seer**  
 He **clutched** the cane in his clammy hand.  
 
-
-> So is the firebase not updating ...  
-> No, it's not.  
 
 **Pick a side**, but whatever you believe, intraday volatility has been significant on CPI days in recent months.  
 in a **nailbiter** that saw them defeat the Philadelphia Eagles 38-35 in the final minute of play  
@@ -813,6 +847,16 @@ Not something you can **bank on**.
 
 Nice little **clank** form the metal card.  
 
+### Feb 
+Which **precinct** are you with?  
+I'm **uncover** right now, I'm a whore.  
+
+**It's on the house**.  
+
+
+### Grammar 
+> So is the firebase not updating ...  
+> No, it's not.  
 
 
 ## Interesting  
