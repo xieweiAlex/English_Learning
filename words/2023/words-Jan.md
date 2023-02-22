@@ -1,13 +1,21 @@
 
-Hopium: The metaphorical subtance that causes people to believe in a false hope. It is often paired up with copium.
+Sure, his wife had **silken** and **embroidered** robes and they possessed many silver **goblets** and beautiful **emeralds**, but to Marcus the true measure of his wealth was that whenever he saw someone in need of help, he could provide it.  
+To be able to **hop on** a flight and show up for a friend who reached out **in a time of crisis**.  
+To be able to forgive a debt, to be able to pick up **a tab**, to be able to spend a few hours **furthering** a cause.  
+**beat up old car**.  
+I strove to welcome this **hazard**, to rejoice in whatever it brought me of the new and unexpected, and thus without shock the ambush or the **tempest** was incorporated into my plans, or my thoughts.  
+Even in the **throes** of my worst disaster, I have seen a moment when sheer exhaustion reduced some part of the horror of the experience, and when I made the defeat a thing of my own in being willing to accept it.    
 
-Opposed to copium, which represents the rationalization of the current situation, hopium represents the belief that the situation will someday improve.
+
+> Your own safety is at stake when your neighbor's wall is **ablaze**.
+
+**Hopium**: The metaphorical substance that causes people to believe in a false hope. It is often paired up with copium.
+
+Opposed to **Copium**, which represents the rationalization of the current situation, **Hopium** represents the belief that the situation will someday improve.
 
 
-Shrapnel  
-Saturnine  
-
-
+**Shrapnel**  
+**Saturnine**  
 
 According to new research from Consumer Reports, many dark chocolate bars contain **cadmium** and **lead**, two heavy metals that can be harmful to your overall health.  
 
