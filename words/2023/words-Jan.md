@@ -1,4 +1,14 @@
 
+Hopium: The metaphorical subtance that causes people to believe in a false hope. It is often paired up with copium.
+
+Opposed to copium, which represents the rationalization of the current situation, hopium represents the belief that the situation will someday improve.
+
+
+Shrapnel  
+Saturnine  
+
+
+
 According to new research from Consumer Reports, many dark chocolate bars contain **cadmium** and **lead**, two heavy metals that can be harmful to your overall health.  
 
 We know what’s **stupid and lame**, what’s **low brow** or trash, what’s fake and what’s real, authentic and commercial.   
