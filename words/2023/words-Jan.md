@@ -1,4 +1,17 @@
 
+Aphrodisiac  
+Fuchsia  
+tempest 
+temptress   
+metonymy  
+deportation  
+
+
+They are an ossified relic of the fiat state that doesn’t have the self-awareness of their declining relevance.  
+
+
+I see what are you coming from ?? 
+
 Sure, his wife had **silken** and **embroidered** robes and they possessed many silver **goblets** and beautiful **emeralds**, but to Marcus the true measure of his wealth was that whenever he saw someone in need of help, he could provide it.  
 To be able to **hop on** a flight and show up for a friend who reached out **in a time of crisis**.  
 To be able to forgive a debt, to be able to pick up **a tab**, to be able to spend a few hours **furthering** a cause.  
