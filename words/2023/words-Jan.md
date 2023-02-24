@@ -1,4 +1,14 @@
 
+**dated** 
+**throw me off**.  
+
+
+- Give feedback 
+  - few thoughts to add on. 
+  - Feedback 
+  - How to cpliment and redirect 
+
+
 The node is sunsetting. If you have sats there, please remove them to another service asap.  
 
 Root for the underdog. 

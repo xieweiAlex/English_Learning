@@ -1,4 +1,8 @@
 
+
+**Entertain the idea**
+
+
 Why are you **subjecting** yourself to this?   
 
 Should I find a way to **tip off** Dunbar?   
