@@ -150,7 +150,7 @@ But **woe** to those who walk the path of **perdition**.
 **sacrificial**.  
 It is a **sacrilege** to offend democracy.  
 
-Chinese didn't obtain the equal position and **condign** respect. -  
+Chinese didn't obtain the equal position and **condign** respect.   
 Colin **drifted off** into a **fitful** sleep.  
 They quickly stripped me of my clothes and **bound** me like a **mummy** in a **gossamer web**.  
 **asunder**  
@@ -299,7 +299,7 @@ The FTX founder and former CEO crafted an image as a **rumpled**, slightly mad *
 
 In a surprising tweet, McAfee said that the promise was simply a “**ruse** to onboard new users” before claiming that “it worked”.  
 **For the record**, I am not a neat freak.  
-The speech—which would later become known as "This Is Water"—begins with a simple **parable** of the young fish and the old fish. -  
+The speech—which would later become known as "This Is Water"—begins with a simple **parable** of the young fish and the old fish.   
 
 Elon Musk continues to **goad** Apple (AAPL) by publishing the results of a poll in which he asked his 120M Twitter followers if the world's most-valuable company "should publish all censorship actions it has taken that affect its customers." The vote was **resoundingly** in the affirmative, with nearly 85% of the 2.2M respondents replying "Yes" to the query.  
 **Never one** to miss a chance to **savor** a win, Musk followed up by tweeting, "The people have spoken..."  

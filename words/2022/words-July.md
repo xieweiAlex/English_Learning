@@ -34,7 +34,7 @@ I think we both were **rebels**, liked **bucking the system**.
 I was in Iraq 2005, 2006, I was on got **mortared** pretty much daily.  
 
 **Land expropriation**.  
-The 7-foot-1, 15-time NBA all-star has been **out and about**, **ingratiating** himself in his new community. -  
+The 7-foot-1, 15-time NBA all-star has been **out and about**, **ingratiating** himself in his new community.   
 To avoid the **energy-zapping** effect of sugar-filled cereals, opt for varieties without added sugar that contain at least 4–5 grams of fiber per serving.  
 
 Formerly a manager in Coinbase’s Asset and Investing Products division, the employee appears to have **tipped off** his brother and a close friend about not only the cryptoassets that Coinbase planned to list, but also the timing.  

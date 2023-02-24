@@ -42,10 +42,10 @@ function getNewWords {
   done 
 
   lines=$(cat $WORDS_REVIEW | wc -l)
-  echo -e "File lines: ${YELLOW} $lines ${NC}, cut off lines beyond 110!"
+  # echo -e "File lines: ${YELLOW} $lines ${NC}, cut off lines beyond 110!"
 
   # Delete lines (111,$) let's keep the review file short & lean  
-  sed -i '' '111, 500d' "$WORDS_REVIEW"
+  # sed -i '' '111, 500d' "$WORDS_REVIEW"
 }
 
 # 1. PushBack changes in original file  

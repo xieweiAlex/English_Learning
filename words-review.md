@@ -1,5 +1,19 @@
-## words-Jan.md ##  
-words/2023/words-Jan.md  
+## movie.md ##  
+media/movie.md  
+I enjoy them as much as any **bloke**. -  
+
+## words-Feb.md ##  
+words/2023/words-Feb.md  
+I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -  
+His manner is **supercilious** and arrogant. -  
+Strive for **rapport** with others. -  
+He looked **sly** and **furtive**. -  
+The **hospice** aims to ease the sufferings of the dying. -  
+If I have a **vulva** and I need **lube** for sex, there must be something wrong with me. -  
+Some tap water contains low levels of **organisms** — such as bacteria and **protozoa**, including **amoebas**. -  
+**seer**. -  
+**turgid**. -  
+The whole hall is filled with joy and laughter -- there is only one who feels **distressful**. -  
 Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that. -  
 The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble. -  
 The hunter is a **stout** **lusty** fellow. -  
@@ -17,6 +31,9 @@ Her **supercilious** attitude enraged me. -
 **maudlin**. -  
 He had a rather forbidding, **saturnine** manner. -  
 That will **preclude** him from escaping. -  
+
+## words-Jan.md ##  
+words/2023/words-Jan.md  
 Nutrition **Lowdown**. -  
 He is so **tame** that he agrees with everybody. -  
 **dilapidated** building. -  
@@ -37,7 +54,6 @@ She is not a **psychic**, nor a **homicide** detective, nor a **kook**. -
 The **brassy** boys put their tongues out at us. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
-Everything he owned was **sequestered**. -  
 The tone of the article is **intemperate**. -  
 
 ## words-Dec.md ##  
@@ -47,13 +63,13 @@ I can't permit you to **temporize** any longer. -
 Straight line **parallel** to the corners of the mouth, and a **radian**. -  
 You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
 The potential of smart contract and the ability to **bestow** utilization rights, property rights, copyrights, usage rights. -  
-Chinese didn't obtain the equal position and **condign** respect. -  
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
+A study of **ophidian** **clitorises** suggests snakes are highly **sexed**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
 And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
+Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
 Politicians like to **pontificate** about falling standards. -  
 He was neither overly worried nor **briskly** **peremptory**. -  
-The speech—which would later become known as "This Is Water"—begins with a simple **parable** of the young fish and the old fish. -  
 
 ## words-Nov.md ##  
 words/2022/words-Nov.md  
@@ -67,7 +83,6 @@ A **swanky** rooftop lounge with a cool modern design, featuring regular DJs & e
 
 ## words-July.md ##  
 words/2022/words-July.md  
-The 7-foot-1, 15-time NBA all-star has been **out and about**, **ingratiating** himself in his new community. -  
 They fell **prostrate** in worship. -  
 
 ## words-June.md ##  
@@ -81,10 +96,6 @@ All whole grains are made up of three major components (3): **bran**, **germ**, 
 ## words-Oct.md ##  
 words/2021/words-Oct.md  
 She is perceived as **vain**, spoiled, and **promiscuous**. -  
-
-## words-Sep.md ##  
-words/2021/words-Sep.md  
-Cathie Wood was apparently **unfazed** by Zoom Video Communications Inc.’s post-earning decline. -  
 
 ## words-Aug.md ##  
 words/2021/words-Aug.md  

@@ -268,7 +268,7 @@ She wasn't very **fastidious** about personal hygiene.
 **promiscuity**  
 **lancet**  
 GMT: **Greenwich Mean Time**, **Zulu time**  
-Cathie Wood was apparently **unfazed** by Zoom Video Communications Inc.’s post-earning decline. -  
+Cathie Wood was apparently **unfazed** by Zoom Video Communications Inc.’s post-earning decline.   
 
 I didn't **make the cut** for the yearbook.  
 We're two months **in arrears** with the rent.  
