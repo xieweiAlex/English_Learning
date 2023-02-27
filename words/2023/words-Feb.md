@@ -1,15 +1,59 @@
 
-One thing we have to remember is the Stoics did not regard guilt as a productive emotion. It does nothing for you but send you plummeting down a spiral of self-loathing.  
-That’s why it’s filled with admonishments for losing his temper, for being lazy, for temptations, for all sorts of bad habits or destructive thought patterns.  
-He would have been aghast at the fact that Seneca regularly quoted Epicurus in his Letters, even if Seneca stipulated that he was no Epicurean.  
-To tarry in the garden? To avoid pain? This was the antithesis of what the Stoic was supposed to advise or celebrate.  
-And instead of scorning the Epicureans, we should try, as Seneca did, to learn from them.  
+## Week 4
 
+**talmud**  
+**mouthy**  
+**infamy**  
+**screeching** halt.  
+**furrow**  
+
+
+Looks like the inflation is **abating**, it's **fading**.   
+You're an **aspiring** egg farmer, aren't you?  
+I'd like to have a **flock** of chickens, probably silky ones.   
+
+
+**Truist**.  
+
+An **incel** (/ˈɪnsɛl/ IN-sel, a **portmanteau** of "involuntary **celibate**"[1]) is a member of an online subculture of people who define themselves as unable to get a romantic or sexual partner despite desiring one.  
+**Chads**
+There were no social **mores** to deal with it.  
+I don't **condone** terrorism.  
+
+They can only have one child a year while a man could theoretically **sire** a thousand in a year.  
+**stratification**  
+
+> they go out their way to help me / hurt me
+
+**bauble**  
+
+Take away that **shining** **bauble** there, and lock up the doors.  
+The **Exorcist**.  
+**Entreaty**: it is a noun that means a serious or earnest request or petition. It is often used in formal or written language, such as legal documents or **literature**.
+The word "**rucksack**" is often used interchangeably with the word "backpack," but it generally implies a larger size and more **rugged** construction.  
+China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
+They were **enthralled** with the play.  
+He volunteered as a **correspondent** for the war.  
+The result was **correspondent** with my wishes.  
+a torpedo-boat **flotilla**.  
+a **destroyer** flotilla.  
+
+**rigmarole**
+**shelllacking**  
+**repartee**  
+**reverent**  
+**patch board**  
+**enforceable**
+
+One thing we have to remember is the Stoics did not regard guilt as a productive emotion. It does nothing for you but send you **plummeting** down a **spiral** of **self-loathing**.  
+That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns. -  
+He would have been **aghast** at the fact that Seneca regularly quoted **Epicurus** in his Letters, even if Seneca **stipulated** that he was no Epicurean.  
+To **tarry** in the garden? To avoid pain? This was the **antithesis** of what the Stoic was supposed to advise or celebrate.  
+And instead of **scorning** the Epicureans, we should try, as Seneca did, to learn from them.  
 
 
 **dated**  
 **throw me off**.  
-
 
 - Give feedback  
 - few thoughts to add on.  
@@ -45,6 +89,7 @@ To be able to forgive a debt, to be able to pick up **a tab**, to be able to spe
 I strove to welcome this **hazard**, to rejoice in whatever it brought me of the new and unexpected, and thus without shock the ambush or the **tempest** was incorporated into my plans, or my thoughts.  
 Even in the **throes** of my worst disaster, I have seen a moment when sheer exhaustion reduced some part of the horror of the experience, and when I made the defeat a thing of my own in being willing to accept it.  
 
+## Week 3
 
 > Your own safety is at stake when your neighbor's wall is **ablaze**.  
 

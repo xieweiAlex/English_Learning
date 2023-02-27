@@ -1,5 +1,7 @@
 
+**destructive**
 
+**myopic**  
 
 **underdog** 
 

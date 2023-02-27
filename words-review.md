@@ -4,6 +4,8 @@ I enjoy them as much as any **bloke**. -
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  
+China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
+That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns. -  
 I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -  
 His manner is **supercilious** and arrogant. -  
 Strive for **rapport** with others. -  
