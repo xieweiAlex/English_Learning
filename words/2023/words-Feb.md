@@ -1,9 +1,16 @@
 
-slip of tongue.  
-attenuate  
-magnanimous  
+Organ meats.  
+You'll only need a few simple ingredients to make this tasty offal recipe.  
 
 
+The military industrial complex has been **fleecing** this country to tunes of hundreds of billions and trillions of dollars.  
+
+> Please let me know what you have to say.  
+> You'll be pleased to know I'm prepared for whatever you have to offer.  
+
+**slip of tongue.  
+**attenuate**  
+**magnanimous**  
 
 ## Week 4
 
@@ -449,7 +456,7 @@ So why did he need to spend so many precious hours in his tent, writing by the *
 **capacitate**  
 **jihad**  
 
-**maudlin**. -  
+**maudlin**.   
 **celebs**  
 **capricorn**  
 

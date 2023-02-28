@@ -1,6 +1,3 @@
-## movie.md ##  
-media/movie.md  
-I enjoy them as much as any **bloke**. -  
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  
@@ -30,25 +27,19 @@ He is **obstinate** and determined and will not give up. -
 **abet**, youglish. -  
 A **miserly** father makes a **prodigal** son. -  
 Her **supercilious** attitude enraged me. -  
-**maudlin**. -  
 He had a rather forbidding, **saturnine** manner. -  
 That will **preclude** him from escaping. -  
 
 ## words-Jan.md ##  
 words/2023/words-Jan.md  
-Nutrition **Lowdown**. -  
-He is so **tame** that he agrees with everybody. -  
-**dilapidated** building. -  
 He has always lived his life by a hopelessly **quixotic** code of honor. -  
 You have to admit, **in spite of** its almost **meretricious** color, it's a damn good piece of painting. -  
 If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up. -  
 **Studio Ghibli** makes the world's most **enchanting** animation (sorry, Disney); sure, J-pop is awful, but Japan is undoubtedly a soft-power superpower. -  
 **Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
 He likes girls that play the **coquette**. -  
-The Nordic detective is often **careworn** and **rumpled**. -  
 Let's look at the most important part—the **grading rubric**. -  
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
-You definitely not going to get the **synapses** in your brain working unless you're typing these commands. -  
 The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts. -  
 Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits. -  
 This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go. -  
