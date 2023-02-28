@@ -1,4 +1,10 @@
 
+slip of tongue.  
+attenuate  
+magnanimous  
+
+
+
 ## Week 4
 
 **talmud**  
