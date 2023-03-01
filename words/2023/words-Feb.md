@@ -1,4 +1,17 @@
 
+New COVID lab leak assessment reignites furor over pandemic origins
+I think that Microsoft has a very strong bias for action and getting stuff done right now, just so it doesn’t get stuck in a quagmire.  
+
+
+
+indisposed  
+repudiation  
+deject  
+headstrong  
+collocation  
+suntan 
+
+
 Organ meats.  
 You'll only need a few simple ingredients to make this tasty offal recipe.  
 
