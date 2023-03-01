@@ -1,19 +1,29 @@
 
-New COVID lab leak assessment reignites furor over pandemic origins
-I think that Microsoft has a very strong bias for action and getting stuff done right now, just so it doesn’t get stuck in a quagmire.  
+All this is wonderful and illuminating.  
+Human beings have been doing the same things for eons.  
 
 
 
-indisposed  
-repudiation  
-deject  
-headstrong  
-collocation  
-suntan 
+
+Another high-profile investor day took place on Tuesday. Goldman Sachs (GS) CEO David Solomon took the podium, but ended up getting some flak over the Wall Street stalwart's foray into the consumer arena.   
 
 
-Organ meats.  
-You'll only need a few simple ingredients to make this tasty offal recipe.  
+in case anyone overlooked the xxx in all the birthday **maelstrom**.  
+
+New COVID lab leak assessment **reignites** **furor** over pandemic origins.  
+I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn’t get stuck in a quagmire.  
+
+
+
+**indisposed**  
+**repudiation**  
+**deject**  
+**headstrong**  
+**collocation**  
+**suntan** 
+
+**Organ meats**.  
+You'll only need a few simple ingredients to make this tasty **offal** recipe.  
 
 
 The military industrial complex has been **fleecing** this country to tunes of hundreds of billions and trillions of dollars.  
