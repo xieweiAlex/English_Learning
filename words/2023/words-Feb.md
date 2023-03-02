@@ -1,19 +1,14 @@
 
-All this is wonderful and illuminating.  
-Human beings have been doing the same things for eons.  
+A **sliver** of light showed under the door.
 
+All this is wonderful and **illuminating**.  
+Human beings have been doing the same things for **eons**.  
 
+Another high-profile investor day took place on Tuesday. Goldman Sachs (GS) CEO David Solomon **took the podium**, but ended up getting some **flak** over the Wall Street stalwart's foray into the consumer arena.   
 
-
-Another high-profile investor day took place on Tuesday. Goldman Sachs (GS) CEO David Solomon took the podium, but ended up getting some flak over the Wall Street stalwart's foray into the consumer arena.   
-
-
-in case anyone overlooked the xxx in all the birthday **maelstrom**.  
-
+In case anyone overlooked the xxx in all the birthday **maelstrom**. -  
 New COVID lab leak assessment **reignites** **furor** over pandemic origins.  
-I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn’t get stuck in a quagmire.  
-
-
+I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn't get stuck in a **quagmire**. -  
 
 **indisposed**  
 **repudiation**  
