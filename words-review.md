@@ -1,6 +1,7 @@
-
 ## words-Feb.md ##  
 words/2023/words-Feb.md  
+In case anyone overlooked the xxx in all the birthday **maelstrom**. -  
+I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn't get stuck in a **quagmire**. -  
 China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
 That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns. -  
 I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -  
@@ -8,7 +9,7 @@ His manner is **supercilious** and arrogant. -
 Strive for **rapport** with others. -  
 He looked **sly** and **furtive**. -  
 The **hospice** aims to ease the sufferings of the dying. -  
-If I have a **vulva** and I need **lube** for sex, there must be something wrong with me. -  
+If I have a **vulva** and I need **lube** for sex, there must be something wrong with me.   
 Some tap water contains low levels of **organisms** — such as bacteria and **protozoa**, including **amoebas**. -  
 **seer**. -  
 **turgid**. -  
@@ -25,7 +26,6 @@ He must have **scampered** up to where Shel was. -
 he **blubbered** like a child who had been **spanked**. -  
 He is **obstinate** and determined and will not give up. -  
 **abet**, youglish. -  
-A **miserly** father makes a **prodigal** son. -  
 Her **supercilious** attitude enraged me. -  
 He had a rather forbidding, **saturnine** manner. -  
 That will **preclude** him from escaping. -  
@@ -38,26 +38,21 @@ If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-u
 **Studio Ghibli** makes the world's most **enchanting** animation (sorry, Disney); sure, J-pop is awful, but Japan is undoubtedly a soft-power superpower. -  
 **Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
 He likes girls that play the **coquette**. -  
-Let's look at the most important part—the **grading rubric**. -  
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
 The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts. -  
-Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits. -  
+Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits.   
 This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go. -  
 She is not a **psychic**, nor a **homicide** detective, nor a **kook**. -  
-The **brassy** boys put their tongues out at us. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
-What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
 The tone of the article is **intemperate**. -  
 
 ## words-Dec.md ##  
 words/2022/words-Dec.md  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
 I can't permit you to **temporize** any longer. -  
-Straight line **parallel** to the corners of the mouth, and a **radian**. -  
 You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
 The potential of smart contract and the ability to **bestow** utilization rights, property rights, copyrights, usage rights. -  
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
-A study of **ophidian** **clitorises** suggests snakes are highly **sexed**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
 And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
 Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
@@ -70,21 +65,9 @@ That long, **lugubrious** howl rose on the night air again! -
 He soon proved himself a **redoubtable** warrior, and won the respect of other soldiers. -  
 you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
 
-## words-Oct.md ##  
-words/2022/words-Oct.md  
-A **swanky** rooftop lounge with a cool modern design, featuring regular DJs & events. -  
-
 ## words-July.md ##  
 words/2022/words-July.md  
 They fell **prostrate** in worship. -  
-
-## words-June.md ##  
-words/2022/words-June.md  
-After a peanut flower is **pollinated**, the flower **wilts** and curves down. -  
-
-## words-May.md ##  
-words/2022/words-May.md  
-All whole grains are made up of three major components (3): **bran**, **germ**, **endosperm**. -  
 
 ## words-Oct.md ##  
 words/2021/words-Oct.md  
@@ -92,7 +75,6 @@ She is perceived as **vain**, spoiled, and **promiscuous**. -
 
 ## words-Aug.md ##  
 words/2021/words-Aug.md  
-During the **flush times**, salespeople were **surly**, waiters **snobby**. -  
 The Winklevoss twins were his perfect **foils**: buttoned-down “Men of Harvard,” privileged **jocks** who, in many ways easy to see, appeared to represent the “Establishment.” -  
 
 ## words-Oct.md ##  

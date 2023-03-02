@@ -8,7 +8,7 @@ The oldest **extant** document is dated 1492.
 My normal **markup**'s 20 percent. But this is a specialty item.  
 The army **put down** the rebellion.  
 She finally agreed to have the **wretched** animal **put down**.  
-During the **flush times**, salespeople were **surly**, waiters **snobby**. -  
+During the **flush times**, salespeople were **surly**, waiters **snobby**.   
 
 The Verge found that Rogan's influence has diminished since he went to **frolic** in Spotify’s **walled garden**.  
 Jackson Hole **Symposium**  

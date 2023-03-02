@@ -146,7 +146,7 @@ It's Time To **Pound The Table** On Roku.
 
 It will be a **forgone** conclusion.  
 
-After a peanut flower is **pollinated**, the flower **wilts** and curves down. -  
+After a peanut flower is **pollinated**, the flower **wilts** and curves down.   
 
 His sharp **retort** clearly made an impact.  
 The style was hurried, the tone **intemperate**.  

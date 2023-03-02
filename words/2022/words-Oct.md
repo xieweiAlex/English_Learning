@@ -67,9 +67,7 @@ Flirting is a lot of **innuendos**.
 
 > But it’s the journey, not the destination, that we should **relish**. From that angle, an infinite journey is a source of infinite enjoyment.  
 
-
-
-A **swanky** rooftop lounge with a cool modern design, featuring regular DJs & events. -  
+A **swanky** rooftop lounge with a cool modern design, featuring regular DJs & events.   
 
 Clean the **air ducts** regularly to remove any pet dander that gets stuck there. This will help to keep the air clean  
 Their much **vaunted** reforms did not materialize.  

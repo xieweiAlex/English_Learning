@@ -12,7 +12,7 @@ Ukraine needs support, not **timorous** advice. - No time to go **wobbly**.
 This is an Indian **teepee**.  
 Romania badly needs aid to modernize its **outmoded** industries.  
 
-All whole grains are made up of three major components (3): **bran**, **germ**, **endosperm**. -  
+All whole grains are made up of three major components (3): **bran**, **germ**, **endosperm**.   
 Red rice is a type of naturally **pigmented** rice grain known for its rich nutritional properties.  
 
 More troubling, she said, is what Google's flub may **portend** for the future.  

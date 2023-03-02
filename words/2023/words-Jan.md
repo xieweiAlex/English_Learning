@@ -13,7 +13,7 @@ For one thing, the definition of “happiness” is notoriously **hazy**, as is 
 **On a cold morning**.  
 **in the morning**.  
 
-Nutrition **Lowdown**.   
+Nutrition **Lowdown**.  
 **acidic**, **acetic**, sour, tart, **citric acid**  
 
 **slur**  
@@ -22,7 +22,7 @@ Nutrition **Lowdown**.
 **dreary**, **dreamy**  
 **picturesque** scenery  
 
-He is so **tame** that he agrees with everybody.   
+He is so **tame** that he agrees with everybody.  
 
 They gonna feel real chaotic and **hectic**, which they really don't like.  
 they might just be kind of like wandering like **lackadaisicaly** through the aisles and not really noticing.  
@@ -47,7 +47,7 @@ CEO Mark Zuckerberg said in his typically **terse** initial earnings comment. "I
 **burgundy**  
 **mural**  
 In China, each couple is required to carry out a **eugenic** plan strictly.  
-**dilapidated** building.   
+**dilapidated** building.  
 **shoddy**  
 He has always lived his life by a hopelessly **quixotic** code of honor. -  
 **hodgepodge**  
@@ -131,8 +131,8 @@ A hundred and fifty years after it was forced to open its doors, Japan is still 
 He likes girls that play the **coquette**. -  
 It is a **sacrilege** to offend democracy.  
 We as well hope to **aggrandize** our business with you.  
-The Nordic detective is often **careworn** and **rumpled**.   
-Let's look at the most important part—the **grading rubric**. -  
+The Nordic detective is often **careworn** and **rumpled**.  
+Let's look at the most important part—the **grading rubric**.  
 New businesses may qualify for **tax remission**.  
 We lost our way in the **labyrinth** of streets.  
 **psychiatry**  
@@ -187,7 +187,7 @@ I made my way home to the **dreary** provinces by train.
 **beastie**  
 **clan**  
 
-You definitely not going to get the **synapses** in your brain working unless you're typing these commands.   
+You definitely not going to get the **synapses** in your brain working unless you're typing these commands.  
 
 > This reading of many authors and books of every sort may tend to make you **discursive** and unsteady. —Seneca  
 > So that is what we challenge you to do today: to decide on a topic to swarm for the rest of the year.  
@@ -288,7 +288,7 @@ Serving someone a Mickey Finn is most commonly referred to as **slipping a micke
 You want to be known as a **go-getter** who gets the job done well.  
 Nothing can **abash** him.  
 The girl was **abashed** by the laughter of her classmates.  
-The **brassy** boys put their tongues out at us. -  
+The **brassy** boys put their tongues out at us.  
 
 Some fun thoughts from our recent (long) debate where Paul **valiantly** **took on** the crowd.  
 
@@ -392,7 +392,7 @@ After weeks of **chipping away** , my pantry was down to only **healthy-ish** fo
 > And think about it – exercising literally is maintenance. It’s hedging against the weight and the possible injuries and struggles of the future  
 
 Insults alone cannot **defile** a person's honour.  
-What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible. -  
+What I do remember is how I felt. Before I would freak out and then **berate** myself for losing it, I felt stuck, helpless and terrible.   
 I've never read it. My ears are **perked** … time/place?  
 
 

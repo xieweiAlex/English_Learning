@@ -1,4 +1,13 @@
 
+
+The idea of trying to tough it out and doing everything your own is fallacious and problematic.  
+hanging back.  
+It was like eating butter redolent with raw garlic.  
+toner cartridge, print cartridge  
+This metal burnishes well.  
+**gloom and doom**  
+comedown  
+
 A **sliver** of light showed under the door.
 
 All this is wonderful and **illuminating**.  
@@ -38,12 +47,9 @@ The military industrial complex has been **fleecing** this country to tunes of h
 **screeching** halt.  
 **furrow**  
 
-
 Looks like the inflation is **abating**, it's **fading**.   
 You're an **aspiring** egg farmer, aren't you?  
-I'd like to have a **flock** of chickens, probably silky ones.   
-
-
+I'd like to have a **flock** of chickens, probably **silky** ones.   
 **Truist**.  
 
 An **incel** (/ˈɪnsɛl/ IN-sel, a **portmanteau** of "involuntary **celibate**"[1]) is a member of an online subculture of people who define themselves as unable to get a romantic or sexual partner despite desiring one.  
@@ -439,7 +445,7 @@ A **brainiac**, with a cranium packed, full of more uranium.
 The **turnstiles** and ADA door will be activated in the near future but we do have two security guards on site to ensure access control for the floor.  
 
 **carcass**  
-A **miserly** father makes a **prodigal** son. -  
+A **miserly** father makes a **prodigal** son.   
 **sinister**  
 **impaction**  
 **willow**  

@@ -112,7 +112,7 @@ We gave them a **drubbing** in the match on Saturday.
 A **blackguard** is a **scoundrel**.  
 **nocuous**  
 **halal**  
-Straight line **parallel** to the corners of the mouth, and a **radian**. -  
+Straight line **parallel** to the corners of the mouth, and a **radian**.   
 **Substrate** **mycelium** , grow in the **substate**.  
 
 > The Stoics did not reject **worldly** pleasures. They rejected the reckless ones. The dangerous, **ephemeral** ones.  
@@ -182,7 +182,7 @@ Steve was **innately** comfortable trusting his gut; it’s a characteristic of 
 > I don’t think anyone knows whether we’re going to have a recession or not, and, if we do, whether it’s going to be a deep one or not. It’s just - it’s not **knowable**... The historical record cautions strongly against prematurely **loosening** policy. We will stay the course, until the job is done.  
 
 
-A study of **ophidian** **clitorises** suggests snakes are highly **sexed**. -  
+A study of **ophidian** **clitorises** suggests snakes are highly **sexed**.   
 
 The sudden unwinding of **stringent** pandemic measures, if not handled carefully, could **strain** the health care system and lead to a higher number of deaths from the disease than a slower relaxing of measures otherwise might.  
 With representatives from 49 African countries visiting Washington, the White House is using the **pageantry** of a summit to convince leaders that Africa is a priority.  
