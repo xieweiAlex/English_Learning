@@ -1,12 +1,21 @@
 
+Montesquieu
 
-The idea of trying to tough it out and doing everything your own is fallacious and problematic.  
-hanging back.  
-It was like eating butter redolent with raw garlic.  
-toner cartridge, print cartridge  
-This metal burnishes well.  
+Who could possibly have come up with such a nifty contraption?  
+
+A lot are the same, the **subtleties** are in how this container starts.  
+**personhood**  
+**bridesmaid**  
+**extricate**  
+**polestar**  
+
+The idea of trying to **tough it out** and doing everything your own is **fallacious** and problematic.  
+**hanging back**.  
+It was like eating butter **redolent** with raw garlic. -  
+Toner **cartridge**, print cartridge  
+This metal **burnishes** well.  
 **gloom and doom**  
-comedown  
+**comedown**  
 
 A **sliver** of light showed under the door.
 
