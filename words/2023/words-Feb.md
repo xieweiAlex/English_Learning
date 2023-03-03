@@ -1,5 +1,11 @@
 
 Montesquieu
+Plenary power.  
+situated, located  
+blast radius  
+
+reliably reproduce it. 
+
 
 Who could possibly have come up with such a nifty contraption?  
 
