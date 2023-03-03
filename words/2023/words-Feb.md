@@ -1,4 +1,10 @@
 
+Plenary power.  
+situated, located  
+blast radius  
+
+reliably reproduce it. 
+
 
 The idea of trying to tough it out and doing everything your own is fallacious and problematic.  
 hanging back.  
