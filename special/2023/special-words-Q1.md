@@ -2,6 +2,9 @@
 **conducive**
 **conclusive**  
 
+
+## Feb 
+
 **destructive**
 
 **myopic**  
@@ -42,7 +45,7 @@
 
 **methodical**
 
-## Jan 2023 
+## Jan 
 
 **deceptive**
 

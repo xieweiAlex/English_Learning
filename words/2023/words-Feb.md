@@ -1,4 +1,9 @@
 
+
+Calamitous  
+dispassionate  
+
+
 Montesquieu
 Plenary power.  
 situated, located  
