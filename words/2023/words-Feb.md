@@ -1,18 +1,39 @@
 
-
-Calamitous  
-dispassionate  
+They look so cute and cuddly, but the slightest thing can turn this beautiful creature into something so dangerous and violent that the toughest of man could be killed or maimed for life.    
 
 
-Montesquieu
-Plenary power.  
-situated, located  
-blast radius  
 
-reliably reproduce it. 
+To make this dish truly unique, we need to **amalgamate** different spices and flavors from various regions of the world.  
+**suck-up**  
+He's usually very **adept** at keeping his private life out of the media. -  
+**Pimping**  
+**scepter**  
+**albino**  
+**leukaemia**  
 
+**left someone in the lurch** 
 
-Who could possibly have come up with such a nifty contraption?  
+**lovelace**.  
+**hydroplane**, **hydroplaning**  
+**remission**   
+Where have you been to get that **suntan**?  
+**puppet**  
+
+When he doesn't know the answer, he gets **huffy**.  
+**askew**  
+
+**clammy**  
+**Calamitous**  
+**dispassionate**  
+
+**Montesquieu**
+**Plenary power**.  
+**situated**, **located**  
+**blast radius**  
+
+Reliably **reproduce** it. 
+
+Who could possibly have come up with such a nifty **contraption**?  
 
 A lot are the same, the **subtleties** are in how this container starts.  
 **personhood**  
