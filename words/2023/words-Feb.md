@@ -1,17 +1,19 @@
 
-He talks about the trajectory of the industry, where he sees it going, the impediments it faces, and much more.
-Raveenous  
-Every gnarled hack knows that the best way to bury bad news is to counter it with a splashy new announcement.  
-Like everyone else, I deplore and condemn this killing.  
-You know, ever since N.A.F.T.A. , corporate outsourcing has been the bane of the American worker.  
-A gasp rippled through the crowd.  
-The uncut grass came up to her waist.  
-peacock, peafowl  
 
+**roughneck**.  
 
+He talks about the trajectory of the industry, where he sees it going, the **impediments** it faces, and much more.
+**Ravenous**  
+Every **gnarled** hack knows that the best way to bury bad news is to counter it with a splashy new announcement.  
+Like everyone else, I **deplore** and condemn this killing.  
+You know, ever since N.A.F.T.A. , corporate outsourcing has been the **bane** of the American worker.  
+A **gasp** rippled through the crowd. -  
+The **uncut** grass came up to her waist.  
+**peacock**, **peafowl**  
 
+They look so cute and **cuddly**, but the slightest thing can turn this beautiful creature into something so dangerous and violent that the toughest man could be killed or **maimed** for life.    
 
-They look so cute and cuddly, but the slightest thing can turn this beautiful creature into something so dangerous and violent that the toughest of man could be killed or maimed for life.    
+## Week 1 
 
 To make this dish truly unique, we need to **amalgamate** different spices and flavors from various regions of the world.  
 **suck-up**  
@@ -43,8 +45,7 @@ When he doesn't know the answer, he gets **huffy**.
 
 Reliably **reproduce** it. 
 
-Who could possibly have come up with such a nifty **contraption**?  
-
+Who could possibly have come up with such a nifty **contraption**? -  
 A lot are the same, the **subtleties** are in how this container starts.  
 **personhood**  
 **bridesmaid**  
@@ -54,7 +55,7 @@ A lot are the same, the **subtleties** are in how this container starts.
 The idea of trying to **tough it out** and doing everything your own is **fallacious** and problematic.  
 **hanging back**.  
 It was like eating butter **redolent** with raw garlic. -  
-Toner **cartridge**, print cartridge  
+Toner **cartridge**, print **cartridge**  
 This metal **burnishes** well.  
 **gloom and doom**  
 **comedown**  
@@ -79,8 +80,6 @@ I think that Microsoft has a very strong **bias for action** and getting stuff d
 
 **Organ meats**.  
 You'll only need a few simple ingredients to make this tasty **offal** recipe.  
-
-
 The military industrial complex has been **fleecing** this country to tunes of hundreds of billions and trillions of dollars.  
 
 > Please let me know what you have to say.  

@@ -1,5 +1,7 @@
 ## words-Feb.md ##  
 words/2023/words-Feb.md  
+He's usually very **adept** at keeping his private life out of the media. -  
+It was like eating butter **redolent** with raw garlic. -  
 In case anyone overlooked the xxx in all the birthday **maelstrom**. -  
 China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
 That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns. -  
@@ -46,6 +48,7 @@ The potential of smart contract and the ability to **bestow** utilization rights
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
 And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
+Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
 Politicians like to **pontificate** about falling standards. -  
 He was neither overly worried nor **briskly** **peremptory**. -  
 
@@ -66,5 +69,3 @@ She is perceived as **vain**, spoiled, and **promiscuous**. -
 ## words-Aug.md ##  
 words/2021/words-Aug.md  
 The Winklevoss twins were his perfect **foils**: buttoned-down “Men of Harvard,” privileged **jocks** who, in many ways easy to see, appeared to represent the “Establishment.” -  
-
-

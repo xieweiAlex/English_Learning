@@ -49,7 +49,7 @@ CEO Mark Zuckerberg said in his typically **terse** initial earnings comment. "I
 In China, each couple is required to carry out a **eugenic** plan strictly.  
 **dilapidated** building.  
 **shoddy**  
-He has always lived his life by a hopelessly **quixotic** code of honor.   
+He has always lived his life by a hopelessly **quixotic** code of honor.  
 **hodgepodge**  
 **truant**  
 **squabble**  
@@ -98,7 +98,7 @@ I managed to get home without (further) **mishap**.
 **jaunt**, **jaunty**  
 **sensualist**.  
 You **vulgar** little **maggot**.  
-You have to admit, **in spite of** its almost **meretricious** color, it's a damn good piece of painting.   
+You have to admit, **in spite of** its almost **meretricious** color, it's a damn good piece of painting.  
 
 A **gold bug** is someone who **expounds** the virtues of gold as an investment, and who thinks its price will perpetually increase.  
 
@@ -120,7 +120,7 @@ Yes, Tokyo was a **concrete jungle**, but it was a beautifully **manicured** one
 In front of the Imperial Palace in Tokyo, the **skyline** was dominated by the glass towers of the country's corporate titans.  
 Rather the bureaucracy can be terrifying, while huge amounts of public money are spent on activities of **dubious** utility.  
 Tokyo is home to **superlative** restaurants.  
-**Studio Ghibli** makes the world's most **enchanting** animation (sorry, Disney); sure, J-pop is awful, but Japan is undoubtedly a soft-power superpower.   
+**Studio Ghibli** makes the world's most **enchanting** animation (sorry, Disney); sure, J-pop is awful, but Japan is undoubtedly a soft-power superpower.  
 A hundred and fifty years after it was forced to open its doors, Japan is still **sceptical**, even fearful of the outside world.  
 
 > Hijack the conversation.  
@@ -211,7 +211,7 @@ Yaml is full of **footguns** and its friendliness is **deceptive**.
 The **tomb** of King and his wife, Coretta Scott King, in Atlanta at sunrise today.  
 The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts. -  
 
-Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits.   
+Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits.  
 It's very cool, it's not **garish** or **tacky** in any way.  
 
 The party needs to **canvass** the **uncommitted** voters.  
