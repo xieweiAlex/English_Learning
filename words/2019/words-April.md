@@ -160,7 +160,7 @@ Intelligence warning allegedly went **unheeded** before the bombings in Sri Lank
 
 **Stomp** to death  
 **Crusaders** were offered a **plenary** indulgence by the **Pope**.  
-a diplomat with **plenary** powers -  
+a diplomat with **plenary** powers   
 **gene mutation**  
 **officialdom**  
 **pandemic** **influenza**  

@@ -133,7 +133,7 @@ Do you take anything for your **bowels**
 
 A NASA spacecraft successfully landed on an **asteroid** named Bennu more than 200 million miles away to grab some space rock samples.  
 
-Just a reminder, if the six indicators above look like **hieroglyphics**, earlier this week we published a guide that walks you through our markets section. -  
+Just a reminder, if the six indicators above look like **hieroglyphics**, earlier this week we published a guide that walks you through our markets section.   
 Businesses have **shied away** from cryptocurrency transactions because of long transfer times and price volatility  
 But PayPal has **allayed** those fears by converting the cryptocurrency used to buy a coffee into dollars, pounds, or any other currency that the merchant would typically accept  
 Barack Obama delivered a **scathing** **condemnation** of Trump in his return to the campaign trail.  

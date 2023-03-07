@@ -1,7 +1,17 @@
 
+He talks about the trajectory of the industry, where he sees it going, the impediments it faces, and much more.
+Raveenous  
+Every gnarled hack knows that the best way to bury bad news is to counter it with a splashy new announcement.  
+Like everyone else, I deplore and condemn this killing.  
+You know, ever since N.A.F.T.A. , corporate outsourcing has been the bane of the American worker.  
+A gasp rippled through the crowd.  
+The uncut grass came up to her waist.  
+peacock, peafowl  
+
+
+
+
 They look so cute and cuddly, but the slightest thing can turn this beautiful creature into something so dangerous and violent that the toughest of man could be killed or maimed for life.    
-
-
 
 To make this dish truly unique, we need to **amalgamate** different spices and flavors from various regions of the world.  
 **suck-up**  
@@ -58,7 +68,7 @@ Another high-profile investor day took place on Tuesday. Goldman Sachs (GS) CEO 
 
 In case anyone overlooked the xxx in all the birthday **maelstrom**. -  
 New COVID lab leak assessment **reignites** **furor** over pandemic origins.  
-I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn't get stuck in a **quagmire**. -  
+I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn't get stuck in a **quagmire**.   
 
 **indisposed**  
 **repudiation**  
@@ -225,7 +235,7 @@ I'm **uncover** right now, I'm a whore.
 
 **at hand**  
 She's a black belt in **judo**.  
-He looked **sly** and **furtive**. -  
+He looked **sly** and **furtive**.   
 **fash**??  
 **talmud**  
 **shellacking**  
@@ -239,7 +249,7 @@ The **hospice** aims to ease the sufferings of the dying. -
 **overcoat**  
 
 We've got a **nucleus** of about 10 million laying hens.  
-If I have a **vulva** and I need **lube** for sex, there must be something wrong with me. -  
+If I have a **vulva** and I need **lube** for sex, there must be something wrong with me.   
 
 You can't just **spout off** a bunch of terms you don't understand  
 Little teapots with long **spouts** have become a **fixture** in many homes to flush out clogged nasal **passages** and help people breathe easier.  
@@ -258,7 +268,7 @@ One thing I **glossed over** a few minutes ago was exactly what the rng is doing
 **unencumbered**  
 **arboreal**  
 **seer**. -  
-**turgid**. -  
+**turgid**.   
 
 
 **It's on the house**.  
@@ -338,7 +348,7 @@ We’re sitting indoors, wearing clothes, **well-fed**, and communicating with e
 The hunter is a **stout** **lusty** fellow. -  
 
 **Life and death situations**  
-Why are you **subjecting** yourself to this? -  
+Why are you **subjecting** yourself to this?   
 
 Turn a king into that most feared and **detested** thing -- a tyrant.  
 
