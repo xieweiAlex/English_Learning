@@ -1,4 +1,14 @@
 
+Is there anything good on the telly tonight?  
+emblem  
+The party began to splinter.  
+recumbent chair  
+What a Westerner considers an honest look in the eye, the Oriental takes as a lack of respect and a personal affront.  
+Iran: a theocratic Islamic republic in the Middle East in western Asia.  
+indigence  
+
+
+
 
 **roughneck**.  
 
