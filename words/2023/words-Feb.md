@@ -1,13 +1,15 @@
 
-Is there anything good on the telly tonight?  
-emblem  
+New York’s stockmarkets are thrashing Hong Kong and London.  
+A recent Bloomberg article pointed out that a new scourge is sweeping our nation: declining survey response rates.  
+There was no one he revered more than Antoninus. How could he possibly live up to the task of following in his footsteps?  
+
+Is there anything good on the **telly** tonight?  
+An **emblem** is a symbol, sign, or representation that is used to identify or represent a person, group, or idea.  
 The party began to splinter.  
 recumbent chair  
 What a Westerner considers an honest look in the eye, the Oriental takes as a lack of respect and a personal affront.  
-Iran: a theocratic Islamic republic in the Middle East in western Asia.  
-indigence  
-
-
+Iran: a **theocratic** Islamic republic in the Middle East in western Asia.  
+indigence: It is a formal or literary term that means extreme poverty or destitution.  
 
 
 **roughneck**.  
