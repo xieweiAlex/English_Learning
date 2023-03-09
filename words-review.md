@@ -1,8 +1,8 @@
 ## words-Feb.md ##  
 words/2023/words-Feb.md  
 He's usually very **adept** at keeping his private life out of the media. -  
-It was like eating butter **redolent** with raw garlic. -  
-In case anyone overlooked the xxx in all the birthday **maelstrom**. -  
+It was like eating butter **redolent** with raw garlic.   
+In case anyone overlooked the xxx in all the birthday **maelstrom**.   
 China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
 That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns. -  
 I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -  
@@ -31,11 +31,11 @@ That will **preclude** him from escaping. -
 words/2023/words-Jan.md  
 If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up. -  
 **Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
-He likes girls that play the **coquette**. -  
+He likes girls that play the **coquette**.   
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
 The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts. -  
 This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go. -  
-She is not a **psychic**, nor a **homicide** detective, nor a **kook**. -  
+She is not a **psychic**, nor a **homicide** detective, nor a **kook**.   
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 The tone of the article is **intemperate**. -  
 
@@ -48,7 +48,7 @@ The potential of smart contract and the ability to **bestow** utilization rights
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
 And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
-Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
+Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed.   
 Politicians like to **pontificate** about falling standards. -  
 He was neither overly worried nor **briskly** **peremptory**. -  
 
@@ -64,7 +64,7 @@ They fell **prostrate** in worship. -
 
 ## words-Oct.md ##  
 words/2021/words-Oct.md  
-She is perceived as **vain**, spoiled, and **promiscuous**. -  
+She is perceived as **vain**, spoiled, and **promiscuous**.   
 
 ## words-Aug.md ##  
 words/2021/words-Aug.md  
