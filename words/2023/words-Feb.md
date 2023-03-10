@@ -5,6 +5,7 @@ delve in
 faculty  
 Some disaffected members left to form a new party.  
 
+That’s the conventional wisdom **ricocheting** around Silicon Valley right now as technology institution Silicon Valley Bank looks precarious.  
 
 
 New York’s stockmarkets are thrashing Hong Kong and London.  
@@ -13,11 +14,11 @@ There was no one he revered more than Antoninus. How could he possibly live up t
 
 Is there anything good on the **telly** tonight?  
 An **emblem** is a symbol, sign, or representation that is used to identify or represent a person, group, or idea.  
-The party began to splinter.  
-recumbent chair  
-What a Westerner considers an honest look in the eye, the Oriental takes as a lack of respect and a personal affront.  
+The party began to **splinter**. -  
+**recumbent** chair  
+What a Westerner considers an honest look in the eye, the **Oriental** takes as a **lack of respect** and a personal **affront**.  
 Iran: a **theocratic** Islamic republic in the Middle East in western Asia.  
-indigence: It is a formal or literary term that means extreme poverty or destitution.  
+**indigence**: It is a formal or literary term that means extreme poverty or **destitution**.  
 
 **roughneck**.  
 
@@ -73,7 +74,7 @@ A lot are the same, the **subtleties** are in how this container starts.
 
 The idea of trying to **tough it out** and doing everything your own is **fallacious** and problematic.  
 **hanging back**.  
-It was like eating butter **redolent** with raw garlic. -  
+It was like eating butter **redolent** with raw garlic.   
 Toner **cartridge**, print **cartridge**  
 This metal **burnishes** well.  
 **gloom and doom**  
@@ -86,7 +87,7 @@ Human beings have been doing the same things for **eons**.
 
 Another high-profile investor day took place on Tuesday. Goldman Sachs (GS) CEO David Solomon **took the podium**, but ended up getting some **flak** over the Wall Street stalwart's foray into the consumer arena.   
 
-In case anyone overlooked the xxx in all the birthday **maelstrom**. -  
+In case anyone overlooked the xxx in all the birthday **maelstrom**.   
 New COVID lab leak assessment **reignites** **furor** over pandemic origins.  
 I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn't get stuck in a **quagmire**.   
 

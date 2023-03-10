@@ -5,7 +5,7 @@ Don't **skimp** the butter in making a cake.
 **makeover**  
 Some say this **state of affairs** just can't last.  
 **llama**  
-She is perceived as **vain**, spoiled, and **promiscuous**. -  
+She is perceived as **vain**, spoiled, and **promiscuous**.   
 Isn't dinner ready? I'm **famished**.  
 
 He was a **vociferous** opponent of Conservatism.  
