@@ -1,4 +1,12 @@
 
+both from ground up and top down  
+shoulder  
+delve in  
+faculty  
+Some disaffected members left to form a new party.  
+
+
+
 New York’s stockmarkets are thrashing Hong Kong and London.  
 A recent Bloomberg article pointed out that a new scourge is sweeping our nation: declining survey response rates.  
 There was no one he revered more than Antoninus. How could he possibly live up to the task of following in his footsteps?  
@@ -10,7 +18,6 @@ recumbent chair
 What a Westerner considers an honest look in the eye, the Oriental takes as a lack of respect and a personal affront.  
 Iran: a **theocratic** Islamic republic in the Middle East in western Asia.  
 indigence: It is a formal or literary term that means extreme poverty or destitution.  
-
 
 **roughneck**.  
 
