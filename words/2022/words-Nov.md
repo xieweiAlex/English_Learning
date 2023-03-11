@@ -68,7 +68,7 @@ Now it's your turn to **say something sympathetic**. - I'm really glad I don't h
 Life without design is **erratic**.  
 **Needless to say**, none of these treatments are accepted or **prescribed** anymore.  
 
-That long, **lugubrious** howl rose on the night air again! -  
+That long, **lugubrious** howl rose on the night air again!   
 There is this kind **lull** in the market.  
 She is very **single-minded** about her career.  
 
@@ -88,7 +88,7 @@ an **uplifting** story.
 a **weepy** **clingy** child.  
 
 I **deftly** played Ross Loma against Index Ventures.  
-He soon proved himself a **redoubtable** warrior, and won the respect of other soldiers. -  
+He soon proved himself a **redoubtable** warrior, and won the respect of other soldiers.   
 Why are people so full of **gloom and doom**?  
 A square is a **quadrilateral**.  
 Looks may not kill, but they can leave you feeling **peckish**.  
@@ -287,7 +287,7 @@ Don't be **bashful**.
 
 Even genuine naivete is not free of the **snares of power**  
 
-you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
+you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties.   
 if you're trying to destroy an enemy who hurt you far better to **keep him off guard** by **feigning** friendness than showing your anger.  
 
 The door **creaked** as she opened it.  

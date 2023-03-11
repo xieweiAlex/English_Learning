@@ -128,7 +128,7 @@ A hundred and fifty years after it was forced to open its doors, Japan is still 
 
 **Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
 
-He likes girls that play the **coquette**.   
+He likes girls that play the **coquette**.  
 It is a **sacrilege** to offend democracy.  
 We as well hope to **aggrandize** our business with you.  
 The Nordic detective is often **careworn** and **rumpled**.  
@@ -209,7 +209,7 @@ Yaml is full of **footguns** and its friendliness is **deceptive**.
 
 **Irate** customers in China have been demanding **rebates** and protesting in **showrooms**.  
 The **tomb** of King and his wife, Coretta Scott King, in Atlanta at sunrise today.  
-The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts. -  
+The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts.   
 
 Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits.  
 It's very cool, it's not **garish** or **tacky** in any way.  
@@ -264,7 +264,7 @@ Enjoy the **reciprocal** feeling, it's dangerous
 The **convicts** were **deported** to a **deserted** island.  
 Rock climbing has **conditioned** me to take over those obstacles **at ease**.  
 A **briny** wind blew, **rustled** the trees.  
-She is not a **psychic**, nor a **homicide** detective, nor a **kook**.   
+She is not a **psychic**, nor a **homicide** detective, nor a **kook**.  
 **perfunctory**  
 
 Paul shocked the ladies with his **racy** stories.  

@@ -10,7 +10,6 @@ I shall not reply to such a **scurrilous** attack upon me; it is **beneath conte
 His manner is **supercilious** and arrogant. -  
 Strive for **rapport** with others. -  
 The **hospice** aims to ease the sufferings of the dying. -  
-Some tap water contains low levels of **organisms** — such as bacteria and **protozoa**, including **amoebas**. -  
 **seer**. -  
 The whole hall is filled with joy and laughter -- there is only one who feels **distressful**. -  
 Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that. -  
@@ -21,7 +20,6 @@ It's a little **greasy** for my **palate**, said my insanely jealous mom. -
 I was reading on this paper, and I heard this **commotion** up in your room. -  
 This **mangy** raccoon had busted through your screen. -  
 He must have **scampered** up to where Shel was. -  
-he **blubbered** like a child who had been **spanked**. -  
 He is **obstinate** and determined and will not give up. -  
 **abet**, youglish. -  
 Her **supercilious** attitude enraged me. -  
@@ -33,7 +31,6 @@ words/2023/words-Jan.md
 If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up. -  
 **Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
-The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts. -  
 This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 The tone of the article is **intemperate**. -  
@@ -50,17 +47,3 @@ And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate
 Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
 Politicians like to **pontificate** about falling standards. -  
 He was neither overly worried nor **briskly** **peremptory**. -  
-
-## words-Nov.md ##  
-words/2022/words-Nov.md  
-That long, **lugubrious** howl rose on the night air again! -  
-He soon proved himself a **redoubtable** warrior, and won the respect of other soldiers. -  
-you spares others the pain that comes from **bungling** with power by playing with fire without knowing its properties. -  
-
-## words-July.md ##  
-words/2022/words-July.md  
-They fell **prostrate** in worship. -  
-
-## words-Aug.md ##  
-words/2021/words-Aug.md  
-The Winklevoss twins were his perfect **foils**: buttoned-down “Men of Harvard,” privileged **jocks** who, in many ways easy to see, appeared to represent the “Establishment.” -  

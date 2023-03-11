@@ -1,6 +1,15 @@
 
-Simply sending a string or a static identifier like an International Mobile Equipment Identity (IMEI) could be easily stolen or spoofed.  
+How come you're so **dense** all of a sudden?
+We entered a **dense** forest.  
+A **dense** fog lay around.  
 
+"**bungling**" is more specific and typically refers to incompetence in a particular task, while "**bumbling**" is a more general term for awkwardness or clumsiness in various situations.  
+
+In literature, "**foils**" refer to characters who contrast with the **protagonist** in order to highlight their qualities, both good and bad. For example, in "Hamlet," Laertes and Fortinbras serve as foils to the main character.  
+Thankfully, those plans were **foiled** by an FBI informant.  
+Wrap your celery stalks in tin **foil**.  
+
+Simply sending a string or a static identifier like an **International Mobile Equipment Identity** (IMEI) could be easily stolen or **spoofed**.  
 
 I was vaccinated against **tetanus**.  
 **wench**  
@@ -9,24 +18,24 @@ I was vaccinated against **tetanus**.
 
 No **hard and fast** rules.  
 When you ask vanilla **lobotomized** chatGPT to make you a recipe for the substance to make people look like this.  
-methamphetamine  
+**methamphetamine**  
 
 **wonky**  
 
 **Chapped**, or cracked, lips is the term commonly used to describe dry lips. Chapped lips can be caused by several factors, that include.  
 
-both from ground up and top down  
-shoulder  
-delve in  
-faculty  
-Some disaffected members left to form a new party.  
+both from **ground up** and top down  
+**shoulder**  
+**delve in**  
+**faculty**  
+Some **disaffected** members left to form a new party.  
 
 That’s the conventional wisdom **ricocheting** around Silicon Valley right now as technology institution Silicon Valley Bank looks precarious.  
 
 
-New York’s stockmarkets are thrashing Hong Kong and London.  
-A recent Bloomberg article pointed out that a new scourge is sweeping our nation: declining survey response rates.  
-There was no one he revered more than Antoninus. How could he possibly live up to the task of following in his footsteps?  
+New York’s stockmarkets are **thrashing** Hong Kong and London.  
+A recent Bloomberg article pointed out that a new **scourge** is sweeping our nation: declining survey response rates.  
+There was no one he **revered** more than Antoninus. How could he possibly live up to the task of following in his **footsteps**?  
 
 Is there anything good on the **telly** tonight?  
 An **emblem** is a symbol, sign, or representation that is used to identify or represent a person, group, or idea.  
@@ -289,7 +298,7 @@ If I have a **vulva** and I need **lube** for sex, there must be something wrong
 You can't just **spout off** a bunch of terms you don't understand  
 Little teapots with long **spouts** have become a **fixture** in many homes to flush out clogged nasal **passages** and help people breathe easier.  
 **neti pots**  
-Some tap water contains low levels of **organisms** — such as bacteria and **protozoa**, including **amoebas**. -  
+Some tap water contains low levels of **organisms** — such as bacteria and **protozoa**, including **amoebas**.   
 
 One thing I **glossed over** a few minutes ago was exactly what the rng is doing.  
 "As you sow, so will you reap."  
@@ -446,7 +455,7 @@ Don't be so **dismayed**.
 
 Usually in your friend group, you are the **life of the party**.  
 Okay, we're **onto something**, this makes sense or should we actually kill it?  
-he **blubbered** like a child who had been **spanked**. -  
+he **blubbered** like a child who had been **spanked**.   
 **splinter**  
 **grunt**  
 **you have the floor**  

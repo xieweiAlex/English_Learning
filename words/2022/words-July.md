@@ -128,7 +128,7 @@ Life's short. Let's **lean on** friends!
 It’s also made with a **percale weave**, which means it’s super lightweight and crisp.  
 If the gas is below 1/4 tank, use the gas card in the **visor** to fill up, or you'll be charged a $30 fee.  
 
-They fell **prostrate** in worship. -  
+They fell **prostrate** in worship.   
 You won't let ambition **cloud** your judgement.  
 
 Go cut off an hour or two at each end of your eating period and before you know it, it's down to 8 hours, 6 hours, 4 hours, then it's a **cinch** to go down one meal a day.  

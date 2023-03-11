@@ -239,7 +239,7 @@ he was **panting** when he reached the top
 She attended lectures only **sporadically**.  
 **ensconce**  
 
-The Winklevoss twins were his perfect **foils**: buttoned-down “Men of Harvard,” privileged **jocks** who, in many ways easy to see, appeared to represent the “Establishment.” -  
+The Winklevoss twins were his perfect **foils**: buttoned-down “Men of Harvard,” privileged **jocks** who, in many ways easy to see, appeared to represent the “Establishment.”   
 the **mugginess** can become quite overwhelming.  
 
 I still remember his **sly smile** as he said tentatively, “computer scientist?”  
