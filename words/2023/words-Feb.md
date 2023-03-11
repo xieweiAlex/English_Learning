@@ -1,4 +1,20 @@
 
+Simply sending a string or a static identifier like an International Mobile Equipment Identity (IMEI) could be easily stolen or spoofed.  
+
+
+I was vaccinated against **tetanus**.  
+**wench**  
+**willy-nilly**  
+**corned**  
+
+No **hard and fast** rules.  
+When you ask vanilla **lobotomized** chatGPT to make you a recipe for the substance to make people look like this.  
+methamphetamine  
+
+**wonky**  
+
+**Chapped**, or cracked, lips is the term commonly used to describe dry lips. Chapped lips can be caused by several factors, that include.  
+
 both from ground up and top down  
 shoulder  
 delve in  
