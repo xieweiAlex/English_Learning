@@ -1,4 +1,43 @@
 
+I thought it would make me **ravenously** hungry, but surprisingly I wasn't too bothered by the hunger.  
+
+I **limped out** another 15,000 steps.  
+
+
+## Week 2
+
+A **rowdy** group of boys ran through the streets.  
+**Did I not say** coral was the color for you? Look what does for your skin.  
+
+Trump **railed** against his Cabinet secretaries and staff.  
+**euthanize**, **euthanasia**  
+The walls were plain and **unadorned**.  
+**blank sheet**  
+
+
+People are content overall. 23% of those living in multigenerational households find it stressful, and 54% say it's **rewarding**, per Pew.  
+
+**Haiti** 
+
+**hangups** 
+I hate to have unfinished work **hanging over** me.  
+
+**carper**  
+**Prospect** 
+**startling**  
+**airlock**  
+**inscrutable**  
+
+Japan’s launch of its H3 rocket was **scuttled** after its second-stage engine failed to ignite, generating a wave of disappointment.  
+
+She had a **visceral** dislike of all things foreign.  
+The opinions seem are **all over the place**. 
+**mansion** 
+**retentive**  
+The house was completely **gutted**.
+
+Three days later, SVB is in **receivership**.  
+
 How come you're so **dense** all of a sudden?
 We entered a **dense** forest.  
 A **dense** fog lay around.  

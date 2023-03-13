@@ -1,13 +1,15 @@
 
+**rewarding**  
+
 **wonky**  
 
 **up for grabs** 
 
 **riveting** 
 
-**mercenary**
+**mercenary**  
 
-**conducive**
+**conducive**  
 **conclusive**  
 
 
