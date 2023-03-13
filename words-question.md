@@ -1,4 +1,6 @@
 
+* taxing, laborous, tedious etc 
+
 * Bumble vs bunble vs botch 
 
 **acidic** vs **sour** vs tart/tartaric  

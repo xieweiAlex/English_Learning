@@ -1,13 +1,15 @@
 # English_Learning
 
 
-Expanding vocabulary for a non native-speaker is tedious and time-consuming. I try to record the **words or phrases** I encounter everyday with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight. If it can inspire someone else, that's even better 💖.  
+Expanding vocabulary for a non native-speaker is taxing and time-consuming. I try to jot down the **words or phrases** I encounter day to day with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight. If it can inspire someone else, that's even better 💖.  
 
 [Words Review](./words-review.md)
 
 ### 2023
+[Mar Words](./words/2023/words-March.md) |
 [Feb Words](./words/2023/words-Feb.md) |
 [Jan Words](./words/2023/words-Jan.md) |
+
 [Special Words](./special/2023/special-words-Q1.md) |
 [Verb](./special/2023/verb-special-Q1.md) |
 [Phrases](./special/2023/phrase-Q1-23.md) |
