@@ -1,4 +1,16 @@
 
+**Fleeting** pleasures.  
+
+
+**peremptory**: It means "putting an end to all debate or action," "not allowing contradiction or refusal," or "imperative, urgent, or commanding." It may be encountered more frequently in legal or professional settings, but it is not an obscure or archaic term.
+
+**Intemperate**: It means lacking in self-control or restraint, particularly with regard to one's emotions, speech, or behavior.   
+
+**Temporize**: It means to avoid making a decision or committing oneself in order to gain time or to avoid confrontation or conflict, particularly in a political or diplomatic context. 
+
+Statues of women are often **allegorical** or fictional characters, such as Little Nell alongside Charles Dickens in Philadelphia or Dorothy from "The Wizard of Oz" in Chicago.  
+
+
 **impedient**  
 **captious**  
 **marshy**  
@@ -9,7 +21,6 @@
 I thought it would make me **ravenously** hungry, but surprisingly I wasn't too bothered by the hunger.  
 Cato was **overcome** with grief when he lost his brother.  
 I **limped out** another 15,000 steps.  
-
 
 ## Week 2
 
