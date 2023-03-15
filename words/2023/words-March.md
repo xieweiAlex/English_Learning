@@ -1,4 +1,6 @@
 
+They are a coalition of the failing; the Soviet Remembrance Society; and a gang of opportunists
+
 **Fleeting** pleasures.  
 
 
