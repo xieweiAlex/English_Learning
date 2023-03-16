@@ -1,9 +1,12 @@
-## words-Feb.md ##  
-words/2023/words-Feb.md  
+## words-March.md ##  
+words/2023/words-March.md  
 The party began to **splinter**. -  
-A **gasp** rippled through the crowd. -  
+Like everyone else, I **deplore** and condemn this killing. -  
 He's usually very **adept** at keeping his private life out of the media. -  
 Who could possibly have come up with such a nifty **contraption**? -  
+
+## words-Feb.md ##  
+words/2023/words-Feb.md  
 China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
 That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns. -  
 I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -  
@@ -33,17 +36,13 @@ If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-u
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
 This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
-The tone of the article is **intemperate**. -  
 
 ## words-Dec.md ##  
 words/2022/words-Dec.md  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
-I can't permit you to **temporize** any longer. -  
 You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
 The potential of smart contract and the ability to **bestow** utilization rights, property rights, copyrights, usage rights. -  
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
 And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
 Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
-Politicians like to **pontificate** about falling standards. -  
-He was neither overly worried nor **briskly** **peremptory**. -  

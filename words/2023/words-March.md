@@ -1,5 +1,22 @@
 
-glamorize
+
+**see-through**  
+
+**forklift**
+Will the court **acquit** him of the crime?  
+**pureed**  
+**parlor**  
+**stodge**  
+**clammy**  
+**bewitching**  
+**Enthral**    
+**Petulant**  
+
+pavilion, gazebo, courtyard, atrium, gaxxx?  
+
+See where I'm coming from?  
+
+**glamorize**
 
 **karate**  
 **nomenclature**  
@@ -117,7 +134,7 @@ He talks about the trajectory of the industry, where he sees it going, the **imp
 Every **gnarled** hack knows that the best way to bury bad news is to counter it with a splashy new announcement.  
 Like everyone else, I **deplore** and condemn this killing. -  
 You know, ever since N.A.F.T.A. , corporate outsourcing has been the **bane** of the American worker.  
-A **gasp** rippled through the crowd. -  
+A **gasp** rippled through the crowd.   
 The **uncut** grass came up to her waist.  
 **peacock**, **peafowl**  
 

@@ -57,7 +57,7 @@ She was a tiny little woman to inspire so much **veneration**.
 The ring was only **plated** (with gold).  
 **nickel** **plated**, zinc **plated**.  
 
-I can't permit you to **temporize** any longer. -  
+I can't permit you to **temporize** any longer.   
 It's both an **emollient** and a natural perfume.  
 
 **Priming effect**  
@@ -292,8 +292,8 @@ By imposing the daily apparatus of detection and enforcement, he has brought an 
 **hangup**  
 **namely**  
 These **discrepancies** influence what is likely to ail you.  
-Politicians like to **pontificate** about falling standards. -  
-He was neither overly worried nor **briskly** **peremptory**. -  
+Politicians like to **pontificate** about falling standards.   
+He was neither overly worried nor **briskly** **peremptory**.   
 The trustworthiness is the essential condition of **comity**.   
 The FTX founder and former CEO crafted an image as a **rumpled**, slightly mad **wunderkind**, napping on office beanbags and wearing shorts to meetings.  
 

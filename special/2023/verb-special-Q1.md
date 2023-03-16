@@ -1,4 +1,6 @@
 
+**glamorize**
+
 **savor**
 
 **shoulder**

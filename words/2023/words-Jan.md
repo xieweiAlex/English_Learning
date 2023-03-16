@@ -209,7 +209,7 @@ Yaml is full of **footguns** and its friendliness is **deceptive**.
 
 **Irate** customers in China have been demanding **rebates** and protesting in **showrooms**.  
 The **tomb** of King and his wife, Coretta Scott King, in Atlanta at sunrise today.  
-The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts.   
+The stereotype of the philosopher is one who spends all day and night with their **dense** textbooks and their **tortuous** thoughts.  
 
 Tomatoes and tomato products are some of the best **dietary sources** of **lycopene**, a potent **carotenoid** plant **pigment** that has **anti-inflammatory** and **antioxidant** benefits.  
 It's very cool, it's not **garish** or **tacky** in any way.  
@@ -412,7 +412,7 @@ Yaml is the **lingua franca** of cloud config (although verbose...)
 
 Everything he owned was **sequestered**.  
 **Vouchsafe** me a spirit of faith and knowledge.  
-The tone of the article is **intemperate**. -  
+The tone of the article is **intemperate**.   
 The picture showed this **impish** kid with this like wicked smile on his face.  
 
 ## Conversation  
