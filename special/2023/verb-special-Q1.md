@@ -1,4 +1,8 @@
 
+**lobotomize**
+
+**embolden**
+
 **catapult**  
 
 **glamorize**

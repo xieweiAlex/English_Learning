@@ -1,4 +1,15 @@
 
+cubby  
+I expect to see you back here, pronto!  
+A sharp overhang of rock gave them cover.  
+A balcony overhangs the door below it.  
+
+
+
+
+You're up.  
+I call dibs.  
+
 
 Welsh thinks programming is **on the cusp of** changing from a job that humans do, to one that robots will do, thanks to technologies like ChatGPT and Copilot.  
 
