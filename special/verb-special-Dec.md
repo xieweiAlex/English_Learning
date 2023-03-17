@@ -25,8 +25,6 @@
 
 **cobble**
 
-**catapult**  
-
 **coerce** 
 
 **grapple**  

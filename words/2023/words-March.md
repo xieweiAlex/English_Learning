@@ -1,5 +1,19 @@
 
 
+Welsh thinks programming is **on the cusp of** changing from a job that humans do, to one that robots will do, thanks to technologies like ChatGPT and Copilot.  
+
+**athleticism**.  
+**Hippocrates**
+animal **hides**  
+**battalion**  
+
+She'll **blab** it all over the school. -  
+**herbicide**  
+
+The surrounding land is low and **marshy**.  
+I'd **remiss** if you didn't warn you about some of the negative side of using ingress. 
+
+CoPilot is a **tectonic shift**.  
 **see-through**  
 
 **forklift**
@@ -12,9 +26,9 @@ Will the court **acquit** him of the crime?
 **Enthral**    
 **Petulant**  
 
-pavilion, gazebo, courtyard, atrium, gaxxx?  
+**pavilion**, gazebo, courtyard, atrium, gaxxx?  
 
-See where I'm coming from?  
+See **where I'm coming from**?  
 
 **glamorize**
 
@@ -103,7 +117,6 @@ When you ask vanilla **lobotomized** chatGPT to make you a recipe for the substa
 **methamphetamine**  
 
 **wonky**  
-
 **Chapped**, or cracked, lips is the term commonly used to describe dry lips. Chapped lips can be caused by several factors, that include.  
 
 both from **ground up** and top down  
@@ -113,7 +126,6 @@ both from **ground up** and top down
 Some **disaffected** members left to form a new party.  
 
 That’s the conventional wisdom **ricocheting** around Silicon Valley right now as technology institution Silicon Valley Bank looks precarious.  
-
 
 New York’s stockmarkets are **thrashing** Hong Kong and London.  
 A recent Bloomberg article pointed out that a new **scourge** is sweeping our nation: declining survey response rates.  
