@@ -1,7 +1,19 @@
 
+mouthy  
+fraught, fret  
+tush  
+befuddle  
+
+
+
+You're living here provisionally.  
+
+
+He is an amalgam of East and West culture.  
+
+Steve was capable of extraordinary compartmentalization. It’s a talent that allowed him to master and keep track of the various pieces of an entity as complex as Apple upon his return. It allowed him to maintain his focus despite the cacophony of worries that came with knowing he had cancer. It also allowed him to maintain a deep and meaningful life outside the office, while revealing little of that to people who weren’t part of his close inner circle.  
 
 **cadaver**  
-
 
 Isabelle was a **frivolous** little fool, **vain** and **flighty**.  
 This coffee house is run by the **illuminati**.  
