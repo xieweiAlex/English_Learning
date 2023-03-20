@@ -1,20 +1,79 @@
 
-cubby  
-I expect to see you back here, pronto!  
-A sharp overhang of rock gave them cover.  
-A balcony overhangs the door below it.  
+
+**cadaver**  
 
 
+Isabelle was a **frivolous** little fool, **vain** and **flighty**.  
+This coffee house is run by the **illuminati**.  
+
+Practicing friendship is like a **sounding board**.  
+wisdom comes from **discernment** of the difference  
+**compulsive**  
+**effable**  
+**ephemeral**  
+**dormant**  
+**modulate**  
+**what stuck with me**.  
+**better**  
+**piggyback**  
+**powerlift**  
+**bondage**  
+**nobility**  
+wisdom comes from **discernment** of the difference  
+**bedside**  
+**metaphysical**  
+**earthmoving**  
+**offspring**  
+**asymmetrical**  
+**fire call**  
+
+**as though**  
+**frank**, **blunt**  
+
+**palpable**, **palatable**  
+**detriment**  
+**on par**  
+
+**machete**  
+**warder**  
+**mournful**  
+There is nothing so **sanative** as a walk in the woods.  
+**holdover**  
+He strangled her with a **nylon** stocking.  
+**boutique**  
+**airstrip**  
+Mr. Crouch's face was **taut** with rage.  
+Canned **Lychee**. -  
+
+**dew point**  
+
+**smuggle**  
+**pious**  
+**willy-nilly**  
+**pithy**  
+**brashy**  
+**bristles**  
+**tautology**  
+**pectoral**  
+**injunction**  
+**emblem**  
 
 
-You're up.  
-I call dibs.  
+**highbrow** and **lowbrow**  
+**lowbrow culture**  
 
+**cubby**  
+I expect to see you back here, **pronto**!  
+A sharp **overhang** of rock gave them cover.  
+A balcony **overhangs** the door below it.  
+
+**You're up**.  
+**I call dibs**.  
 
 Welsh thinks programming is **on the cusp of** changing from a job that humans do, to one that robots will do, thanks to technologies like ChatGPT and Copilot.  
 
 **athleticism**.  
-**Hippocrates**
+**Hippocrates**  
 animal **hides**  
 **battalion**  
 
@@ -22,42 +81,42 @@ She'll **blab** it all over the school. -
 **herbicide**  
 
 The surrounding land is low and **marshy**.  
-I'd **remiss** if you didn't warn you about some of the negative side of using ingress. 
+I'd **remiss** if you didn't warn you about some of the negative side of using ingress.  
 
 CoPilot is a **tectonic shift**.  
 **see-through**  
 
-**forklift**
+**forklift**  
 Will the court **acquit** him of the crime?  
 **pureed**  
 **parlor**  
 **stodge**  
 **clammy**  
 **bewitching**  
-**Enthral**    
+**Enthral**  
 **Petulant**  
 
 **pavilion**, gazebo, courtyard, atrium, gaxxx?  
 
 See **where I'm coming from**?  
 
-**glamorize**
+**glamorize**  
 
 **karate**  
 **nomenclature**  
 Don't **rough up** my hair.  
-**parry**, **pair** 
+**parry**, **pair**  
 He **parried** the unwelcome question very skilfully.  
 **chestnut**  
 
-They are a **coalition** of the failing; the Soviet **Remembrance** Society; and a gang of **opportunists**
+They are a **coalition** of the failing; the Soviet **Remembrance** Society; and a gang of **opportunists**  
 
 **Fleeting** pleasures.  
-**peremptory**: It means "putting an end to all debate or action," "not allowing contradiction or refusal," or "imperative, urgent, or commanding." It may be encountered more frequently in legal or professional settings, but it is not an obscure or archaic term.
+**peremptory**: It means "putting an end to all debate or action," "not allowing contradiction or refusal," or "imperative, urgent, or commanding." It may be encountered more frequently in legal or professional settings, but it is not an obscure or archaic term.  
 
-**Intemperate**: It means lacking in self-control or restraint, particularly with regard to one's emotions, speech, or behavior.   
+**Intemperate**: It means lacking in self-control or restraint, particularly with regard to one's emotions, speech, or behavior.  
 
-**Temporize**: It means to avoid making a decision or committing oneself in order to gain time or to avoid confrontation or conflict, particularly in a political or diplomatic context. 
+**Temporize**: It means to avoid making a decision or committing oneself in order to gain time or to avoid confrontation or conflict, particularly in a political or diplomatic context.  
 
 Statues of women are often **allegorical** or fictional characters, such as Little Nell alongside Charles Dickens in Philadelphia or Dorothy from "The Wizard of Oz" in Chicago.  
 
@@ -72,7 +131,7 @@ I thought it would make me **ravenously** hungry, but surprisingly I wasn't too 
 Cato was **overcome** with grief when he lost his brother.  
 I **limped out** another 15,000 steps.  
 
-## Week 2
+## Week 2  
 
 A **rowdy** group of boys ran through the streets.  
 **Did I not say** coral was the color for you? Look what does for your skin.  
@@ -85,13 +144,13 @@ The walls were plain and **unadorned**.
 
 People are content overall. 23% of those living in multigenerational households find it stressful, and 54% say it's **rewarding**, per Pew.  
 
-**Haiti** 
+**Haiti**  
 
-**hangups** 
+**hangups**  
 I hate to have unfinished work **hanging over** me.  
 
 **carper**  
-**Prospect** 
+**Prospect**  
 **startling**  
 **airlock**  
 **inscrutable**  
@@ -99,14 +158,14 @@ I hate to have unfinished work **hanging over** me.
 Japan’s launch of its H3 rocket was **scuttled** after its second-stage engine failed to ignite, generating a wave of disappointment.  
 
 She had a **visceral** dislike of all things foreign.  
-The opinions seem are **all over the place**. 
-**mansion** 
+The opinions seem are **all over the place**.  
+**mansion**  
 **retentive**  
-The house was completely **gutted**.
+The house was completely **gutted**.  
 
 Three days later, SVB is in **receivership**.  
 
-How come you're so **dense** all of a sudden?
+How come you're so **dense** all of a sudden?  
 We entered a **dense** forest.  
 A **dense** fog lay around.  
 
@@ -152,18 +211,18 @@ Iran: a **theocratic** Islamic republic in the Middle East in western Asia.
 
 **roughneck**.  
 
-He talks about the trajectory of the industry, where he sees it going, the **impediments** it faces, and much more.
+He talks about the trajectory of the industry, where he sees it going, the **impediments** it faces, and much more.  
 **Ravenous**  
 Every **gnarled** hack knows that the best way to bury bad news is to counter it with a splashy new announcement.  
 Like everyone else, I **deplore** and condemn this killing. -  
 You know, ever since N.A.F.T.A. , corporate outsourcing has been the **bane** of the American worker.  
-A **gasp** rippled through the crowd.   
+A **gasp** rippled through the crowd.  
 The **uncut** grass came up to her waist.  
 **peacock**, **peafowl**  
 
-They look so cute and **cuddly**, but the slightest thing can turn this beautiful creature into something so dangerous and violent that the toughest man could be killed or **maimed** for life.    
+They look so cute and **cuddly**, but the slightest thing can turn this beautiful creature into something so dangerous and violent that the toughest man could be killed or **maimed** for life.  
 
-## Week 1 
+## Week 1  
 
 To make this dish truly unique, we need to **amalgamate** different spices and flavors from various regions of the world.  
 **suck-up**  
@@ -173,11 +232,11 @@ He's usually very **adept** at keeping his private life out of the media. -
 **albino**  
 **leukaemia**  
 
-**left someone in the lurch** 
+**left someone in the lurch**  
 
 **lovelace**.  
 **hydroplane**, **hydroplaning**  
-**remission**   
+**remission**  
 Where have you been to get that **suntan**?  
 **puppet**  
 
@@ -188,12 +247,12 @@ When he doesn't know the answer, he gets **huffy**.
 **Calamitous**  
 **dispassionate**  
 
-**Montesquieu**
+**Montesquieu**  
 **Plenary power**.  
 **situated**, **located**  
 **blast radius**  
 
-Reliably **reproduce** it. 
+Reliably **reproduce** it.  
 
 Who could possibly have come up with such a nifty **contraption**? -  
 A lot are the same, the **subtleties** are in how this container starts.  
@@ -204,29 +263,29 @@ A lot are the same, the **subtleties** are in how this container starts.
 
 The idea of trying to **tough it out** and doing everything your own is **fallacious** and problematic.  
 **hanging back**.  
-It was like eating butter **redolent** with raw garlic.   
+It was like eating butter **redolent** with raw garlic.  
 Toner **cartridge**, print **cartridge**  
 This metal **burnishes** well.  
 **gloom and doom**  
 **comedown**  
 
-A **sliver** of light showed under the door.
+A **sliver** of light showed under the door.  
 
 All this is wonderful and **illuminating**.  
 Human beings have been doing the same things for **eons**.  
 
-Another high-profile investor day took place on Tuesday. Goldman Sachs (GS) CEO David Solomon **took the podium**, but ended up getting some **flak** over the Wall Street stalwart's foray into the consumer arena.   
+Another high-profile investor day took place on Tuesday. Goldman Sachs (GS) CEO David Solomon **took the podium**, but ended up getting some **flak** over the Wall Street stalwart's foray into the consumer arena.  
 
-In case anyone overlooked the xxx in all the birthday **maelstrom**.   
+In case anyone overlooked the xxx in all the birthday **maelstrom**.  
 New COVID lab leak assessment **reignites** **furor** over pandemic origins.  
-I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn't get stuck in a **quagmire**.   
+I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn't get stuck in a **quagmire**.  
 
 **indisposed**  
 **repudiation**  
 **deject**  
 **headstrong**  
 **collocation**  
-**suntan** 
+**suntan**  
 
 **Organ meats**.  
 You'll only need a few simple ingredients to make this tasty **offal** recipe.  

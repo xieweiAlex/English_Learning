@@ -1,4 +1,4 @@
-## Week 4
+## Week 4  
 
 **talmud**  
 **mouthy**  
@@ -6,26 +6,26 @@
 **screeching** halt.  
 **furrow**  
 
-Looks like the inflation is **abating**, it's **fading**.   
+Looks like the inflation is **abating**, it's **fading**.  
 You're an **aspiring** egg farmer, aren't you?  
-I'd like to have a **flock** of chickens, probably **silky** ones.   
+I'd like to have a **flock** of chickens, probably **silky** ones.  
 **Truist**.  
 
 An **incel** (/ˈɪnsɛl/ IN-sel, a **portmanteau** of "involuntary **celibate**"[1]) is a member of an online subculture of people who define themselves as unable to get a romantic or sexual partner despite desiring one.  
-**Chads**
+**Chads**  
 There were no social **mores** to deal with it.  
 I don't **condone** terrorism.  
 
 They can only have one child a year while a man could theoretically **sire** a thousand in a year.  
 **stratification**  
 
-> they go out their way to help me / hurt me
+> they go out their way to help me / hurt me  
 
 **bauble**  
 
 Take away that **shining** **bauble** there, and lock up the doors.  
 The **Exorcist**.  
-**Entreaty**: it is a noun that means a serious or earnest request or petition. It is often used in formal or written language, such as legal documents or **literature**.
+**Entreaty**: it is a noun that means a serious or earnest request or petition. It is often used in formal or written language, such as legal documents or **literature**.  
 The word "**rucksack**" is often used interchangeably with the word "backpack," but it generally implies a larger size and more **rugged** construction.  
 China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
 They were **enthralled** with the play.  
@@ -34,15 +34,15 @@ The result was **correspondent** with my wishes.
 a torpedo-boat **flotilla**.  
 a **destroyer** flotilla.  
 
-**rigmarole**
+**rigmarole**  
 **shelllacking**  
 **repartee**  
 **reverent**  
 **patch board**  
-**enforceable**
+**enforceable**  
 
 One thing we have to remember is the Stoics did not regard guilt as a productive emotion. It does nothing for you but send you **plummeting** down a **spiral** of **self-loathing**.  
-That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns. -  
+That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns.   
 He would have been **aghast** at the fact that Seneca regularly quoted **Epicurus** in his Letters, even if Seneca **stipulated** that he was no Epicurean.  
 To **tarry** in the garden? To avoid pain? This was the **antithesis** of what the Stoic was supposed to advise or celebrate.  
 And instead of **scorning** the Epicureans, we should try, as Seneca did, to learn from them.  
@@ -85,7 +85,7 @@ To be able to forgive a debt, to be able to pick up **a tab**, to be able to spe
 I strove to welcome this **hazard**, to rejoice in whatever it brought me of the new and unexpected, and thus without shock the ambush or the **tempest** was incorporated into my plans, or my thoughts.  
 Even in the **throes** of my worst disaster, I have seen a moment when sheer exhaustion reduced some part of the horror of the experience, and when I made the defeat a thing of my own in being willing to accept it.  
 
-## Week 3
+## Week 3  
 
 > Your own safety is at stake when your neighbor's wall is **ablaze**.  
 
@@ -143,11 +143,11 @@ I'm **uncover** right now, I'm a whore.
 
 **at hand**  
 She's a black belt in **judo**.  
-He looked **sly** and **furtive**.   
+He looked **sly** and **furtive**.  
 **fash**??  
 **talmud**  
 **shellacking**  
-The **hospice** aims to ease the sufferings of the dying. -  
+The **hospice** aims to ease the sufferings of the dying.   
 
 **decibel**  
 **habitat**  
@@ -157,12 +157,12 @@ The **hospice** aims to ease the sufferings of the dying. -
 **overcoat**  
 
 We've got a **nucleus** of about 10 million laying hens.  
-If I have a **vulva** and I need **lube** for sex, there must be something wrong with me.   
+If I have a **vulva** and I need **lube** for sex, there must be something wrong with me.  
 
 You can't just **spout off** a bunch of terms you don't understand  
 Little teapots with long **spouts** have become a **fixture** in many homes to flush out clogged nasal **passages** and help people breathe easier.  
 **neti pots**  
-Some tap water contains low levels of **organisms** — such as bacteria and **protozoa**, including **amoebas**.   
+Some tap water contains low levels of **organisms** — such as bacteria and **protozoa**, including **amoebas**.  
 
 One thing I **glossed over** a few minutes ago was exactly what the rng is doing.  
 "As you sow, so will you reap."  
@@ -175,8 +175,8 @@ One thing I **glossed over** a few minutes ago was exactly what the rng is doing
 **Conjure**  
 **unencumbered**  
 **arboreal**  
-**seer**. -  
-**turgid**.   
+**seer**.   
+**turgid**.  
 
 
 **It's on the house**.  
@@ -256,7 +256,7 @@ We’re sitting indoors, wearing clothes, **well-fed**, and communicating with e
 The hunter is a **stout** **lusty** fellow. -  
 
 **Life and death situations**  
-Why are you **subjecting** yourself to this?   
+Why are you **subjecting** yourself to this?  
 
 Turn a king into that most feared and **detested** thing -- a tyrant.  
 
@@ -319,7 +319,7 @@ Don't be so **dismayed**.
 
 Usually in your friend group, you are the **life of the party**.  
 Okay, we're **onto something**, this makes sense or should we actually kill it?  
-he **blubbered** like a child who had been **spanked**.   
+he **blubbered** like a child who had been **spanked**.  
 **splinter**  
 **grunt**  
 **you have the floor**  
@@ -404,7 +404,7 @@ A **brainiac**, with a cranium packed, full of more uranium.
 The **turnstiles** and ADA door will be activated in the near future but we do have two security guards on site to ensure access control for the floor.  
 
 **carcass**  
-A **miserly** father makes a **prodigal** son.   
+A **miserly** father makes a **prodigal** son.  
 **sinister**  
 **impaction**  
 **willow**  
@@ -439,7 +439,7 @@ So why did he need to spend so many precious hours in his tent, writing by the *
 **capacitate**  
 **jihad**  
 
-**maudlin**.   
+**maudlin**.  
 **celebs**  
 **capricorn**  
 

@@ -1,4 +1,8 @@
 
+**solitude**
+
+**barometer**
+
 **vital**
 
 **cathartic**

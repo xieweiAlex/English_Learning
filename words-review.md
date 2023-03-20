@@ -1,5 +1,7 @@
 ## words-March.md ##  
 words/2023/words-March.md  
+Canned **Lychee**. -  
+She'll **blab** it all over the school. -  
 The party began to **splinter**. -  
 Like everyone else, I **deplore** and condemn this killing. -  
 He's usually very **adept** at keeping his private life out of the media. -  
@@ -8,12 +10,9 @@ Who could possibly have come up with such a nifty **contraption**? -
 ## words-Feb.md ##  
 words/2023/words-Feb.md  
 China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
-That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns. -  
 I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -  
 His manner is **supercilious** and arrogant. -  
 Strive for **rapport** with others. -  
-The **hospice** aims to ease the sufferings of the dying. -  
-**seer**. -  
 The whole hall is filled with joy and laughter -- there is only one who feels **distressful**. -  
 Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that. -  
 The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble. -  
@@ -32,9 +31,7 @@ That will **preclude** him from escaping. -
 ## words-Jan.md ##  
 words/2023/words-Jan.md  
 If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up. -  
-**Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
-This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 
 ## words-Dec.md ##  

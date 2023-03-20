@@ -126,7 +126,7 @@ A hundred and fifty years after it was forced to open its doors, Japan is still 
 > Hijack the conversation.  
 > Holding the conversation in hostage.  
 
-**Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health. -  
+**Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health.   
 
 He likes girls that play the **coquette**.  
 It is a **sacrilege** to offend democracy.  
@@ -245,7 +245,7 @@ This **seismic** shift gonna affect everything.
 Have **grandiose** aims but puny abilities,great ambition but little talent.  
 
 Have you ever stopped to ask why the four points on a compass—north, south, east, west—are called the “**cardinal directions**”?  
-This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go. -  
+This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go.   
 
 > The market, or any given stock isn't always in an uptrend, if they were, investing would be a **cakewalk**.  
 
