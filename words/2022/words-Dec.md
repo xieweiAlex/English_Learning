@@ -284,7 +284,7 @@ The city was the site of a deadly fire that killed 10 people, and first triggere
 > No, it's all good. I got it.  
 
 People started to be more **cognizant** about how they spend money on date.  
-Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
+Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed.   
 
 This suggests that, if the virus spread **unencumbered**, infections would peak at 45m a day. Around 680,000 people would **perish**, even if vaccines remained potent and all of them received care.  
 By imposing the daily apparatus of detection and enforcement, he has brought an **unbending** authoritarian state into every home.  

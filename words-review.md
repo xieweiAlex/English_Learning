@@ -1,11 +1,11 @@
 ## words-March.md ##  
 words/2023/words-March.md  
-Canned **Lychee**. -  
-She'll **blab** it all over the school. -  
+Canned **Lychee**.   
+She'll **blab** it all over the school.   
 The party began to **splinter**. -  
 Like everyone else, I **deplore** and condemn this killing. -  
-He's usually very **adept** at keeping his private life out of the media. -  
-Who could possibly have come up with such a nifty **contraption**? -  
+He's usually very **adept** at keeping his private life out of the media.   
+Who could possibly have come up with such a nifty **contraption**?   
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  
@@ -42,4 +42,3 @@ The potential of smart contract and the ability to **bestow** utilization rights
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
 And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
-Whether you are a miner, a dev, a devoted **pleb**, or new to the topic - you are welcomed. -  
