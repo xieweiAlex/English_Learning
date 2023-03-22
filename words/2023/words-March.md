@@ -1,4 +1,14 @@
 
+He had an awful lot to keep him busy, to distract him, to push him further and further, which in turn afforded him less and less time for that which really mattered to him: philosophy.  
+
+cut ties  
+
+
+if all is done correctly, the fruit doesn't go bad.  
+
+abnegate  
+
+
 **enmity**  
 
 repudiation  
