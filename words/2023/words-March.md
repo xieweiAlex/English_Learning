@@ -1,4 +1,23 @@
 
+**enmity**  
+
+repudiation  
+retentive  
+repeal  
+Her face was **careworn** with anxiety.  
+warder  
+**carpal** tunnel  
+gruff  
+diabolic  
+ooze  
+monomania  
+rutting  
+
+
+
+Don't say Fuxk, it's vulgar.  
+
+
 Benevolence surged across the globe, driven by neighbors helping neighbors through the pandemic, the authors note.  
 
 keep in mind that without the addition of sugar, the carbonation may be less **pronounced**.  
@@ -297,7 +316,6 @@ New COVID lab leak assessment **reignites** **furor** over pandemic origins.
 I think that Microsoft has a very strong **bias for action** and getting stuff done right now, just so it doesn't get stuck in a **quagmire**.  
 
 **indisposed**  
-**repudiation**  
 **deject**  
 **headstrong**  
 **collocation**  
