@@ -14,12 +14,12 @@ papperclip
 mantle  
 credit crunch, crunch time.  
 
-
-
 Are science and religion fated to be **adversaries**?.  
 
+Demographics are an existential problem for the global economy. But one country on the upswing is India — and it’s devoting endless resources to becoming a leader in trade, technology, and markets.  
+This is where inequality enters the picture, too, because of course some people have to do a lot more than others simply to stay afloat.  
+the feeling that you must get things done, not merely to achieve certain ends, but because it's a cosmic duty you've somehow incurred in exchange for being alive.  
 He had an awful lot to keep him busy, to distract him, to push him further and further, which in turn afforded him less and less time for that which really mattered to him: philosophy.  
-
 **Cut ties**  
 If **all is done** correctly, the fruit doesn't go bad.  
 
