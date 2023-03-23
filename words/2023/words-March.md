@@ -1,36 +1,47 @@
 
+The subject of racism is admittedly too complex for facile summarization.  
+old chap  
+rain check  
+
+
+prissy  
+snapper  
+galactic  
+shellacking  
+phallic  
+papperclip  
+
+mantle  
+credit crunch, crunch time.  
+
+
+
+Are science and religion fated to be **adversaries**?.  
+
 He had an awful lot to keep him busy, to distract him, to push him further and further, which in turn afforded him less and less time for that which really mattered to him: philosophy.  
 
-cut ties  
+**Cut ties**  
+If **all is done** correctly, the fruit doesn't go bad.  
 
-
-if all is done correctly, the fruit doesn't go bad.  
-
-abnegate  
-
+**abnegate**  
 
 **enmity**  
-
-repudiation  
-retentive  
-repeal  
+**repudiation**  
+**retentive**  
+**repeal**  
 Her face was **careworn** with anxiety.  
-warder  
+**warder**  
 **carpal** tunnel  
-gruff  
-diabolic  
-ooze  
-monomania  
-rutting  
+**gruff**  
+**diabolic**  
+**ooze**  
+**monomania**  
+**rutting**  
 
+Don't say Fuxk, it's **vulgar**.  
 
-
-Don't say Fuxk, it's vulgar.  
-
-
-Benevolence surged across the globe, driven by neighbors helping neighbors through the pandemic, the authors note.  
-
-keep in mind that without the addition of sugar, the carbonation may be less **pronounced**.  
+**Benevolence** surged across the globe, driven by neighbors helping neighbors through the pandemic, the authors note.  
+Keep in mind that without the addition of sugar, the carbonation may be less **pronounced**.  
 
 **warthog**  
 **concoction**  
