@@ -1,11 +1,7 @@
 ## words-March.md ##  
 words/2023/words-March.md  
-Canned **Lychee**.   
-She'll **blab** it all over the school.   
 The party began to **splinter**. -  
 Like everyone else, I **deplore** and condemn this killing. -  
-He's usually very **adept** at keeping his private life out of the media.   
-Who could possibly have come up with such a nifty **contraption**?   
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  

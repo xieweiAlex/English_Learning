@@ -1,4 +1,17 @@
 
+he strenuously denies. 
+
+
+
+Finland has Turkey's approval and can ast last join NATO.  
+adherence  
+buckwheat  
+It's odds-on that he'll be late.  
+contemporary  
+preamble  
+
+
+
 The subject of racism is admittedly too complex for facile summarization.  
 old chap  
 rain check  
@@ -99,7 +112,7 @@ He strangled her with a **nylon** stocking.
 **boutique**  
 **airstrip**  
 Mr. Crouch's face was **taut** with rage.  
-Canned **Lychee**. -  
+Canned **Lychee**.   
 
 **dew point**  
 
@@ -133,7 +146,7 @@ Welsh thinks programming is **on the cusp of** changing from a job that humans d
 animal **hides**  
 **battalion**  
 
-She'll **blab** it all over the school. -  
+She'll **blab** it all over the school.   
 **herbicide**  
 
 The surrounding land is low and **marshy**.  
@@ -282,7 +295,7 @@ They look so cute and **cuddly**, but the slightest thing can turn this beautifu
 
 To make this dish truly unique, we need to **amalgamate** different spices and flavors from various regions of the world.  
 **suck-up**  
-He's usually very **adept** at keeping his private life out of the media. -  
+He's usually very **adept** at keeping his private life out of the media.   
 **Pimping**  
 **scepter**  
 **albino**  
@@ -310,7 +323,7 @@ When he doesn't know the answer, he gets **huffy**.
 
 Reliably **reproduce** it.  
 
-Who could possibly have come up with such a nifty **contraption**? -  
+Who could possibly have come up with such a nifty **contraption**?   
 A lot are the same, the **subtleties** are in how this container starts.  
 **personhood**  
 **bridesmaid**  
