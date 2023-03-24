@@ -465,7 +465,7 @@ That's our **edge** as a company.
 
 
 The driver lost control and the car **careen** down the hill.  
-That will **preclude** him from escaping. -  
+That will **preclude** him from escaping.   
 The old woman had a **careworn** look on her face.  
 He has a **predilection** for rich food.  
 

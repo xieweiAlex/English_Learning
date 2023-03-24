@@ -1,5 +1,9 @@
 ## words-March.md ##  
 words/2023/words-March.md  
+The subject of racism is admittedly too complex for **facile** summarization. -  
+**prissy** -  
+**snapper** -  
+**mantle** -  
 The party began to **splinter**. -  
 Like everyone else, I **deplore** and condemn this killing. -  
 
@@ -22,7 +26,6 @@ He is **obstinate** and determined and will not give up. -
 **abet**, youglish. -  
 Her **supercilious** attitude enraged me. -  
 He had a rather forbidding, **saturnine** manner. -  
-That will **preclude** him from escaping. -  
 
 ## words-Jan.md ##  
 words/2023/words-Jan.md  
