@@ -2,7 +2,15 @@
 junkyard  
 ensue  
 shrew  
+rugged individualism   
 
+
+
+The doctors could not keep up. Neither could the morticians or the grave diggers.  
+And the plague simply dragged on, year after year, without serious respite for over a decade.  
+
+Marcus broke into tears whenever the victims of the pestilence were mentioned–he knew how much had been lost, literally and figuratively.   
+He was trying to ward off the infection that he saw so many Romans fall prey to, he was trying to remain good.  
 
 We get so used to **having our way**. We live in a time when the skies have been conquered. When so many diseases have been **vanquished**. When technology allows us to do and have things that were **inconceivable** even just a generation ago.  
 
