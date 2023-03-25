@@ -1,4 +1,8 @@
 
+junkyard  
+ensue  
+shrew  
+
 
 We get so used to **having our way**. We live in a time when the skies have been conquered. When so many diseases have been **vanquished**. When technology allows us to do and have things that were **inconceivable** even just a generation ago.  
 
