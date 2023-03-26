@@ -1,16 +1,39 @@
 
-junkyard  
-ensue  
-shrew  
-rugged individualism   
+
+I can't stand how **prissy** he is about his food, always picking out every little ingredient he doesn't like.  
+The police arrested both the thief and his accomplice for **abetting** the crime.  
+The company was fined for **abetting** the pollution of the river by allowing their factories to dump waste into it.  
+Fresh fruits and vegetables are probably carrying germs **galore**, but fruits should be stored in the fridge or on the **countertop** unwashed because excess moisture can encourage bacteria growth and decay ahead of its time.  
 
 
+After many **trials and tribulations** we reached our destination.  
 
-The doctors could not keep up. Neither could the morticians or the grave diggers.  
-And the plague simply dragged on, year after year, without serious respite for over a decade.  
+and here is where the term **Nash equilibrium** **comes to play**.  
 
-Marcus broke into tears whenever the victims of the pestilence were mentioned–he knew how much had been lost, literally and figuratively.   
-He was trying to ward off the infection that he saw so many Romans fall prey to, he was trying to remain good.  
+
+First-time buyers without a big pile of cash now have a shot at **nabbing** a home.  
+
+The word "**supercilious**" means behaving or looking as though one is **superior** to others, and it is often used to describe someone who is arrogant, **haughty**, or **condescending**. While it is not a word that is used every day, it is still a useful and valuable word in English vocabulary.  
+It is illegal to **adulterate** food by adding harmful substances, such as chemicals or toxins, to it. -  
+
+
+It would be **foolhardy** to sail in weather like this.  
+He was smiling, but his eyes retained a look of **solemnity**.  
+**provident**, **providence**  
+
+I don't trust that salesman, he comes across as **smarmy** and **insincere**.  
+
+**junkyard**  
+**ensue**  
+**shrew**  
+**rugged** individualism  
+
+The doctors could not keep up. Neither could the **morticians** or the **grave diggers**.  
+And the plague simply dragged on, year after year, without serious **respite** for over a decade.  
+
+Marcus **broke into tears** whenever the victims of the **pestilence** were mentioned–he knew how much had been lost, literally and figuratively.  
+He was trying to **ward off** the infection that he saw so many Romans **fall prey to**, he was trying to remain good.**  
+
 
 We get so used to **having our way**. We live in a time when the skies have been conquered. When so many diseases have been **vanquished**. When technology allows us to do and have things that were **inconceivable** even just a generation ago.  
 
@@ -26,8 +49,6 @@ It's **odds-on** that he'll be late.
 The subject of racism is admittedly too complex for **facile** summarization. -  
 **old chap**  
 **rain check**  
-
-**prissy** -  
 **snapper** -  
 **galactic**  
 **shellacking**  

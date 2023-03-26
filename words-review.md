@@ -1,7 +1,7 @@
 ## words-March.md ##  
 words/2023/words-March.md  
+It is illegal to **adulterate** food by adding harmful substances, such as chemicals or toxins, to it. -  
 The subject of racism is admittedly too complex for **facile** summarization. -  
-**prissy** -  
 **snapper** -  
 **mantle** -  
 The party began to **splinter**. -  
@@ -11,20 +11,14 @@ Like everyone else, I **deplore** and condemn this killing. -
 words/2023/words-Feb.md  
 China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
 I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -  
-His manner is **supercilious** and arrogant. -  
 Strive for **rapport** with others. -  
 The whole hall is filled with joy and laughter -- there is only one who feels **distressful**. -  
-Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that. -  
-The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble. -  
-The hunter is a **stout** **lusty** fellow. -  
 Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance. -  
 It's a little **greasy** for my **palate**, said my insanely jealous mom. -  
 I was reading on this paper, and I heard this **commotion** up in your room. -  
 This **mangy** raccoon had busted through your screen. -  
 He must have **scampered** up to where Shel was. -  
 He is **obstinate** and determined and will not give up. -  
-**abet**, youglish. -  
-Her **supercilious** attitude enraged me. -  
 He had a rather forbidding, **saturnine** manner. -  
 
 ## words-Jan.md ##  

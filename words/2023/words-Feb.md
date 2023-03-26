@@ -122,7 +122,7 @@ I shall not reply to such a **scurrilous** attack upon me; it is **beneath conte
 **shellacking**  
 **acorn**  
 **ashram**  
-His manner is **supercilious** and arrogant. -  
+His manner is **supercilious** and arrogant.   
 
 I will pull around the garage and **stage** something, you owe me **big time**.  
 
@@ -211,8 +211,8 @@ A 2015 study suggests that **aspartame** was the largest source of **methanol** 
 
 “Whenever you get an impression of some pleasure, as with any impression, guard yourself from being **carried away** by it, let it await your action, give yourself a pause.  
 
-Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that. -  
-The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble. -  
+Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that.   
+The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble.   
 
 
 **Swat**  
@@ -253,7 +253,7 @@ When it comes to **medicines for the mind**, the placebo effect is 100 percent e
 He shows you the single-most important thing is to be present and **hammers it home** over and over again until you get it.  
 We’re sitting indoors, wearing clothes, **well-fed**, and communicating with each other **through space and time**.  
 
-The hunter is a **stout** **lusty** fellow. -  
+The hunter is a **stout** **lusty** fellow.   
 
 **Life and death situations**  
 Why are you **subjecting** yourself to this?  
@@ -393,7 +393,7 @@ What would totally **upend** your views?
 **lusty**  
 **cupid**  
 **in demand**  
-**abet**, youglish. -  
+**abet**, youglish.   
 They go into a kind of romantic **cocoon**.  
 **gizzard**  
 **ladybug**  
@@ -416,7 +416,7 @@ A **miserly** father makes a **prodigal** son.
 **geography**  
 **come to the boil**  
 **make the cut**  
-Her **supercilious** attitude enraged me. -  
+Her **supercilious** attitude enraged me.   
 
 There was the usual romantic **postscript** at the end of his letter.  
 I think we may just **loiter** around above 4000 for another week or two.  
