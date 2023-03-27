@@ -1,9 +1,11 @@
 ## words-March.md ##  
 words/2023/words-March.md  
 It is illegal to **adulterate** food by adding harmful substances, such as chemicals or toxins, to it. -  
+I don't trust that salesman, he comes across as **smarmy** and **insincere**. -  
 The subject of racism is admittedly too complex for **facile** summarization. -  
 **snapper** -  
 **mantle** -  
+There is nothing so **sanative** as a walk in the woods. -  
 The party began to **splinter**. -  
 Like everyone else, I **deplore** and condemn this killing. -  
 
