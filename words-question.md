@@ -1,4 +1,6 @@
 
+* banal, banalities, cliche, platitudes
+
 * taxing, laborous, tedious etc 
 
 * Bumble vs bunble vs botch 
@@ -91,7 +93,6 @@
 * particularly vs specially 
 * shim
 * indisposed  
-* banalities vs cliche
 * eminent & preeminent 
 * thrilled vs pumped 
 * crave vs long 

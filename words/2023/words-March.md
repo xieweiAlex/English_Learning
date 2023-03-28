@@ -1,8 +1,10 @@
 
-obsequious
 
 
-Given that you'll likely pay a hefty markup for car insurance if you let your policy lapse, it's essential to avoid having a break in coverage.  
+**obsequious**
+
+
+Given that you'll likely pay a **hefty** markup for car insurance if you let your policy **lapse**, it's essential to avoid having a break in coverage.  
 
 
 diamond **encrusted** sofa. -  
