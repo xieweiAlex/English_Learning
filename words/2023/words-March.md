@@ -1,4 +1,13 @@
 
+obsequious
+
+
+Given that you'll likely pay a hefty markup for car insurance if you let your policy lapse, it's essential to avoid having a break in coverage.  
+
+
+diamond **encrusted** sofa. -  
+
+
 ## Week 3  
 
 I hate being a **drudge** at this job - I never get to work on anything interesting or challenging.  
