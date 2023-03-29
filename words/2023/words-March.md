@@ -1,29 +1,37 @@
 
-Petulant  
+When he didn't get his way, he became petulant and started pouting like a child.  
+The actress stormed off set in a petulant rage when the director asked her to do another take.  
+She responded to the criticism with a petulant comment, revealing her thin skin and immaturity.  
+
+So on a lark, I tried Chinese — and it turns out she spoke proficient Mandarin.  
+Its work in Utah is emblematic of a broader effort by Beijing to secure allies at the local level as its relations with the U.S. and its western allies have turned acrimonious.  
 
 
+Chamath Palihapitiya, respected in many circles as a venture investor, once described bitcoin on CNBC as **schmuck** insurance, **qualifying** that it’s the single best hedge against the traditional financial infrastructure, “just in case.”   
+There is a generally understood risk that the men and women who manage U.S. fiscal and monetary policy might screw up the dollar economy, **materially** or completely.  
+It **presents** risk worth hedging.  
+**fractured**  
+It is predictable and **knowable**, **albeit** a bit uncomfortable.  
+The **skeptic** will **exclaim**, “but I thought bitcoin was supposed to be a hedge to inflation and there is inflation. What gives?”  
+In response to this acceleration, the Federal Reserve signaled to the market that it would pursue a **concerted effort** to reduce inflation in the Fall of 2021, and it ultimately began to raise interest rates (from zero), as **a means to that end**, in March 2022.  
+**Cumulatively**, the Fed raised interest rates seven individual times in 2022 to the tune of 4.25% in total rate increases.  
 
+The **paleo diet** is a popular high-protein diet that aims to mimic what our **hunter-gatherer** ancestors ate.  
 
-She was dreading having to broach the subject of money to her father.  
-They still have to broach many tricky subjects.  
-recoil  
-They find it unpleasant and they recoil from it.  
-Au courant  
-
-
-INTJs are open-minded yet they appear to be aloof.  
-
-
+**Petulant**  
+She was **dreading** having to **broach** the subject of money to her father.  
+They still have to **broach** many tricky subjects.  
+**recoil force**  
+They find it unpleasant and they **recoil** from it.  
+**Au courant**  
+INTJs are open-minded yet they appear to be **aloof**.  
 **plyometrics**
 
-eloquence  
+**eloquence**  
 **touch up**  
 **obsequious**
 
-
 Given that you'll likely pay a **hefty** markup for car insurance if you let your policy **lapse**, it's essential to avoid having a break in coverage.  
-
-
 diamond **encrusted** sofa. -  
 
 
