@@ -1,4 +1,17 @@
 
+mojo  
+recumbent  
+abnegate  
+analgesic  
+torpidity  
+
+
+
+The largest aquaculture-producing countries in the world are in Asia, and together they account for 91% of global aquaculture production.
+
+hasty judgement.  
+
+
 When he didn't get his way, he became petulant and started pouting like a child.  
 The actress stormed off set in a petulant rage when the director asked her to do another take.  
 She responded to the criticism with a petulant comment, revealing her thin skin and immaturity.  
