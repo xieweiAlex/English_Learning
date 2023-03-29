@@ -1,11 +1,14 @@
 
+Petulant  
+
+
+
+
 She was dreading having to broach the subject of money to her father.  
 They still have to broach many tricky subjects.  
 recoil  
 They find it unpleasant and they recoil from it.  
 Au courant  
-
-
 
 
 INTJs are open-minded yet they appear to be aloof.  
