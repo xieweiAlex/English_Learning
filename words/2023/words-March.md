@@ -1,4 +1,6 @@
 
+The first step is recognizing that the 21 million fixed supply is the fulcrum; the next is forming some conception or framework as to how it is enforced.  
+
 mojo  
 recumbent  
 abnegate  
