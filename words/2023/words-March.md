@@ -1,5 +1,12 @@
 
 
+In the case of the metaphorical PoW cyber antlers, the participants would harness energy to generate computer guesses, and the winner of every round would receive a reward in the form of network tokens, along with the right to publish the following block of transactions.  
+
+Take the path of least **resistance** 
+**passively resistant** to change 
+**slogging** through logs, **perusing** manuals  
+
+
 He never owned another human being. He never exploited anyone. He didn't crave fancy things or grand houses. And when he died on the same day as Jefferson, his **estate** was the exact **inverse of** his old friend: a $100,000 **bequest** to his family.
 
 The first step is recognizing that the 21 million fixed supply is the **fulcrum**; the next is forming some conception or framework as to how it is enforced.  
