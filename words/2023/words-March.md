@@ -1,26 +1,25 @@
 
-The first step is recognizing that the 21 million fixed supply is the fulcrum; the next is forming some conception or framework as to how it is enforced.  
 
-mojo  
-recumbent  
-abnegate  
-analgesic  
-torpidity  
+He never owned another human being. He never exploited anyone. He didn't crave fancy things or grand houses. And when he died on the same day as Jefferson, his **estate** was the exact **inverse of** his old friend: a $100,000 **bequest** to his family.
 
+The first step is recognizing that the 21 million fixed supply is the **fulcrum**; the next is forming some conception or framework as to how it is enforced.  
 
+**mojo**  
+**recumbent**  
+**abnegate**  
+**analgesic**  
+**torpidity**  
 
-The largest aquaculture-producing countries in the world are in Asia, and together they account for 91% of global aquaculture production.
+The largest **aquaculture**-producing countries in the world are in Asia, and together they account for 91% of global **aquaculture** production.
 
-hasty judgement.  
+**hasty judgement**.  
 
+When he didn't get his way, he became **petulant** and started **pouting** like a child.  
+The actress **stormed off** set in a **petulant** rage when the director asked her to do another take.  
+She responded to the criticism with a **petulant** comment, revealing her thin skin and immaturity.  
 
-When he didn't get his way, he became petulant and started pouting like a child.  
-The actress stormed off set in a petulant rage when the director asked her to do another take.  
-She responded to the criticism with a petulant comment, revealing her thin skin and immaturity.  
-
-So on a lark, I tried Chinese — and it turns out she spoke proficient Mandarin.  
-Its work in Utah is emblematic of a broader effort by Beijing to secure allies at the local level as its relations with the U.S. and its western allies have turned acrimonious.  
-
+So **on a lark**, I tried Chinese — and it turns out she spoke proficient Mandarin.  
+Its work in Utah is **emblematic** of a broader effort by Beijing to secure allies at the local level as its relations with the U.S. and its western allies have turned **acrimonious**.  
 
 Chamath Palihapitiya, respected in many circles as a venture investor, once described bitcoin on CNBC as **schmuck** insurance, **qualifying** that it’s the single best hedge against the traditional financial infrastructure, “just in case.”   
 There is a generally understood risk that the men and women who manage U.S. fiscal and monetary policy might screw up the dollar economy, **materially** or completely.  
