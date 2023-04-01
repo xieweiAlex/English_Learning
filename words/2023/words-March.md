@@ -1,4 +1,12 @@
 
+tubal **ligation**.  
+warthog  
+plod along  
+
+
+serendipity  
+karma is a bitch.  
+
 
 In the case of the metaphorical PoW cyber antlers, the participants would harness energy to generate computer guesses, and the winner of every round would receive a reward in the form of network tokens, along with the right to publish the following block of transactions.  
 
