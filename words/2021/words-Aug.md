@@ -121,7 +121,6 @@ One is the **eulogistic** word freedom, and the other is the **opprobrious** wor
 The move mirrors a similar interest shown by Walmart’s **sworn enemy** Amazon, which wants to hire someone to head up cryptocurrency products  
 You’ll be joining a **tight-knit** team with experience at places like xxx.  
 **Stratified** flow, **stratified** society  
-He **glanced** **furtively** at the **stolid** faces of the two detectives.  
 In that year, two **momentous** discoveries were made.  
 The enemy **infiltrated** our land  
 His face is **etched** onto his brain.  

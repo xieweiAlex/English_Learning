@@ -288,10 +288,10 @@ I have a **knack** for **impression**.
 **reacquainted**  
 
 **taste buds**  
-It's a little **greasy** for my **palate**, said my insanely jealous mom. -  
+It's a little **greasy** for my **palate**, said my insanely jealous mom.   
 **exotic** tea  
 
-I was reading on this paper, and I heard this **commotion** up in your room. -  
+I was reading on this paper, and I heard this **commotion** up in your room.   
 This **mangy** raccoon had busted through your screen. -  
 He must have **scampered** up to where Shel was. -  
 He just stared at me with that **smug look** and then **bolted**.  
@@ -451,7 +451,7 @@ I was buying it for the probiotic benefits of fermented cabbage and **sulfites**
 **agaric**  
 He was a big **strapping** guy but short on brains.  
 **rubric**  
-He had a rather forbidding, **saturnine** manner. -  
+He had a rather forbidding, **saturnine** manner.   
 
 We get the **buy in**.  
 **go south**.  

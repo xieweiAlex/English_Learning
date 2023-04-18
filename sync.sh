@@ -113,9 +113,10 @@ function cleanWordReview {
 }
 
 function ensure_trailing_spaces() {
-  echo "ensure_trailing_spaces..."
-
   local file_path=$1
+
+  echo "ensure_trailing_spaces... $file_path"
+
   # local file_path="./words/2023/words-Jan.md"
 
   # Read each line in the file
@@ -131,7 +132,7 @@ function ensure_trailing_spaces() {
   # Replace the original file with the temporary file
   mv "${file_path}.tmp" "$file_path"
 
-  echo "ensure_trailing_spaces done"
+  echo "ensure_trailing_spaces $file_path done"
 }
 
 function clean_all_files() {
@@ -150,7 +151,7 @@ if [[ "$#" -ne 1 ]]; then
 fi
 
 echo ".."
-ensure_trailing_spaces "./words/2023/words-March.md"
+ensure_trailing_spaces "./words/2023/words-April.md"
 
 echo "..."
 if [[ $action == 'sync' ]];

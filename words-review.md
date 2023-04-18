@@ -1,12 +1,18 @@
+## words-April.md ##  
+words/2023/words-April.md  
+They lived in a **squalid** **hovel** for the next five years. -  
+The **mendacious** beggar told a different **tale of woe** at every house.  -  
+How were these kids going to **upend** years of **stymied** racial progress? -  
+Her hatred of authority led to her **expulsion** from high school. -  
+
 ## words-March.md ##  
 words/2023/words-March.md  
-It is illegal to **adulterate** food by adding harmful substances, such as chemicals or toxins, to it.   
+diamond **encrusted** sofa. -  
 I don't trust that salesman, he comes across as **smarmy** and **insincere**. -  
 The subject of racism is admittedly too complex for **facile** summarization. -  
 **snapper** -  
 **mantle** -  
 There is nothing so **sanative** as a walk in the woods. -  
-The party began to **splinter**. -  
 Like everyone else, I **deplore** and condemn this killing. -  
 
 ## words-Feb.md ##  
@@ -16,16 +22,12 @@ I shall not reply to such a **scurrilous** attack upon me; it is **beneath conte
 Strive for **rapport** with others. -  
 The whole hall is filled with joy and laughter -- there is only one who feels **distressful**. -  
 Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance. -  
-It's a little **greasy** for my **palate**, said my insanely jealous mom. -  
-I was reading on this paper, and I heard this **commotion** up in your room. -  
 This **mangy** raccoon had busted through your screen. -  
 He must have **scampered** up to where Shel was. -  
 He is **obstinate** and determined and will not give up. -  
-He had a rather forbidding, **saturnine** manner. -  
 
 ## words-Jan.md ##  
 words/2023/words-Jan.md  
-If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up. -  
 Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
 Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
 

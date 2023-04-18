@@ -115,7 +115,7 @@ It's a peaceful, **prosperous** country with the longest life expectancy in the 
 **neon-lit**.  
 Hong Kong was an **assault on the senses**, noisy, smelly, a city of extremes - from **gaudy** mansions on Victoria Peak to the "dark satanic" **sweatshops** at the north end of **Kowloon**.  
 In Taipei, where I was studying Chinese, the streets **thronged** to the sound of **two-stroke scooters** **spewing** **acrid** smoke that **enveloped** the city in **a blanket of smog** so thick you could often see barely two blocks.  
-If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up. -  
+If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up.   
 Yes, Tokyo was a **concrete jungle**, but it was a beautifully **manicured** one.  
 In front of the Imperial Palace in Tokyo, the **skyline** was dominated by the glass towers of the country's corporate titans.  
 Rather the bureaucracy can be terrifying, while huge amounts of public money are spent on activities of **dubious** utility.  

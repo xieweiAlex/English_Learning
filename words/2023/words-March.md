@@ -8,14 +8,7 @@ serendipity
 karma is a bitch.  
 
 
-In the case of the metaphorical PoW cyber antlers, the participants would harness energy to generate computer guesses, and the winner of every round would receive a reward in the form of network tokens, along with the right to publish the following block of transactions.  
-
-Take the path of least **resistance** 
-**passively resistant** to change 
-**slogging** through logs, **perusing** manuals  
-
-
-He never owned another human being. He never exploited anyone. He didn't crave fancy things or grand houses. And when he died on the same day as Jefferson, his **estate** was the exact **inverse of** his old friend: a $100,000 **bequest** to his family.
+He never owned another human being. He never exploited anyone. He didn't crave fancy things or grand houses. And when he died on the same day as Jefferson, his **estate** was the exact **inverse of** his old friend: a $100,000 **bequest** to his family.  
 
 The first step is recognizing that the 21 million fixed supply is the **fulcrum**; the next is forming some conception or framework as to how it is enforced.  
 
@@ -25,7 +18,7 @@ The first step is recognizing that the 21 million fixed supply is the **fulcrum*
 **analgesic**  
 **torpidity**  
 
-The largest **aquaculture**-producing countries in the world are in Asia, and together they account for 91% of global **aquaculture** production.
+The largest **aquaculture**-producing countries in the world are in Asia, and together they account for 91% of global **aquaculture** production.  
 
 **hasty judgement**.  
 
@@ -36,7 +29,7 @@ She responded to the criticism with a **petulant** comment, revealing her thin s
 So **on a lark**, I tried Chinese — and it turns out she spoke proficient Mandarin.  
 Its work in Utah is **emblematic** of a broader effort by Beijing to secure allies at the local level as its relations with the U.S. and its western allies have turned **acrimonious**.  
 
-Chamath Palihapitiya, respected in many circles as a venture investor, once described bitcoin on CNBC as **schmuck** insurance, **qualifying** that it’s the single best hedge against the traditional financial infrastructure, “just in case.”   
+Chamath Palihapitiya, respected in many circles as a venture investor, once described bitcoin on CNBC as **schmuck** insurance, **qualifying** that it’s the single best hedge against the traditional financial infrastructure, “just in case.”  
 There is a generally understood risk that the men and women who manage U.S. fiscal and monetary policy might screw up the dollar economy, **materially** or completely.  
 It **presents** risk worth hedging.  
 **fractured**  
@@ -54,11 +47,11 @@ They still have to **broach** many tricky subjects.
 They find it unpleasant and they **recoil** from it.  
 **Au courant**  
 INTJs are open-minded yet they appear to be **aloof**.  
-**plyometrics**
+**plyometrics**  
 
 **eloquence**  
 **touch up**  
-**obsequious**
+**obsequious**  
 
 Given that you'll likely pay a **hefty** markup for car insurance if you let your policy **lapse**, it's essential to avoid having a break in coverage.  
 diamond **encrusted** sofa. -  
@@ -84,7 +77,7 @@ and here is where the term **Nash equilibrium** **comes to play**.
 First-time buyers without a big pile of cash now have a shot at **nabbing** a home.  
 
 The word "**supercilious**" means behaving or looking as though one is **superior** to others, and it is often used to describe someone who is arrogant, **haughty**, or **condescending**. While it is not a word that is used every day, it is still a useful and valuable word in English vocabulary.  
-It is illegal to **adulterate** food by adding harmful substances, such as chemicals or toxins, to it. -  
+It is illegal to **adulterate** food by adding harmful substances, such as chemicals or toxins, to it.   
 
 It would be **foolhardy** to sail in weather like this.  
 He was smiling, but his eyes retained a look of **solemnity**.  
@@ -372,7 +365,7 @@ There was no one he **revered** more than Antoninus. How could he possibly live 
 
 Is there anything good on the **telly** tonight?  
 An **emblem** is a symbol, sign, or representation that is used to identify or represent a person, group, or idea.  
-The party began to **splinter**. -  
+The party began to **splinter**.   
 **recumbent** chair  
 What a Westerner considers an honest look in the eye, the **Oriental** takes as a **lack of respect** and a personal **affront**.  
 Iran: a **theocratic** Islamic republic in the Middle East in western Asia.  
@@ -465,12 +458,5 @@ The military industrial complex has been **fleecing** this country to tunes of h
 **slip of tongue.  
 **attenuate**  
 **magnanimous**  
-
-
-
-## Conversation  
-
-
-## Interesting  
 
 
