@@ -1,4 +1,15 @@
 
+You're always a major **leaguer** in my eyes.  
+That poison ivy **leaguer**'s long gone.  
+
+
+
+chutney  
+sweltering  
+battalion   
+
+
+
 tubal **ligation**.  
 warthog  
 plod along  

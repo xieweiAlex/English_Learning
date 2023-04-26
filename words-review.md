@@ -1,5 +1,8 @@
 ## words-April.md ##  
 words/2023/words-April.md  
+He takes a **slurp** from a cup of black coffee. -  
+The vacuum **flask** has a strong **casing**, which won't crack or chip. -  
+The **asperity** of the winter had everybody **yearning** for spring. -  
 They lived in a **squalid** **hovel** for the next five years. -  
 The **mendacious** beggar told a different **tale of woe** at every house.  -  
 How were these kids going to **upend** years of **stymied** racial progress? -  

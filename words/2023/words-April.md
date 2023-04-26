@@ -1,4 +1,35 @@
 
+This is **affectation**.  
+**debit card**  
+Don't **rough up** my hair.  
+
+**intestinal**, **intestine**  
+**Talmud**  
+Road under repair. No **thoroughfare**.  
+**sinusitis**  
+
+The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month.  
+
+He takes a **slurp** from a cup of black coffee. -  
+steel **casing**  
+The vacuum **flask** has a strong **casing**, which won't crack or chip. -  
+**overcoat**  
+**Capricorn**  
+**contraption**  
+
+**Mycological**  
+The **asperity** of the winter had everybody **yearning** for spring. -  
+**Tailspin**  
+**With all due respect**.  
+
+It is a country where corruption is **rife**.  
+**rejoice**  
+**gobi** desert  
+She had a **dimple** which appeared when she smiled.  
+Her bowel will **engorge** quite often, I'm afraid.  
+
+You can **count on us**.  
+**We don't have to go that far**, there are other means available.  
 
 > You've never excelled at anything  
 
