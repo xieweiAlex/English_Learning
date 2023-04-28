@@ -1,4 +1,35 @@
 
+This is all a machination!  
+Praise and exalt her many good points.  
+
+
+I try to be polite but I want to be honest too. Sometimes it’s difficult to not come across as some sort of closed-minded absolutist or toxic.  
+
+
+
+By the glitz and the glamour of the humphrey lifestyle.  
+This method works especially well in rain forests and **marshy** areas.  
+**pairwise**  
+**wimp**  
+**broom** 
+They were **bosom** buddies.  
+They were solicitous and intent, watching her every move.  
+The hotel has a lovely homely feel to it.  
+
+
+Office space needs more flair.  
+We need to comport ourselves as their disciples, striving to do as they do and to never fall short of their standards if we can help it.  
+
+
+
+I **gather**, if he **takes a tumble**, you'll be **endangering** world peace.  
+Bitcoin has **heightened** sensitivity to market movements, or **high beta**, due to its **low liquidity** profile and excessive leverage in futures, swaps, and options compared to other assets.  
+**gargantuan**  
+It is widely believed that when the Fed cuts rates, risk assets enter a bull market. Allow us to **dispel** that **notion** for you.  
+
+**on occasion**.  
+Of course, this **begs the question** as to whether we need blockchain for anything except money, but that is a much more complex discussion.  
+
 This is **affectation**.  
 **debit card**  
 Don't **rough up** my hair.  

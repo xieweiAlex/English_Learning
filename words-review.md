@@ -5,7 +5,7 @@ The vacuum **flask** has a strong **casing**, which won't crack or chip. -
 The **asperity** of the winter had everybody **yearning** for spring. -  
 They lived in a **squalid** **hovel** for the next five years. -  
 The **mendacious** beggar told a different **tale of woe** at every house.  -  
-How were these kids going to **upend** years of **stymied** racial progress? -  
+How were these kids going to **upend** years of **stymied** racial progress?   
 Her hatred of authority led to her **expulsion** from high school. -  
 
 ## words-March.md ##  
@@ -16,7 +16,7 @@ The subject of racism is admittedly too complex for **facile** summarization. -
 **snapper** -  
 **mantle** -  
 There is nothing so **sanative** as a walk in the woods. -  
-Like everyone else, I **deplore** and condemn this killing. -  
+Like everyone else, I **deplore** and condemn this killing.   
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  
