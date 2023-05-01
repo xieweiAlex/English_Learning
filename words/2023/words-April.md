@@ -1,26 +1,31 @@
 
-This is all a machination!  
-Praise and exalt her many good points.  
 
 
-I try to be polite but I want to be honest too. Sometimes it’s difficult to not come across as some sort of closed-minded absolutist or toxic.  
+## Week 4 
 
+An actor **portraying** Jesus carries the cross through Bensheim, Germany, as part of a Good **procession** — the town's first since COVID.  
 
+Whipping boy, scapegoat  
+**ad-lib**  
+**pulpit**  
 
-By the glitz and the glamour of the humphrey lifestyle.  
+The coach's **stentorian** commands motivated his team to play with greater intensity and focus.  
+
+This is all a **machination**!  
+Praise and **exalt** her many good points. -  
+I try to be polite but I want to be honest too. Sometimes it’s difficult to not **come across** as some sort of closed-minded **absolutist** or toxic.  
+
+By the **glitz** and the glamour of the humphrey lifestyle.  
 This method works especially well in rain forests and **marshy** areas.  
 **pairwise**  
 **wimp**  
-**broom** 
+**broom**  
 They were **bosom** buddies.  
 They were solicitous and intent, watching her every move.  
-The hotel has a lovely homely feel to it.  
+The hotel has a lovely **homely** feel to it.  
 
-
-Office space needs more flair.  
-We need to comport ourselves as their disciples, striving to do as they do and to never fall short of their standards if we can help it.  
-
-
+Office space needs more **flair**.  
+We need to **comport** ourselves as their disciples, striving to do as they do and to never fall short of their standards if we can help it.  
 
 I **gather**, if he **takes a tumble**, you'll be **endangering** world peace.  
 Bitcoin has **heightened** sensitivity to market movements, or **high beta**, due to its **low liquidity** profile and excessive leverage in futures, swaps, and options compared to other assets.  
@@ -83,7 +88,7 @@ The **mendacious** beggar told a different **tale of woe** at every house.  -
 
 > When I'm living a good day, what am I spending my time on? Do the sources of information I am exposed to support that type of lifestyle or distract from it?  
 
-How were these kids going to **upend** years of **stymied** racial progress? -  
+How were these kids going to **upend** years of **stymied** racial progress?   
 
 He **glanced** **furtively** at the **stolid** faces of the two detectives.  
 Resource **contention**.  

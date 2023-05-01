@@ -93,7 +93,7 @@ It is illegal to **adulterate** food by adding harmful substances, such as chemi
 It would be **foolhardy** to sail in weather like this.  
 He was smiling, but his eyes retained a look of **solemnity**.  
 **provident**, **providence**  
-I don't trust that salesman, he comes across as **smarmy** and **insincere**. -  
+I don't trust that salesman, he comes across as **smarmy** and **insincere**.   
 
 **junkyard**  
 **ensue**  
@@ -117,7 +117,7 @@ It's **odds-on** that he'll be late.
 **contemporary**  
 **preamble**  
 
-The subject of racism is admittedly too complex for **facile** summarization. -  
+The subject of racism is admittedly too complex for **facile** summarization.   
 **old chap**  
 **rain check**  
 **snapper** -  
@@ -387,7 +387,7 @@ Iran: a **theocratic** Islamic republic in the Middle East in western Asia.
 He talks about the trajectory of the industry, where he sees it going, the **impediments** it faces, and much more.  
 **Ravenous**  
 Every **gnarled** hack knows that the best way to bury bad news is to counter it with a splashy new announcement.  
-Like everyone else, I **deplore** and condemn this killing. -  
+Like everyone else, I **deplore** and condemn this killing.   
 You know, ever since N.A.F.T.A. , corporate outsourcing has been the **bane** of the American worker.  
 A **gasp** rippled through the crowd.  
 The **uncut** grass came up to her waist.  
