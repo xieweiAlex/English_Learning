@@ -1,11 +1,23 @@
 
+**lacerating** wound.  
+**riff**  
+**crony** capitalism  
+**breadline**  
+What a cold, **unfeeling** woman she was.  
+
+**overpass**, **underpass**  
+It was **disconcerting** and rather horrible.  
+**virile**  
+Hers was a minor part, but she played it with **gusto**. -  
+**mouthy**  
 
 
-## Week 4 
+
+## Week 4  
 
 An actor **portraying** Jesus carries the cross through Bensheim, Germany, as part of a Good **procession** — the town's first since COVID.  
 
-Whipping boy, scapegoat  
+**Whipping boy**, **scapegoat**  
 **ad-lib**  
 **pulpit**  
 
@@ -21,7 +33,7 @@ This method works especially well in rain forests and **marshy** areas.
 **wimp**  
 **broom**  
 They were **bosom** buddies.  
-They were solicitous and intent, watching her every move.  
+They were **solicitous** and intent, watching her every move.  
 The hotel has a lovely **homely** feel to it.  
 
 Office space needs more **flair**.  
@@ -88,7 +100,7 @@ The **mendacious** beggar told a different **tale of woe** at every house.  -
 
 > When I'm living a good day, what am I spending my time on? Do the sources of information I am exposed to support that type of lifestyle or distract from it?  
 
-How were these kids going to **upend** years of **stymied** racial progress?   
+How were these kids going to **upend** years of **stymied** racial progress?  
 
 He **glanced** **furtively** at the **stolid** faces of the two detectives.  
 Resource **contention**.  

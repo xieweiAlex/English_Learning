@@ -1,5 +1,7 @@
 ## words-April.md ##  
 words/2023/words-April.md  
+Hers was a minor part, but she played it with **gusto**. -  
+Praise and **exalt** her many good points. -  
 He takes a **slurp** from a cup of black coffee. -  
 The vacuum **flask** has a strong **casing**, which won't crack or chip. -  
 The **asperity** of the winter had everybody **yearning** for spring. -  
