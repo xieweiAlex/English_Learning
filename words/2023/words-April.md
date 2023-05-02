@@ -1,4 +1,12 @@
 
+Fiber does digestive **grunt work** but doesn't get the same **glamour** as vitamin D, calcium, and other nutrients.  
+In general, “dietary fiber” is an **umbrella term** for the parts of plants and other foods that your body can’t digest.  
+Instead, fiber **passes through** your system and **eases** symptoms such as constipation.  
+
+**value proposition**  
+If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**  
+
+
 **lacerating** wound.  
 **riff**  
 **crony** capitalism  
@@ -10,7 +18,6 @@ It was **disconcerting** and rather horrible.
 **virile**  
 Hers was a minor part, but she played it with **gusto**. -  
 **mouthy**  
-
 
 
 ## Week 4  
@@ -47,7 +54,7 @@ It is widely believed that when the Fed cuts rates, risk assets enter a bull mar
 **on occasion**.  
 Of course, this **begs the question** as to whether we need blockchain for anything except money, but that is a much more complex discussion.  
 
-This is **affectation**.  
+This is **affectation**. -  
 **debit card**  
 Don't **rough up** my hair.  
 
@@ -56,7 +63,7 @@ Don't **rough up** my hair.
 Road under repair. No **thoroughfare**.  
 **sinusitis**  
 
-The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month.  
+The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month. -  
 
 He takes a **slurp** from a cup of black coffee. -  
 steel **casing**  
