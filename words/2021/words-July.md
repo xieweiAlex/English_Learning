@@ -129,7 +129,6 @@ Three prisoners are still **on the loose**.
 **tournament** competition.  
 
 The movie makes no **pretension** to reproduce life.  
-I **desiderate** the resources of a family.  
 Who wants to **put up with** the toughness if you don't love it.  
 **live up to one's words**.  
 
