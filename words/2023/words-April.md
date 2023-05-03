@@ -12,8 +12,7 @@ In general, “dietary fiber” is an **umbrella term** for the parts of plants 
 Instead, fiber **passes through** your system and **eases** symptoms such as constipation.  
 
 **value proposition**  
-If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**  
-
+If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**. -  
 
 **lacerating** wound.  
 **riff**  
@@ -75,7 +74,7 @@ The NFTs — featuring the former president photoshopped into various costumes �
 
 He takes a **slurp** from a cup of black coffee. -  
 steel **casing**  
-The vacuum **flask** has a strong **casing**, which won't crack or chip. -  
+The vacuum **flask** has a strong **casing**, which won't crack or chip.   
 **overcoat**  
 **Capricorn**  
 **contraption**  

@@ -200,7 +200,7 @@ Gold has been deemed a **relic** by Bitcoiners, and stocks are proving to be vol
 **soothsaying**  
 **extraneous**  
 **infirm**  
-The whole hall is filled with joy and laughter -- there is only one who feels **distressful**. -  
+The whole hall is filled with joy and laughter -- there is only one who feels **distressful**.   
 **acrobatic**  
 **peasant**  
 

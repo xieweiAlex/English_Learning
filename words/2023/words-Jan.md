@@ -370,7 +370,7 @@ A **Herculean** Choice: **Virtue or Vice**.
 ## Week 1  
 
 He considered himself the master of crypto universe, which the market has **disabused** him.  
-Located in Arizona, this National Park is full of **cactus** across a desert Park. -  
+Located in Arizona, this National Park is full of **cactus** across a desert Park.   
 
 **riff a bit**.  
 **go terrible awry**.  
