@@ -1,4 +1,30 @@
 
+Tucked between China, India and Nepal, Bhutan is perhaps best known for its emblematic “thunder dragon,”  
+This pales in comparison to massive farms like Riot’s Rockdale facility in Texas, which boasts a 450 MW capacity.  
+
+Winning begets winning.  
+start your day with one thing you've been dreading.  
+
+
+
+
+> Moreover, evidence suggests that replacing saturated fats with unsaturated ones from foods like nuts, seeds, olives, and fish may reduce your risk of heart disease.  
+
+For instance, you might use **sour cream** as a base for a veggie dip or add a **dollop** to a plate of black bean and veggie **nachos**.  
+
+Brazilian frog might be the first **pollinating** **amphibian** known to science (science.org).  
+**drudge work**.  
+
+egg **custard**  
+Now let's look at another facet of the problem.  
+The club is open to **all and sundry**.  
+**petulant**??  
+Mr. T is telling fools to quit their **jibber-jabber**.  
+**ingenious**, **ingenuity**  
+**mixologist**  
+
+
+
 The film is **spooled** for use.  
 wooden **pallet**, **pallet** truck.  
 Teeth have a hard surface layer called **enamel**. -  
