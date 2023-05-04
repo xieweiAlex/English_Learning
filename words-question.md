@@ -1,4 +1,6 @@
 
+* emblematic vs symbolic 
+
 * banal, banalities, cliche, platitudes
 
 * taxing, laborous, tedious etc 
