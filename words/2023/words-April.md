@@ -1,4 +1,18 @@
 
+I wasn't staring, I was leering.  
+
+**get up to someone's nose**.  
+culpable  
+horse-drawn cabs.  
+
+
+Cemetery, graveyard, graves, tombstone  
+bamboo grove  
+A grove of trees shadowed the house densely.  
+Dharma  
+The company's shares tanked on Wall Street.  
+
+
 **petulant**??  
 
 He stopped with a **squeal** of brakes.  
