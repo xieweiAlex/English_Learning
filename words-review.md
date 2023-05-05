@@ -7,8 +7,8 @@ Hers was a minor part, but she played it with **gusto**. -
 Praise and **exalt** her many good points. -  
 This is **affectation**. -  
 The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month. -  
-He takes a **slurp** from a cup of black coffee. -  
-The **asperity** of the winter had everybody **yearning** for spring. -  
+He takes a **slurp** from a cup of black coffee.   
+The **asperity** of the winter had everybody **yearning** for spring.   
 They lived in a **squalid** **hovel** for the next five years. -  
 The **mendacious** beggar told a different **tale of woe** at every house.  -  
 Her hatred of authority led to her **expulsion** from high school. -  

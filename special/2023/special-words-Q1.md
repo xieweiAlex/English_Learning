@@ -1,4 +1,5 @@
 
+**characteristic**
 
 **glamour**
 **glamourous**

@@ -1,17 +1,24 @@
 
-I wasn't staring, I was leering.  
+Which billionaires lost out? The 2023 crony-capitalism index
+
+
+
+
+Which billionaires lost out?  The 2023 crony-capitalism index War, tech woes and cock-ups pummelled certain **plutocrats**  
+
+**Mawkish**, **melancholy**
+
+I wasn't staring, I was **leering**.  
 
 **get up to someone's nose**.  
-culpable  
-horse-drawn cabs.  
+**culpable**  
+**horse-drawn** **cabs**.  
 
-
-Cemetery, graveyard, graves, tombstone  
-bamboo grove  
-A grove of trees shadowed the house densely.  
-Dharma  
-The company's shares tanked on Wall Street.  
-
+**Cemetery**, **graveyard**, **graves**, **tombstone**  
+bamboo **grove**  
+A **grove** of trees **shadowed** the house densely. -  
+**Dharma**  
+The company's shares **tanked** on Wall Street.  
 
 **petulant**??  
 
