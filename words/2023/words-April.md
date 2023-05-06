@@ -1,10 +1,15 @@
 
-Which billionaires lost out? The 2023 crony-capitalism index
+He parried the unwelcome question very skilfully.  
+Cojones  
+evasive  
+oink  
+soothsaying  
+sedimentary strata, rock strata.  
 
 
 
-
-Which billionaires lost out?  The 2023 crony-capitalism index War, tech woes and cock-ups pummelled certain **plutocrats**  
+**brush off**: a **curt** or **disdainful** rejection  
+Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and cock-ups pummelled certain **plutocrats**  
 
 **Mawkish**, **melancholy**
 
