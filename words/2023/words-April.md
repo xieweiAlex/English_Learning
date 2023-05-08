@@ -1,4 +1,21 @@
 
+graffiti, graffito  
+minuscule  
+
+
+momentary, momentarily  
+reprise  
+strapping  
+broach  
+showy  
+The brassy boys put their tongues out at us. 
+
+
+**sandcastle**
+**Pavilion**, **gazebo**, **porch**, **patio**, **courtyard** 
+
+**awning**, **canopy**  
+
 
 ## Week 1  
 
