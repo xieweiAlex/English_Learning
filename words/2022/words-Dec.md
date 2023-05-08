@@ -142,7 +142,7 @@ The fighting has continued **unabated** for over 24 hours.
 **chatter**  
 **cranky**  
 
-The potential of smart contract and the ability to **bestow** utilization rights, property rights, copyrights, usage rights. -  
+The potential of smart contract and the ability to **bestow** utilization rights, property rights, copyrights, usage rights.   
 
 Mary became quite still and Colin looked **fretful**.  
 But **woe** to those who walk the path of **perdition**.  
@@ -189,7 +189,7 @@ With representatives from 49 African countries visiting Washington, the White Ho
 "My son Josh, a U.S. Capitol Police officer who fought so **valiantly** on Jan. 6, is my hero," writes Finish Line reader Kathleen D., pictured above.  
 
 We **supplicate** your majesty to grant him **amnesty**. -  
-And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life? -  
+And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life?   
 He found that his **extremities** grew cold.  
 
 **Reptile** show from Didi's short video.  

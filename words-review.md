@@ -1,14 +1,13 @@
 ## words-April.md ##  
 words/2023/words-April.md  
+A **grove** of trees **shadowed** the house densely. -  
+The club is open to **all and sundry**. -  
 Teeth have a hard surface layer called **enamel**. -  
-I **desiderate** the resources of a family. -  
 If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**. -  
 Hers was a minor part, but she played it with **gusto**. -  
 Praise and **exalt** her many good points. -  
 This is **affectation**. -  
 The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month. -  
-He takes a **slurp** from a cup of black coffee.   
-The **asperity** of the winter had everybody **yearning** for spring.   
 They lived in a **squalid** **hovel** for the next five years. -  
 The **mendacious** beggar told a different **tale of woe** at every house.  -  
 Her hatred of authority led to her **expulsion** from high school. -  
@@ -38,7 +37,5 @@ Associate Davos with **turgid** discussions of interest rates and Middle East po
 words/2022/words-Dec.md  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
 You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
-The potential of smart contract and the ability to **bestow** utilization rights, property rights, copyrights, usage rights. -  
 If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
-And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life?   

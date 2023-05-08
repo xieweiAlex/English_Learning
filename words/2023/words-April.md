@@ -1,17 +1,31 @@
 
-He parried the unwelcome question very skilfully.  
-Cojones  
-evasive  
-oink  
-soothsaying  
-sedimentary strata, rock strata.  
+
+## Week 1  
+
+**uptick**  
+
+Julius **caesar**, **caesar** salad  
+**cakewalk**  
+Management trusts people to do a good job without **watching over their shoulders**.  
+
+I was **mortified**. I think I cried half an hour.  
+So I can imagine how a guy would be completely **smitten** and falling love immediately as soon as they see a Japanese girl.  
+But anyway, the point is, Carol Burnett was **smitten** by television.  
+
+Stocks **snapped** a four-day losing **streak** Friday, as investors cheered Apple's latest earnings report and welcomed a strong jobs report, which suggested the U.S. economy remained robust despite banking uncertainty and rising interest rates.  
 
 
+He **parried** the unwelcome question very skilfully.  
+**Cojones**  
+**evasive**  
+**oink**  
+**soothsaying**  
+sedimentary **strata**, rock **strata**.  
 
 **brush off**: a **curt** or **disdainful** rejection  
 Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and cock-ups pummelled certain **plutocrats**  
 
-**Mawkish**, **melancholy**
+**Mawkish**, **melancholy**  
 
 I wasn't staring, I was **leering**.  
 
@@ -58,7 +72,7 @@ Teeth have a hard surface layer called **enamel**. -
 **telly**  
 **flute**, **fluting**  
 
-I **desiderate** the resources of a family. -  
+I **desiderate** the resources of a family.  
 
 Fiber does digestive **grunt work** but doesn't get the same **glamour** as vitamin D, calcium, and other nutrients.  
 In general, “dietary fiber” is an **umbrella term** for the parts of plants and other foods that your body can’t digest.  
@@ -124,15 +138,15 @@ Road under repair. No **thoroughfare**.
 
 The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month. -  
 
-He takes a **slurp** from a cup of black coffee. -  
+He takes a **slurp** from a cup of black coffee.  
 steel **casing**  
-The vacuum **flask** has a strong **casing**, which won't crack or chip.   
+The vacuum **flask** has a strong **casing**, which won't crack or chip.  
 **overcoat**  
 **Capricorn**  
 **contraption**  
 
 **Mycological**  
-The **asperity** of the winter had everybody **yearning** for spring. -  
+The **asperity** of the winter had everybody **yearning** for spring.  
 **Tailspin**  
 **With all due respect**.  
 

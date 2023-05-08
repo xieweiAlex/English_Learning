@@ -1,4 +1,8 @@
 
+**handy**
+
+**expressive**
+
 **characteristic**
 
 **glamour**
