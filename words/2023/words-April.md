@@ -1,4 +1,9 @@
 
+**lacerating** wound.  
+adulterate  
+**Freon** exists both in liquid and **gaseous** states.  
+
+
 **graffiti**, **graffito**  
 **minuscule**  
 
@@ -96,7 +101,6 @@ Instead, fiber **passes through** your system and **eases** symptoms such as con
 **value proposition**  
 If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**. -  
 
-**lacerating** wound.  
 **riff**  
 **crony** capitalism  
 **breadline**  
