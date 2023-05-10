@@ -6,8 +6,6 @@ Teeth have a hard surface layer called **enamel**. -
 If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**. -  
 Hers was a minor part, but she played it with **gusto**. -  
 Praise and **exalt** her many good points. -  
-This is **affectation**. -  
-The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month. -  
 They lived in a **squalid** **hovel** for the next five years. -  
 The **mendacious** beggar told a different **tale of woe** at every house.  -  
 Her hatred of authority led to her **expulsion** from high school. -  
@@ -21,8 +19,6 @@ There is nothing so **sanative** as a walk in the woods. -
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  
-China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
-I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -  
 Strive for **rapport** with others. -  
 Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance. -  
 This **mangy** raccoon had busted through your screen. -  

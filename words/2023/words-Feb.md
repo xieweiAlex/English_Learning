@@ -27,7 +27,7 @@ Take away that **shining** **bauble** there, and lock up the doors.
 The **Exorcist**.  
 **Entreaty**: it is a noun that means a serious or earnest request or petition. It is often used in formal or written language, such as legal documents or **literature**.  
 The word "**rucksack**" is often used interchangeably with the word "backpack," but it generally implies a larger size and more **rugged** construction.  
-China is home to many rapidly modernizing cities that are **enthralling** to visit. -  
+China is home to many rapidly modernizing cities that are **enthralling** to visit.   
 They were **enthralled** with the play.  
 He volunteered as a **correspondent** for the war.  
 The result was **correspondent** with my wishes.  
@@ -112,7 +112,7 @@ An author could be considered **eclectic** if they draw on a range of literary t
 **fentanyl**  
 **cut back on**  
 
-I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**. -  
+I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**.   
 **predilection** ??  
 
 

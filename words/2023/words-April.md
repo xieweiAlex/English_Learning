@@ -1,21 +1,22 @@
 
 **lacerating** wound.  
-adulterate  
+**adulterate**  
 **Freon** exists both in liquid and **gaseous** states.  
-
 
 **graffiti**, **graffito**  
 **minuscule**  
 
 **momentary**, **momentarily**  
-**reprise**  
+The actor agreed to **reprise** the role in the sequels.  
 **strapping**  
-**broach**  
+Have you **broached** the subject of the money he owes us?  
 **showy**  
-The **brassy** boys put their tongues out at us. 
+The **brassy** boys put their tongues out at us.  
 
-**sandcastle**
-**Pavilion**, **gazebo**, **porch**, **patio**, **courtyard** 
+**sandcastle**  
+**Pavilion**, **gazebo**, **porch**, **patio**, **courtyard**  
+While many gazebos are octagonal or oval, most pavilions are designed to be long and rectangular. Additionally, while a gazebo is more of a self-contained structure, pavilions are commonly used to provide a roof for a patio or seating area below.  
+What’s the Difference Between **Arbors**, Pergolas, Gazebos, and Pavilions?  
 
 **awning**, **canopy**  
 
@@ -146,7 +147,7 @@ It is widely believed that when the Fed cuts rates, risk assets enter a bull mar
 **on occasion**.  
 Of course, this **begs the question** as to whether we need blockchain for anything except money, but that is a much more complex discussion.  
 
-This is **affectation**. -  
+This is **affectation**.   
 **debit card**  
 Don't **rough up** my hair.  
 
@@ -155,7 +156,7 @@ Don't **rough up** my hair.
 Road under repair. No **thoroughfare**.  
 **sinusitis**  
 
-The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month. -  
+The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month.   
 
 He takes a **slurp** from a cup of black coffee.  
 steel **casing**  
