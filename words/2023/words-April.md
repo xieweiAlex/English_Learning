@@ -1,4 +1,14 @@
 
+If you don’t keep a journal, you may find writing in one can desensitize any qualms you have about writing about yourself.  
+
+
+
+NATO is planning to open a liaison office in Tokyo, in what would be the organization's first such office in Asia.  
+If China can be first on AI governance, it can project those standards and regulations globally, shaping lucrative and pliable markets.  
+There’s an insidious quirk to your brain that, if you let it, can drive you absolutely **batty**.  
+
+
+
 In 2014, the OP_RETURN function was introduced to allow miners to inscribe 80 bytes of “arbitrary” data on each bitcoin.  
 
 
