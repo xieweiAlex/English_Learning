@@ -1,4 +1,21 @@
 
+In 2014, the OP_RETURN function was introduced to allow miners to inscribe 80 bytes of “arbitrary” data on each bitcoin.  
+
+
+**collarbone**.  
+
+**Haze**  
+**egghead**  
+**croquette**  
+**harangue**  
+Your **patronage** is **cordially** invited.  
+**spin-off**  
+**shear** stress, **shear** walls.  
+
+For some, it may seem silly, **a tempest in a teapot**.  
+I hadn't foreseen the **tempest** my request would cause.  
+
+
 **lacerating** wound.  
 **adulterate**  
 **Freon** exists both in liquid and **gaseous** states.  
