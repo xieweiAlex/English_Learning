@@ -1,7 +1,7 @@
 ## words-April.md ##  
 words/2023/words-April.md  
 A **grove** of trees **shadowed** the house densely. -  
-The club is open to **all and sundry**. -  
+The club is open to **all and sundry**.   
 Teeth have a hard surface layer called **enamel**. -  
 If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**. -  
 Hers was a minor part, but she played it with **gusto**. -  
@@ -15,7 +15,7 @@ words/2023/words-March.md
 diamond **encrusted** sofa. -  
 **snapper** -  
 **mantle** -  
-There is nothing so **sanative** as a walk in the woods. -  
+There is nothing so **sanative** as a walk in the woods.   
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  

@@ -1,15 +1,50 @@
 
-If you don’t keep a journal, you may find writing in one can desensitize any qualms you have about writing about yourself.  
+concealed carry  
 
 
+He was crippled by polio as a child.  
+Pulpit  
+We'll splurge on a trip in France next year.  
+Her action earned her the enmity of two or three colleagues.  
+I adumbrate that I did not like his toys.  
+longing, yearning  
 
-NATO is planning to open a liaison office in Tokyo, in what would be the organization's first such office in Asia.  
-If China can be first on AI governance, it can project those standards and regulations globally, shaping lucrative and pliable markets.  
+Enclave  
+People celebrating the armistice behaved like an orgiastic mob.  
+He was crippled by polio as a child.  
+
+In the short-term, the prospect of a reserve currency replacing the dollar is slim to none.  
+its "safe-haven" status is hard to beat, especially **in light of** the **plight** of the euro.   
+it is equally difficult to predict what budgetary and austerity measures in Europe and the United States will do to the global economy in the coming years  
+
+
+**inane**, **asinine**, **idiotic**, **nonsensical**  
+
+**Surplice**  
+**sunblock**  
+**handbag**  
+**Bar Mitzvah**  
+Brian's hesitation was almost **imperceptible**.  
+She repeated the almost **imperceptible** shrug.  
+**gruelling**, **gruel**, **porridge**  
+
+**Arabian**, **Arabic**.  
+The company made $1.67B revenue in 2022, **circa** $140M per month.  
+I'm a **gigolo**, that's different. -  
+
+**creationism**  
+Bill Clinton needed the world's **undying** attention.  
+**splashy**  
+
+His theory gained **notoriety** in 1935 when Elliott made an **uncanny** prediction of a stock market bottom and has become a staple for thousands of portfolio managers, traders, and private investors.  
+
+If you don’t keep a journal, you may find writing in one can **desensitize** any **qualms** you have about writing about yourself. -  
+
+NATO is planning to open a **liaison office** in Tokyo, in what would be the organization's first such office in Asia.  
+If China can be first on AI governance, it can project those standards and regulations globally, shaping lucrative and **pliable markets**.  
 There’s an insidious quirk to your brain that, if you let it, can drive you absolutely **batty**.  
 
-
-
-In 2014, the OP_RETURN function was introduced to allow miners to inscribe 80 bytes of “arbitrary” data on each bitcoin.  
+In 2014, the OP_RETURN function was introduced to allow miners to **inscribe** 80 bytes of “arbitrary” data on each bitcoin.  
 
 
 **collarbone**.  
@@ -42,7 +77,7 @@ The **brassy** boys put their tongues out at us.
 
 **sandcastle**  
 **Pavilion**, **gazebo**, **porch**, **patio**, **courtyard**  
-While many gazebos are octagonal or oval, most pavilions are designed to be long and rectangular. Additionally, while a gazebo is more of a self-contained structure, pavilions are commonly used to provide a roof for a patio or seating area below.  
+While many **gazebos** are **octagonal** or **oval**, most **pavilions** are designed to be long and **rectangular**. Additionally, while a gazebo is more of a self-contained structure, pavilions are commonly used to provide a roof for a patio or seating area below.  
 What’s the Difference Between **Arbors**, Pergolas, Gazebos, and Pavilions?  
 
 **awning**, **canopy**  
