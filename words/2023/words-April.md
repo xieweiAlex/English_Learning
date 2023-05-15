@@ -1,22 +1,53 @@
 
-concealed carry  
+## Week 2  
+**capitalistic** market  
 
+It's the **effervescence** that has gives it the name the champagne of milk.  
+Combined with fresh fruit, **kefir** makes for a healthy and **scrumptious** dessert. -  
+The nice thing about Kefir is, it's very **forgiving**.  
 
-He was crippled by polio as a child.  
-Pulpit  
-We'll splurge on a trip in France next year.  
-Her action earned her the enmity of two or three colleagues.  
-I adumbrate that I did not like his toys.  
-longing, yearning  
+They're bunch of **wussies**.  
+I will **postulate** that she's escaping into the online world to compensate her sexual frustration.  
+She's just trying to **shore up** her **self-esteem**.  
+Hmmm, **testify**.  
 
-Enclave  
-People celebrating the armistice behaved like an orgiastic mob.  
-He was crippled by polio as a child.  
+Excessive **clumping** or **curdling**: yogurt should have a smooth texture, so a clumpy or curdled consistency is a sign of spoilage and a **tip-off** to throw the yogurt away.  
 
-In the short-term, the prospect of a reserve currency replacing the dollar is slim to none.  
-its "safe-haven" status is hard to beat, especially **in light of** the **plight** of the euro.   
-it is equally difficult to predict what budgetary and austerity measures in Europe and the United States will do to the global economy in the coming years  
+**Paella**  
+**cadaver**  
+A **groundhog**, also known as a **woodchuck**, is a sort of North American **marmot**.  
+He behaved aggressively out of **bravado**.  
+**bravo**.  
 
+You can **mesmerize** anyone you meet with your cultured attitude and outlook.  
+
+She denies obtaining a **pecuniary** advantage by deception. -  
+
+The declining dollar **gave heart to** **skittish** investors. -  
+Depositors are **skittish** and Banks are having to offer them higher rates.  
+She was silent, her eyes **downcast**.  
+
+She's so **Bougie**, she only shops at high-end designer stores..  
+She's always talking about her **bougie** lifestyle, but I don't think she realizes how privileged she is.  
+
+**cylinder**, **cylindrical**  
+**triangular**, **square**, **rectangle**  
+Signs that Ukraine's counter-offensive is **afoot**.  
+**concealed carry**, **open carry**  
+
+He was crippled by **polio** as a child.  
+**Pulpit**  
+We'll **splurge** on a trip in France next year.  
+Her action earned her the **enmity** of two or three colleagues.  
+I **adumbrate** that I did not like his toys.  
+**longing**, **yearning**  
+
+**Enclave**  
+People celebrating the **armistice** behaved like an **orgiastic** mob. -  
+
+In the short-term, the **prospect** of a reserve currency replacing the dollar is **slim to none**.  
+its "safe-haven" status is hard to beat, especially **in light of** the **plight** of the euro.  
+It is equally difficult to predict what **budgetary** and **austerity** measures in Europe and the United States will do to the global economy in the coming years  
 
 **inane**, **asinine**, **idiotic**, **nonsensical**  
 
@@ -31,21 +62,17 @@ She repeated the almost **imperceptible** shrug.
 **Arabian**, **Arabic**.  
 The company made $1.67B revenue in 2022, **circa** $140M per month.  
 I'm a **gigolo**, that's different. -  
-
 **creationism**  
 Bill Clinton needed the world's **undying** attention.  
 **splashy**  
-
 His theory gained **notoriety** in 1935 when Elliott made an **uncanny** prediction of a stock market bottom and has become a staple for thousands of portfolio managers, traders, and private investors.  
 
 If you don’t keep a journal, you may find writing in one can **desensitize** any **qualms** you have about writing about yourself. -  
 
 NATO is planning to open a **liaison office** in Tokyo, in what would be the organization's first such office in Asia.  
 If China can be first on AI governance, it can project those standards and regulations globally, shaping lucrative and **pliable markets**.  
-There’s an insidious quirk to your brain that, if you let it, can drive you absolutely **batty**.  
-
+There’s an **insidious** **quirk** to your brain that, if you let it, can drive you absolutely **batty**.  
 In 2014, the OP_RETURN function was introduced to allow miners to **inscribe** 80 bytes of “arbitrary” data on each bitcoin.  
-
 
 **collarbone**.  
 
@@ -144,7 +171,7 @@ Brazilian frog might be the first **pollinating** **amphibian** known to science
 
 egg **custard**  
 Now let's look at another **facet** of the problem.  
-The club is open to **all and sundry**. -  
+The club is open to **all and sundry**.   
 Mr. T is telling fools to quit their **jibber-jabber**.  
 **ingenious**, **ingenuity**  
 **mixologist**  
@@ -209,7 +236,7 @@ It is widely believed that when the Fed cuts rates, risk assets enter a bull mar
 **on occasion**.  
 Of course, this **begs the question** as to whether we need blockchain for anything except money, but that is a much more complex discussion.  
 
-This is **affectation**.   
+This is **affectation**.  
 **debit card**  
 Don't **rough up** my hair.  
 
@@ -218,7 +245,7 @@ Don't **rough up** my hair.
 Road under repair. No **thoroughfare**.  
 **sinusitis**  
 
-The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month.   
+The NFTs — featuring the former president photoshopped into various costumes — saw a 462% spike in sales in the hours after his **arraignment** earlier this month.  
 
 He takes a **slurp** from a cup of black coffee.  
 steel **casing**  
