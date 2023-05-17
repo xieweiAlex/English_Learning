@@ -1,4 +1,26 @@
 
+She **crooked** her finger to **beckon** him.
+Jonathan took a little **peep** at his watch.  
+The moon **peeped out** from behind the clouds.
+
+This method works especially well in rain forests and **marshy** areas.  
+The house was now a shell **gutted** by flames.  
+They two are **enamored**. -  
+**pudency** 
+
+**wardrobe**  
+**point blank**  
+Trump has publicly **berated** this guy for **recusing** himself from the Russia investigation.  
+**queasy**  
+**tape measure**, **tapeline**  
+**turbid**  
+**cranial** cavity  
+
+The @SECGov has filed its response to @coinbase’s complaint over how it applies securities laws to digital assets, asking the Court to deny Coinbase’s petition for **mandamus**. -  
+
+> The Stoics say over and over again that there is stuff in our control and stuff outside our control. But this **delineation** is about more than just putting things into categories…or learning how to practice the so-called ‘art of acquiescence.’ It’s also a statement of priorities.  
+
+
 ## Week 2  
 **capitalistic** market  
 
@@ -217,7 +239,6 @@ Praise and **exalt** her many good points. -
 I try to be polite but I want to be honest too. Sometimes it’s difficult to not **come across** as some sort of closed-minded **absolutist** or toxic.  
 
 By the **glitz** and the glamour of the humphrey lifestyle.  
-This method works especially well in rain forests and **marshy** areas.  
 **pairwise**  
 **wimp**  
 **broom**  

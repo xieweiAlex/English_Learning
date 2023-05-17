@@ -10,7 +10,7 @@ A **grove** of trees **shadowed** the house densely. -
 Teeth have a hard surface layer called **enamel**. -  
 If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**. -  
 Hers was a minor part, but she played it with **gusto**. -  
-Praise and **exalt** her many good points. -  
+Praise and **exalt** her many good points.   
 They lived in a **squalid** **hovel** for the next five years. -  
 The **mendacious** beggar told a different **tale of woe** at every house.  -  
 Her hatred of authority led to her **expulsion** from high school. -  

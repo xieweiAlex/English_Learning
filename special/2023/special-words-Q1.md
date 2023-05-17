@@ -1,6 +1,10 @@
 
 **abnormalcy** 
 
+**amicable**
+
+**delineation**
+
 **comical** 
 
 **hardly**  
