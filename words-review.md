@@ -1,5 +1,8 @@
-## words-April.md ##  
-words/2023/words-April.md  
+## words-May.md ##  
+words/2023/words-May.md  
+They planted **lilacs** to **hedge** the yard. -  
+They two are **enamored**. -  
+The @SECGov has filed its response to @coinbase’s complaint over how it applies securities laws to digital assets, asking the Court to deny Coinbase’s petition for **mandamus**. -  
 Combined with fresh fruit, **kefir** makes for a healthy and **scrumptious** dessert. -  
 She denies obtaining a **pecuniary** advantage by deception. -  
 The declining dollar **gave heart to** **skittish** investors. -  
@@ -10,7 +13,9 @@ A **grove** of trees **shadowed** the house densely. -
 Teeth have a hard surface layer called **enamel**. -  
 If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**. -  
 Hers was a minor part, but she played it with **gusto**. -  
-Praise and **exalt** her many good points.   
+
+## words-April.md ##  
+words/2023/words-April.md  
 They lived in a **squalid** **hovel** for the next five years. -  
 The **mendacious** beggar told a different **tale of woe** at every house.  -  
 Her hatred of authority led to her **expulsion** from high school. -  
