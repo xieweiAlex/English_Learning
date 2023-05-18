@@ -1,4 +1,11 @@
 
+There was a dearth of reliable information on the subject.  
+solicitous  
+His entire life is consecrated to science.  
+pend, pending  
+She finally agreed to have the wretched animal put down.  
+
+
 She **crooked** her finger to **beckon** him.
 Jonathan took a little **peep** at his watch.  
 The moon **peeped out** from behind the clouds.
