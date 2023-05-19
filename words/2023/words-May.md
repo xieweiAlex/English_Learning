@@ -1,16 +1,15 @@
 
-His mind was assailed by doubts.  
-analgesic  
-libelous  
-
-Polymorphic  
-duly authorized  
+In his actions, we see Marcus was conscious of money, but primarily as a means to an end not as an end to itself.  
 
 
+His mind was **assailed** by doubts.  
+**analgesic**  
+**libelous**  
 
-federation  
+**Polymorphic**  
+**duly** authorized  
 
-
+**federation**  
 Just the fact that he lived a long time ago should be an **unbridgeable** gap between us. Yet we find a way to relate to him.  
 Because he was **unflinchingly** honest in his journal, and he was touching something universally human.  
 Ron Gambol has become a **household name**.   
