@@ -174,7 +174,7 @@ Remove the **thermometer**. There will be a film of **coagulated** milk on the s
 **Cursive**, also known as **longhand**, script, handwriting, **looped writing**, joined-up writing, joint writing, or running writing is any style of **penmanship** in which the symbols of the language are written in a **conjoined** and/or flowing manner.  
 **romp roast**  
 
-If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
+If you’re into personal, professional, and financial growth then it’s worth a **gander**.   
 Why do Harry and Meghan **wind people up**?  
 
 Steve was **innately** comfortable trusting his gut; it’s a characteristic of the best entrepreneurs, a necessity for anyone who wants to make a living developing things no one has ever quite imagined before.  

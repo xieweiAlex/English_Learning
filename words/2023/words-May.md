@@ -1,9 +1,44 @@
 
-In his actions, we see Marcus was conscious of money, but primarily as a means to an end not as an end to itself.  
+**In the midst of** a **standoff**, he is gonna deliver his package.  
+I keep all my important documents in my **bosom**.  
 
+**autodidact**.  
+**wharf**  
+**gizzard**  
+**slurp**, **gobble**  
+**huffy**  
+**dysentery**" is not commonly used in everyday language, it is a recognized term in medical discussions or contexts related to diseases of the digestive system.  
+**headlamp**  
+Planting more trees can help **palliate** the effects of air pollution in urban area.  
+**palliative** care.  
+Calderon is a climate **wonk**.  
+morning **larks**.  
+**tarmac**.  
+**Chastity** before marriage is still demanded in some societies.  
+"**Chastity**" is not a commonly used word in everyday conversation. It is considered a more formal or traditional term related to personal morality, particularly in the context of sexual behavior.  
+
+
+**anvil**  
+His **tactless** words had **incurred** his father’s deep **displeasure**.  
+**sleazy**  
+**Copernicus**  
+**massacre**  
+I want no part of this **sordid** business. -  
+I've been **celibate** for the past six months.  
+I was **celibate** for two years.  
+**deluge**  
+**perfunctory**: It is a word that conveys the lack of genuine engagement or **thoroughness** in a task or behavior.  
+
+
+
+He was faced with a **barrage** of angry questions from the floor.  
+
+The trickiest part of the manager's job is building **rapport**.  
+She has an excellent **rapport** with her staff.  
+In his actions, we see Marcus was conscious of money, but primarily as a **means to an end** not as an end to itself.  
 
 His mind was **assailed** by doubts.  
-**analgesic**  
+"**Analgesic**" is a term that is commonly used in medical and healthcare contexts. It refers to a substance or medication that relieves pain without causing a loss of consciousness.  
 **libelous**  
 
 **Polymorphic**  
@@ -12,16 +47,13 @@ His mind was **assailed** by doubts.
 **federation**  
 Just the fact that he lived a long time ago should be an **unbridgeable** gap between us. Yet we find a way to relate to him.  
 Because he was **unflinchingly** honest in his journal, and he was touching something universally human.  
-Ron Gambol has become a **household name**.   
-**Sacking** Tucker Carlson has **put a dent** in Fox News’s ratings
+Ron Gambol has become a **household name**.  
+**Sacking** Tucker Carlson has **put a dent** in Fox News’s ratings  
 
-**Spaniard** 
-**cliffhanger**  
+**Spaniard**  
 
-**incel**
+**incel**  
 **applaud**  
-
-
 
 **novice** investor  
 
@@ -41,14 +73,14 @@ He's an **impartial** and **perspicacious** judge.
 They planted **lilacs** to **hedge** the yard. -  
 **malaria**  
 
-She **crooked** her finger to **beckon** him.
+She **crooked** her finger to **beckon** him. -  
 Jonathan took a little **peep** at his watch.  
-The moon **peeped out** from behind the clouds.
+The moon **peeped out** from behind the clouds.  
 
 This method works especially well in rain forests and **marshy** areas.  
 The house was now a shell **gutted** by flames.  
 They two are **enamored**. -  
-**pudency** 
+**pudency**  
 
 **wardrobe**  
 **point blank**  
@@ -235,14 +267,14 @@ Brazilian frog might be the first **pollinating** **amphibian** known to science
 
 egg **custard**  
 Now let's look at another **facet** of the problem.  
-The club is open to **all and sundry**.   
+The club is open to **all and sundry**.  
 Mr. T is telling fools to quit their **jibber-jabber**.  
 **ingenious**, **ingenuity**  
 **mixologist**  
 
 The film is **spooled** for use.  
 wooden **pallet**, **pallet** truck.  
-Teeth have a hard surface layer called **enamel**. -  
+Teeth have a hard surface layer called **enamel**.   
 **telly**  
 **flute**, **fluting**  
 
@@ -253,7 +285,7 @@ In general, “dietary fiber” is an **umbrella term** for the parts of plants 
 Instead, fiber **passes through** your system and **eases** symptoms such as constipation.  
 
 **value proposition**  
-If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**. -  
+If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**.   
 
 **riff**  
 **crony** capitalism  

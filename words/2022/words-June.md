@@ -134,7 +134,6 @@ They are holding out hope for victory despite the **grim reality** of their stru
 
 **primacy effect**  
 
-**Chastity** before marriage is still demanded in some societies.  
 
 She is perceived as vain, spoiled, and **promiscuous**.  
 He regarded the young man as **feckless** and irresponsible.  

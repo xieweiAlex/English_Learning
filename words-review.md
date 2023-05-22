@@ -1,6 +1,8 @@
 ## words-May.md ##  
 words/2023/words-May.md  
+I want no part of this **sordid** business. -  
 They planted **lilacs** to **hedge** the yard. -  
+She **crooked** her finger to **beckon** him. -  
 They two are **enamored**. -  
 The @SECGov has filed its response to @coinbase’s complaint over how it applies securities laws to digital assets, asking the Court to deny Coinbase’s petition for **mandamus**. -  
 Combined with fresh fruit, **kefir** makes for a healthy and **scrumptious** dessert. -  
@@ -10,8 +12,6 @@ People celebrating the **armistice** behaved like an **orgiastic** mob. -
 I'm a **gigolo**, that's different. -  
 If you don’t keep a journal, you may find writing in one can **desensitize** any **qualms** you have about writing about yourself. -  
 A **grove** of trees **shadowed** the house densely. -  
-Teeth have a hard surface layer called **enamel**. -  
-If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**. -  
 Hers was a minor part, but she played it with **gusto**. -  
 
 ## words-April.md ##  
@@ -42,5 +42,4 @@ Associate Davos with **turgid** discussions of interest rates and Middle East po
 words/2022/words-Dec.md  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
 You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
-If you’re into personal, professional, and financial growth then it’s worth a **gander**. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
