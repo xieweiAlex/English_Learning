@@ -1,4 +1,15 @@
 
+Claustrophobic.  
+
+
+The meeting began smoothly, a cadence of adult conversation and decision-making, **punctuated** by the **muted** clatter of Lego bricks.  
+An **uproarious** cry, a **crescendo** of **sibling** conflict, echoed from the living room.  
+
+Data **sleuths**.  
+
+
+## Week 3  
+
 **In the midst of** a **standoff**, he is gonna deliver his package.  
 I keep all my important documents in my **bosom**.  
 
@@ -274,7 +285,7 @@ Mr. T is telling fools to quit their **jibber-jabber**.
 
 The film is **spooled** for use.  
 wooden **pallet**, **pallet** truck.  
-Teeth have a hard surface layer called **enamel**.   
+Teeth have a hard surface layer called **enamel**.  
 **telly**  
 **flute**, **fluting**  
 
@@ -285,7 +296,7 @@ In general, “dietary fiber” is an **umbrella term** for the parts of plants 
 Instead, fiber **passes through** your system and **eases** symptoms such as constipation.  
 
 **value proposition**  
-If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**.   
+If China’s growth is so strong, why is inflation so weak? A paradox that has analysts **snickering**.  
 
 **riff**  
 **crony** capitalism  
