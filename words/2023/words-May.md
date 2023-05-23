@@ -1,5 +1,10 @@
 
-Claustrophobic.  
+avow.  
+
+
+Major trading firms, including Jane Street Group and Jump Trading,1 are **curtailing** their participation in US crypto markets in response to regulatory uncertainty and risks.   
+
+**Claustrophobic**.  
 
 
 The meeting began smoothly, a cadence of adult conversation and decision-making, **punctuated** by the **muted** clatter of Lego bricks.  
