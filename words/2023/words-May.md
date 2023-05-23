@@ -1,5 +1,36 @@
 
-avow.  
+
+She seems a rather creepy, jejune and adolescent fantasy.  
+**Guerrilla** warfare. -  
+**gorilla**  
+
+
+nuclear warhead, atomic warhead.  
+therapeutic, curative  
+Too much is spent on curative medicine and too little on preventive medicine.  
+
+
+**Crayon** **Shin-chan**.  
+**coke**.  
+**pragma**  
+**dishearten**  
+**foible**  
+A long illness had **emaciated** my father.  
+**renounce**, **renunciation** 
+**gatecrash** the party  
+
+**avow**.  
+**Solitude**  
+**thingy**
+**grin**, **smirk**, **giggle**, **roar**  
+**flunk**  
+**genghis khan**
+
+
+> punctuality is an virtue.  
+> you're in good hands 
+
+Some **bruising**.  
 
 
 Major trading firms, including Jane Street Group and Jump Trading,1 are **curtailing** their participation in US crypto markets in response to regulatory uncertainty and risks.   
@@ -315,6 +346,8 @@ Hers was a minor part, but she played it with **gusto**. -
 **mouthy**  
 
 ## Conversation  
+I'm actually finding your **tenuous** grasp of the English language **folksy** and charming today.  
+
 
 
 ## Interesting  
