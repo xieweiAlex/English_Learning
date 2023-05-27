@@ -1,14 +1,32 @@
 
+The **aims** of the treaty are **stated** in its **preamble**.  
 
-She seems a rather creepy, jejune and adolescent fantasy.  
+
+Discovering information from these sources can be challenging, especially because the data is unstructured and dispersed.  
+
+
+> Tough time makes strong men, strong men make good time, good time makes weak men, weak men make tough time. 
+
+I don't understand why she gave me the **cold shoulder**.  
+Margaret was always a **precocious** child. -  
+It is important to have someone you can **confide in**.  
+
+**confinement**  
+**scolding**  
+**snooty**  
+**shortfall**  
+He **clutched** the cane in his **clammy** hand. -  
+
+MLB: our national **pastime**.  
+Digital **forensics**.  
+**Joint**, **doobie**  
+
+She seems a rather creepy, **jejune** and adolescent fantasy.  
 **Guerrilla** warfare. -  
 **gorilla**  
-
-
-nuclear warhead, atomic warhead.  
-therapeutic, curative  
-Too much is spent on curative medicine and too little on preventive medicine.  
-
+nuclear **warhead**, atomic **warhead**.  
+**therapeutic**, **curative**  
+Too much is spent on **curative medicine** and too little on **preventive medicine**.  
 
 **Crayon** **Shin-chan**.  
 **coke**.  
@@ -26,9 +44,6 @@ A long illness had **emaciated** my father.
 **flunk**  
 **genghis khan**
 
-
-> punctuality is an virtue.  
-> you're in good hands 
 
 Some **bruising**.  
 
@@ -348,6 +363,10 @@ Hers was a minor part, but she played it with **gusto**. -
 ## Conversation  
 I'm actually finding your **tenuous** grasp of the English language **folksy** and charming today.  
 
+Stop acting, just give me a "Mao tan"(blanket).  
+
+> punctuality is an virtue.  
+> you're in good hands 
 
 
 ## Interesting  
