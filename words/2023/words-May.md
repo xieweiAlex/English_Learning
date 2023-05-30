@@ -1,8 +1,29 @@
 
+Are You Breathing? Do You Have **Email Apnea**?  
+The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
+"[R]estaurants are trying to coax people to eat out, and the seduction of a dining room is part of the get — dusky candlelight and uninterrupted, eye-to-eye conversation. A QR code can kill the mood: phones up, blue lights on, conviviality off."  
+
+
+However, the **outermost** leaves are highest in nutrient density. No matter which type you buy, make sure to wash thoroughly to remove dirt and **debris**.  
+
+
+**smugness**.  
+**receptive**  
+A brief, handwritten **postscript** lay beneath his signature.  
+wash them in a mesh **garment** bag that’s securely closed. -  
+
+
+**simpleton**, **nitwit**, **dimwit**, **moron**, **lunatic**
+**derogatory**
+**imbecile** 
+blockhead, knucklehead, **dickhead**, **bonehead**,
+
+
+**dilettante**.  
+
+
 The **aims** of the treaty are **stated** in its **preamble**.  
-
-
-Discovering information from these sources can be challenging, especially because the data is unstructured and dispersed.  
+Discovering information from these sources can be challenging, especially because the data is unstructured and **dispersed**.  
 
 
 > Tough time makes strong men, strong men make good time, good time makes weak men, weak men make tough time. 
@@ -363,7 +384,7 @@ Hers was a minor part, but she played it with **gusto**. -
 ## Conversation  
 I'm actually finding your **tenuous** grasp of the English language **folksy** and charming today.  
 
-Stop acting, just give me a "Mao tan"(blanket).  
+**Stop acting**, just give me a "Mao tan"(blanket).  
 
 > punctuality is an virtue.  
 > you're in good hands 
