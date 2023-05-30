@@ -1,4 +1,32 @@
 
+Uranium  
+Her signature was an illegible scrawl.  
+proverb, proverbial  
+
+
+The government has refused to make up a $30,000 shortfall in funding.  
+gallantly  
+dysentery attack  
+moldy  
+perspicacious  
+Masochist  
+gauche  
+His eyes scintillated excitation.  
+leech  
+interdiction  
+rigidity  
+retain, retentive  
+Get out of bed, you fat slob!  
+The drunkard tottered along the road.  
+
+**meek**, **docile**, **submissive**  
+**tutelage**  
+**niggling**  
+**schmaltz**  
+
+**Pumice** my toenail.  
+
+
 Are You Breathing? Do You Have **Email Apnea**?  
 The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
 "[R]estaurants are trying to coax people to eat out, and the seduction of a dining room is part of the get — dusky candlelight and uninterrupted, eye-to-eye conversation. A QR code can kill the mood: phones up, blue lights on, conviviality off."  
@@ -13,10 +41,10 @@ A brief, handwritten **postscript** lay beneath his signature.
 wash them in a mesh **garment** bag that’s securely closed. -  
 
 
-**simpleton**, **nitwit**, **dimwit**, **moron**, **lunatic**
-**derogatory**
-**imbecile** 
-blockhead, knucklehead, **dickhead**, **bonehead**,
+**simpleton**, **nitwit**, **dimwit**, **moron**, **lunatic**  
+**derogatory**  
+**imbecile**  
+blockhead, knucklehead, **dickhead**, **bonehead**,  
 
 
 **dilettante**.  
@@ -26,7 +54,7 @@ The **aims** of the treaty are **stated** in its **preamble**.
 Discovering information from these sources can be challenging, especially because the data is unstructured and **dispersed**.  
 
 
-> Tough time makes strong men, strong men make good time, good time makes weak men, weak men make tough time. 
+> Tough time makes strong men, strong men make good time, good time makes weak men, weak men make tough time.  
 
 I don't understand why she gave me the **cold shoulder**.  
 Margaret was always a **precocious** child. -  
@@ -55,21 +83,21 @@ Too much is spent on **curative medicine** and too little on **preventive medici
 **dishearten**  
 **foible**  
 A long illness had **emaciated** my father.  
-**renounce**, **renunciation** 
+**renounce**, **renunciation**  
 **gatecrash** the party  
 
 **avow**.  
 **Solitude**  
-**thingy**
+**thingy**  
 **grin**, **smirk**, **giggle**, **roar**  
 **flunk**  
-**genghis khan**
+**genghis khan**  
 
 
 Some **bruising**.  
 
 
-Major trading firms, including Jane Street Group and Jump Trading,1 are **curtailing** their participation in US crypto markets in response to regulatory uncertainty and risks.   
+Major trading firms, including Jane Street Group and Jump Trading,1 are **curtailing** their participation in US crypto markets in response to regulatory uncertainty and risks.  
 
 **Claustrophobic**.  
 
@@ -387,7 +415,7 @@ I'm actually finding your **tenuous** grasp of the English language **folksy** a
 **Stop acting**, just give me a "Mao tan"(blanket).  
 
 > punctuality is an virtue.  
-> you're in good hands 
+> you're in good hands  
 
 
 ## Interesting  

@@ -1,5 +1,10 @@
 ## words-May.md ##  
 words/2023/words-May.md  
+The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
+wash them in a mesh **garment** bag that’s securely closed. -  
+Margaret was always a **precocious** child. -  
+He **clutched** the cane in his **clammy** hand. -  
+**Guerrilla** warfare. -  
 I want no part of this **sordid** business. -  
 They planted **lilacs** to **hedge** the yard. -  
 She **crooked** her finger to **beckon** him. -  
