@@ -1,4 +1,39 @@
 
+The Nobel Prize has become the ultimate accolade in the sciences.  
+**niggard**  
+Canonical  
+
+
+cot, crib, cradle 
+lice, louse  
+lousy  
+Polio 
+You shouldn apos teat too much stodge in your diet.  
+A regular rhythm pulsated in our ears.  
+I don't think anyone is casting aspersions on you.  
+toe to toe  
+He had to spend two years bedridden with an injury.  
+intricacy.  
+monkeyshine  
+naivete  
+Aspirin is a mild analgesic.  
+
+
+
+patronage, patronizing  
+Bells were pealing and crowds were cheering.  
+A scepter is the attribute of power.  
+
+You're setting yourself up all over again. 
+he's got squat  
+
+
+**clergyman**, **pastor**.  
+
+El Salvador is a popular destination for tourists due to its **temperate** weather and the affordable entertainment options that it provides.  
+**monetary economics**.  
+His appointment signals El Salvador's commitment to **incorporating** expert opinions into their strategy and decision-making process.  
+
 The interests of the United States and China are intertwined, like conjoined twins, who are inseparable from each other.  
 
 
@@ -62,6 +97,8 @@ blockhead, knucklehead, **dickhead**, **bonehead**,
 The **aims** of the treaty are **stated** in its **preamble**.  
 Discovering information from these sources can be challenging, especially because the data is unstructured and **dispersed**.  
 
+
+## Week 4 
 
 > Tough time makes strong men, strong men make good time, good time makes weak men, weak men make tough time.  
 
