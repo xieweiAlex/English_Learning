@@ -1,29 +1,38 @@
 
-Uranium  
-Her signature was an illegible scrawl.  
-proverb, proverbial  
+The interests of the United States and China are intertwined, like conjoined twins, who are inseparable from each other.  
 
 
-The government has refused to make up a $30,000 shortfall in funding.  
-gallantly  
-dysentery attack  
-moldy  
-perspicacious  
-Masochist  
-gauche  
-His eyes scintillated excitation.  
-leech  
-interdiction  
-rigidity  
-retain, retentive  
-Get out of bed, you fat slob!  
-The drunkard tottered along the road.  
+borderless 
+
+measuring stick. 
+
+Don't approach or **surveil** my client again.  
+**substantial**
+
+
+**Uranium**  
+Her signature was an **illegible** **scrawl**.  
+**proverb**, **proverbial**  
+
+The government has refused to make up a $30,000 **shortfall** in funding.  
+**gallantly**  
+**dysentery** attack  
+**moldy**  
+**perspicacious**  
+**Masochist**  
+**gauche**  
+His eyes **scintillated** excitation.  
+**leech**  
+**interdiction**  
+**rigidity**  
+**retain**, **retentive**  
+Get out of bed, you fat **slob**!  
+The **drunkard** **tottered** along the road. -  
 
 **meek**, **docile**, **submissive**  
 **tutelage**  
 **niggling**  
 **schmaltz**  
-
 **Pumice** my toenail.  
 
 
