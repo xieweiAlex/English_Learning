@@ -1,31 +1,35 @@
 
-The Nobel Prize has become the ultimate accolade in the sciences.  
+**mantle** 
+
+**ideation**
+
+This is because cats are **crepuscular**, which means they hunt and are active in the evening or early morning.  
+
+
+The Nobel Prize has become the ultimate **accolade** in the sciences. -  
 **niggard**  
-Canonical  
+**Canonical**  
 
+**cot**, **crib**, **cradle** 
+**lice**, **louse**  
+**lousy**  
+**Polio** 
+You shouldn't put too much **stodge** in your diet.  
+A regular **rhythm** **pulsated** in our ears.  
+I don't think anyone is casting **aspersions** on you. -  
+**toe to toe**  
+He had to spend two years **bedridden** with an injury.  
+**intricacy**.  
+**monkeyshine**  
+**naivete**  
+**Aspirin** is a mild **analgesic**. -  
 
-cot, crib, cradle 
-lice, louse  
-lousy  
-Polio 
-You shouldn apos teat too much stodge in your diet.  
-A regular rhythm pulsated in our ears.  
-I don't think anyone is casting aspersions on you.  
-toe to toe  
-He had to spend two years bedridden with an injury.  
-intricacy.  
-monkeyshine  
-naivete  
-Aspirin is a mild analgesic.  
+**patronage**, **patronizing**  
+Bells were **pealing** and crowds were cheering.  
+A **scepter** is the attribute of power. -  
 
-
-
-patronage, patronizing  
-Bells were pealing and crowds were cheering.  
-A scepter is the attribute of power.  
-
-You're setting yourself up all over again. 
-he's got squat  
+You're **setting yourself up** **all over again**. 
+**he's got squat**  
 
 
 **clergyman**, **pastor**.  
@@ -34,12 +38,10 @@ El Salvador is a popular destination for tourists due to its **temperate** weath
 **monetary economics**.  
 His appointment signals El Salvador's commitment to **incorporating** expert opinions into their strategy and decision-making process.  
 
-The interests of the United States and China are intertwined, like conjoined twins, who are inseparable from each other.  
+The interests of the United States and China are **intertwined**, like **conjoined** twins, who are inseparable from each other.  
+**borderless** 
 
-
-borderless 
-
-measuring stick. 
+**measuring stick**. 
 
 Don't approach or **surveil** my client again.  
 **substantial**
