@@ -1,7 +1,13 @@
 
+**Mexican standoff**
+
+**substantial**
+
 **Disparity**  
 
 **arguably**
+
+## May 
 
 **abnormalcy** 
 

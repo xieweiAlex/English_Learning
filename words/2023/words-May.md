@@ -1,14 +1,14 @@
 
-vasodilation.  
+Some people say economics are **subservient** to politics. -  
 
 
+rubber hit the road 
+**vasodilation**.  
 
-He's a lowlife.  
+He's a **lowlife**.  
 
-negativity is the path to positivity.  
-the tolerance and acceptance of negative experience that leads to the positive experience.  
-
-
+> negativity is the path to positivity.  
+> the tolerance and acceptance of negative experience that leads to the positive experience.  
 
 > transitive dependencies
 
@@ -18,8 +18,6 @@ the tolerance and acceptance of negative experience that leads to the positive e
 **ideation**
 
 This is because cats are **crepuscular**, which means they hunt and are active in the evening or early morning.  
-
-
 The Nobel Prize has become the ultimate **accolade** in the sciences. -  
 **niggard**  
 **Canonical**  
@@ -44,7 +42,6 @@ A **scepter** is the attribute of power. -
 
 You're **setting yourself up** **all over again**. 
 **he's got squat**  
-
 
 **clergyman**, **pastor**.  
 
@@ -77,15 +74,14 @@ His eyes **scintillated** excitation.
 **interdiction**  
 **rigidity**  
 **retain**, **retentive**  
-Get out of bed, you fat **slob**!  
+Get out of bed, you fat **slob**! -  
 The **drunkard** **tottered** along the road. -  
 
 **meek**, **docile**, **submissive**  
 **tutelage**  
 **niggling**  
 **schmaltz**  
-**Pumice** my toenail.  
-
+**Pumice** my toenail. -  
 
 Are You Breathing? Do You Have **Email Apnea**?  
 The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
@@ -93,7 +89,7 @@ The study found that the odds of developing **frailty** were reduced by 20% for 
 
 
 However, the **outermost** leaves are highest in nutrient density. No matter which type you buy, make sure to wash thoroughly to remove dirt and **debris**.  
-
+**outpost**. -
 
 **smugness**.  
 **receptive**  
