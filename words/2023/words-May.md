@@ -1,4 +1,15 @@
 
+vasodilation.  
+
+
+
+He's a lowlife.  
+
+negativity is the path to positivity.  
+the tolerance and acceptance of negative experience that leads to the positive experience.  
+
+
+
 > transitive dependencies
 
 
