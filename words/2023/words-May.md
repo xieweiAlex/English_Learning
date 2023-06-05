@@ -1,4 +1,14 @@
 
+Barrack  
+The lamb gave a faint bleat.  
+erasure  
+tip-off  
+
+
+
+Prune juice.  
+bran bars  
+
 
 ## Week 1
 
