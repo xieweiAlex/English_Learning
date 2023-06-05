@@ -1,8 +1,34 @@
 
+
+## Week 1
+
+Weight has caused the **sag**.  
+**penniless**  
+It is a country where corruption is **rife**. -  
+**sinuses**  
+**savagery**  
+**Cuz** Texas is to valuable to the Union. So this is a way to “exit” without technically seceding.  
+
+
+But human beings are **collectively** intelligent, **adaptable** and resilient, which is core to survival and progress.  
+It was a near **redux** of the Great Financial Crisis. -  
+Over the short-term, bitcoin might be disproportionately impacted due to its relative size and its **nascency**, which contribute to volatility (up and down) but every asset traded for dollars is impacted.  
+This chart best explains everything that matters in regard to the dollar and its **machinations**.   
+In an **academic world**, maybe everyone figures it out at the same time and makes a **conscious decision** to **scrap** the old world, adopt the new world, and move on without any consequence to the sins of the past.  
+The first step is recognizing that the 21 million **fixed supply** is the **fulcrum**.  
+
+> The existence of a debt (or credit) system that is an order of magnitude larger than the amount of money that actually exists causes a few dynamics that may not be immediately intuitive.  
+> While hedges are designed to protect against the risk of future uncertainty, risk itself is never implicitly knowable.  
+> Risk exists on a spectrum. Uncertainty to some extent is unavoidable  
+
+We often have this **preconception** that millionaires and billionaires are constantly fixated on money, and that's their secret to becoming wealthy and successful.  
+
+Frost **blighted** the crops. -  
+An evil person is a **blight** in the orchard.  
+
 Some people say economics are **subservient** to politics. -  
+> **Rubber hit the road**  
 
-
-rubber hit the road 
 **vasodilation**.  
 
 He's a **lowlife**.  
@@ -10,22 +36,22 @@ He's a **lowlife**.
 > negativity is the path to positivity.  
 > the tolerance and acceptance of negative experience that leads to the positive experience.  
 
-> transitive dependencies
+> transitive dependencies  
 
 
-**mantle** 
+**mantle**  
 
-**ideation**
+**ideation**  
 
 This is because cats are **crepuscular**, which means they hunt and are active in the evening or early morning.  
 The Nobel Prize has become the ultimate **accolade** in the sciences. -  
 **niggard**  
 **Canonical**  
 
-**cot**, **crib**, **cradle** 
+**cot**, **crib**, **cradle**  
 **lice**, **louse**  
 **lousy**  
-**Polio** 
+**Polio**  
 You shouldn't put too much **stodge** in your diet.  
 A regular **rhythm** **pulsated** in our ears.  
 I don't think anyone is casting **aspersions** on you. -  
@@ -38,9 +64,9 @@ He had to spend two years **bedridden** with an injury.
 
 **patronage**, **patronizing**  
 Bells were **pealing** and crowds were cheering.  
-A **scepter** is the attribute of power. -  
+A **scepter** is the attribute of power.   
 
-You're **setting yourself up** **all over again**. 
+You're **setting yourself up** **all over again**.  
 **he's got squat**  
 
 **clergyman**, **pastor**.  
@@ -50,12 +76,12 @@ El Salvador is a popular destination for tourists due to its **temperate** weath
 His appointment signals El Salvador's commitment to **incorporating** expert opinions into their strategy and decision-making process.  
 
 The interests of the United States and China are **intertwined**, like **conjoined** twins, who are inseparable from each other.  
-**borderless** 
+**borderless**  
 
-**measuring stick**. 
+**measuring stick**.  
 
 Don't approach or **surveil** my client again.  
-**substantial**
+**substantial**  
 
 
 **Uranium**  
@@ -89,7 +115,7 @@ The study found that the odds of developing **frailty** were reduced by 20% for 
 
 
 However, the **outermost** leaves are highest in nutrient density. No matter which type you buy, make sure to wash thoroughly to remove dirt and **debris**.  
-**outpost**. -
+**outpost**. -  
 
 **smugness**.  
 **receptive**  
@@ -110,7 +136,7 @@ The **aims** of the treaty are **stated** in its **preamble**.
 Discovering information from these sources can be challenging, especially because the data is unstructured and **dispersed**.  
 
 
-## Week 4 
+## Week 4  
 
 > Tough time makes strong men, strong men make good time, good time makes weak men, weak men make tough time.  
 
@@ -129,7 +155,7 @@ Digital **forensics**.
 **Joint**, **doobie**  
 
 She seems a rather creepy, **jejune** and adolescent fantasy.  
-**Guerrilla** warfare. -  
+**Guerrilla** warfare.   
 **gorilla**  
 nuclear **warhead**, atomic **warhead**.  
 **therapeutic**, **curative**  
@@ -239,10 +265,10 @@ His entire life is **consecrated** to science.
 **pend**, **pending**  
 She finally agreed to have the **wretched** animal **put down**.  
 He's an **impartial** and **perspicacious** judge.  
-They planted **lilacs** to **hedge** the yard. -  
+They planted **lilacs** to **hedge** the yard.   
 **malaria**  
 
-She **crooked** her finger to **beckon** him. -  
+She **crooked** her finger to **beckon** him.   
 Jonathan took a little **peep** at his watch.  
 The moon **peeped out** from behind the clouds.  
 
@@ -268,7 +294,7 @@ The @SECGov has filed its response to @coinbase’s complaint over how it applie
 **capitalistic** market  
 
 It's the **effervescence** that has gives it the name the champagne of milk.  
-Combined with fresh fruit, **kefir** makes for a healthy and **scrumptious** dessert. -  
+Combined with fresh fruit, **kefir** makes for a healthy and **scrumptious** dessert.   
 The nice thing about Kefir is, it's very **forgiving**.  
 
 They're bunch of **wussies**.  
@@ -288,7 +314,7 @@ You can **mesmerize** anyone you meet with your cultured attitude and outlook.
 
 She denies obtaining a **pecuniary** advantage by deception. -  
 
-The declining dollar **gave heart to** **skittish** investors. -  
+The declining dollar **gave heart to** **skittish** investors.   
 Depositors are **skittish** and Banks are having to offer them higher rates.  
 She was silent, her eyes **downcast**.  
 
@@ -410,7 +436,7 @@ I wasn't staring, I was **leering**.
 
 **Cemetery**, **graveyard**, **graves**, **tombstone**  
 bamboo **grove**  
-A **grove** of trees **shadowed** the house densely. -  
+A **grove** of trees **shadowed** the house densely.   
 **Dharma**  
 The company's shares **tanked** on Wall Street.  
 

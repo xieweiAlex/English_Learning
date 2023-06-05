@@ -1,35 +1,34 @@
 ## words-May.md ##  
 words/2023/words-May.md  
+Some people say economics are **subservient** to politics. -  
+The Nobel Prize has become the ultimate **accolade** in the sciences. -  
+I don't think anyone is casting **aspersions** on you. -  
+**Aspirin** is a mild **analgesic**. -  
+Get out of bed, you fat **slob**! -  
+The **drunkard** **tottered** along the road. -  
+**Pumice** my toenail. -  
 The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
+**outpost**. -  
 wash them in a mesh **garment** bag that’s securely closed. -  
 Margaret was always a **precocious** child. -  
 He **clutched** the cane in his **clammy** hand. -  
-**Guerrilla** warfare. -  
 I want no part of this **sordid** business. -  
-They planted **lilacs** to **hedge** the yard. -  
-She **crooked** her finger to **beckon** him. -  
 They two are **enamored**. -  
 The @SECGov has filed its response to @coinbase’s complaint over how it applies securities laws to digital assets, asking the Court to deny Coinbase’s petition for **mandamus**. -  
-Combined with fresh fruit, **kefir** makes for a healthy and **scrumptious** dessert. -  
 She denies obtaining a **pecuniary** advantage by deception. -  
-The declining dollar **gave heart to** **skittish** investors. -  
 People celebrating the **armistice** behaved like an **orgiastic** mob. -  
 I'm a **gigolo**, that's different. -  
 If you don’t keep a journal, you may find writing in one can **desensitize** any **qualms** you have about writing about yourself. -  
-A **grove** of trees **shadowed** the house densely. -  
 Hers was a minor part, but she played it with **gusto**. -  
 
 ## words-April.md ##  
 words/2023/words-April.md  
 They lived in a **squalid** **hovel** for the next five years. -  
-The **mendacious** beggar told a different **tale of woe** at every house.  -  
-Her hatred of authority led to her **expulsion** from high school. -  
 
 ## words-March.md ##  
 words/2023/words-March.md  
 diamond **encrusted** sofa. -  
 **snapper** -  
-**mantle** -  
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  

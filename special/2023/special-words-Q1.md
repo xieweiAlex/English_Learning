@@ -1,4 +1,8 @@
 
+**nascency**
+
+**eligible**
+
 **Mexican standoff**
 
 **substantial**

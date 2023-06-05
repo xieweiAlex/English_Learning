@@ -126,7 +126,7 @@ The subject of racism is admittedly too complex for **facile** summarization.
 **phallic**  
 **papperclip**  
 
-**mantle** -  
+**mantle**   
 **credit crunch**, **crunch time**.  
 Are science and religion fated to be **adversaries**?.  
 
