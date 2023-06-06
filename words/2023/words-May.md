@@ -1,4 +1,19 @@
 
+They condemned the deal as a craven surrender.  
+It has five concourses connected to a main hall.  
+fish fillet  
+old codger.  
+pursuant  
+This century wrought major changes in our society.  
+The gates were made of wrought iron.  
+
+
+**ipso facto**  
+They managed to **grapple** him to the ground. -  
+I wasn't the only person grappling with these issues.  
+
+
+I'd like to think I've had a **modicum** of success. -  
 There is always a price to pay for the sexual **dalliance**.  
 
 **Barrack**  
