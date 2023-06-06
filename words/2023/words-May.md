@@ -1,13 +1,13 @@
 
-Barrack  
-The lamb gave a faint bleat.  
-erasure  
-tip-off  
+There is always a price to pay for the sexual **dalliance**.  
 
+**Barrack**  
+The lamb gave a **faint** **bleat**. -  
+**erasure**  
+**tip-off**  
 
-
-Prune juice.  
-bran bars  
+**Prune juice**.  
+**bran bars**  
 
 
 ## Week 1
