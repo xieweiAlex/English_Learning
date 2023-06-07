@@ -1,8 +1,14 @@
 ## words-May.md ##  
 words/2023/words-May.md  
-Some people say economics are **subservient** to politics. -  
+They condemned the deal as a **craven** surrender. -  
+It has five **concourses** connected to a main hall. -  
+They managed to **grapple** him to the ground. -  
+I'd like to think I've had a **modicum** of success. -  
+The lamb gave a **faint** **bleat**. -  
+It is a country where corruption is **rife**. -  
+It was a near **redux** of the Great Financial Crisis. -  
+Frost **blighted** the crops. -  
 The Nobel Prize has become the ultimate **accolade** in the sciences. -  
-I don't think anyone is casting **aspersions** on you. -  
 **Aspirin** is a mild **analgesic**. -  
 Get out of bed, you fat **slob**! -  
 The **drunkard** **tottered** along the road. -  
@@ -18,7 +24,6 @@ The @SECGov has filed its response to @coinbase’s complaint over how it applie
 She denies obtaining a **pecuniary** advantage by deception. -  
 People celebrating the **armistice** behaved like an **orgiastic** mob. -  
 I'm a **gigolo**, that's different. -  
-If you don’t keep a journal, you may find writing in one can **desensitize** any **qualms** you have about writing about yourself. -  
 Hers was a minor part, but she played it with **gusto**. -  
 
 ## words-April.md ##  
@@ -34,8 +39,6 @@ diamond **encrusted** sofa. -
 words/2023/words-Feb.md  
 Strive for **rapport** with others. -  
 Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance. -  
-This **mangy** raccoon had busted through your screen. -  
-He must have **scampered** up to where Shel was. -  
 He is **obstinate** and determined and will not give up. -  
 
 ## words-Jan.md ##  

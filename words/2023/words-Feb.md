@@ -292,8 +292,8 @@ It's a little **greasy** for my **palate**, said my insanely jealous mom.
 **exotic** tea  
 
 I was reading on this paper, and I heard this **commotion** up in your room.   
-This **mangy** raccoon had busted through your screen. -  
-He must have **scampered** up to where Shel was. -  
+This **mangy** raccoon had busted through your screen.   
+He must have **scampered** up to where Shel was.   
 He just stared at me with that **smug look** and then **bolted**.  
 **If only** I'd have got here earlier...  
 **Nocturnal**  

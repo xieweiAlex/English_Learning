@@ -1,17 +1,35 @@
 
-They condemned the deal as a craven surrender.  
-It has five concourses connected to a main hall.  
-fish fillet  
-old codger.  
-pursuant  
-This century wrought major changes in our society.  
-The gates were made of wrought iron.  
+Public **nuisance**.  
 
+
+hedgehog  
+esoteric, eseentric  
+enrage  
+The women swoon over him.  
+crapshoot  
+humdinger  
+torpor  
+
+
+ratiocinate  
+
+
+
+The air is thick with **acrid** smoke from the fires.  
+We do not like his **acrid** temper.  
+This is an **acrid** and pungent substance.  
+
+They condemned the deal as a **craven** surrender. -  
+It has five **concourses** connected to a main hall. -  
+fish **fillet**  
+old **codger**.  
+**pursuant**  
+This century **wrought** major changes in our society.  
+The gates were made of **wrought** iron.  
 
 **ipso facto**  
 They managed to **grapple** him to the ground. -  
 I wasn't the only person grappling with these issues.  
-
 
 I'd like to think I've had a **modicum** of success. -  
 There is always a price to pay for the sexual **dalliance**.  
@@ -24,21 +42,20 @@ The lamb gave a **faint** **bleat**. -
 **Prune juice**.  
 **bran bars**  
 
-
-## Week 1
+## Week 1  
 
 Weight has caused the **sag**.  
 **penniless**  
 It is a country where corruption is **rife**. -  
 **sinuses**  
 **savagery**  
-**Cuz** Texas is to valuable to the Union. So this is a way to “exit” without technically seceding.  
+**Cuz** Texas is to valuable to the Union. So this is a way to “exit” without technically **seceding**.  
 
 
 But human beings are **collectively** intelligent, **adaptable** and resilient, which is core to survival and progress.  
 It was a near **redux** of the Great Financial Crisis. -  
 Over the short-term, bitcoin might be disproportionately impacted due to its relative size and its **nascency**, which contribute to volatility (up and down) but every asset traded for dollars is impacted.  
-This chart best explains everything that matters in regard to the dollar and its **machinations**.   
+This chart best explains everything that matters in regard to the dollar and its **machinations**.  
 In an **academic world**, maybe everyone figures it out at the same time and makes a **conscious decision** to **scrap** the old world, adopt the new world, and move on without any consequence to the sins of the past.  
 The first step is recognizing that the 21 million **fixed supply** is the **fulcrum**.  
 
@@ -51,7 +68,7 @@ We often have this **preconception** that millionaires and billionaires are cons
 Frost **blighted** the crops. -  
 An evil person is a **blight** in the orchard.  
 
-Some people say economics are **subservient** to politics. -  
+Some people say economics are **subservient** to politics.  
 > **Rubber hit the road**  
 
 **vasodilation**.  
@@ -79,7 +96,7 @@ The Nobel Prize has become the ultimate **accolade** in the sciences. -
 **Polio**  
 You shouldn't put too much **stodge** in your diet.  
 A regular **rhythm** **pulsated** in our ears.  
-I don't think anyone is casting **aspersions** on you. -  
+I don't think anyone is casting **aspersions** on you.  
 **toe to toe**  
 He had to spend two years **bedridden** with an injury.  
 **intricacy**.  
@@ -89,7 +106,7 @@ He had to spend two years **bedridden** with an injury.
 
 **patronage**, **patronizing**  
 Bells were **pealing** and crowds were cheering.  
-A **scepter** is the attribute of power.   
+A **scepter** is the attribute of power.  
 
 You're **setting yourself up** **all over again**.  
 **he's got squat**  
@@ -180,7 +197,7 @@ Digital **forensics**.
 **Joint**, **doobie**  
 
 She seems a rather creepy, **jejune** and adolescent fantasy.  
-**Guerrilla** warfare.   
+**Guerrilla** warfare.  
 **gorilla**  
 nuclear **warhead**, atomic **warhead**.  
 **therapeutic**, **curative**  
@@ -290,10 +307,10 @@ His entire life is **consecrated** to science.
 **pend**, **pending**  
 She finally agreed to have the **wretched** animal **put down**.  
 He's an **impartial** and **perspicacious** judge.  
-They planted **lilacs** to **hedge** the yard.   
+They planted **lilacs** to **hedge** the yard.  
 **malaria**  
 
-She **crooked** her finger to **beckon** him.   
+She **crooked** her finger to **beckon** him.  
 Jonathan took a little **peep** at his watch.  
 The moon **peeped out** from behind the clouds.  
 
@@ -319,7 +336,7 @@ The @SECGov has filed its response to @coinbase’s complaint over how it applie
 **capitalistic** market  
 
 It's the **effervescence** that has gives it the name the champagne of milk.  
-Combined with fresh fruit, **kefir** makes for a healthy and **scrumptious** dessert.   
+Combined with fresh fruit, **kefir** makes for a healthy and **scrumptious** dessert.  
 The nice thing about Kefir is, it's very **forgiving**.  
 
 They're bunch of **wussies**.  
@@ -339,7 +356,7 @@ You can **mesmerize** anyone you meet with your cultured attitude and outlook.
 
 She denies obtaining a **pecuniary** advantage by deception. -  
 
-The declining dollar **gave heart to** **skittish** investors.   
+The declining dollar **gave heart to** **skittish** investors.  
 Depositors are **skittish** and Banks are having to offer them higher rates.  
 She was silent, her eyes **downcast**.  
 
@@ -383,7 +400,7 @@ Bill Clinton needed the world's **undying** attention.
 **splashy**  
 His theory gained **notoriety** in 1935 when Elliott made an **uncanny** prediction of a stock market bottom and has become a staple for thousands of portfolio managers, traders, and private investors.  
 
-If you don’t keep a journal, you may find writing in one can **desensitize** any **qualms** you have about writing about yourself. -  
+If you don’t keep a journal, you may find writing in one can **desensitize** any **qualms** you have about writing about yourself.  
 
 NATO is planning to open a **liaison office** in Tokyo, in what would be the organization's first such office in Asia.  
 If China can be first on AI governance, it can project those standards and regulations globally, shaping lucrative and **pliable markets**.  
@@ -461,7 +478,7 @@ I wasn't staring, I was **leering**.
 
 **Cemetery**, **graveyard**, **graves**, **tombstone**  
 bamboo **grove**  
-A **grove** of trees **shadowed** the house densely.   
+A **grove** of trees **shadowed** the house densely.  
 **Dharma**  
 The company's shares **tanked** on Wall Street.  
 
