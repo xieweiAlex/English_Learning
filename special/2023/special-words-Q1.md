@@ -1,4 +1,10 @@
 
+**dispassionate**
+
+**repressed**
+
+**pressing**, **burning**  
+
 **offhand**
 
 **nascency**

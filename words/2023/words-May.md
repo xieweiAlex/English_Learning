@@ -1,17 +1,23 @@
 
+The debt ceiling crisis is a contrived crisis, it's not a real crisis. The real crisis is the politicians who wanted to run up more debt and the debt ceiling limited their ability to do that.  
+We have to come clean with the American public.  
+
+
+
+> You're playing a game, of which yourself are the player and everybody else is an **interloper**. And you're the responsibility to design the game play.  
+
+
 Public **nuisance**.  
+**confidant**  
 
-
-hedgehog  
-esoteric, eseentric  
-enrage  
-The women swoon over him.  
-crapshoot  
-humdinger  
-torpor  
-
-
-ratiocinate  
+**hedgehog**  
+**esoteric**, eccentric  
+**enrage**  
+The women **swoon over** him.  
+**crapshoot**  
+**humdinger**  
+**torpor**  
+**ratiocinate**  
 
 
 
@@ -29,7 +35,7 @@ The gates were made of **wrought** iron.
 
 **ipso facto**  
 They managed to **grapple** him to the ground. -  
-I wasn't the only person grappling with these issues.  
+I wasn't the only person **grappling** with these issues.  
 
 I'd like to think I've had a **modicum** of success. -  
 There is always a price to pay for the sexual **dalliance**.  
