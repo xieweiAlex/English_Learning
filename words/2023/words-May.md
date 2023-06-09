@@ -1,4 +1,13 @@
 
+But consider how incredibly neutered the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.  
+slowly but surely.  
+there will be a plethora of different clients/apps/websites/etc through which the users will see this note, each with their own features and designs.  
+
+
+
+They have one thing in common, their feet are all borked.  
+
+
 
 indignant  
 libel  
