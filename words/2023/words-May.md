@@ -1,4 +1,19 @@
 
+
+indignant  
+libel  
+For my part, I feel elated and close to tears.  
+
+
+nondescript  
+germinate  
+speckless  
+travesty, farce  
+
+
+Well-thought 
+
+
 The debt ceiling crisis is a contrived crisis, it's not a real crisis. The real crisis is the politicians who wanted to run up more debt and the debt ceiling limited their ability to do that.  
 We have to come clean with the American public.  
 
