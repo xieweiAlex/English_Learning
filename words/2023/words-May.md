@@ -1,35 +1,49 @@
 
+Hong Kong organizers once held annual Tiananmen candlelight vigils that attracted tens of thousands of participants.  
+
+
+I would not deign to comment on such behavior.  
+He passed by without deigning to look at me.  
+She's worn to a frazzle with her silly speech competition.  
+memorie, memo, memorandum  
+The pier is a wooden structure.  
+We stood on the pier and watched as they embarked.  
+
+plier 
+exigency  
+We lived on the breadline to get our son through college.  
+
+
+
+
+trapezoid  
+Mahatma  
+
+
+
+**freaky**, **freakish**
+
 But consider how incredibly neutered the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.  
 slowly but surely.  
 there will be a plethora of different clients/apps/websites/etc through which the users will see this note, each with their own features and designs.  
 
+They have one thing in common, their feet are all **borked**.  
 
+**indignant**  
+**libel**  
+For my part, I feel **elated** and close to tears. -  
 
-They have one thing in common, their feet are all borked.  
+**nondescript**  
+**germinate**  
+**speckless**  
+**travesty**, **farce**  
 
+**Well-thought** 
 
-
-indignant  
-libel  
-For my part, I feel elated and close to tears.  
-
-
-nondescript  
-germinate  
-speckless  
-travesty, farce  
-
-
-Well-thought 
-
-
-The debt ceiling crisis is a contrived crisis, it's not a real crisis. The real crisis is the politicians who wanted to run up more debt and the debt ceiling limited their ability to do that.  
-We have to come clean with the American public.  
-
-
+The debt ceiling crisis is a **contrived crisis**, it's not a real crisis. The real crisis is the politicians who wanted to run up more debt and the debt ceiling limited their ability to do that.  
+We have to **come clean** with the American public.  
 
 > You're playing a game, of which yourself are the player and everybody else is an **interloper**. And you're the responsibility to design the game play.  
-
 
 Public **nuisance**.  
 **confidant**  
