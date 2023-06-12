@@ -1,7 +1,8 @@
 ## words-May.md ##  
 words/2023/words-May.md  
+The **bugle** sounded the **charge**. -  
+for my part, i feel **elated** and close to tears. -  
 They condemned the deal as a **craven** surrender. -  
-It has five **concourses** connected to a main hall. -  
 They managed to **grapple** him to the ground. -  
 I'd like to think I've had a **modicum** of success. -  
 The lamb gave a **faint** **bleat**. -  
@@ -14,9 +15,7 @@ Get out of bed, you fat **slob**! -
 The **drunkard** **tottered** along the road. -  
 **Pumice** my toenail. -  
 The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
-**outpost**. -  
 wash them in a mesh **garment** bag that’s securely closed. -  
-Margaret was always a **precocious** child. -  
 He **clutched** the cane in his **clammy** hand. -  
 I want no part of this **sordid** business. -  
 They two are **enamored**. -  

@@ -12,26 +12,40 @@ We stood on the pier and watched as they embarked.
 plier 
 exigency  
 We lived on the breadline to get our son through college.  
-
-
-
-
 trapezoid  
 Mahatma  
 
-
-
 **freaky**, **freakish**
-
-But consider how incredibly neutered the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.  
-slowly but surely.  
-there will be a plethora of different clients/apps/websites/etc through which the users will see this note, each with their own features and designs.  
-
+Psycholotic, neurotic  
 They have one thing in common, their feet are all **borked**.  
+
+For my part, I feel **elated** and close to tears. -  
+
+## Week 2  
+
+It's **grossly** offensive  
+Everybody is a thinker, and everybody is a feeler, and the degress to which one person is one or the other cannot be categorized or **surmised** by the thinking-feeling dichotomy.  
+
+**wacky**.  
+**idiocy**  
+**fastidious**  
+**rampart**  
+**errant**  
+I hope he doesn't try to **meddle** in my affairs.  
+
+
+**Factor in** the leverage  
+The **bugle** sounded the **charge**. -  
+
+But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.  
+**slowly but surely**.  
+there will be a **plethora** of different clients/apps/websites/etc through which the users will see this note, each with their own features and designs.  
+
+they have one thing in common, their feet are all **borked**.  
 
 **indignant**  
 **libel**  
-For my part, I feel **elated** and close to tears. -  
+for my part, i feel **elated** and close to tears. -  
 
 **nondescript**  
 **germinate**  
@@ -57,14 +71,12 @@ The women **swoon over** him.
 **torpor**  
 **ratiocinate**  
 
-
-
 The air is thick with **acrid** smoke from the fires.  
 We do not like his **acrid** temper.  
 This is an **acrid** and pungent substance.  
 
 They condemned the deal as a **craven** surrender. -  
-It has five **concourses** connected to a main hall. -  
+It has five **concourses** connected to a main hall.   
 fish **fillet**  
 old **codger**.  
 **pursuant**  
@@ -201,7 +213,7 @@ The study found that the odds of developing **frailty** were reduced by 20% for 
 
 
 However, the **outermost** leaves are highest in nutrient density. No matter which type you buy, make sure to wash thoroughly to remove dirt and **debris**.  
-**outpost**. -  
+**outpost**.   
 
 **smugness**.  
 **receptive**  
@@ -227,7 +239,7 @@ Discovering information from these sources can be challenging, especially becaus
 > Tough time makes strong men, strong men make good time, good time makes weak men, weak men make tough time.  
 
 I don't understand why she gave me the **cold shoulder**.  
-Margaret was always a **precocious** child. -  
+Margaret was always a **precocious** child.   
 It is important to have someone you can **confide in**.  
 
 **confinement**  
