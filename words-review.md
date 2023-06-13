@@ -3,9 +3,9 @@ words/2023/words-May.md
 The **bugle** sounded the **charge**. -  
 for my part, i feel **elated** and close to tears. -  
 They condemned the deal as a **craven** surrender. -  
-They managed to **grapple** him to the ground. -  
+They managed to **grapple** him to the ground.   
 I'd like to think I've had a **modicum** of success. -  
-The lamb gave a **faint** **bleat**. -  
+The lamb gave a **faint** **bleat**.   
 It is a country where corruption is **rife**. -  
 It was a near **redux** of the Great Financial Crisis. -  
 Frost **blighted** the crops. -  

@@ -1,22 +1,36 @@
 
-Hong Kong organizers once held annual Tiananmen candlelight vigils that attracted tens of thousands of participants.  
+How can I conquer my **disinclination** to meet people?  
+She is a **conspicuous** figure.  
+**goblin**  
+**Talmud**  
+**Koran**, **Qoran**
+**tubal ligation**  
+
+He was **saucy** and mischievous when he was working. -
+**leaven**, unleavened.  
+
+**pandemonium**  
 
 
-I would not deign to comment on such behavior.  
-He passed by without deigning to look at me.  
-She's worn to a frazzle with her silly speech competition.  
-memorie, memo, memorandum  
-The pier is a wooden structure.  
-We stood on the pier and watched as they embarked.  
+Hong Kong organizers once held annual Tiananmen candlelight **vigils** that attracted tens of thousands of participants.  
 
-plier 
-exigency  
-We lived on the breadline to get our son through college.  
-trapezoid  
-Mahatma  
+
+I would not **deign to** comment on such behavior.  
+He passed by without **deigning to** look at me.  
+She's worn to a **frazzle** with her silly speech competition.  
+**memorie**, **memo**, **memorandum**  
+The **pier** is a wooden structure.  
+We stood on the **pier** and watched as they embarked.  
+
+**plier** 
+**exigency**  
+We lived on the **breadline** to get our son through college.  
+**bread and butter**
+**trapezoid**  
+**Mahatma**  
 
 **freaky**, **freakish**
-Psycholotic, neurotic  
+**Psycholotic**, **neurotic**  
 They have one thing in common, their feet are all **borked**.  
 
 For my part, I feel **elated** and close to tears. -  
