@@ -1,4 +1,7 @@
 
+> The most coherent stories are not necessarily the most probable, but they are plausible, and the notions of coherence, plausibility, and probability are easily confused by the unwary.  
+
+
 How can I conquer my **disinclination** to meet people?  
 She is a **conspicuous** figure.  
 **goblin**  
