@@ -1,19 +1,18 @@
 ## words-May.md ##  
 words/2023/words-May.md  
+She gets various **perquisites** **in addition to** her **wages**. -  
+For example, generous **remuneration** packages are offered in this position. -  
+He was **saucy** and mischievous when he was working. -  
+For my part, I feel **elated** and close to tears. -  
 The **bugle** sounded the **charge**. -  
 for my part, i feel **elated** and close to tears. -  
 They condemned the deal as a **craven** surrender. -  
-They managed to **grapple** him to the ground.   
 I'd like to think I've had a **modicum** of success. -  
-The lamb gave a **faint** **bleat**.   
 It is a country where corruption is **rife**. -  
 It was a near **redux** of the Great Financial Crisis. -  
-Frost **blighted** the crops. -  
-The Nobel Prize has become the ultimate **accolade** in the sciences. -  
 **Aspirin** is a mild **analgesic**. -  
 Get out of bed, you fat **slob**! -  
 The **drunkard** **tottered** along the road. -  
-**Pumice** my toenail. -  
 The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
 wash them in a mesh **garment** bag that’s securely closed. -  
 He **clutched** the cane in his **clammy** hand. -  

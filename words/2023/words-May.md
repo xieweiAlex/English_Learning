@@ -1,23 +1,21 @@
 
+
 She gets various **perquisites** **in addition to** her **wages**. -  
-Politics used to be the perquisite of the property-owning classes.  
-For example, generous remuneration packages are offered in this position.  
+Politics used to be the **perquisite** of the property-owning classes.  
+For example, generous **remuneration** packages are offered in this position. -  
 
-He was paranoid, self-obsessed and misanthropic.  
+He was paranoid, self-obsessed and **misanthropic**.  
 
+**coop**  
+**immediacy**  
+**mucus**  
 
+**Pisces**  
+**befuddle**  
+**Viva**  
 
-coop  
-immediacy  
-mucus  
-
-
-Pisces  
-befuddle  
-Viva 
-
-scavenger hunt 
-That woman has the attention span of a gnat.  
+**scavenger** hunt  
+That woman has the attention span of a **gnat**.  
 
 
 > The most coherent stories are not necessarily the most probable, but they are plausible, and the notions of coherence, plausibility, and probability are easily confused by the unwary.  
@@ -27,10 +25,10 @@ How can I conquer my **disinclination** to meet people?
 She is a **conspicuous** figure.  
 **goblin**  
 **Talmud**  
-**Koran**, **Qoran**
+**Koran**, **Qoran**  
 **tubal ligation**  
 
-He was **saucy** and mischievous when he was working. -
+He was **saucy** and mischievous when he was working. -  
 **leaven**, unleavened.  
 
 **pandemonium**  
@@ -46,14 +44,14 @@ She's worn to a **frazzle** with her silly speech competition.
 The **pier** is a wooden structure.  
 We stood on the **pier** and watched as they embarked.  
 
-**plier** 
+**plier**  
 **exigency**  
 We lived on the **breadline** to get our son through college.  
-**bread and butter**
+**bread and butter**  
 **trapezoid**  
 **Mahatma**  
 
-**freaky**, **freakish**
+**freaky**, **freakish**  
 **Psycholotic**, **neurotic**  
 They have one thing in common, their feet are all **borked**.  
 
@@ -90,7 +88,7 @@ for my part, i feel **elated** and close to tears. -
 **speckless**  
 **travesty**, **farce**  
 
-**Well-thought** 
+**Well-thought**  
 
 The debt ceiling crisis is a **contrived crisis**, it's not a real crisis. The real crisis is the politicians who wanted to run up more debt and the debt ceiling limited their ability to do that.  
 We have to **come clean** with the American public.  
@@ -114,7 +112,7 @@ We do not like his **acrid** temper.
 This is an **acrid** and pungent substance.  
 
 They condemned the deal as a **craven** surrender. -  
-It has five **concourses** connected to a main hall.   
+It has five **concourses** connected to a main hall.  
 fish **fillet**  
 old **codger**.  
 **pursuant**  
@@ -122,14 +120,14 @@ This century **wrought** major changes in our society.
 The gates were made of **wrought** iron.  
 
 **ipso facto**  
-They managed to **grapple** him to the ground. -  
+They managed to **grapple** him to the ground.   
 I wasn't the only person **grappling** with these issues.  
 
 I'd like to think I've had a **modicum** of success. -  
 There is always a price to pay for the sexual **dalliance**.  
 
 **Barrack**  
-The lamb gave a **faint** **bleat**. -  
+The lamb gave a **faint** **bleat**.   
 **erasure**  
 **tip-off**  
 
@@ -159,7 +157,7 @@ The first step is recognizing that the 21 million **fixed supply** is the **fulc
 
 We often have this **preconception** that millionaires and billionaires are constantly fixated on money, and that's their secret to becoming wealthy and successful.  
 
-Frost **blighted** the crops. -  
+Frost **blighted** the crops.   
 An evil person is a **blight** in the orchard.  
 
 Some people say economics are **subservient** to politics.  
@@ -180,7 +178,7 @@ He's a **lowlife**.
 **ideation**  
 
 This is because cats are **crepuscular**, which means they hunt and are active in the evening or early morning.  
-The Nobel Prize has become the ultimate **accolade** in the sciences. -  
+The Nobel Prize has become the ultimate **accolade** in the sciences.   
 **niggard**  
 **Canonical**  
 
@@ -243,7 +241,7 @@ The **drunkard** **tottered** along the road. -
 **tutelage**  
 **niggling**  
 **schmaltz**  
-**Pumice** my toenail. -  
+**Pumice** my toenail.   
 
 Are You Breathing? Do You Have **Email Apnea**?  
 The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
@@ -251,7 +249,7 @@ The study found that the odds of developing **frailty** were reduced by 20% for 
 
 
 However, the **outermost** leaves are highest in nutrient density. No matter which type you buy, make sure to wash thoroughly to remove dirt and **debris**.  
-**outpost**.   
+**outpost**.  
 
 **smugness**.  
 **receptive**  
@@ -277,7 +275,7 @@ Discovering information from these sources can be challenging, especially becaus
 > Tough time makes strong men, strong men make good time, good time makes weak men, weak men make tough time.  
 
 I don't understand why she gave me the **cold shoulder**.  
-Margaret was always a **precocious** child.   
+Margaret was always a **precocious** child.  
 It is important to have someone you can **confide in**.  
 
 **confinement**  
@@ -637,6 +635,7 @@ I'm actually finding your **tenuous** grasp of the English language **folksy** a
 > punctuality is an virtue.  
 > you're in good hands  
 
+That woman has the attention span of a **gnat**.  
 
 ## Interesting  
 
