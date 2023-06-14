@@ -1,4 +1,25 @@
 
+She gets various **perquisites** **in addition to** her **wages**. -  
+Politics used to be the perquisite of the property-owning classes.  
+For example, generous remuneration packages are offered in this position.  
+
+He was paranoid, self-obsessed and misanthropic.  
+
+
+
+coop  
+immediacy  
+mucus  
+
+
+Pisces  
+befuddle  
+Viva 
+
+scavenger hunt 
+That woman has the attention span of a gnat.  
+
+
 > The most coherent stories are not necessarily the most probable, but they are plausible, and the notions of coherence, plausibility, and probability are easily confused by the unwary.  
 
 
