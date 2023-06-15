@@ -1,4 +1,26 @@
 
+Vitamin C, also called ascorbic acid, is an antioxidant that promotes healthy teeth and gums.  
+
+
+Oh, what a load of crap! That is a dot!  
+
+
+life Raft, bamboo raft   
+centipede  
+
+
+The State expropriated his palace.  
+contaminate  
+The town survives the onslaught of tourists every summer.  
+excrete  
+gobble  
+infantry battalion  
+ejaculate  
+
+
+**Spaniard**  
+
+
 
 She gets various **perquisites** **in addition to** her **wages**. -  
 Politics used to be the **perquisite** of the property-owning classes.  
@@ -378,8 +400,6 @@ Just the fact that he lived a long time ago should be an **unbridgeable** gap be
 Because he was **unflinchingly** honest in his journal, and he was touching something universally human.  
 Ron Gambol has become a **household name**.  
 **Sacking** Tucker Carlson has **put a dent** in Fox News’s ratings  
-
-**Spaniard**  
 
 **incel**  
 **applaud**  
