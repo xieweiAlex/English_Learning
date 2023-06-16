@@ -1,21 +1,27 @@
 
-Vitamin C, also called ascorbic acid, is an antioxidant that promotes healthy teeth and gums.  
+Putrefaction  
+Tigers are solitary animals.  
 
 
-Oh, what a load of crap! That is a dot!  
+The professor was sparing in his praise.  
+“the best treasure is a sparing tongue.”  
 
 
-life Raft, bamboo raft   
-centipede  
+Vitamin C, also called **ascorbic** **acid**, is an antioxidant that promotes healthy teeth and gums.  
+
+Oh, **what a load of crap**! That is a dot!  
+
+life **Raft**, bamboo **raft**   
+**centipede**  
 
 
-The State expropriated his palace.  
-contaminate  
-The town survives the onslaught of tourists every summer.  
-excrete  
+The State **expropriated** his palace.  
+**contaminate**  
+The town survives the **onslaught** of tourists every summer.  
+**excrete**  
 gobble  
-infantry battalion  
-ejaculate  
+infantry **battalion**  
+**ejaculate**  
 
 
 **Spaniard**  

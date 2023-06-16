@@ -1,4 +1,14 @@
 
+
+
+
+## Describing People 
+### Personality 
+### Appearance 
+### Grow up family 
+
+## Driving 
+
 ## Ordering in restaurant 
 * Chipotle 
 	* https://www.chipotle.com/order/build/burrito-bowl
