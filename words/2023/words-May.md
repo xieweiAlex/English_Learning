@@ -11,7 +11,7 @@ Vitamin C, also called **ascorbic** **acid**, is an antioxidant that promotes he
 
 Oh, **what a load of crap**! That is a dot!  
 
-life **Raft**, bamboo **raft**   
+life **Raft**, bamboo **raft**  
 **centipede**  
 
 
@@ -148,14 +148,14 @@ This century **wrought** major changes in our society.
 The gates were made of **wrought** iron.  
 
 **ipso facto**  
-They managed to **grapple** him to the ground.   
+They managed to **grapple** him to the ground.  
 I wasn't the only person **grappling** with these issues.  
 
 I'd like to think I've had a **modicum** of success. -  
 There is always a price to pay for the sexual **dalliance**.  
 
 **Barrack**  
-The lamb gave a **faint** **bleat**.   
+The lamb gave a **faint** **bleat**.  
 **erasure**  
 **tip-off**  
 
@@ -185,7 +185,7 @@ The first step is recognizing that the 21 million **fixed supply** is the **fulc
 
 We often have this **preconception** that millionaires and billionaires are constantly fixated on money, and that's their secret to becoming wealthy and successful.  
 
-Frost **blighted** the crops.   
+Frost **blighted** the crops.  
 An evil person is a **blight** in the orchard.  
 
 Some people say economics are **subservient** to politics.  
@@ -206,7 +206,7 @@ He's a **lowlife**.
 **ideation**  
 
 This is because cats are **crepuscular**, which means they hunt and are active in the evening or early morning.  
-The Nobel Prize has become the ultimate **accolade** in the sciences.   
+The Nobel Prize has become the ultimate **accolade** in the sciences.  
 **niggard**  
 **Canonical**  
 
@@ -269,7 +269,7 @@ The **drunkard** **tottered** along the road. -
 **tutelage**  
 **niggling**  
 **schmaltz**  
-**Pumice** my toenail.   
+**Pumice** my toenail.  
 
 Are You Breathing? Do You Have **Email Apnea**?  
 The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
