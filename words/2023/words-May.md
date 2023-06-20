@@ -1,4 +1,8 @@
 
+More zillennials are splurging on tiny pleasures (think: $5 lattes and cute succulents) as a way to escape.   
+Netflix's password-mooching crackdown is paying off. Since the streamer restricted account sharing in the US last month, it’s reportedly notched its four biggest sign-up days on record.  
+
+
 He was then **brooding** what to do.    
 Don't **brood about it**.
 
