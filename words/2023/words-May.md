@@ -1,9 +1,15 @@
 
-The majority sugar in the US is beet sugar.  
+He was then **brooding** what to do.    
+Don't **brood about it**.
+
+deep **sexuality**.  
+
+
+His **wanderlust** would not allow him to stay long in one spot.  
+**drop dead**  
+
+The majority sugar in the US is **beet** sugar.  
 **oxidative stress**  
-
-
-
 I need to **top up** my card.  
 **Put money on my card**.  
 
@@ -17,11 +23,11 @@ I need to **top up** my card.
 
 Sophia Efthimiatou talks with Nadia Bolz-Weber about sinners and **saints**, the enduring power of **scripture**, and how we should really think about **resurrection**  
 
-I want there to be some kind of direct address to those who are hearing my sermon. I don’t always get there, but I try to actually say “you” in the sermon, at the end especially, to let people know this is for you. When I hear a sermon, I want somebody to break my heart.  
-Standup comics are just incredibly insightful about human folly, and so often that’s what they’re talking about.  
-It would be amazing if every tech company had an ethicist and a theologian as part of their board, as part of the conversation in terms of what they do or don’t do. That would be incredible.  
+I want there to be some kind of direct address to those who are hearing my **sermon**. I don’t always get there, but I try to actually say “you” in the sermon, at the end especially, to let people know this is for you. When I hear a sermon, I want somebody to break my heart.  
+Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about. -  
+It would be amazing if every tech company had an **ethicist** and a **theologian** as part of their board, as part of the conversation in terms of what they do or don’t do. That would be incredible.  
 
-Ryan Holiday details the two-year writing process of his all-ages fable, The Girl Who Would be Free, which had its fair share of difficulties and obstacles, along with valuable and rewarding experiences.  
+Ryan Holiday details the two-year writing process of his all-ages **fable**, The Girl Who Would be Free, which had its **fair share** of difficulties and obstacles, along with valuable and rewarding experiences.  
 
 **well-lit**  
 **greece**, **greek**  
@@ -48,19 +54,16 @@ From **plus point of view**, they did keep the virus out of population for almos
 **communicable**  
 
 He wrote a post that very **cogently** explained how Bitcoin solves that problem.  
-
 **numeracy**  
-
 **par for the course**.  
 Our travel was **beguiled** with pleasant talk. -  
 We **beguiled** the children with fairy tales.  
-
 **zealot**, **zealous**, **zealously**  
-I am inclined to scrupulosity in disclosing relationships when writing about firms.  
+I am inclined to **scrupulosity** in disclosing relationships when writing about firms.  
 Sometimes companies do other-than-straightforward things for strategic reasons. This is often the cause of a lot of external speculation, sometimes **verging** on conspiracy theorizing.  
-supermarkets’ practice of pricing certain high salience items (e.g. milk) at much tighter unit margins than they price most of the store at.  
-All of those are plausible for a lanky San Franciscan who shows up to open a checking account while wearing a track jacket.  
-I’m still paying! I still bank there! My financial situation has improved markedly since I opened my account!  
+Supermarkets’ practice of pricing certain high **salience** items (e.g. milk) at much tighter unit margins than they price most of the store at.  
+All of those are plausible for a **lanky** San Franciscan who shows up to open a checking account while wearing a **track jacket**.  
+I’m still paying! I still bank there! My financial situation has improved **markedly** since I opened my account!  
 
 The Shanghai **bourse** fell by about 14%.  
 South Korea has had enough of being called an emerging market. And yet it may fail to join the top league of global **bourses** once again  
@@ -74,8 +77,7 @@ Yet memories from the war have left an **indelible** mark on many.
 "Smirch" is a verb that means to stain, soil, or tarnish something, often in a metaphorical sense. It implies the act of blemishing or damaging someone's reputation, honor, or character. While it is not widely used in everyday conversation, it may be encountered in literature, poetry, or discussions related to ethics, character assassination, or the tarnishing of one's image.  
 **around the clock**  
 
-In summary, enmity conveys a sense of enduring hostility and opposition, while animosity emphasizes intense dislike or ill will, which may or may not be sustained over time. Both terms describe negative relationships, but enmity suggests a deeper and more protracted conflict compared to animosity.  
-
+> In summary, **enmity** conveys a sense of enduring **hostility** and opposition, while animosity emphasizes intense dislike or **ill will**, which may or may not be **sustained** over time. Both terms describe negative relationships, but **enmity** suggests a deeper and more **protracted** conflict compared to animosity.  
 
 **Putrefaction**  
 Tigers are **solitary** animals.  
@@ -102,7 +104,7 @@ The State **expropriated** his palace.
 **contaminate**  
 The town survives the **onslaught** of tourists every summer.  
 **excrete**  
-gobble  
+**gobble**  
 infantry **battalion**  
 **ejaculate**  
 
