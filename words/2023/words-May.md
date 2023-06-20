@@ -1,19 +1,21 @@
 
+The majority sugar in the US is beet sugar.  
+**oxidative stress**  
 
-I need to top up my card.  
-Put money on my card.  
+
+
+I need to **top up** my card.  
+**Put money on my card**.  
 
 **well behave**  
 **Filial** **Piety**  
 
-> live and let live 
-
-
+> live and let live  
 
 **half-ass**  
 
 
-Sophia Efthimiatou talks with Nadia Bolz-Weber about sinners and **saints**, the enduring power of **scripture**, and how we should really think about **resurrection**
+Sophia Efthimiatou talks with Nadia Bolz-Weber about sinners and **saints**, the enduring power of **scripture**, and how we should really think about **resurrection**  
 
 I want there to be some kind of direct address to those who are hearing my sermon. I don’t always get there, but I try to actually say “you” in the sermon, at the end especially, to let people know this is for you. When I hear a sermon, I want somebody to break my heart.  
 Standup comics are just incredibly insightful about human folly, and so often that’s what they’re talking about.  
@@ -21,18 +23,18 @@ It would be amazing if every tech company had an ethicist and a theologian as pa
 
 Ryan Holiday details the two-year writing process of his all-ages fable, The Girl Who Would be Free, which had its fair share of difficulties and obstacles, along with valuable and rewarding experiences.  
 
-**well-lit**
-**greece**, **greek**
+**well-lit**  
+**greece**, **greek**  
 
 Chickpea tomato salad with feta: A high fiber, flavor-rich Mediterranean **medley**.  
 
-Fast-casual Mediterranean restaurant chain Cava will become the latest company to **test the waters** today as some bullish sentiment returns to Wall Street.   
+Fast-casual Mediterranean restaurant chain Cava will become the latest company to **test the waters** today as some bullish sentiment returns to Wall Street.  
 
 Feels good to be **fiery**.  
 
 **frigate**  
 **origami**  
-**dropdown** 
+**dropdown**  
 
 
 **sze-up**  
@@ -43,27 +45,27 @@ The **surfeit** of information available online can be overwhelming at times.
 After indulging in a **surfeit** of desserts, I felt uncomfortably full.  
 
 From **plus point of view**, they did keep the virus out of population for almost 3 years, so no one has natural immunity.  
-**communicable** 
+**communicable**  
 
 He wrote a post that very **cogently** explained how Bitcoin solves that problem.  
 
-**numeracy**
+**numeracy**  
 
 **par for the course**.  
 Our travel was **beguiled** with pleasant talk. -  
 We **beguiled** the children with fairy tales.  
 
-**zealot**, **zealous**, **zealously**
+**zealot**, **zealous**, **zealously**  
 I am inclined to scrupulosity in disclosing relationships when writing about firms.  
 Sometimes companies do other-than-straightforward things for strategic reasons. This is often the cause of a lot of external speculation, sometimes **verging** on conspiracy theorizing.  
 supermarkets’ practice of pricing certain high salience items (e.g. milk) at much tighter unit margins than they price most of the store at.  
 All of those are plausible for a lanky San Franciscan who shows up to open a checking account while wearing a track jacket.  
-I’m still paying! I still bank there! My financial situation has improved markedly since I opened my account!   
+I’m still paying! I still bank there! My financial situation has improved markedly since I opened my account!  
 
 The Shanghai **bourse** fell by about 14%.  
-South Korea has had enough of being called an emerging market. And yet it may fail to join the top league of global **bourses** once again
+South Korea has had enough of being called an emerging market. And yet it may fail to join the top league of global **bourses** once again  
 
-**all hands on deck** 
+**all hands on deck**  
 
 Yet memories from the war have left an **indelible** mark on many.  
 **gag**  

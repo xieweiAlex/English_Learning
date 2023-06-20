@@ -1,5 +1,7 @@
 ## words-May.md ##  
 words/2023/words-May.md  
+Our travel was **beguiled** with pleasant talk. -  
+First of all, quit **groveling**. Needy guys are such a **turnoff**. -  
 She gets various **perquisites** **in addition to** her **wages**. -  
 For example, generous **remuneration** packages are offered in this position. -  
 He was **saucy** and mischievous when he was working. -  
