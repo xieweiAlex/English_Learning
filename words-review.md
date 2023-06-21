@@ -1,5 +1,6 @@
-## words-May.md ##  
-words/2023/words-May.md  
+## words-June.md ##  
+words/2023/words-June.md  
+Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about. -  
 Our travel was **beguiled** with pleasant talk. -  
 First of all, quit **groveling**. Needy guys are such a **turnoff**. -  
 She gets various **perquisites** **in addition to** her **wages**. -  
@@ -17,6 +18,9 @@ Get out of bed, you fat **slob**! -
 The **drunkard** **tottered** along the road. -  
 The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
 wash them in a mesh **garment** bag that’s securely closed. -  
+
+## words-May.md ##  
+words/2023/words-May.md  
 He **clutched** the cane in his **clammy** hand. -  
 I want no part of this **sordid** business. -  
 They two are **enamored**. -  
