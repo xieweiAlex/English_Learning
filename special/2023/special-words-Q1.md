@@ -1,4 +1,8 @@
 
+**parlance**
+
+amicable, agreeable
+
 **dated** 
 
 **soundbite**  
