@@ -2,6 +2,10 @@
 > You have to shock the world to bring attention.  
 > dual responsibility  
 
+Mr. William challenged the young man to a **duel**.  
+The big picture: Blinken's trip helped **put a floor** on the U.S.-China relationship.  
+Yet throughout it, he was **implacable**–when they tried to shout him down, when they threatened him, when they tried to kill him. Still, he kept trying.  
+
 
 SigNoz uses a **columnar** database ClickHouse to store logs, which is very efficient at ingesting and storing logs data.  
 The whole **rigmarole** of getting a visa didn't even exist until recent decades. -  
