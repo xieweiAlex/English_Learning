@@ -1,20 +1,26 @@
 
+> You have to shock the world to bring attention.  
+> dual responsibility  
 
-It was wanton, moronic vandalism.  
-triage  
-around the clock  
-Lacerate  
-fatso  
-jitters  
+
+SigNoz uses a **columnar** database ClickHouse to store logs, which is very efficient at ingesting and storing logs data.  
+The whole **rigmarole** of getting a visa didn't even exist until recent decades. -  
+
+It was **wanton**, **moronic** vandalism.  
+**triage**  
+**around the clock**  
+**Lacerate**  
+**fatso**  
+**jitters**  
 she's determined to **ferret out** the truth  
-entrenched  
+**entrenched**  
 You should be **observant** of the traffic rules.  
 Auto theft, **burglary**, **larceny**, etc.  
 **petty larceny**, **grand larceny**  
 
 
-More zillennials are splurging on tiny pleasures (think: $5 lattes and cute succulents) as a way to escape.  
-Netflix's password-mooching crackdown is paying off. Since the streamer restricted account sharing in the US last month, it’s reportedly notched its four biggest sign-up days on record.  
+More **zillennials** are **splurging** on tiny pleasures (think: $5 lattes and cute succulents) as a way to escape.  
+Netflix's password-**mooching** crackdown is paying off. Since the streamer restricted account sharing in the US last month, it’s reportedly **notched** its four biggest sign-up days on record.  
 
 
 He was then **brooding** what to do.  

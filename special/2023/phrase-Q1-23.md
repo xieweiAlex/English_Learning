@@ -1,7 +1,7 @@
 
+## Q1 
 
 **Entertain the idea**
-
 
 Why are you **subjecting** yourself to this?   
 
@@ -12,5 +12,4 @@ Considering the number of **transgressions** you've committed and he's **overloo
 
 Okay, we're **onto something**, this makes sense or should we actually kill it?  
 **you have the floor**  
-
 
