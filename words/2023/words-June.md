@@ -1,4 +1,7 @@
 
+A defamation suit is pending in Australia.  
+
+
 All humans are broad, we're all multivariate, but we get summarized in pithy ways in our lives.  
 
 
