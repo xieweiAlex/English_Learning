@@ -1,6 +1,32 @@
 
-Do You Know The Distinction Between Words And Deeds?  
+After two decades of lawlessness, Afghanistan has a government able to enforce its writ.  
+An acrimonious debate about covid's origins will rumble on.  
+cavalier  
+Japanese sumo  
+pulse, pulsation  
 
+
+
+lovelace  
+alacrity: liveliness and eagerness. -  
+
+Expunge  
+Vassal lord/state    
+The terrible scenes were indelibly imprinted on his mind.  
+The grant helped defray the expenses of the trip.  
+
+
+
+> Sometimes, it's about doing less and enabling others to do more.
+
+
+
+It's an untapped reservoir of efficiency waiting to be explored.  
+
+
+I know you dont wanna tell her but sometimes you gotta **rip off the bandaid**...  
+
+Do You Know The Distinction Between **Words And Deeds**?  
 
 Prigozhin refused as it would deprive him of his power base and took his chances on a revolt instead of being forced into insubordination.  
 
@@ -11,12 +37,12 @@ Our focus is resolutely and relentlessly on Ukraine, making sure that it has wha
 
 An unhappy life made her **downcast**.  
 
-Scoundrel  
-Euthanasia  
-concision  
-deftly  
+**Scoundrel**  
+**Euthanasia**  
+**concision**  
+**deftly**  
 
-FSD would have T-boned a car obeying the rules.  
+FSD would have **T-boned** a car obeying the rules.  
 
 
 ## Week 4 
@@ -26,10 +52,10 @@ FSD would have T-boned a car obeying the rules.
 What really mattered was that Buffett was **at the helm** and his incredible capital allocation skills combined with the integrity he treats shareholder capital would eventually create a lot of value in whatever businesses Berkshire ventured into.  
 
 Banks make hedge funds look **pedestrian** when it comes to leverage,” says Julian.  
-This will be a slow and cancerous burn for the underlying economy because we have to have credit to see growth.  
+This will be a slow and **cancerous** burn for the underlying economy because we have to have credit to see growth.  
 Furthermore, the proposal gives BlackRock considerable **latitude** in case of a Bitcoin fork, allowing them to determine which Bitcoin version to back.  
 
-Though the bridge is a bit rickety, there is no immediate danger in walking over it.  
+Though the bridge is a bit **rickety**, there is no immediate danger in walking over it. -  
 
 oomph  
 
