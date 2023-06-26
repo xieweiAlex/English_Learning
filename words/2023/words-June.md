@@ -1,15 +1,48 @@
 
-A defamation suit is pending in Australia.  
+Scoundrel  
+Euthanasia  
+concision  
+deftly  
+
+FSD would have T-boned a car obeying the rules.  
+
+> wisdom is better than sophistication
+
+What really mattered was that Buffett was **at the helm** and his incredible capital allocation skills combined with the integrity he treats shareholder capital would eventually create a lot of value in whatever businesses Berkshire ventured into.  
+
+Banks make hedge funds look **pedestrian** when it comes to leverage,” says Julian.  
+This will be a slow and cancerous burn for the underlying economy because we have to have credit to see growth.  
+Furthermore, the proposal gives BlackRock considerable **latitude** in case of a Bitcoin fork, allowing them to determine which Bitcoin version to back.  
+
+Though the bridge is a bit rickety, there is no immediate danger in walking over it.  
+
+oomph  
+
+We soon see a field of wheat **undulate** in the breeze.  
+You better (**expletive**) pay attention. I'm about to get you.  
+
+So, I have composed a **missive** for Father's perusal.  
+**peruse**, **perusal** 
+
+**sardonic**  
+**lymphatic** system  
 
 
-All humans are broad, we're all multivariate, but we get summarized in pithy ways in our lives.  
+The family decided to **exhume** their ancestor's remains and relocate them to a different cemetery for personal reasons.  
+
+**fragrant**  
+**coliseum**  
+**bendy**  
+
+A **defamation** suit is pending in Australia.  
+In summary, defamation is the broader term **encompassing** both spoken (**slander**) and written (**libel**) false statements that harm someone's reputation. **Libel**, on the other hand, specifically **pertains to** defamatory statements made in written or printed form.  
 
 
-Summer is fast approaching, and in some states, it is already in full swing.  
-She enjoys road trips with her family and has fond memories of cross-country adventures with her 3 sisters while growing up.  
-A termagant wife may, in some respects, be considered a tolerable blessing.  
+All humans are **broad**, we're all **multivariate**, but we get summarized in **pithy ways** in our lives.  
 
-
+Summer is **fast approaching**, and in some states, it is already in **full swing**.  
+She enjoys road trips with her family and has **fond** memories of cross-country adventures with her 3 sisters while growing up.  
+A **termagant** wife may, in some respects, be considered a tolerable blessing. -  
 
 > You have to shock the world to bring attention.  
 > dual responsibility  

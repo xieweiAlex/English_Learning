@@ -24,7 +24,6 @@ Because Marie's first reaction is to **prevaricate**, I have a hard time believi
 If you say that someone has **fire in their belly**, you are expressing approval of them because they are energetic, enthusiastic, and have very strong feelings.  
 The Kremlin has already been making some serious **dough** from surging prices of its commodity exports, which have helped the government weather a continuous slew of hefty sanctions.  
 
-This is very **rickety**, it drives an enormous hammer that we use to try to manage the economy.  
 To do this, we knew we would need to be intolerant of **jackasses** and **mischief-makers**, but also come up with mechanisms to spread trust.  
 One of the hardest but best things we do is take questions anonymously every Monday, read them **verbatim** even if it hurts, and answer forthrightly and non-defensively.  
 My initial reaction was annoyance — and then a **fleeting thought** that we needed to stop being so transparent.  
