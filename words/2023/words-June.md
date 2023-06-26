@@ -1,10 +1,25 @@
 
+Do You Know The Distinction Between Words And Deeds?  
+
+
+Prigozhin refused as it would deprive him of his power base and took his chances on a revolt instead of being forced into insubordination.  
+
+
+Our esteemed panel of experts will provide valuable insights and engage in thought-provoking discussions chaired by our Founder Nick James and with panelists Ryan Eggleston, Ben Peeri, Alex De Raadt and Shai Perednik.  
+Our focus is resolutely and relentlessly on Ukraine, making sure that it has what it needs to defend itself and to take back territory that Russia seized.  
+
+
+An unhappy life made her **downcast**.  
+
 Scoundrel  
 Euthanasia  
 concision  
 deftly  
 
 FSD would have T-boned a car obeying the rules.  
+
+
+## Week 4 
 
 > wisdom is better than sophistication
 
