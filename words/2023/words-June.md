@@ -1,4 +1,12 @@
 
+Under the supervision.  
+
+
+Amidst the every day bustle of house chores and errands, they flowed with an impressive coordination and efficiency.  
+
+externality.  
+
+
 After two decades of lawlessness, Afghanistan has a government able to enforce its writ.  
 An acrimonious debate about covid's origins will rumble on.  
 cavalier  
