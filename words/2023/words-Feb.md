@@ -143,7 +143,6 @@ I'm **uncover** right now, I'm a whore.
 
 **at hand**  
 She's a black belt in **judo**.  
-He looked **sly** and **furtive**.  
 **fash**??  
 **talmud**  
 **shellacking**  

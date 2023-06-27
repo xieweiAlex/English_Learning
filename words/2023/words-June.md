@@ -1,35 +1,35 @@
 
-Under the supervision.  
+An adult male lion is resting in the grass on the Kenyan savanna.  
+The service at the hotel is efficient and unobtrusive.  
+He looked **sly** and **furtive**.  
+I want nothing but raiment and daily bread.  
+Alway put the oar atop the canoe.  
+He ensconced himself in the armchair.  
 
 
-Amidst the every day bustle of house chores and errands, they flowed with an impressive coordination and efficiency.  
+Biryani is one of the most popular dishes in South Asia, as well as among the diaspora from the region.  
 
-externality.  
-
+**Under the supervision**.  
+Amidst the every day **bustle** of house chores and **errands**, they flowed with an impressive coordination and efficiency.  
+**externality**.  
 
 After two decades of lawlessness, Afghanistan has a government able to enforce its writ.  
-An acrimonious debate about covid's origins will rumble on.  
-cavalier  
-Japanese sumo  
-pulse, pulsation  
-
-
+An **acrimonious** debate about Covid's origins will rumble on.  
+**cavalier**  
+Japanese **sumo**  
+**pulse**, **pulsation**  
 
 lovelace  
-alacrity: liveliness and eagerness. -  
+**alacrity**: liveliness and eagerness. -  
 
-Expunge  
-Vassal lord/state    
-The terrible scenes were indelibly imprinted on his mind.  
-The grant helped defray the expenses of the trip.  
-
-
+**Expunge**  
+**Vassal** lord/state    
+The terrible scenes were **indelibly** imprinted on his mind.  
+The grant helped **defray** the expenses of the trip. -  
 
 > Sometimes, it's about doing less and enabling others to do more.
 
-
-
-It's an untapped reservoir of efficiency waiting to be explored.  
+It's an **untapped** reservoir of efficiency waiting to be explored.  
 
 
 I know you dont wanna tell her but sometimes you gotta **rip off the bandaid**...  
@@ -65,7 +65,7 @@ Furthermore, the proposal gives BlackRock considerable **latitude** in case of a
 
 Though the bridge is a bit **rickety**, there is no immediate danger in walking over it. -  
 
-oomph  
+**oomph**  
 
 We soon see a field of wheat **undulate** in the breeze.  
 You better (**expletive**) pay attention. I'm about to get you.  
