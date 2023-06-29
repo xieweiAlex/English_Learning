@@ -1,4 +1,6 @@
 
+Experts are trying to figure out why the coronavirus is so **capricious**  
+
 Undeterred in challenging spurious or poorly framed arguments, they can be formidable debaters. It truly pains this type to see falsities and fallacies go unchallenged.  
 
 An adult male lion is resting in the grass on the Kenyan savanna.  
@@ -25,11 +27,11 @@ lovelace
 **alacrity**: liveliness and eagerness. -  
 
 **Expunge**  
-**Vassal** lord/state    
+**Vassal** lord/state  
 The terrible scenes were **indelibly** imprinted on his mind.  
 The grant helped **defray** the expenses of the trip. -  
 
-> Sometimes, it's about doing less and enabling others to do more.
+> Sometimes, it's about doing less and enabling others to do more.  
 
 It's an **untapped** reservoir of efficiency waiting to be explored.  
 
@@ -55,9 +57,9 @@ An unhappy life made her **downcast**.
 FSD would have **T-boned** a car obeying the rules.  
 
 
-## Week 4 
+## Week 4  
 
-> wisdom is better than sophistication
+> wisdom is better than sophistication  
 
 What really mattered was that Buffett was **at the helm** and his incredible capital allocation skills combined with the integrity he treats shareholder capital would eventually create a lot of value in whatever businesses Berkshire ventured into.  
 
@@ -73,7 +75,7 @@ We soon see a field of wheat **undulate** in the breeze.
 You better (**expletive**) pay attention. I'm about to get you.  
 
 So, I have composed a **missive** for Father's perusal.  
-**peruse**, **perusal** 
+**peruse**, **perusal**  
 
 **sardonic**  
 **lymphatic** system  

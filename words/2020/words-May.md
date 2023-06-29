@@ -340,7 +340,6 @@ The fundamentals don’t matter quite as much with that kind of **liquidity** **
 **dead-ass** honest  
 
 **disturbance**  
-Experts are trying to figure out why the coronavirus is so **capricious**  
 **fatality** vs **mortality**  
 **metropolis**  
 while **teeming** cities like Bangkok, Baghdad, New Delhi and Lagos have, so far, largely been spared.  

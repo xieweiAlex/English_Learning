@@ -1,5 +1,10 @@
 ## words-June.md ##  
 words/2023/words-June.md  
+**alacrity**: liveliness and eagerness. -  
+The grant helped **defray** the expenses of the trip. -  
+Though the bridge is a bit **rickety**, there is no immediate danger in walking over it. -  
+A **termagant** wife may, in some respects, be considered a tolerable blessing. -  
+The whole **rigmarole** of getting a visa didn't even exist until recent decades. -  
 Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about. -  
 Our travel was **beguiled** with pleasant talk. -  
 First of all, quit **groveling**. Needy guys are such a **turnoff**. -  
