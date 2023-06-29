@@ -1,4 +1,6 @@
 
+Undeterred in challenging spurious or poorly framed arguments, they can be formidable debaters. It truly pains this type to see falsities and fallacies go unchallenged.  
+
 An adult male lion is resting in the grass on the Kenyan savanna.  
 The service at the hotel is efficient and unobtrusive.  
 He looked **sly** and **furtive**.  
