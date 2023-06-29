@@ -1,4 +1,22 @@
 
+
+She wore shorts and a halter top.  
+My dream is to be a dubbing.  
+
+
+
+machete.  
+Seal tightly then leave for four to five days to macerate.  
+witticism  
+Although New York is home to the most opulent new-builds, extravagant offices are appearing in other global cities, too.  
+tilde  
+shopfront  
+I realized I had to surmount the language barrier.  
+Tiredness and despair were etched into his face.  
+
+
+
+
 Experts are trying to figure out why the coronavirus is so **capricious**  
 
 Undeterred in challenging spurious or poorly framed arguments, they can be formidable debaters. It truly pains this type to see falsities and fallacies go unchallenged.  
