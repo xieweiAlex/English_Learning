@@ -1,47 +1,51 @@
 
+> **Undeterred** in challenging **spurious** or poorly framed arguments, they can be formidable debaters. It truly **pains** this type to see **falsities** and **fallacies** go unchallenged.  
 
-She wore shorts and a halter top.  
-My dream is to be a dubbing.  
+> **Namely**, the things that are most disturbing to INTJs, whether to their Fi sense of justice or their Ni sense of truth, are often the same things they are striving to understand and remedy. So it’s not merely rational systems (Te) that motivate INTJs, but also perceived personal and societal injustices (Fi).
 
+Thus, if someone wants a firm opinion about how to tackle a complex problem, they are more apt to get it from an INTJ.  
 
+It truly pains this type to see falsities and fallacies go unchallenged.  
 
-machete.  
-Seal tightly then leave for four to five days to macerate.  
-witticism  
-Although New York is home to the most opulent new-builds, extravagant offices are appearing in other global cities, too.  
-tilde  
-shopfront  
-I realized I had to surmount the language barrier.  
-Tiredness and despair were etched into his face.  
+Don’t despair. Look at what’s working, look at what isn’t. Explore why it’s working, figure out how to get more consistent with it.
 
+She wore shorts and a **halter** top.  
+My dream is to be a **dubbing**.  
 
-
+**machete**.  
+Seal tightly then leave for four to five days to **macerate**. -  
+**witticism**  
+Although New York is home to the most **opulent** new-builds, **extravagant** offices are appearing in other global cities, too. -  
+**tilde**  
+**shopfront**  
+I realized I had to **surmount** the language barrier.  
+Tiredness and despair were **etched** into his face.  
 
 Experts are trying to figure out why the coronavirus is so **capricious**  
 
-Undeterred in challenging spurious or poorly framed arguments, they can be formidable debaters. It truly pains this type to see falsities and fallacies go unchallenged.  
 
-An adult male lion is resting in the grass on the Kenyan savanna.  
-The service at the hotel is efficient and unobtrusive.  
+
+An adult male lion is resting in the grass on the **Kenyan** **savanna**. -  
+The service at the hotel is efficient and **unobtrusive**.  
 He looked **sly** and **furtive**.  
-I want nothing but raiment and daily bread.  
-Alway put the oar atop the canoe.  
-He ensconced himself in the armchair.  
+I want nothing but **raiment** and daily bread. -  
+Always put the **oar** atop the **canoe**.  
+He **ensconced** himself in the armchair.  
 
 
-Biryani is one of the most popular dishes in South Asia, as well as among the diaspora from the region.  
+**Biryani** is one of the most popular dishes in South Asia, as well as among the **diaspora** from the region. -  
 
 **Under the supervision**.  
 Amidst the every day **bustle** of house chores and **errands**, they flowed with an impressive coordination and efficiency.  
 **externality**.  
 
-After two decades of lawlessness, Afghanistan has a government able to enforce its writ.  
+After two decades of lawlessness, Afghanistan has a government able to enforce its **writ**.  
 An **acrimonious** debate about Covid's origins will rumble on.  
 **cavalier**  
 Japanese **sumo**  
 **pulse**, **pulsation**  
 
-lovelace  
+**lovelace**  
 **alacrity**: liveliness and eagerness. -  
 
 **Expunge**  
@@ -58,12 +62,10 @@ I know you dont wanna tell her but sometimes you gotta **rip off the bandaid**..
 
 Do You Know The Distinction Between **Words And Deeds**?  
 
-Prigozhin refused as it would deprive him of his power base and took his chances on a revolt instead of being forced into insubordination.  
+Prigozhin refused as it would deprive him of his power base and took his chances on a revolt instead of being forced into **insubordination**.  
 
-
-Our esteemed panel of experts will provide valuable insights and engage in thought-provoking discussions chaired by our Founder Nick James and with panelists Ryan Eggleston, Ben Peeri, Alex De Raadt and Shai Perednik.  
-Our focus is resolutely and relentlessly on Ukraine, making sure that it has what it needs to defend itself and to take back territory that Russia seized.  
-
+Our **esteemed** panel of experts will provide valuable insights and engage in thought-provoking discussions chaired by our Founder Nick James and with panelists Ryan Eggleston, Ben Peeri, Alex De Raadt and Shai Perednik.  
+Our focus is **resolutely** and relentlessly on Ukraine, making sure that it has what it needs to defend itself and to take back territory that Russia **seized**.  
 
 An unhappy life made her **downcast**.  
 
@@ -536,5 +538,7 @@ Discovering information from these sources can be challenging, especially becaus
 That woman has the attention span of a **gnat**.  
 
 ## Interesting  
+
+> **Undeterred** in challenging **spurious** or poorly framed arguments, they can be formidable debaters. It truly **pains** this type to see **falsities** and **fallacies** go unchallenged.  
 
 
