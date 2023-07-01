@@ -1,4 +1,8 @@
 
+Scientists were startled by the sheer desolation of Mars.  
+
+**Requiem** of bank loans.  
+
 > **Undeterred** in challenging **spurious** or poorly framed arguments, they can be formidable debaters. It truly **pains** this type to see **falsities** and **fallacies** go unchallenged.  
 
 > **Namely**, the things that are most disturbing to INTJs, whether to their Fi sense of justice or their Ni sense of truth, are often the same things they are striving to understand and remedy. So it’s not merely rational systems (Te) that motivate INTJs, but also perceived personal and societal injustices (Fi).
