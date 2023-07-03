@@ -374,7 +374,7 @@ Accuse her of being a **fabulist**.
 While I do love Thanksgiving, it feels more and more like an **anachronism**. A brief pause in our escalators ever quickening churn higher. An old holiday we wheel out to say, look, we really are still all about community, family, and **togetherness**. Really about the **transcendent**.  
 
 
-He is **obstinate** and determined and will not give up. -  
+He is **obstinate** and determined and will not give up.   
 **blowfish**  
 Newsom could no longer let his state **play footsie** with those opposing the basic laws of physics.  
 California’s last remaining nuclear power plant was **set to close** in 2025 and under no reasonable scenario was this a responsible course of action but **mustering** the political support to keep it open seemed daunting.  

@@ -65,7 +65,7 @@ INTJs are open-minded yet they appear to be **aloof**.
 **obsequious**  
 
 Given that you'll likely pay a **hefty** markup for car insurance if you let your policy **lapse**, it's essential to avoid having a break in coverage.  
-diamond **encrusted** sofa. -  
+diamond **encrusted** sofa.   
 
 
 ## Week 3  

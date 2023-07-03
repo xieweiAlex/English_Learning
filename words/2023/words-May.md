@@ -11,7 +11,7 @@ It is important to have someone you can **confide in**.
 **scolding**  
 **snooty**  
 **shortfall**  
-He **clutched** the cane in his **clammy** hand. -  
+He **clutched** the cane in his **clammy** hand.   
 
 MLB: our national **pastime**.  
 Digital **forensics**.  
@@ -81,7 +81,7 @@ His **tactless** words had **incurred** his father’s deep **displeasure**.
 **sleazy**  
 **Copernicus**  
 **massacre**  
-I want no part of this **sordid** business. -  
+I want no part of this **sordid** business.   
 I've been **celibate** for the past six months.  
 I was **celibate** for two years.  
 **deluge**  
@@ -135,7 +135,7 @@ The moon **peeped out** from behind the clouds.
 
 This method works especially well in rain forests and **marshy** areas.  
 The house was now a shell **gutted** by flames.  
-They two are **enamored**. -  
+They two are **enamored**.   
 **pudency**  
 
 **wardrobe**  
@@ -146,7 +146,7 @@ Trump has publicly **berated** this guy for **recusing** himself from the Russia
 **turbid**  
 **cranial** cavity  
 
-The @SECGov has filed its response to @coinbase’s complaint over how it applies securities laws to digital assets, asking the Court to deny Coinbase’s petition for **mandamus**. -  
+The @SECGov has filed its response to @coinbase’s complaint over how it applies securities laws to digital assets, asking the Court to deny Coinbase’s petition for **mandamus**.   
 
 > The Stoics say over and over again that there is stuff in our control and stuff outside our control. But this **delineation** is about more than just putting things into categories…or learning how to practice the so-called ‘art of acquiescence.’ It’s also a statement of priorities.  
 

@@ -1,17 +1,64 @@
 
-Scientists were startled by the sheer desolation of Mars.  
+It is best not to use ginger that is moldy or even ginger that is on the turn.  
+
+This process is akin to piecing together a jigsaw puzzle.  
+If manufacturing is **akin to** science, then services are more like the arts.  
+
+
+The company plans to **situate** its manufacturing plant near the port for easier transportation of goods.  
+In a forest, wet wood and needles attenuate the signals.  
+jejune  
+I provide salve to people who need it. I give succor to those in need.  
+**Regal**, strong, **virile**, **aquiline**, that's what I ask for  
+**corroboration**  
+Aspirin  
+Today's events bespeak a bright future.  
+His actions bespeak his generosity.  
+He has bespoken a room in that hotel.  
+
+But it did also help hundreds of millions of people rise out of **abject** poverty in these developing countries.  
+He never allowed his work to impinge on his private life.  
+He was brought up in **penury**, without education.  
+
+Just don’t **go overboard** on fruit juices and dried fruits.  
+
+Consensus code should be **ringfenced** and rarely touched.  
+If every user needed to perform **taint analysis** on all the funds they received, then the utility of the system would drop significantly.  
+This is the fundamental principle of hash cash — force the attacker to pay **dearly** in order to create spam.  
+The problem inherent to many systems operated by humans is that the rules of the system may be applied arbitrarily or may be **subject to change** at someone else’s whim. This results in systems being less reliable.  
+
+Does anyone understand bitcoin? This **multifaceted** technology is different things to different people, and we should accept that, argues Jameson Lopp.  
+I hope it's obvious it was only the centrally controlled nature of those systems that **doomed** them.  
+
+
+Tend to feel **inadequate** and outside my comfort zone.  
+Judger. **Outwardly** firm, direct, and decisive; conveying closure; planful & **conscientious**  
+
+
+**know-it-all**.  
+
+Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers.  
+their existence is more cerebral or **dreamlike**. This can lead them to feel **estranged** from their physical **environs**, not to mention their own bodies.  
+While INTJs may be relatively **unaware** of how others perceive them, their “**other-worldliness**” often earns them labels such as **quirky**, awkward, nerdy, or oblivious.  
+**Onlookers** sense that INTJs seem to “live in their own world.” Immersed in their own minds and interests, INTJs can be **oblivious** to social norms or other practical aspects of life.  
+INTJs are typically decent story-tellers and good for occasional injections of **droll humor** or cultural references.  
+They patiently allow their Ni intuition to collect and **synthesize** all the pertinent information before they draw conclusions.  
+
+Let the bank crisis happen, let uninsured depositors' money **go poof**. But if you gonna bail them out, you've chosen inflation.  
+Do you still **standby** this number?  
+
+Scientists were startled by the sheer **desolation** of Mars.  
 
 **Requiem** of bank loans.  
 
 > **Undeterred** in challenging **spurious** or poorly framed arguments, they can be formidable debaters. It truly **pains** this type to see **falsities** and **fallacies** go unchallenged.  
 
-> **Namely**, the things that are most disturbing to INTJs, whether to their Fi sense of justice or their Ni sense of truth, are often the same things they are striving to understand and remedy. So it’s not merely rational systems (Te) that motivate INTJs, but also perceived personal and societal injustices (Fi).
+> **Namely**, the things that are most disturbing to INTJs, whether to their Fi sense of justice or their Ni sense of truth, are often the same things they are striving to understand and remedy. So it’s not merely rational systems (Te) that motivate INTJs, but also perceived personal and societal injustices (Fi).  
 
-Thus, if someone wants a firm opinion about how to tackle a complex problem, they are more apt to get it from an INTJ.  
+Thus, if someone wants a firm opinion about how to tackle a complex problem, they are more **apt to** get it from an INTJ.  
+It truly **pains** this type to see **falsities** and **fallacies** go unchallenged.  
 
-It truly pains this type to see falsities and fallacies go unchallenged.  
-
-Don’t despair. Look at what’s working, look at what isn’t. Explore why it’s working, figure out how to get more consistent with it.
+Don’t **despair**. Look at what’s working, look at what isn’t. Explore why it’s working, figure out how to get more consistent with it.  
 
 She wore shorts and a **halter** top.  
 My dream is to be a **dubbing**.  
@@ -409,7 +456,7 @@ It is a country where corruption is **rife**. -
 
 
 But human beings are **collectively** intelligent, **adaptable** and resilient, which is core to survival and progress.  
-It was a near **redux** of the Great Financial Crisis. -  
+It was a near **redux** of the Great Financial Crisis.   
 Over the short-term, bitcoin might be disproportionately impacted due to its relative size and its **nascency**, which contribute to volatility (up and down) but every asset traded for dollars is impacted.  
 This chart best explains everything that matters in regard to the dollar and its **machinations**.  
 In an **academic world**, maybe everyone figures it out at the same time and makes a **conscious decision** to **scrap** the old world, adopt the new world, and move on without any consequence to the sins of the past.  
@@ -458,7 +505,7 @@ He had to spend two years **bedridden** with an injury.
 **intricacy**.  
 **monkeyshine**  
 **naivete**  
-**Aspirin** is a mild **analgesic**. -  
+**Aspirin** is a mild **analgesic**.   
 
 **patronage**, **patronizing**  
 Bells were **pealing** and crowds were cheering.  
@@ -498,7 +545,7 @@ His eyes **scintillated** excitation.
 **interdiction**  
 **rigidity**  
 **retain**, **retentive**  
-Get out of bed, you fat **slob**! -  
+Get out of bed, you fat **slob**!   
 The **drunkard** **tottered** along the road. -  
 
 **meek**, **docile**, **submissive**  

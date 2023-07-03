@@ -138,7 +138,7 @@ We lost our way in the **labyrinth** of streets.
 **psychiatry**  
 
 What makes **academic prose** so **turgid**?  
-Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting. -  
+Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting.   
 
 She received **fellowships** from the Wellcome Trust, the Forum of European Philosophy and the British Academy, among others.  
 MBTI 4-letter **Nomenclature**. -w  

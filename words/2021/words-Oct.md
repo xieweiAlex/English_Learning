@@ -270,7 +270,6 @@ I've been moody and tired and **crabby**.
 he had an **impish** look about him.  
 **hamster**  
 **sombrero**  
-He was brought up in **penury**, without education.  
 **squabble**  
 There was a **triumphant** **glitter** in his eyes.  
 A **barge** was close inshore about a hundred yards away.  
