@@ -1,4 +1,16 @@
 
+Don't get too **engrossed** with the future and forget what's around you.  
+Notice how responsive and grippy the skin is. ??  
+
+come to the boil 
+
+They were solicitous and intent, watching her every move. -  
+
+Pureed  
+sierra Nevada  
+Exigency  
+
+
 **tacit message**  
 
 The movement of the train **lulled** me to sleep.  
