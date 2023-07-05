@@ -1,5 +1,6 @@
 ## words-June.md ##  
 words/2023/words-June.md  
+He never allowed his work to **impinge** on his private life. -  
 Seal tightly then leave for four to five days to **macerate**. -  
 Although New York is home to the most **opulent** new-builds, **extravagant** offices are appearing in other global cities, too. -  
 An adult male lion is resting in the grass on the **Kenyan** **savanna**. -  
@@ -16,9 +17,7 @@ First of all, quit **groveling**. Needy guys are such a **turnoff**. -
 She gets various **perquisites** **in addition to** her **wages**. -  
 For example, generous **remuneration** packages are offered in this position. -  
 He was **saucy** and mischievous when he was working. -  
-For my part, I feel **elated** and close to tears. -  
 The **bugle** sounded the **charge**. -  
-for my part, i feel **elated** and close to tears. -  
 They condemned the deal as a **craven** surrender. -  
 I'd like to think I've had a **modicum** of success. -  
 It is a country where corruption is **rife**. -  

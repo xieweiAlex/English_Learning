@@ -1,23 +1,64 @@
 
-It is best not to use ginger that is moldy or even ginger that is on the turn.  
+**tacit message**  
 
-This process is akin to piecing together a jigsaw puzzle.  
+The movement of the train **lulled** me to sleep.  
+The mother was crooning a **lullaby** to her baby.  
+The oil has hardened to **tar**.  
+His audience had listened like children, **spellbound** by his words.  
+The AI trading economy is coming, and all of its value is going to **accrue to** Bitcoin.  
+In a recent post, David Heinemeier Hansson **argues** that **entrenched** **mediocrity** is the reason many companies **perish**.  
+
+> It’s rarely the terrible decisions, processes, or even people that’ll sink your organization. It’s the accumulation and inertia of the mediocre ones.  
+> Mediocrity happens because it’s easier to choose the path of least resistance and because there is little to pay in the moment. The actual cost manifests only in the long run.  
+
+The **insidious** nature of mediocre decisions is why we need to push back against them as much as possible. As David puts it:  
+
+Whether it’s a teammate pointing out you took an implementation shortcut or a friend that doesn’t let you **off the hook** on your commitment to hitting the gym, leaning on your network is guaranteed to help you in your goals.  
+
+**Upmarket** grocery store.  
+**reprobate**: It is generally used to describe someone who is morally corrupt, **unprincipled**, or **beyond redemption**.  
+
+Among the most notable is a far more **expansive** definition of freedom of speech than average citizens enjoy, a valuable allowance given the country’s notoriously strict **libel laws**. Members can say practically anything **within the confines of parliament** without fear of civil or criminal consequences.  
+It is a simple enough task to stand on the floor of parliament, **falsely** accuse your political opponent of having committed a **dastardly act**, and then observe the resulting media **frenzy** **with a knowing smirk**.  
+**Eurosceptic**  
+**Call him what you will**, but with more than half of British voters **siding with him** in that historic **referendum**, he is **anything but** a member of a “fringe minority” with “unacceptable views.”  
+Unsurprisingly, both parties are now **leaning on** bankers to bend to their ideological demands and **angling** to use the same tactics honed since the days of Bharara’s poker maneuvers.  
+**If history is any guide**, the size of the pot is about to get much bigger.”  
+The concept of “innocent until proven guilty” traces back to the signing of the Magna Carta in 1215. Are we truly ready to give up foundational rights so **flippantly**?  
+While some would argue that banks are private enterprises and should be free to do business with whomever they choose, in modern times they have become **thinly-veiled** **arms of the state**.  
+
+> innocent until proven guilty  
+
+“What constitutes a State?”. His answer is not the physical infrastucture like battlements, moats, ports or church spires; but “high-minded men” who know their duties and their rights and are willing to defend them against tyrants. That is a true state according to Jefferson.  
+Very **keen** observation.  
+France’s riots shine a light on policing, and put President Macron **in a vise**  
+
+This is **monstrously** disappointing.  
+**Windshield**  
+I'm not gonna let you **glom onto** my new hit show!  
+The people who **glom onto** you, because of who they think you are, and think they can sleep on your couch and eat your food.  
+**Belligerent**  
+The **payback** period can be as short as seven years.  
+**Pedestal**  
+**Styrofoam**  
+
+It is best not to use ginger that is **moldy** or even ginger that is **on the turn**.  
+This process **is akin to** piecing together a **jigsaw** puzzle.  
 If manufacturing is **akin to** science, then services are more like the arts.  
 
-
 The company plans to **situate** its manufacturing plant near the port for easier transportation of goods.  
-In a forest, wet wood and needles attenuate the signals.  
-jejune  
-I provide salve to people who need it. I give succor to those in need.  
+In a forest, wet wood and needles **attenuate** the signals.  
+**jejune**  
+I provide salve to people who need it. I give **succor** to those in need.  
 **Regal**, strong, **virile**, **aquiline**, that's what I ask for  
 **corroboration**  
-Aspirin  
-Today's events bespeak a bright future.  
-His actions bespeak his generosity.  
-He has bespoken a room in that hotel.  
+**Aspirin**  
+Today's events **bespeak** a bright future.  
+His actions **bespeak** his generosity.  
+He has **bespoken** a room in that hotel.  
 
 But it did also help hundreds of millions of people rise out of **abject** poverty in these developing countries.  
-He never allowed his work to impinge on his private life.  
+He never allowed his work to **impinge** on his private life. -  
 He was brought up in **penury**, without education.  
 
 Just don’t **go overboard** on fruit juices and dried fruits.  
@@ -366,7 +407,7 @@ We lived on the **breadline** to get our son through college.
 **Psycholotic**, **neurotic**  
 They have one thing in common, their feet are all **borked**.  
 
-For my part, I feel **elated** and close to tears. -  
+For my part, I feel **elated** and close to tears.   
 
 ## Week 2  
 
@@ -392,7 +433,6 @@ they have one thing in common, their feet are all **borked**.
 
 **indignant**  
 **libel**  
-for my part, i feel **elated** and close to tears. -  
 
 **nondescript**  
 **germinate**  
@@ -456,7 +496,7 @@ It is a country where corruption is **rife**. -
 
 
 But human beings are **collectively** intelligent, **adaptable** and resilient, which is core to survival and progress.  
-It was a near **redux** of the Great Financial Crisis.   
+It was a near **redux** of the Great Financial Crisis.  
 Over the short-term, bitcoin might be disproportionately impacted due to its relative size and its **nascency**, which contribute to volatility (up and down) but every asset traded for dollars is impacted.  
 This chart best explains everything that matters in regard to the dollar and its **machinations**.  
 In an **academic world**, maybe everyone figures it out at the same time and makes a **conscious decision** to **scrap** the old world, adopt the new world, and move on without any consequence to the sins of the past.  
@@ -505,7 +545,7 @@ He had to spend two years **bedridden** with an injury.
 **intricacy**.  
 **monkeyshine**  
 **naivete**  
-**Aspirin** is a mild **analgesic**.   
+**Aspirin** is a mild **analgesic**.  
 
 **patronage**, **patronizing**  
 Bells were **pealing** and crowds were cheering.  
@@ -545,7 +585,7 @@ His eyes **scintillated** excitation.
 **interdiction**  
 **rigidity**  
 **retain**, **retentive**  
-Get out of bed, you fat **slob**!   
+Get out of bed, you fat **slob**!  
 The **drunkard** **tottered** along the road. -  
 
 **meek**, **docile**, **submissive**  
