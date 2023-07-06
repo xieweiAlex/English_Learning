@@ -1,4 +1,17 @@
 
+tax-sheltered investment accounts.  
+
+
+Fancy-free.  
+A teacher saw her gumption and mentored her.  
+The number of deaths makes the story newsworthy.  
+
+
+Categorical surrender.  
+Dandruff  
+
+
+
 Don't get too **engrossed** with the future and forget what's around you.  
 Notice how responsive and grippy the skin is. ??  
 
