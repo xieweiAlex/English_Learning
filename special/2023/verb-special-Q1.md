@@ -1,4 +1,7 @@
 
+shred, slice, chop, dice, mash, grate, mince 
+cut, crush, grind
+
 **synthesize**
 
 ## June 

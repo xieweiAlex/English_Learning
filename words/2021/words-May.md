@@ -155,7 +155,6 @@ He was **incorporated** a member of the college.
 
 **datable**  
 His vulnerability makes him even more **lovable**  
-He could not **efface** the impression from his mind.  
 People are **awed** by its water color and clarity.  
 It was **reassuring** to hear John's familiar voice.  
 she got her first **bionic** arm.  

@@ -1,27 +1,59 @@
 
-tax-sheltered investment accounts.  
+She's proud and stubborn, you know, under that pliant exterior.
+goop  
+He was a rascal from his birth.  
+ramble  
+A brook meanders through the meadow.  
+He could not **efface** the impression from his mind.  
+He was in a complete tizzy, muttering and swearing.  
+The boss is a wily old fox.  
+grove  
 
 
-Fancy-free.  
-A teacher saw her gumption and mentored her.  
-The number of deaths makes the story newsworthy.  
+Chickenshit 
+Chicken run  
+chickenpox  
+chicken feed / chump change
+chicken out  
+
+fifty-fifty  
+drip-drip  
+dum-dum  
+super-duper  
+win-win  
+bla-bla  
+tip-top 
+yum-yum  
+**chop-chop**  
 
 
-Categorical surrender.  
-Dandruff  
+The heat **doesn't bother me**.  
+I don't **feel the heat**.  
+I can **handle the heat**.  
 
 
+**altar**  
+**equality** vs **equity**  
+
+**Tail risk**.  
+**tax-sheltered** investment accounts.  
+
+
+**Fancy-free**.  
+A teacher saw her **gumption** and mentored her.  
+The number of deaths makes the story **newsworthy**.  
+
+Japan's **categorical** surrender.  
+**Dandruff**  
+Every winter he has a problem with **dandruff** in his hair.  
 
 Don't get too **engrossed** with the future and forget what's around you.  
-Notice how responsive and grippy the skin is. ??  
+Notice how responsive and **grippy** the skin is. ??  
+They were **solicitous** and intent, watching her every move.  -  
 
-come to the boil 
-
-They were solicitous and intent, watching her every move. -  
-
-Pureed  
-sierra Nevada  
-Exigency  
+**Pureed**  
+**sierra Nevada**  
+**Exigency**  
 
 
 **tacit message**  
