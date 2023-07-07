@@ -1,33 +1,44 @@
 
-She's proud and stubborn, you know, under that pliant exterior.
-goop  
-He was a rascal from his birth.  
-ramble  
-A brook meanders through the meadow.  
+
+In Chinese history, rulers were expected to be **erudite**.  
+Two volumes have been published providing explanations of Mr Xi’s classical aphorisms.  
+
+
+
+**seabed**.  
+To understand Xi Jinping, it helps to be steeped in the classics.  
+
+
+
+She's proud and stubborn, you know, under that **pliant** exterior.
+**goop**  
+He was a **rascal** from his birth. -  
+**ramble**  
+A **brook** **meanders** through the meadow.  
+
 He could not **efface** the impression from his mind.  
-He was in a complete tizzy, muttering and swearing.  
-The boss is a wily old fox.  
-grove  
+He was in a complete **tizzy**, muttering and swearing.  
+The boss is a **wily** old fox. -  
+**grove  
 
+**Chickenshit** 
+**Chicken run**  
+**chickenpox**  
+**chicken feed** / **chump change**
+**chicken out**  
 
-Chickenshit 
-Chicken run  
-chickenpox  
-chicken feed / chump change
-chicken out  
-
-fifty-fifty  
-drip-drip  
-dum-dum  
-super-duper  
-win-win  
-bla-bla  
-tip-top 
-yum-yum  
+**fifty-fifty**  
+**drip-drip**  
+**dum-dum**  
+**super-duper**  
+**win-win**  
+**bla-bla**  
+**tip-top** 
+**yum-yum**  
 **chop-chop**  
 
 
-The heat **doesn't bother me**.  
+The** heat **doesn't bother me**.  
 I don't **feel the heat**.  
 I can **handle the heat**.  
 
