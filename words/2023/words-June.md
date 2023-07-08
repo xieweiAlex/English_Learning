@@ -1,13 +1,33 @@
 
+Amputate  
+Anglican church 
+fish scale  
+His resignation is a political bombshell.  
+
+
+
+The lamb gave a **faint** **bleat**.  
+Her kindness quite **abashed** me.  
+seedy ??? 
+
+
+**Allegedly** vs **purportedly**  
+**Book a room**, **book a table** 
+**simp**, **pick-me girl**, **dead meat**, **quiet quitting**  
+
+I spoke from the **pulpit** **ad lib**.  
+The wheels sank deeper into the **mire**. -  
+
+**detox**, **detoxify** 
+His **proclivity** for alcohol was almost as well-known as his **poetry**. -  
+
+The timing of the launch is **fortuitous** for Meta, as recent technical changes at Twitter have frustrated some longtime users of the platform.  
 
 In Chinese history, rulers were expected to be **erudite**.  
-Two volumes have been published providing explanations of Mr Xi’s classical aphorisms.  
-
-
+Two volumes have been published providing explanations of Mr Xi’s classical **aphorisms**. -  
 
 **seabed**.  
-To understand Xi Jinping, it helps to be steeped in the classics.  
-
+To understand Xi Jinping, it helps to be **steeped** in the **classics**.  
 
 
 She's proud and stubborn, you know, under that **pliant** exterior.
@@ -546,7 +566,6 @@ I'd like to think I've had a **modicum** of success. -
 There is always a price to pay for the sexual **dalliance**.  
 
 **Barrack**  
-The lamb gave a **faint** **bleat**.  
 **erasure**  
 **tip-off**  
 
