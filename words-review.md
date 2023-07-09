@@ -1,25 +1,27 @@
 ## words-June.md ##  
 words/2023/words-June.md  
+The monks lived a very **ascetic** life. -  
+I knew his help wouldn't be given **gratis**. -  
+They were **indignant** that they hadn't been invited. -  
+The wheels sank deeper into the **mire**. -  
+His **proclivity** for alcohol was almost as well-known as his **poetry**. -  
+Two volumes have been published providing explanations of Mr Xi’s classical **aphorisms**. -  
+He was a **rascal** from his birth. -  
+The boss is a **wily** old fox. -  
+They were **solicitous** and **intent**, watching her every move.  -  
 He never allowed his work to **impinge** on his private life. -  
 Seal tightly then leave for four to five days to **macerate**. -  
 Although New York is home to the most **opulent** new-builds, **extravagant** offices are appearing in other global cities, too. -  
-An adult male lion is resting in the grass on the **Kenyan** **savanna**. -  
-I want nothing but **raiment** and daily bread. -  
-**Biryani** is one of the most popular dishes in South Asia, as well as among the **diaspora** from the region. -  
-**alacrity**: liveliness and eagerness. -  
 The grant helped **defray** the expenses of the trip. -  
 Though the bridge is a bit **rickety**, there is no immediate danger in walking over it. -  
 A **termagant** wife may, in some respects, be considered a tolerable blessing. -  
 The whole **rigmarole** of getting a visa didn't even exist until recent decades. -  
 Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about. -  
-Our travel was **beguiled** with pleasant talk. -  
 First of all, quit **groveling**. Needy guys are such a **turnoff**. -  
 She gets various **perquisites** **in addition to** her **wages**. -  
 For example, generous **remuneration** packages are offered in this position. -  
-He was **saucy** and mischievous when he was working. -  
 The **bugle** sounded the **charge**. -  
 They condemned the deal as a **craven** surrender. -  
-I'd like to think I've had a **modicum** of success. -  
 It is a country where corruption is **rife**. -  
 The **drunkard** **tottered** along the road. -  
 The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  

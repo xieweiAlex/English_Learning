@@ -1,4 +1,14 @@
 
+**saucy**
+
+**credence**
+
+**nosy**
+
+**innocuous**
+
+**gumption**
+
 **brunt**
 
 **Arguably**, **allegedly**

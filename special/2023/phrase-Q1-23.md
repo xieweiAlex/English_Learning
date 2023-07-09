@@ -1,9 +1,13 @@
 
-There are people who like Ross who need to shoot for the stars.  
+
+There are people who like Ross who needs to **shoot for the stars**.  
 
 
 **come to the boil** 
 
+The** heat **doesn't bother me**.  
+I don't **feel the heat**.  
+I can **handle the heat**.  
 
 ## Q1 
 

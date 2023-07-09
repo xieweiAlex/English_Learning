@@ -1,24 +1,46 @@
 
-Amputate  
-Anglican church 
-fish scale  
-His resignation is a political bombshell.  
+The talks were dependent on a **renunciation** of terrorism.  
+**Gandhi** exemplified the virtues of **renunciation**, **asceticism**, and **restraint**.  
+The monks lived a very **ascetic** life. -  
+**ascetic** vs **monastic**  
 
+I bought this package **off the shelf**.  
+**Thermal**  
+I knew his help wouldn't be given **gratis**. -  
+**Cojones**  
+They were **indignant** that they hadn't been invited. -  
 
+We need to concentrate resources on the most **run-down** areas.  
+**net out**  
+
+**no kidding**.  
+She **oozes** substgance.  
+It's just horse **manure**.  
+
+I like to **deprive** myself from things, it's very monastic.  
+
+It's on your **turf**.  
+
+Are you surfing on a **surfeit** of useful information? Or **drowning** in a tsunami of chaos?  
+
+**Amputate**  
+**Anglican** church  
+**fish scale**  
+His resignation is a political **bombshell**.  
 
 The lamb gave a **faint** **bleat**.  
 Her kindness quite **abashed** me.  
-seedy ??? 
+**seedy**, shady, sketchy  
 
 
 **Allegedly** vs **purportedly**  
-**Book a room**, **book a table** 
+**Book a room**, **book a table**  
 **simp**, **pick-me girl**, **dead meat**, **quiet quitting**  
 
 I spoke from the **pulpit** **ad lib**.  
 The wheels sank deeper into the **mire**. -  
 
-**detox**, **detoxify** 
+**detox**, **detoxify**  
 His **proclivity** for alcohol was almost as well-known as his **poetry**. -  
 
 The timing of the launch is **fortuitous** for Meta, as recent technical changes at Twitter have frustrated some longtime users of the platform.  
@@ -30,7 +52,7 @@ Two volumes have been published providing explanations of Mr Xi’s classical **
 To understand Xi Jinping, it helps to be **steeped** in the **classics**.  
 
 
-She's proud and stubborn, you know, under that **pliant** exterior.
+She's proud and stubborn, you know, under that **pliant** exterior.  
 **goop**  
 He was a **rascal** from his birth. -  
 **ramble**  
@@ -39,12 +61,12 @@ A **brook** **meanders** through the meadow.
 He could not **efface** the impression from his mind.  
 He was in a complete **tizzy**, muttering and swearing.  
 The boss is a **wily** old fox. -  
-**grove  
+**grove**  
 
-**Chickenshit** 
+**Chickenshit**  
 **Chicken run**  
 **chickenpox**  
-**chicken feed** / **chump change**
+**chicken feed** / **chump change**  
 **chicken out**  
 
 **fifty-fifty**  
@@ -53,7 +75,7 @@ The boss is a **wily** old fox. -
 **super-duper**  
 **win-win**  
 **bla-bla**  
-**tip-top** 
+**tip-top**  
 **yum-yum**  
 **chop-chop**  
 
@@ -66,9 +88,9 @@ I can **handle the heat**.
 **altar**  
 **equality** vs **equity**  
 
-**Tail risk**.  
 **tax-sheltered** investment accounts.  
 
+## Week 1  
 
 **Fancy-free**.  
 A teacher saw her **gumption** and mentored her.  
@@ -80,7 +102,7 @@ Every winter he has a problem with **dandruff** in his hair.
 
 Don't get too **engrossed** with the future and forget what's around you.  
 Notice how responsive and **grippy** the skin is. ??  
-They were **solicitous** and intent, watching her every move.  -  
+They were **solicitous** and **intent**, watching her every move.  -  
 
 **Pureed**  
 **sierra Nevada**  
@@ -203,17 +225,15 @@ Tiredness and despair were **etched** into his face.
 
 Experts are trying to figure out why the coronavirus is so **capricious**  
 
-
-
-An adult male lion is resting in the grass on the **Kenyan** **savanna**. -  
+An adult male lion is resting in the grass on the **Kenyan** **savanna**.   
 The service at the hotel is efficient and **unobtrusive**.  
 He looked **sly** and **furtive**.  
-I want nothing but **raiment** and daily bread. -  
+I want nothing but **raiment** and daily bread.   
 Always put the **oar** atop the **canoe**.  
 He **ensconced** himself in the armchair.  
 
 
-**Biryani** is one of the most popular dishes in South Asia, as well as among the **diaspora** from the region. -  
+**Biryani** is one of the most popular dishes in South Asia, as well as among the **diaspora** from the region.   
 
 **Under the supervision**.  
 Amidst the every day **bustle** of house chores and **errands**, they flowed with an impressive coordination and efficiency.  
@@ -226,7 +246,7 @@ Japanese **sumo**
 **pulse**, **pulsation**  
 
 **lovelace**  
-**alacrity**: liveliness and eagerness. -  
+**alacrity**: liveliness and eagerness.   
 
 **Expunge**  
 **Vassal** lord/state  
@@ -383,7 +403,7 @@ From **plus point of view**, they did keep the virus out of population for almos
 He wrote a post that very **cogently** explained how Bitcoin solves that problem.  
 **numeracy**  
 **par for the course**.  
-Our travel was **beguiled** with pleasant talk. -  
+Our travel was **beguiled** with pleasant talk.   
 We **beguiled** the children with fairy tales.  
 **zealot**, **zealous**, **zealously**  
 I am inclined to **scrupulosity** in disclosing relationships when writing about firms.  
@@ -468,7 +488,7 @@ She is a **conspicuous** figure.
 **Koran**, **Qoran**  
 **tubal ligation**  
 
-He was **saucy** and mischievous when he was working. -  
+He was **saucy** and mischievous when he was working.   
 **leaven**, unleavened.  
 
 **pandemonium**  
@@ -495,7 +515,7 @@ We lived on the **breadline** to get our son through college.
 **Psycholotic**, **neurotic**  
 They have one thing in common, their feet are all **borked**.  
 
-For my part, I feel **elated** and close to tears.   
+For my part, I feel **elated** and close to tears.  
 
 ## Week 2  
 
@@ -562,7 +582,7 @@ The gates were made of **wrought** iron.
 They managed to **grapple** him to the ground.  
 I wasn't the only person **grappling** with these issues.  
 
-I'd like to think I've had a **modicum** of success. -  
+I'd like to think I've had a **modicum** of success.   
 There is always a price to pay for the sexual **dalliance**.  
 
 **Barrack**  
