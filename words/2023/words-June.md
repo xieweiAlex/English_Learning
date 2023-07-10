@@ -1,4 +1,24 @@
 
+The challenge has been navigating the specific path as we go through the various **twists and turns** of such an unusual macroeconomic environment.  
+It risks being **akin to** trying to put out a kitchen grease fire with water, which makes intuitive sense but doesn't work as expected..  
+
+This is how you **wind up** in jail.  
+
+**fly in the ointment**.  
+
+**bring to heel**  
+The **clasp** on his belt had broken. -  
+
+The president's hopes for the country were **high-minded**, but too vague.  
+**high horse**  
+**gazelle**  
+**supercilious**  
+
+
+Dee talked **incessantly** about herself.  
+**Bronchus**, **bronchitis**  
+Some people believe that sex education leads to **promiscuity** in young people.  
+
 The talks were dependent on a **renunciation** of terrorism.  
 **Gandhi** exemplified the virtues of **renunciation**, **asceticism**, and **restraint**.  
 The monks lived a very **ascetic** life. -  
