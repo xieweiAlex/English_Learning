@@ -1,4 +1,8 @@
 
+**settler**
+
+This very **rigmarole** of life used to keep me awake at night. Quite literally.  
+
 The challenge has been navigating the specific path as we go through the various **twists and turns** of such an unusual macroeconomic environment.  
 It risks being **akin to** trying to put out a kitchen grease fire with water, which makes intuitive sense but doesn't work as expected..  
 

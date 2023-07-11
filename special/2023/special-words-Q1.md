@@ -58,8 +58,6 @@
 
 **Disparity**  
 
-**arguably**
-
 ## May 
 
 **abnormalcy** 
