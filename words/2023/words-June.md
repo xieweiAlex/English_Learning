@@ -1,4 +1,26 @@
 
+I’m sure there’s a novelty aspect to why I’m enjoying this, but even so, it really does feel like a sustainable habit, especially since it’s only 15 minutes every day.   
+
+He is stocky though not chubby.  
+Their claims will be fervently denied.  
+Zero in  
+You'll have to abide by the rules of the club.  
+Incogitant  
+
+
+
+Guild ?? 
+cortisol, adrenaline  
+
+shudder, dodder  
+Temptress   
+
+A healthy, delectable vegan lunch.  
+
+portion them out.   
+
+paleo-keto diet.  
+
 **settler**
 
 This very **rigmarole** of life used to keep me awake at night. Quite literally.  
