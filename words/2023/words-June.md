@@ -1,8 +1,12 @@
 
+They completely gloss over the fact that bitcoin was created in response to the inability of central banks to be trusted with the stewardship of monetary systems.  
+
+
+They completely miss that crypto doesn't work because of the fact that it is a cottage industry of affinity scams trying to replicate bitcoin's success.  
+
 unswerving  
 swerving  
-
-
+Heatstroke.  
 
 I’m sure there’s a novelty aspect to why I’m enjoying this, but even so, it really does feel like a sustainable habit, especially since it’s only 15 minutes every day.   
 
