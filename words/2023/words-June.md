@@ -1,4 +1,9 @@
 
+unswerving  
+swerving  
+
+
+
 I’m sure there’s a novelty aspect to why I’m enjoying this, but even so, it really does feel like a sustainable habit, especially since it’s only 15 minutes every day.   
 
 He is stocky though not chubby.  
