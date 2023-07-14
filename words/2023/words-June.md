@@ -1,4 +1,9 @@
 
+surrogate mother  
+foible  
+
+
+
 They completely gloss over the fact that bitcoin was created in response to the inability of central banks to be trusted with the stewardship of monetary systems.  
 
 
