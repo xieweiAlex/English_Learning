@@ -48,7 +48,6 @@ Plus, they’re often competitively priced — some CSAs start at around $10 per
 This was abosolutely **crucible** of China's economic boom.  
 
 It’s going to take a while to **sort out**.  
-His already **infirm** body was **racked** by high fever.  
 **Copernicus**, the Earth revolves around the sun.  
 It was a **knotty** question.  
 

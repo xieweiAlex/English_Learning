@@ -2,47 +2,120 @@
 hash out.  
 He's come around now, in a big way.  
 
-American trustbusters are losing their focus
-India monsoon rainfall, mm.  
+On the other hand, every smart person who does their diligence becomes **enraptured** by Bitcoin.  
+The system will fight against Bitcoin, but the system relies on its **vassals** **siding** with it.  
+If my sense is right, Paul Tudor Jones, Bill Miller, and Stan Druckenmiller were just the **overture**.  
+This system would **ostensibly** rely on China to custody the gold and deliver trustworthy, reliable reporting.  (Not exactly their proven **forté**.)  
 
 
-surrogate mother  
-foible  
+> Yet anyone who thinks for more than a few seconds about this can see just how vulnerable it would leave us, as well as how much corruption such "efficiency" would wind up enabling.  
+
+The casual ease by which we made this transaction enabled by these tools had us both pause **in awe of** just how powerful they could be for the privacy and security of all communication.  
+The **base plumbing** of the internet itself may very well be **on the verge of** the greatest shift it has ever gone through.  
+
+But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities. -  
+
+The inevitable abuse of this immense social power for political gain is so **blatantly** obvious in retrospect that it's almost **comical**.  
 
 
+## Week 2  
 
-They completely gloss over the fact that bitcoin was created in response to the inability of central banks to be trusted with the stewardship of monetary systems.  
-
-
-They completely miss that crypto doesn't work because of the fact that it is a cottage industry of affinity scams trying to replicate bitcoin's success.  
-
-unswerving  
-swerving  
-Heatstroke.  
-
-I’m sure there’s a novelty aspect to why I’m enjoying this, but even so, it really does feel like a sustainable habit, especially since it’s only 15 minutes every day.   
-
-He is stocky though not chubby.  
-Their claims will be fervently denied.  
-Zero in  
-You'll have to abide by the rules of the club.  
-Incogitant  
+A **Machiavellian** plot was suspected.  
+Fortunately, the explosion was aimed  **Skyward**.  
+I had just enough to buy a **futon**.  
 
 
+Just a **guesstimate**.  
 
-Guild ?? 
-cortisol, adrenaline  
+The sturdy and luxurious pen makes my ideas flow, no longer **impeded** by a cheap product.  
+The frustration of having a cheap pen that feels **flimsy** and doesn’t write well is not worth saving the few extra bucks.  
 
-shudder, dodder  
-Temptress   
 
-A healthy, delectable vegan lunch.  
+He nodded to **signify** that he agreed.  
+**hygienist**  
+She's a very **snooty** cat.  
+**Transverse**  
+She was **trussed up** with yellow **nylon** rope.  
 
-portion them out.   
 
-paleo-keto diet.  
+What are the **purported** benefits?  
 
-**settler**
+**Brining** kimchi cabbage uses the **osmotic** action of salt to **dehydrate** the cabbage and season it at an appropriate salinity.  
+
+
+**white picket fence**, **muscle cars**  
+**fossil fuels**  
+
+Oh, well, that's **laying it on a little thick**.  
+
+**ponytail**, **pigtail**.  
+**Scepter**  
+His already **infirm** body was **racked** by high fever.  
+We called that **craze** "**tulip mania**".  
+Their **stage act** is a little too **raunchy** for television.  
+We help small companies to **get off the ground**.  
+**lactic** acid fermentation.  
+
+He only has a **smattering** of French.  
+
+
+This does **beg the question**.  
+I don't think it's gonna be **materially** impactful for the whole crypto industry.  
+
+
+Because you were too busy **ogling** me to listen a word what I've said.  
+
+
+An aggressive, surfboard-stealing sea otter in California this week **eluded** wildlife officials who tried to catch it.  
+There will be a **culling** of the Unicorn herd, with some of these companies shutting down, others raising capital or exiting at valuations below $1 billion.  
+Back in 2009, Tumblr was so **ascendant**. -  
+
+
+**Pergola** **trellis**.  
+Mr. Jones was **dismissive** of the report, saying it was **riddled** with inaccuracies.  
+The book will **whet** your appetite for more of her work.  
+
+> Stones whet a sword, difficulties strengthen willpower.  
+
+**synthetic** rubber / fiber / diamond  
+**statedinner**  
+You could take this as a license to **fidget**.  
+
+American **trustbusters** are losing their focus  
+India **monsoon** rainfall, mm.  
+
+**surrogate** mother  
+**foible**  
+
+They completely **gloss over** the fact that bitcoin was created in response to the inability of central banks to be trusted with the stewardship of monetary systems.  
+
+They completely miss that crypto doesn't work because of the fact that it is a **cottage industry** of affinity scams trying to replicate bitcoin's success.  
+
+**unswerving**  
+**swerving**  
+**Heatstroke**.  
+
+I’m sure there’s a **novelty** aspect to why I’m enjoying this, but even so, it really does feel like a sustainable habit, especially since it’s only 15 minutes every day.  
+
+He is **stocky** though not chubby.  
+Their claims will be **fervently** denied.  
+**Zero in**  
+You'll have to **abide by** the rules of the club.  
+**Incogitant**  
+
+Guild ??  
+**cortisol**, **adrenaline**  
+
+**shudder**, **dodder**  
+**Temptress**  
+
+A healthy, **delectable** vegan lunch. -  
+
+**portion** them out.  
+
+**paleo-keto** diet.  
+
+**settler**  
 
 This very **rigmarole** of life used to keep me awake at night. Quite literally.  
 
@@ -292,15 +365,15 @@ Tiredness and despair were **etched** into his face.
 
 Experts are trying to figure out why the coronavirus is so **capricious**  
 
-An adult male lion is resting in the grass on the **Kenyan** **savanna**.   
+An adult male lion is resting in the grass on the **Kenyan** **savanna**.  
 The service at the hotel is efficient and **unobtrusive**.  
 He looked **sly** and **furtive**.  
-I want nothing but **raiment** and daily bread.   
+I want nothing but **raiment** and daily bread.  
 Always put the **oar** atop the **canoe**.  
 He **ensconced** himself in the armchair.  
 
 
-**Biryani** is one of the most popular dishes in South Asia, as well as among the **diaspora** from the region.   
+**Biryani** is one of the most popular dishes in South Asia, as well as among the **diaspora** from the region.  
 
 **Under the supervision**.  
 Amidst the every day **bustle** of house chores and **errands**, they flowed with an impressive coordination and efficiency.  
@@ -313,7 +386,7 @@ Japanese **sumo**
 **pulse**, **pulsation**  
 
 **lovelace**  
-**alacrity**: liveliness and eagerness.   
+**alacrity**: liveliness and eagerness.  
 
 **Expunge**  
 **Vassal** lord/state  
@@ -470,7 +543,7 @@ From **plus point of view**, they did keep the virus out of population for almos
 He wrote a post that very **cogently** explained how Bitcoin solves that problem.  
 **numeracy**  
 **par for the course**.  
-Our travel was **beguiled** with pleasant talk.   
+Our travel was **beguiled** with pleasant talk.  
 We **beguiled** the children with fairy tales.  
 **zealot**, **zealous**, **zealously**  
 I am inclined to **scrupulosity** in disclosing relationships when writing about firms.  
@@ -555,7 +628,7 @@ She is a **conspicuous** figure.
 **Koran**, **Qoran**  
 **tubal ligation**  
 
-He was **saucy** and mischievous when he was working.   
+He was **saucy** and mischievous when he was working.  
 **leaven**, unleavened.  
 
 **pandemonium**  
@@ -649,7 +722,7 @@ The gates were made of **wrought** iron.
 They managed to **grapple** him to the ground.  
 I wasn't the only person **grappling** with these issues.  
 
-I'd like to think I've had a **modicum** of success.   
+I'd like to think I've had a **modicum** of success.  
 There is always a price to pay for the sexual **dalliance**.  
 
 **Barrack**  
