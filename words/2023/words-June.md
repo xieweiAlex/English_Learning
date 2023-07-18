@@ -1,4 +1,20 @@
 
+especially educated pampered middle-class xx people.  
+
+
+Off the charts.  
+A fork on the road.  
+
+
+
+IF YOU want to ignite debate at a family dinner, lob this to the group: Is it ever OK for men to wear shorts to the office? More kindling: What about sandals?  
+The baby boomers considered shorts and sandals verboten for work. But millennials, the most chill generation overall, greenlit these and other beachy items.  
+
+
+No one’s life turned out exactly as anticipated, not even for the most ardent planner.  
+Whenever she was fussy or temperamental, I’d give her my phone and I knew instantly that that would calm her down.  
+
+
 The study appeared in the Lancet.  
 
 
