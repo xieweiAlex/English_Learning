@@ -1,9 +1,10 @@
-## words-June.md ##  
-words/2023/words-June.md  
+## words-July.md ##  
+words/2023/words-July.md  
+Fewer workers are needed to **solder** circuit boards. -  
 But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities. -  
 Back in 2009, Tumblr was so **ascendant**. -  
 A healthy, **delectable** vegan lunch. -  
-The **clasp** on his belt had broken.   
+The **clasp** on his belt had broken. -  
 The monks lived a very **ascetic** life. -  
 I knew his help wouldn't be given **gratis**. -  
 They were **indignant** that they hadn't been invited. -  
@@ -17,6 +18,9 @@ He never allowed his work to **impinge** on his private life. -
 Seal tightly then leave for four to five days to **macerate**. -  
 Although New York is home to the most **opulent** new-builds, **extravagant** offices are appearing in other global cities, too. -  
 The grant helped **defray** the expenses of the trip. -  
+
+## words-June.md ##  
+words/2023/words-June.md  
 Though the bridge is a bit **rickety**, there is no immediate danger in walking over it. -  
 A **termagant** wife may, in some respects, be considered a tolerable blessing. -  
 The whole **rigmarole** of getting a visa didn't even exist until recent decades. -  
