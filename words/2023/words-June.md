@@ -1,4 +1,7 @@
 
+The study appeared in the Lancet.  
+
+
 hash out.  
 He's come around now, in a big way.  
 
