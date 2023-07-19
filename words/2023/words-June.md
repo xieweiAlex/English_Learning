@@ -8,7 +8,7 @@ Banks make hedge funds look **pedestrian** when it comes to leverage,” says Ju
 This will be a slow and **cancerous** burn for the underlying economy because we have to have credit to see growth.  
 Furthermore, the proposal gives BlackRock considerable **latitude** in case of a Bitcoin fork, allowing them to determine which Bitcoin version to back.  
 
-Though the bridge is a bit **rickety**, there is no immediate danger in walking over it. -  
+Though the bridge is a bit **rickety**, there is no immediate danger in walking over it.   
 
 **oomph**  
 
@@ -47,7 +47,7 @@ Yet throughout it, he was **implacable**–when they tried to shout him down, wh
 
 
 SigNoz uses a **columnar** database ClickHouse to store logs, which is very efficient at ingesting and storing logs data.  
-The whole **rigmarole** of getting a visa didn't even exist until recent decades. -  
+The whole **rigmarole** of getting a visa didn't even exist until recent decades.   
 
 It was **wanton**, **moronic** vandalism.  
 **triage**  
@@ -317,7 +317,7 @@ There is always a price to pay for the sexual **dalliance**.
 
 Weight has caused the **sag**.  
 **penniless**  
-It is a country where corruption is **rife**. -  
+It is a country where corruption is **rife**.   
 **sinuses**  
 **savagery**  
 **Cuz** Texas is to valuable to the Union. So this is a way to “exit” without technically **seceding**.  
@@ -423,7 +423,7 @@ The **drunkard** **tottered** along the road. -
 **Pumice** my toenail.  
 
 Are You Breathing? Do You Have **Email Apnea**?  
-The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day. -  
+The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day.   
 "[R]estaurants are trying to coax people to eat out, and the seduction of a dining room is part of the get — dusky candlelight and uninterrupted, eye-to-eye conversation. A QR code can kill the mood: phones up, blue lights on, conviviality off."  
 
 

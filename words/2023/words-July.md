@@ -1,13 +1,38 @@
 
-ailment   
+**foot the bill**  
 
+He was found guilty of committing a **pecuniary** crime, involving embezzlement of funds.  
+
+Is that **disproportionate** relative to other pods?  
+After a decade of **reticence**, Beijing is once again talking about **Okinawa**.  
+
+Didn't plan on staying up late to write a 2,000 word **synopsis** of a BIS paper, but here we are.  
+
+I found these two paragraphs particularly **telling**. If you **squint hard enough** and hold your breath you can hear the BIS make a soft **admission** that the **incumbent system** is doomed to fail and they need a complete **overhaul** the maintain control.  
+
+Their massive **overhead costs** make micropayments impossible.  
+Technology also makes us more efficient at finding and **extracting oil** over time, **up to a certain point**.  
+while the averages have been pulled down by certain deflationary categories such as electronics and **textiles** where massive productivity gains were made.  
+The problem, of course, is that central banks can only affect a **subset** of the causes of inflation.  
+> In the current financial system, the majority of broad money creation happens due to a combination of fiscal deficits and bank lending  
+
+Depending on how **certain factors** play out, it can result in some **unintuitive** outcomes.  
+
+**scatterplot**.  
+likely **due to** not looking back far enough in the data and therefore using the word “never” a bit too **loosely**.  
+It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding. -  
+
+Those people have a greater **propensity** to spend any stimulus they receive, because **their income and expenses are roughly the same** and thus their income is the strict limiter on their spending capacity.  
+
+
+**ailment**  
 
 Fewer workers are needed to **solder** circuit boards. -  
 **battalion**  
 We sincerely ask that each of you join us in **standing toe to toe** against the enemy.  
 **seismic** / mineral / gravity **prospecting**  
 
-His dissolute life is inconsistent with his Puritan upbringing.  
+His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
 **disseminate**, dissemination  
 
 
@@ -153,7 +178,7 @@ This is how you **wind up** in jail.
 **fly in the ointment**.  
 
 **bring to heel**  
-The **clasp** on his belt had broken. -  
+The **clasp** on his belt had broken.   
 
 The president's hopes for the country were **high-minded**, but too vague.  
 **high horse**  
@@ -226,7 +251,7 @@ A **brook** **meanders** through the meadow.
 
 He could not **efface** the impression from his mind.  
 He was in a complete **tizzy**, muttering and swearing.  
-The boss is a **wily** old fox. -  
+The boss is a **wily** old fox.   
 **grove**  
 
 **Chickenshit**  
@@ -334,7 +359,7 @@ His actions **bespeak** his generosity.
 He has **bespoken** a room in that hotel.  
 
 But it did also help hundreds of millions of people rise out of **abject** poverty in these developing countries.  
-He never allowed his work to **impinge** on his private life. -  
+He never allowed his work to **impinge** on his private life.   
 He was brought up in **penury**, without education.  
 
 Just don’t **go overboard** on fruit juices and dried fruits.  
@@ -383,7 +408,7 @@ My dream is to be a **dubbing**.
 **machete**.  
 Seal tightly then leave for four to five days to **macerate**. -  
 **witticism**  
-Although New York is home to the most **opulent** new-builds, **extravagant** offices are appearing in other global cities, too. -  
+Although New York is home to the most **opulent** new-builds, **extravagant** offices are appearing in other global cities, too.   
 **tilde**  
 **shopfront**  
 I realized I had to **surmount** the language barrier.  

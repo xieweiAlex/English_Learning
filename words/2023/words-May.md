@@ -173,7 +173,7 @@ He behaved aggressively out of **bravado**.
 
 You can **mesmerize** anyone you meet with your cultured attitude and outlook.  
 
-She denies obtaining a **pecuniary** advantage by deception. -  
+She denies obtaining a **pecuniary** advantage by deception.   
 
 The declining dollar **gave heart to** **skittish** investors.  
 Depositors are **skittish** and Banks are having to offer them higher rates.  
