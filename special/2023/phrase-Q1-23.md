@@ -1,5 +1,9 @@
 
-For some, it may seem silly, a tempest in a teapot.  
+Here's where we come **full circle**.  
+
+
+
+For some, it may seem silly, **a tempest in a teapot**.  
 The business community wants, of course, to stay on the **gravy train**.  
 
 There are people who like Ross who needs to **shoot for the stars**.  
