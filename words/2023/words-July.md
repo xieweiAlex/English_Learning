@@ -8,6 +8,13 @@ Zero in.
 Luke had an amazingly **retentive** memory.  
 **retentive** faculty, **retentive** material 
 
+Here's where we come full circle.  
+
+Among those, the interest rate pressure on small businesses is likely the most suppressant for the economy.  
+However, in 2023 there are signs that the interest rate portion of the Federal Reserve’s tighter monetary policy may have gone full circle.  
+Japan is the main example of a country that is already through the looking glass, where everything is flipped.  
+which is likely part of the reason they’ve been doing the heterodox policy of not using interest rates in the face of inflationary pressures.  
+
 **foot the bill**  
 
 He was found guilty of committing a **pecuniary** crime, involving embezzlement of funds.  
