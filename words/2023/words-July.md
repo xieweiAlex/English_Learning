@@ -1,4 +1,13 @@
 
+**gag**  
+Vitamin c, which is also known as ascorbic acid, is one of the most powerful anti-oxidants.  
+Zero in.  
+
+
+
+Luke had an amazingly **retentive** memory.  
+**retentive** faculty, **retentive** material 
+
 **foot the bill**  
 
 He was found guilty of committing a **pecuniary** crime, involving embezzlement of funds.  
