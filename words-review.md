@@ -1,5 +1,6 @@
 ## words-July.md ##  
 words/2023/words-July.md  
+She browsed in an **upscale** **antiques** shop. -  
 It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding. -  
 Fewer workers are needed to **solder** circuit boards. -  
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  

@@ -1,24 +1,31 @@
 
-sub-Saharan Africa  
+What is required is **formal ratification** at the UN Security Council.  
+A rucksack is kind of like a very big backpack.  
+**Scram**.  
+**ladybug**  
+Without the chairman's support, the committee is **impotent**.  
+**pull a stunt**  
 
 
-The admiral visited the ships under his command.  
-He gave her an affectionate squeeze.  
-She browsed in an upscale antiques shop.  
-self-immolation  
-The hotel has a lovely homely feel to it.  
+**sub-Saharan** Africa  
 
-People with enduring personal finance success—not necessarily those with high incomes—tend to have a propensity to not give a damn what others think about them.
 
+The **admiral** visited the ships **under his command**.  
+He gave her an **affectionate** squeeze.  
+She browsed in an **upscale** **antiques** shop. -  
+self-**immolation**  
+The hotel has a lovely **homely** feel to it.  
+
+People with enduring personal finance success—not necessarily those with high incomes—tend to have a **propensity** to not give a damn what others think about them.  
 
 **gag**  
 Vitamin c, which is also known as **ascorbic acid**, is one of the most powerful anti-oxidants.  
 **Zero in**.  
-The government’s **repressive** policies are **sowing the seeds** of rebellion.
+The government’s **repressive** policies are **sowing the seeds** of rebellion.  
 
 
 Luke had an amazingly **retentive** memory.  
-**retentive** faculty, **retentive** material 
+**retentive** faculty, **retentive** material  
 
 Here's where we come **full circle**.  
 
@@ -206,7 +213,7 @@ This is how you **wind up** in jail.
 **fly in the ointment**.  
 
 **bring to heel**  
-The **clasp** on his belt had broken.   
+The **clasp** on his belt had broken.  
 
 The president's hopes for the country were **high-minded**, but too vague.  
 **high horse**  
@@ -279,7 +286,7 @@ A **brook** **meanders** through the meadow.
 
 He could not **efface** the impression from his mind.  
 He was in a complete **tizzy**, muttering and swearing.  
-The boss is a **wily** old fox.   
+The boss is a **wily** old fox.  
 **grove**  
 
 **Chickenshit**  
@@ -387,7 +394,7 @@ His actions **bespeak** his generosity.
 He has **bespoken** a room in that hotel.  
 
 But it did also help hundreds of millions of people rise out of **abject** poverty in these developing countries.  
-He never allowed his work to **impinge** on his private life.   
+He never allowed his work to **impinge** on his private life.  
 He was brought up in **penury**, without education.  
 
 Just don’t **go overboard** on fruit juices and dried fruits.  
@@ -436,7 +443,7 @@ My dream is to be a **dubbing**.
 **machete**.  
 Seal tightly then leave for four to five days to **macerate**. -  
 **witticism**  
-Although New York is home to the most **opulent** new-builds, **extravagant** offices are appearing in other global cities, too.   
+Although New York is home to the most **opulent** new-builds, **extravagant** offices are appearing in other global cities, too.  
 **tilde**  
 **shopfront**  
 I realized I had to **surmount** the language barrier.  
