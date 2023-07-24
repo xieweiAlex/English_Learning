@@ -1,5 +1,7 @@
 ## words-July.md ##  
 words/2023/words-July.md  
+**Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China. -  
+Give the dog the bone do not **tantalize** him. -  
 She browsed in an **upscale** **antiques** shop. -  
 It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding. -  
 Fewer workers are needed to **solder** circuit boards. -  
@@ -7,13 +9,10 @@ His **dissolute** life is inconsistent with his **Puritan** upbringing. -
 But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities. -  
 Back in 2009, Tumblr was so **ascendant**. -  
 A healthy, **delectable** vegan lunch. -  
-The monks lived a very **ascetic** life. -  
 I knew his help wouldn't be given **gratis**. -  
 They were **indignant** that they hadn't been invited. -  
 The wheels sank deeper into the **mire**. -  
 His **proclivity** for alcohol was almost as well-known as his **poetry**. -  
-Two volumes have been published providing explanations of Mr Xi’s classical **aphorisms**. -  
-He was a **rascal** from his birth. -  
 They were **solicitous** and **intent**, watching her every move.  -  
 Seal tightly then leave for four to five days to **macerate**. -  
 The grant helped **defray** the expenses of the trip. -  

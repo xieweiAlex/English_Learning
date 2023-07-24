@@ -1,4 +1,11 @@
 
+**captivating**, **captivated**
+
+**striking**
+
+**haphazard**, 
+**hazard**, **hazardous**  
+
 **toolset**
 
 **overhaul**
@@ -147,8 +154,6 @@
 **unfazed**
 
 **backstop**  
-
-**haphazardly**, **hazardous**  
 
 **baseline**
 

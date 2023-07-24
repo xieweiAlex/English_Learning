@@ -1,4 +1,6 @@
 
+* motto, adage, aphorism, proverb, axiom 
+
 * emblematic vs symbolic 
 
 * banal, banalities, cliche, platitudes

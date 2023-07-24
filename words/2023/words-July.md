@@ -1,14 +1,67 @@
 
+Becoming a father shrinks your **cerebrum**.  
+Record low inventory is **putting a floor** on Home Prices.  
+
+## Week 3  
+
+**foreground**  
+Feel free to **patronize** the vendors.  
+
+**Confirmation bias**  
+
+When the **Olympic cauldron** finally **lit**.  
+**wishful thinking**.  
+**raise some eyebrows**.  
+
+**revisionist**  
+flat, **Eurasian** **Steppe**.  
+**Suffice to say**, China would need a figurative **boatload** of troops.  
+**amphibious** operation  
+**Back-of-the-envelope** calculation.  
+
+
+**collect stamps**.  
+**cardinal** principles  
+China **was left to** carry the **mantle** of Socialism alone.  
+Whatever disagreements **lingered**, they were thoroughly **put to rest** after 2008.  
+China **buckled down** for a storm, pumping an **unfathomable** amount of credit into its economy in anticipation of hard times to come.  
+The rest of the world **marvels at**.  
+**unscathed**  
+**Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China. -  
+Corruption, **after all**, it's often a **pretext** for **eliminating** one's rivals. But this **misses the forest for the trees**.  
+The '**vanguard**' of the **proletariat** - cadres - tend to ... lose sight of their **comrades** once they own a BMW.  
+This places the party **on tenuous ground**, because its legitimacy would be at the whim of volatile stock market and real estate bubbles.  
+A **grim** and **gruesome** inspection of Chinese history.  
+
+**incense**, **license**  
+The research has been carried out with **scrupulous** **attention to detail**.  
+Give the dog the bone do not **tantalize** him. -  
+
+While **blemish**-free leaves are obviously the most aesthetic choice for showing off your culinary creations, are those tiny black flecks on your cabbage cause for concern?  
+
+A **carper** will **cavil** at anything.  
+
+They're travelling to **Baghdad** **overland**.  
+Unfortunately, my father is no **soft touch**.  
+They didn't **rule out** **coalition** with the Social Democrats.  
+**quid pro quo**.  
+**slavishly**.  
+
+**Megaton**  
+The **striking** finding was that people who had received a message **extolling** the benefits of a technology also changed their beliefs about its risks.  
+> Instead of telling yourself “I need to go run in the morning,” say “It’s time to build endurance and get fast.”  
+
+**needle in a haystack**.  
+**repeal** and replace  
+**Vouchsafe** me a spirit of faith and knowledge.  
+
 What is required is **formal ratification** at the UN Security Council.  
-A rucksack is kind of like a very big backpack.  
+A **rucksack** is kind of like a very big backpack.  
 **Scram**.  
 **ladybug**  
 Without the chairman's support, the committee is **impotent**.  
 **pull a stunt**  
-
-
 **sub-Saharan** Africa  
-
 
 The **admiral** visited the ships **under his command**.  
 He gave her an **affectionate** squeeze.  
@@ -22,7 +75,6 @@ People with enduring personal finance success—not necessarily those with high 
 Vitamin c, which is also known as **ascorbic acid**, is one of the most powerful anti-oxidants.  
 **Zero in**.  
 The government’s **repressive** policies are **sowing the seeds** of rebellion.  
-
 
 Luke had an amazingly **retentive** memory.  
 **retentive** faculty, **retentive** material  
@@ -58,9 +110,7 @@ likely **due to** not looking back far enough in the data and therefore using th
 It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding. -  
 
 Those people have a greater **propensity** to spend any stimulus they receive, because **their income and expenses are roughly the same** and thus their income is the strict limiter on their spending capacity.  
-
-
-**ailment**  
+He hospitalizes patients for minor **ailments**.  
 
 Fewer workers are needed to **solder** circuit boards. -  
 **battalion**  
@@ -69,8 +119,6 @@ We sincerely ask that each of you join us in **standing toe to toe** against the
 
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
 **disseminate**, dissemination  
-
-
 Especially educated **pampered** middle-class xx people.  
 
 **Off the charts**.  
@@ -227,7 +275,7 @@ Some people believe that sex education leads to **promiscuity** in young people.
 
 The talks were dependent on a **renunciation** of terrorism.  
 **Gandhi** exemplified the virtues of **renunciation**, **asceticism**, and **restraint**.  
-The monks lived a very **ascetic** life. -  
+The monks lived a very **ascetic** life.   
 **ascetic** vs **monastic**  
 
 I bought this package **off the shelf**.  
@@ -272,7 +320,7 @@ His **proclivity** for alcohol was almost as well-known as his **poetry**. -
 The timing of the launch is **fortuitous** for Meta, as recent technical changes at Twitter have frustrated some longtime users of the platform.  
 
 In Chinese history, rulers were expected to be **erudite**.  
-Two volumes have been published providing explanations of Mr Xi’s classical **aphorisms**. -  
+Two volumes have been published providing explanations of Mr Xi’s classical **aphorisms**.   
 
 **seabed**.  
 To understand Xi Jinping, it helps to be **steeped** in the **classics**.  
@@ -280,7 +328,7 @@ To understand Xi Jinping, it helps to be **steeped** in the **classics**.
 
 She's proud and stubborn, you know, under that **pliant** exterior.  
 **goop**  
-He was a **rascal** from his birth. -  
+He was a **rascal** from his birth.   
 **ramble**  
 A **brook** **meanders** through the meadow.  
 
