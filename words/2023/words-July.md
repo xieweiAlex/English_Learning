@@ -1,5 +1,12 @@
 
-autonomic, runaway train.  
+Ask any CFO what excites them most about artificial intelligence, and you’ll get a similar answer: no more menial tasks and mindless data entry. But after that, try a trickier question: Which tasks are truly menial?  
+As finance departments start to implement AI into their workflows, this question will be debated and litigated ad nauseam.   
+“Anything that is currently manual entry is a prime target, and I would say rightfully so…for automation,” Glenn Hopper, CFO and director at Eventus Advisory Group, told CFO Brew. “Those tasks are error-prone.”  
+
+
+We didn’t do anything wrong. This isn’t bigotry or hatred. It’s just a mismatch.  
+
+**autonomic**, runaway train.  
 
 'You will like Rome,' he said, with absolute **certitude**.   
 **Tilde**  
