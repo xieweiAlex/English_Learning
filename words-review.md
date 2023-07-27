@@ -6,7 +6,7 @@ She browsed in an **upscale** **antiques** shop. -
 It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding. -  
 Fewer workers are needed to **solder** circuit boards. -  
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
-But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities. -  
+But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.   
 Back in 2009, Tumblr was so **ascendant**. -  
 A healthy, **delectable** vegan lunch. -  
 I knew his help wouldn't be given **gratis**. -  

@@ -47,7 +47,7 @@
 * encumber
 
 * dweeb, bozo, dork, dummy 
-* propensity vs proclivity 
+* propensity vs proclivity, inclination, tendency
 * gravel, rubble, cobble, pebble
 * famished vs starving 
 * white-knuckle
