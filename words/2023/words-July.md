@@ -1,10 +1,26 @@
 
-Ask any CFO what excites them most about artificial intelligence, and you’ll get a similar answer: no more menial tasks and mindless data entry. But after that, try a trickier question: Which tasks are truly menial?  
-As finance departments start to implement AI into their workflows, this question will be debated and litigated ad nauseam.   
-“Anything that is currently manual entry is a prime target, and I would say rightfully so…for automation,” Glenn Hopper, CFO and director at Eventus Advisory Group, told CFO Brew. “Those tasks are error-prone.”  
+Eclectic.  
+
+Imperator  
+**Polemic**  
+**helical** curve /  blade. - 
+
+Seer  
+Dastard  
+desolation.  
 
 
-We didn’t do anything wrong. This isn’t bigotry or hatred. It’s just a mismatch.  
+The Justice Department charged Hunter with failure to timely file and pay taxes in 2017 and 2018 when, by his own admission, he was in the **throes** of an addiction to crack cocaine.  
+Many people **harbor the belief** that doing it all by themselves is the most effective route.  
+But Garren began to **cast a doubtful shadow** on his abilities when he started **juxtaposing** his **nascent** swimming skills with Daryl's more **polished** performance.  
+The defeat in his voice was **palpable**. His six-year-old heart wore its bruises on the outside.  
+Rate hikes are clearly working—with mortgage rates above 7% and credit card rates going **haywire**, the Fed must be working on something quite specific to bring down CONSUMER price inflation.  
+
+Ask any CFO what excites them most about artificial intelligence, and you’ll get a similar answer: no more **menial** tasks and mindless data entry. But after that, try a trickier question: Which tasks are truly menial?  
+As finance departments start to implement AI into their workflows, this question will be debated and litigated **ad nauseam**.   
+“Anything that is currently manual entry is a **prime target**, and I would say **rightfully** so…for automation,” Glenn Hopper, CFO and director at Eventus Advisory Group, told CFO Brew. “Those tasks are **error-prone**.”  
+
+We didn't do anything wrong. This isn’t **bigotry** or **hatred**. It’s just a mismatch. -  
 
 **autonomic**, runaway train.  
 
