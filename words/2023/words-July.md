@@ -1,13 +1,29 @@
 
+financier.  
+
+
+The pop culture view of startups is that they’re all about coming up with a great product idea. After the eureka moment, the outcome is preordained. This neglects the years of toil that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically.  
+
+The dominant payment systems (mainly, credit card systems) were designed to be offline systems and only much later awkwardly grafted onto the Internet. They are inefficient and prone to fraud.  
+
+
+
+The modem inverted the phone network, giving us the Internet.  
+it **spawns** new industries on the basis of applications that were previously too expensive or too difficult to scale.  
+
+
+
+We got a whole bunch of people **professing** their love for compact keyboards and wondering if we'll ever make another.  
+
 Eclectic.  
 
 Imperator  
 **Polemic**  
 **helical** curve /  blade. - 
 
-Seer  
-Dastard  
-desolation.  
+**Seer**  
+**Dastard**  
+**desolation**.  
 
 
 The Justice Department charged Hunter with failure to timely file and pay taxes in 2017 and 2018 when, by his own admission, he was in the **throes** of an addiction to crack cocaine.  
