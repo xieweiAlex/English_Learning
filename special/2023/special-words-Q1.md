@@ -1,4 +1,13 @@
 
+**sideline**
+
+**homeostasis**
+**hormesis**
+
+**transferrable skills** 
+
+**spurious**
+
 **menial**
 
 **captivating**, **captivated**

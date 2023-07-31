@@ -1,23 +1,66 @@
 
-financier.  
+Unsaturated fats are loosely packed. They tend to be liquid at **room temperature**.  
 
+**Bighearted**  
+Ivy **leaguer**.  
+
+**bulimic**  
+**Matron**   
+
+**carnal attraction**. 
+
+bollinger bands range ?? 
+
+
+While good businesses do exist in the space, unscrupulous profiteers have been allowed to run amok without the proper oversight in place.  
+Until recently, lawmakers and regulators have mostly sat on the sidelines, permitting these activities to take place.  
+Bankers are looking for a coalescence of guidance from prudential regulators as it appears this asset class is here to stay.  
+To date, the banking industry has largely stood on the sidelines, observing from afar with little impetus to seriously explore how to fill market gaps and better serve their customers by providing digital asset products and services.   
+
+
+And the main issue I see in California's Housing Market right now, from a homebuyer perspective, is that there is a complete lack of distress among sellers.  
+
+**sunroof**.  
+I think that was a slip of tongue
+
+Burro  
+desiderate  
+Surplice.  
+Show-and-tell  
+whet  
+**Glom onto**  
+**pecs**  
+**hock**  
+**stalemate**, **standoff**, **draw**, tie, impasse
+**conventional wisdom**  
+**efface** vs erase  
+**prevaricate**, weasel word  
+**expeller pressed**  
+Anglican church  
+drollness  
+
+
+When the mind **asserting the dominance** over the body.  
+
+**unseat**.  
+**necessitate**, **necessity**, **necessary**.  
+**fervently**  
+**soba**  
+**genial**  
+**crumby**, **crumbs**  
+**Claw back**  
+**financier**.  
 
 The pop culture view of startups is that they’re all about coming up with a great product idea. After the eureka moment, the outcome is preordained. This neglects the years of toil that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically.  
 
 The dominant payment systems (mainly, credit card systems) were designed to be offline systems and only much later awkwardly grafted onto the Internet. They are inefficient and prone to fraud.  
 
-
-
-The modem inverted the phone network, giving us the Internet.  
+The **modem** **inverted** the phone network, giving us the Internet.  
 it **spawns** new industries on the basis of applications that were previously too expensive or too difficult to scale.  
 
-
-
 We got a whole bunch of people **professing** their love for compact keyboards and wondering if we'll ever make another.  
-
-Eclectic.  
-
-Imperator  
+**Eclectic**.  
+**Imperator**  
 **Polemic**  
 **helical** curve /  blade. - 
 
