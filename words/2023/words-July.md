@@ -1,4 +1,13 @@
 
+Oversight of the crypto industry has hitherto been a grey area, with the SEC and the Commodity Futures Trading Commission jockeying for control.  
+
+Stocks, bonds and other traditional financial instruments fall under the SEC’s remit, but US authorities remain locked in debate as to whether all — or any — crypto tokens should fall under its purview.
+
+
+
+**puppet**  
+**raise eyebrows**  
+
 Unsaturated fats are loosely packed. They tend to be liquid at **room temperature**.  
 
 **Bighearted**  
@@ -23,11 +32,11 @@ And the main issue I see in California's Housing Market right now, from a homebu
 **sunroof**.  
 I think that was a slip of tongue
 
-Burro  
-desiderate  
-Surplice.  
-Show-and-tell  
-whet  
+**Burro**  
+**desiderate**  
+**Surplice**.  
+**Show-and-tell**  
+**whet**  
 **Glom onto**  
 **pecs**  
 **hock**  
