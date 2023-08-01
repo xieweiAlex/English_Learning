@@ -1,4 +1,15 @@
 
+Russian forces pummeled a Ukrainian village in a counteroffensive today.  
+
+
+Bitcoin is no longer **a passing fad** says Michael Sonnenshein as Bitcoin ranks 10th among world's biggest companies. Only 10% of all traded $BTC is done in the US; also the migration away from centralized exchanges continues.  
+BlackRock announcing that it would launch a Bitcoin SPOT ETF set the market ablaze in June and that excitement spilled over into July with a ton of organizations following suit filing their applications to launch an ETF as well.  
+
+
+**throw in the towel**
+**milking parlor**  
+**parlor trick**  
+
 Oversight of the crypto industry has hitherto been a grey area, with the SEC and the Commodity Futures Trading Commission jockeying for control.  
 
 Stocks, bonds and other traditional financial instruments fall under the SEC’s remit, but US authorities remain locked in debate as to whether all — or any — crypto tokens should fall under its purview.
@@ -45,8 +56,8 @@ I think that was a slip of tongue
 **efface** vs erase  
 **prevaricate**, weasel word  
 **expeller pressed**  
-Anglican church  
-drollness  
+**Anglican church**  
+**drollness**  
 
 
 When the mind **asserting the dominance** over the body.  
@@ -60,9 +71,9 @@ When the mind **asserting the dominance** over the body.
 **Claw back**  
 **financier**.  
 
-The pop culture view of startups is that they’re all about coming up with a great product idea. After the eureka moment, the outcome is preordained. This neglects the years of toil that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically.  
+The pop culture view of startups is that they’re all about coming up with a great product idea. After the **eureka moment**, the outcome is **preordained**. This neglects the **years of toil** that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically. -  
 
-The dominant payment systems (mainly, credit card systems) were designed to be offline systems and only much later awkwardly grafted onto the Internet. They are inefficient and prone to fraud.  
+> The dominant payment systems (mainly, credit card systems) were designed to be offline systems and only much later awkwardly **grafted** onto the Internet. They are inefficient and prone to fraud.  
 
 The **modem** **inverted** the phone network, giving us the Internet.  
 it **spawns** new industries on the basis of applications that were previously too expensive or too difficult to scale.  
