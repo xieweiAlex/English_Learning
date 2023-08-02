@@ -1,12 +1,17 @@
 ## words-July.md ##  
 words/2023/words-July.md  
+Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and **cock-ups** **pummelled** certain **plutocrats**. -  
+Oversight of the crypto industry has **hitherto** been a **grey area**, with the SEC and the Commodity Futures Trading Commission **jockeying** for control. -  
+While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place. -  
+The pop culture view of startups is that they’re all about coming up with a great product idea. After the **eureka moment**, the outcome is **preordained**. This neglects the **years of toil** that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically. -  
+**helical** curve /  blade. -  
+We didn't do anything wrong. This isn’t **bigotry** or **hatred**. It’s just a mismatch. -  
 **Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China. -  
 Give the dog the bone do not **tantalize** him. -  
 She browsed in an **upscale** **antiques** shop. -  
 It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding. -  
 Fewer workers are needed to **solder** circuit boards. -  
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
-But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.   
 Back in 2009, Tumblr was so **ascendant**. -  
 A healthy, **delectable** vegan lunch. -  
 I knew his help wouldn't be given **gratis**. -  

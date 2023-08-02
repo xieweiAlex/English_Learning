@@ -1,8 +1,13 @@
 
+One of my all time favoriate shows.  
+The ball is in your court now.  
 
-on a time crunch. 
 
-defile ?? 
+For some reason, vs I don’t know why.  
+
+**on a time crunch**.  
+
+defile ??  
 
 Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and **cock-ups** **pummelled** certain **plutocrats**. -  
 
@@ -12,18 +17,18 @@ These dealers offer members better prices than sellers outside the network, and 
 
 Russian forces **pummeled** a Ukrainian village in a counteroffensive today.  
 
-## Week 4
+## Week 4  
 
 Bitcoin is no longer **a passing fad** says Michael Sonnenshein as Bitcoin ranks 10th among world's biggest companies. Only 10% of all traded $BTC is done in the US; also the migration away from centralized exchanges continues.  
 BlackRock announcing that it would launch a Bitcoin SPOT ETF set the market **ablaze** in June and that excitement spilled over into July with a ton of organizations following suit filing their applications to launch an ETF as well.  
 
-**throw in the towel**
+**throw in the towel**  
 **milking parlor**  
 **parlor trick**  
 
 Oversight of the crypto industry has **hitherto** been a **grey area**, with the SEC and the Commodity Futures Trading Commission **jockeying** for control. -  
 
-Stocks, bonds and other traditional financial instruments fall under the SEC’s **remit**, but US authorities remain **locked in** debate as to whether all — or any — crypto tokens should fall under its **purview**.
+Stocks, bonds and other traditional financial instruments fall under the SEC’s **remit**, but US authorities remain **locked in** debate as to whether all — or any — crypto tokens should fall under its **purview**.  
 
 
 **puppet**  
@@ -35,22 +40,22 @@ Unsaturated fats are loosely packed. They tend to be liquid at **room temperatur
 Ivy **leaguer**.  
 
 **bulimic**  
-**Matron**   
+**Matron**  
 
-**carnal attraction**. 
+**carnal attraction**.  
 
-bollinger bands range ?? 
+bollinger bands range ??  
 
 
 While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place. -  
 Until recently, lawmakers and regulators have mostly sat **on the sidelines**, permitting these activities to **take place**.  
 Bankers are looking for a **coalescence** of guidance from **prudential** regulators as it appears this asset class is **here to stay**.  
-**To date**, the banking industry has largely stood on the sidelines, **observing from afar** with little **impetus** to seriously explore how to fill market gaps and better serve their customers by providing digital asset products and services.   
+**To date**, the banking industry has largely stood on the sidelines, **observing from afar** with little **impetus** to seriously explore how to fill market gaps and better serve their customers by providing digital asset products and services.  
 
 And the main issue I see in California's Housing Market right now, from a homebuyer perspective, is that there is a complete lack of **distress** among sellers.  
 
 **sunroof**.  
-I think that was a **slip of tongue**
+I think that was a **slip of tongue**  
 
 **Burro**  
 **desiderate**  
@@ -60,7 +65,7 @@ I think that was a **slip of tongue**
 **Glom onto**  
 **pecs**  
 **hock**  
-**stalemate**, **standoff**, **draw**, tie, impasse
+**stalemate**, **standoff**, **draw**, tie, impasse  
 **conventional wisdom**  
 **efface** vs erase  
 **prevaricate**, weasel word  
@@ -91,7 +96,7 @@ We got a whole bunch of people **professing** their love for compact keyboards a
 **Eclectic**.  
 **Imperator**  
 **Polemic**  
-**helical** curve /  blade. - 
+**helical** curve /  blade. -  
 
 **Seer**  
 **Dastard**  
@@ -105,18 +110,18 @@ The defeat in his voice was **palpable**. His six-year-old heart wore its bruise
 Rate hikes are clearly working—with mortgage rates above 7% and credit card rates going **haywire**, the Fed must be working on something quite specific to bring down CONSUMER price inflation.  
 
 Ask any CFO what excites them most about artificial intelligence, and you’ll get a similar answer: no more **menial** tasks and mindless data entry. But after that, try a trickier question: Which tasks are truly menial?  
-As finance departments start to implement AI into their workflows, this question will be debated and litigated **ad nauseam**.   
+As finance departments start to implement AI into their workflows, this question will be debated and litigated **ad nauseam**.  
 “Anything that is currently manual entry is a **prime target**, and I would say **rightfully** so…for automation,” Glenn Hopper, CFO and director at Eventus Advisory Group, told CFO Brew. “Those tasks are **error-prone**.”  
 
 We didn't do anything wrong. This isn’t **bigotry** or **hatred**. It’s just a mismatch. -  
 
 **autonomic**, runaway train.  
 
-'You will like Rome,' he said, with absolute **certitude**.   
+'You will like Rome,' he said, with absolute **certitude**.  
 **Tilde**  
 **barrage**, **barrack**  
 
-China’s **floundering** economy is a test for Xi Jinping
+China’s **floundering** economy is a test for Xi Jinping  
 As growth **falters** and the country flirts with deflation, will stimulus arrive?  
 
 **czema** — aka **atopic dermatitis** — typically presents as itchy, red, **scaly skin**, but symptoms vary depending on the type and person.  
@@ -270,7 +275,7 @@ This system would **ostensibly** rely on China to custody the gold and deliver t
 The casual ease by which we made this transaction enabled by these tools had us both pause **in awe of** just how powerful they could be for the privacy and security of all communication.  
 The **base plumbing** of the internet itself may very well be **on the verge of** the greatest shift it has ever gone through.  
 
-But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities. -  
+But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.   
 
 The inevitable abuse of this immense social power for political gain is so **blatantly** obvious in retrospect that it's almost **comical**.  
 
@@ -398,7 +403,7 @@ Some people believe that sex education leads to **promiscuity** in young people.
 
 The talks were dependent on a **renunciation** of terrorism.  
 **Gandhi** exemplified the virtues of **renunciation**, **asceticism**, and **restraint**.  
-The monks lived a very **ascetic** life.   
+The monks lived a very **ascetic** life.  
 **ascetic** vs **monastic**  
 
 I bought this package **off the shelf**.  
@@ -443,7 +448,7 @@ His **proclivity** for alcohol was almost as well-known as his **poetry**. -
 The timing of the launch is **fortuitous** for Meta, as recent technical changes at Twitter have frustrated some longtime users of the platform.  
 
 In Chinese history, rulers were expected to be **erudite**.  
-Two volumes have been published providing explanations of Mr Xi’s classical **aphorisms**.   
+Two volumes have been published providing explanations of Mr Xi’s classical **aphorisms**.  
 
 **seabed**.  
 To understand Xi Jinping, it helps to be **steeped** in the **classics**.  
@@ -451,7 +456,7 @@ To understand Xi Jinping, it helps to be **steeped** in the **classics**.
 
 She's proud and stubborn, you know, under that **pliant** exterior.  
 **goop**  
-He was a **rascal** from his birth.   
+He was a **rascal** from his birth.  
 **ramble**  
 A **brook** **meanders** through the meadow.  
 
