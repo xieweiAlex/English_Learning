@@ -285,7 +285,6 @@ He **parried** the unwelcome question very skilfully.
 sedimentary **strata**, rock **strata**.  
 
 **brush off**: a **curt** or **disdainful** rejection  
-Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and cock-ups pummelled certain **plutocrats**  
 
 **Mawkish**, **melancholy**  
 

@@ -1,19 +1,29 @@
 
-Russian forces pummeled a Ukrainian village in a counteroffensive today.  
 
+on a time crunch. 
+
+defile ?? 
+
+Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and **cock-ups** **pummelled** certain **plutocrats**. -  
+
+These dealers offer members better prices than sellers outside the network, and the prices are fixed, so there's no **haggling** involved.  
+
+**cronies**.  
+
+Russian forces **pummeled** a Ukrainian village in a counteroffensive today.  
+
+## Week 4
 
 Bitcoin is no longer **a passing fad** says Michael Sonnenshein as Bitcoin ranks 10th among world's biggest companies. Only 10% of all traded $BTC is done in the US; also the migration away from centralized exchanges continues.  
-BlackRock announcing that it would launch a Bitcoin SPOT ETF set the market ablaze in June and that excitement spilled over into July with a ton of organizations following suit filing their applications to launch an ETF as well.  
-
+BlackRock announcing that it would launch a Bitcoin SPOT ETF set the market **ablaze** in June and that excitement spilled over into July with a ton of organizations following suit filing their applications to launch an ETF as well.  
 
 **throw in the towel**
 **milking parlor**  
 **parlor trick**  
 
-Oversight of the crypto industry has hitherto been a grey area, with the SEC and the Commodity Futures Trading Commission jockeying for control.  
+Oversight of the crypto industry has **hitherto** been a **grey area**, with the SEC and the Commodity Futures Trading Commission **jockeying** for control. -  
 
-Stocks, bonds and other traditional financial instruments fall under the SEC’s remit, but US authorities remain locked in debate as to whether all — or any — crypto tokens should fall under its purview.
-
+Stocks, bonds and other traditional financial instruments fall under the SEC’s **remit**, but US authorities remain **locked in** debate as to whether all — or any — crypto tokens should fall under its **purview**.
 
 
 **puppet**  
@@ -32,16 +42,15 @@ Ivy **leaguer**.
 bollinger bands range ?? 
 
 
-While good businesses do exist in the space, unscrupulous profiteers have been allowed to run amok without the proper oversight in place.  
-Until recently, lawmakers and regulators have mostly sat on the sidelines, permitting these activities to take place.  
-Bankers are looking for a coalescence of guidance from prudential regulators as it appears this asset class is here to stay.  
-To date, the banking industry has largely stood on the sidelines, observing from afar with little impetus to seriously explore how to fill market gaps and better serve their customers by providing digital asset products and services.   
+While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place. -  
+Until recently, lawmakers and regulators have mostly sat **on the sidelines**, permitting these activities to **take place**.  
+Bankers are looking for a **coalescence** of guidance from **prudential** regulators as it appears this asset class is **here to stay**.  
+**To date**, the banking industry has largely stood on the sidelines, **observing from afar** with little **impetus** to seriously explore how to fill market gaps and better serve their customers by providing digital asset products and services.   
 
-
-And the main issue I see in California's Housing Market right now, from a homebuyer perspective, is that there is a complete lack of distress among sellers.  
+And the main issue I see in California's Housing Market right now, from a homebuyer perspective, is that there is a complete lack of **distress** among sellers.  
 
 **sunroof**.  
-I think that was a slip of tongue
+I think that was a **slip of tongue**
 
 **Burro**  
 **desiderate**  
