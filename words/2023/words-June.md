@@ -151,7 +151,7 @@ Yet memories from the war have left an **indelible** mark on many.
 Tigers are **solitary** animals.  
 **receptacle**  
 **Somersault**  
-First of all, quit **groveling**. Needy guys are such a **turnoff**. -  
+First of all, quit **groveling**. Needy guys are such a **turnoff**.   
 It's a very **hard-hitting** critical article.  
 **filmography**  
 We can **transmute** water power into electrical power.  
@@ -183,7 +183,7 @@ infantry **battalion**
 
 She gets various **perquisites** **in addition to** her **wages**. -  
 Politics used to be the **perquisite** of the property-owning classes.  
-For example, generous **remuneration** packages are offered in this position. -  
+For example, generous **remuneration** packages are offered in this position.   
 
 He was paranoid, self-obsessed and **misanthropic**.  
 
@@ -252,7 +252,7 @@ I hope he doesn't try to **meddle** in my affairs.
 
 
 **Factor in** the leverage  
-The **bugle** sounded the **charge**. -  
+The **bugle** sounded the **charge**.   
 
 But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.  
 **slowly but surely**.  
@@ -433,7 +433,7 @@ However, the **outermost** leaves are highest in nutrient density. No matter whi
 **smugness**.  
 **receptive**  
 A brief, handwritten **postscript** lay beneath his signature.  
-wash them in a mesh **garment** bag that’s securely closed. -  
+wash them in a mesh **garment** bag that’s securely closed.   
 
 
 **simpleton**, **nitwit**, **dimwit**, **moron**, **lunatic**  

@@ -195,7 +195,7 @@ I **adumbrate** that I did not like his toys.
 **longing**, **yearning**  
 
 **Enclave**  
-People celebrating the **armistice** behaved like an **orgiastic** mob. -  
+People celebrating the **armistice** behaved like an **orgiastic** mob.   
 
 In the short-term, the **prospect** of a reserve currency replacing the dollar is **slim to none**.  
 its "safe-haven" status is hard to beat, especially **in light of** the **plight** of the euro.  
@@ -350,7 +350,7 @@ What a cold, **unfeeling** woman she was.
 **overpass**, **underpass**  
 It was **disconcerting** and rather horrible.  
 **virile**  
-Hers was a minor part, but she played it with **gusto**. -  
+Hers was a minor part, but she played it with **gusto**.   
 **mouthy**  
 
 ## Conversation  

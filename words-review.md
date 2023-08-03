@@ -1,5 +1,6 @@
 ## words-July.md ##  
 words/2023/words-July.md  
+Her bowel will **engorge** quite often, I'm afraid. -  
 Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and **cock-ups** **pummelled** certain **plutocrats**. -  
 Oversight of the crypto industry has **hitherto** been a **grey area**, with the SEC and the Commodity Futures Trading Commission **jockeying** for control. -  
 While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place. -  
@@ -26,19 +27,13 @@ The grant helped **defray** the expenses of the trip. -
 words/2023/words-June.md  
 A **termagant** wife may, in some respects, be considered a tolerable blessing. -  
 Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about. -  
-First of all, quit **groveling**. Needy guys are such a **turnoff**. -  
 She gets various **perquisites** **in addition to** her **wages**. -  
-For example, generous **remuneration** packages are offered in this position. -  
-The **bugle** sounded the **charge**. -  
 They condemned the deal as a **craven** surrender. -  
 The **drunkard** **tottered** along the road. -  
-wash them in a mesh **garment** bag that’s securely closed. -  
 
 ## words-May.md ##  
 words/2023/words-May.md  
-People celebrating the **armistice** behaved like an **orgiastic** mob. -  
 I'm a **gigolo**, that's different. -  
-Hers was a minor part, but she played it with **gusto**. -  
 
 ## words-April.md ##  
 words/2023/words-April.md  

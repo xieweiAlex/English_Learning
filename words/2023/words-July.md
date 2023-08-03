@@ -1,9 +1,14 @@
 
-One of my all time favoriate shows.  
-The ball is in your court now.  
+
+The **leased vehicle** remains the property of the **lessor** -- the company that issued the lease.  
+Her bowel will **engorge** quite often, I'm afraid. -  
+**Poundage**  
+
+One of my **all time favoriate** shows.  
+**The ball is in your court now**.  
 
 
-For some reason, vs I don’t know why.  
+**For some reason**, vs **I don’t know why**.  
 
 **on a time crunch**.  
 
@@ -275,7 +280,7 @@ This system would **ostensibly** rely on China to custody the gold and deliver t
 The casual ease by which we made this transaction enabled by these tools had us both pause **in awe of** just how powerful they could be for the privacy and security of all communication.  
 The **base plumbing** of the internet itself may very well be **on the verge of** the greatest shift it has ever gone through.  
 
-But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.   
+But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.  
 
 The inevitable abuse of this immense social power for political gain is so **blatantly** obvious in retrospect that it's almost **comical**.  
 
