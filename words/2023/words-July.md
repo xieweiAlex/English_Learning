@@ -1,4 +1,6 @@
 
+They originated in ancient times and were historically used to revive people who had fainted. Today, some athletes use them because they believe the salts provide extra energy and focus before competitions.  
+
 
 The **leased vehicle** remains the property of the **lessor** -- the company that issued the lease.  
 Her bowel will **engorge** quite often, I'm afraid. -  
