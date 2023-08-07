@@ -1,4 +1,8 @@
 
+
+
+**holistic**
+
 **purview**
 
 **specialized**
@@ -7,6 +11,8 @@
 
 **homeostasis**
 **hormesis**
+
+## July 
 
 **transferrable skills** 
 

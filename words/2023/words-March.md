@@ -120,7 +120,7 @@ It's **odds-on** that he'll be late.
 The subject of racism is admittedly too complex for **facile** summarization.   
 **old chap**  
 **rain check**  
-**snapper** -  
+**snapper**   
 **galactic**  
 **shellacking**  
 **phallic**  

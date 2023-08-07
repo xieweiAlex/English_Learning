@@ -10,13 +10,12 @@ We didn't do anything wrong. This isn’t **bigotry** or **hatred**. It’s just
 **Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China. -  
 Give the dog the bone do not **tantalize** him. -  
 She browsed in an **upscale** **antiques** shop. -  
-It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding. -  
+It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding.   
 Fewer workers are needed to **solder** circuit boards. -  
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
 Back in 2009, Tumblr was so **ascendant**. -  
 A healthy, **delectable** vegan lunch. -  
 I knew his help wouldn't be given **gratis**. -  
-They were **indignant** that they hadn't been invited. -  
 The wheels sank deeper into the **mire**. -  
 His **proclivity** for alcohol was almost as well-known as his **poetry**. -  
 They were **solicitous** and **intent**, watching her every move.  -  
@@ -38,10 +37,6 @@ I'm a **gigolo**, that's different. -
 ## words-April.md ##  
 words/2023/words-April.md  
 They lived in a **squalid** **hovel** for the next five years. -  
-
-## words-March.md ##  
-words/2023/words-March.md  
-**snapper** -  
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  

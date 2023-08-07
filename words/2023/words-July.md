@@ -1,6 +1,43 @@
 
-They originated in ancient times and were historically used to revive people who had fainted. Today, some athletes use them because they believe the salts provide extra energy and focus before competitions.  
+**noodle over something**.  
+**penalty shootout**.  
 
+front **axle**, **axle** shaft  
+**salacious**  
+
+**catch fire**.  
+The governor was forced to **parley** with the rebels.  
+My judgement is that the plan is **incogitant**.  
+If love and friendship can't be together, I will **abnegate** the **resultless** love. -  
+Then there are the legal **travails** of Donald Trump. -  
+
+
+## Week 1  
+
+The **tomb** had been **defiled** and **looted**.  
+
+The bones were **disinterred** and moved to a **burial site**. -  
+
+He was out of work and living in **squalor**. -  
+Have **flannel** PJs replaced your silky **negligees**? -  
+That was a **conjecture**, not a fact.  
+20 **delirious** tweets in 14 hours, you can tell how much trouble Trump is in  
+The man was arrested after an anonymous **tip-off**.  
+**Nonchalance**  
+The drug put Simpson in a **lull** for thirty minutes.  
+The movement of the train **lulled** me to sleep.  
+**canopy**  
+
+Sorry to be a **wet blanket**.  Writing a description for this thing for general audiences is bloody hard.  There's nothing to relate it to.  
+
+He was occasionally possessed by the same madness we are all vulnerable to, he just did a pretty good job (especially when compared to other emperors) at not making big or permanent decisions while **in that thrall**.  
+
+**Al dente** noodles that is cooked through with a satisfying **mouthfeel**.  
+We highly recommend using Free Range Chickens because they have better texture & stronger chicken flavors to **impart** into the Chicken broth.  
+
+**leading up**.  
+
+They originated in ancient times and were historically used to **revive** people who had **fainted**. Today, some athletes use them because they believe the salts provide extra energy and focus before competitions.  
 
 The **leased vehicle** remains the property of the **lessor** -- the company that issued the lease.  
 Her bowel will **engorge** quite often, I'm afraid. -  
@@ -9,12 +46,9 @@ Her bowel will **engorge** quite often, I'm afraid. -
 One of my **all time favoriate** shows.  
 **The ball is in your court now**.  
 
-
 **For some reason**, vs **I don’t know why**.  
 
 **on a time crunch**.  
-
-defile ??  
 
 Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and **cock-ups** **pummelled** certain **plutocrats**. -  
 
@@ -370,7 +404,6 @@ He is **stocky** though not chubby.
 Their claims will be **fervently** denied.  
 **Zero in**  
 You'll have to **abide by** the rules of the club.  
-**Incogitant**  
 
 **Guild** ??  
 **cortisol**, **adrenaline**  
@@ -417,7 +450,7 @@ I bought this package **off the shelf**.
 **Thermal**  
 I knew his help wouldn't be given **gratis**. -  
 **Cojones**  
-They were **indignant** that they hadn't been invited. -  
+They were **indignant** that they hadn't been invited.  
 
 We need to concentrate resources on the most **run-down** areas.  
 **net out**  

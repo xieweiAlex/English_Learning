@@ -1,4 +1,12 @@
 
+**elevate**
+
+**Impart** 
+
+**Glean**
+
+## July 
+
 **subtract**
 
 **watch** 
