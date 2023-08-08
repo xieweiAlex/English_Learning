@@ -1,4 +1,10 @@
 
+oblivion, oblivious  
+flatline  
+
+
+Let's take a look at this clip. 
+
 **noodle over something**.  
 **penalty shootout**.  
 
