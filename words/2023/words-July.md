@@ -1,10 +1,17 @@
 
+Meanwhile, crackdowns in recent years have left the private sector reeling.   
+Deflation could beget deflation expectations, which may see demand suffer as consumers hold off on more purchases.  
 
-You fixed me up with a bald woman.  
 
 
-oblivion, oblivious  
-flatline  
+**Forego** exercise within three hours of bedtime.  
+I thought it was a **foregoing conclusion** that we would have peace.  
+
+You **fixed me up** with a bald woman.  
+
+
+**oblivion**, **oblivious**  
+**flatline**  
 
 
 Let's take a look at this clip. 
