@@ -1,7 +1,21 @@
 
+Rather than try to threaten or cajole their way to the productivity-boosting benefits of in-person work, they can bring their workers together by giving them space to keep apart.  
+Some of them visibly annoyed that your chitchat is derailing their train of thought.  
+Tightly spaced desks in open offices also often feel cramped; everyone has just enough room to type without jostling elbows.  
+
+
+**Arbitration** court / proceedings.  
+**Ballsy**.  
+**goon**
+**goop**  
+She gave him the bad news **without preamble**.  
+
+Monkeys were **screeching** in the trees.
+**screeching** halt. 
+
 Meanwhile, crackdowns in recent years have left the private sector reeling.   
 Deflation could beget deflation expectations, which may see demand suffer as consumers hold off on more purchases.  
-
+sawmill  
 
 
 **Forego** exercise within three hours of bedtime.  
@@ -14,7 +28,7 @@ You **fixed me up** with a bald woman.
 **flatline**  
 
 
-Let's take a look at this clip. 
+Let's take a look at this **clip**. 
 
 **noodle over something**.  
 **penalty shootout**.  
