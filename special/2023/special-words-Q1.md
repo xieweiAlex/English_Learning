@@ -1,4 +1,6 @@
 
+**laborious**, **arduous**, **painstaking**, **strenuous**
+
 **prospective**
 
 **holistic**

@@ -1,4 +1,15 @@
 
+
+It is impossible to aim at a single point with a shotgun because it shoots pellets that scatter, and it seems almost equally difficult for System 1 not to do more than System 2 charges it to do.  
+
+America’s wave of violence may have crested.  
+
+**on the mend**  
+
+Given the amount of interest the question about shrinking attention spans has received, I was surprised to not find a knockdown study of the type I was looking for.  
+Instead, focus on consuming soft foods that won't put undue stress on the filling site and maintaining good oral hygiene.  
+many different investigations that were either not quite answering the question I was asking or too shoddy (or murky) to be trusted.  
+
 Rather than try to threaten or cajole their way to the productivity-boosting benefits of in-person work, they can bring their workers together by giving them space to keep apart.  
 Some of them visibly annoyed that your chitchat is derailing their train of thought.  
 Tightly spaced desks in open offices also often feel cramped; everyone has just enough room to type without jostling elbows.  
@@ -15,7 +26,7 @@ Monkeys were **screeching** in the trees.
 
 Meanwhile, crackdowns in recent years have left the private sector reeling.   
 Deflation could beget deflation expectations, which may see demand suffer as consumers hold off on more purchases.  
-sawmill  
+**sawmill**  
 
 
 **Forego** exercise within three hours of bedtime.  
