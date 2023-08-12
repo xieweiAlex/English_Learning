@@ -1,5 +1,14 @@
 
 
+Veiling  
+sizzle  
+hair follicle.  
+Thwack  
+makeshift  
+calamitous  
+
+
+
 It is impossible to aim at a single point with a shotgun because it shoots pellets that scatter, and it seems almost equally difficult for System 1 not to do more than System 2 charges it to do.  
 
 America’s wave of violence may have crested.  
