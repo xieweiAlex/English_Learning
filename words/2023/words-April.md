@@ -75,7 +75,7 @@ I did what I could, but her mother's influence was **pernicious**.
 A **compliant** person **gives in** easily to other people's views.  
 They are **taught** to be **compliant** and respectful to adults.  
 I **reckon** she's pulling in over $100 000.  
-They lived in a **squalid** **hovel** for the next five years. -  
+They lived in a **squalid** **hovel** for the next five years.   
 Saying she's improved **comes over** as a **backhanded** compliment.  
 The stars **scintillate**.  
 **fatso**  

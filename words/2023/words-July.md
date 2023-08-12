@@ -8,6 +8,7 @@ makeshift
 calamitous  
 
 
+If your sandwich is fresh, wrap it in foil or parchment paper to keep it from drying.  
 
 It is impossible to aim at a single point with a shotgun because it shoots pellets that scatter, and it seems almost equally difficult for System 1 not to do more than System 2 charges it to do.  
 
@@ -26,14 +27,14 @@ Tightly spaced desks in open offices also often feel cramped; everyone has just 
 
 **Arbitration** court / proceedings.  
 **Ballsy**.  
-**goon**
+**goon**  
 **goop**  
 She gave him the bad news **without preamble**.  
 
-Monkeys were **screeching** in the trees.
-**screeching** halt. 
+Monkeys were **screeching** in the trees.  
+**screeching** halt.  
 
-Meanwhile, crackdowns in recent years have left the private sector reeling.   
+Meanwhile, crackdowns in recent years have left the private sector reeling.  
 Deflation could beget deflation expectations, which may see demand suffer as consumers hold off on more purchases.  
 **sawmill**  
 
@@ -48,7 +49,7 @@ You **fixed me up** with a bald woman.
 **flatline**  
 
 
-Let's take a look at this **clip**. 
+Let's take a look at this **clip**.  
 
 **noodle over something**.  
 **penalty shootout**.  
@@ -70,7 +71,7 @@ The **tomb** had been **defiled** and **looted**.
 The bones were **disinterred** and moved to a **burial site**. -  
 
 He was out of work and living in **squalor**. -  
-Have **flannel** PJs replaced your silky **negligees**? -  
+Have **flannel** PJs replaced your silky **negligees**?   
 That was a **conjecture**, not a fact.  
 20 **delirious** tweets in 14 hours, you can tell how much trouble Trump is in  
 The man was arrested after an anonymous **tip-off**.  
@@ -101,7 +102,7 @@ One of my **all time favoriate** shows.
 
 **on a time crunch**.  
 
-Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and **cock-ups** **pummelled** certain **plutocrats**. -  
+Which billionaires lost out? The 2023 **crony**-capitalism index War, **tech woes** and **cock-ups** **pummelled** certain **plutocrats**.   
 
 These dealers offer members better prices than sellers outside the network, and the prices are fixed, so there's no **haggling** involved.  
 
@@ -327,7 +328,7 @@ Depending on how **certain factors** play out, it can result in some **unintuiti
 
 **scatterplot**.  
 likely **due to** not looking back far enough in the data and therefore using the word “never” a bit too **loosely**.  
-It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding. -  
+It’s like giving someone **Tylenol** when they have a **gunshot** wound; what really needs to be done is to stop the bleeding.  
 
 Those people have a greater **propensity** to spend any stimulus they receive, because **their income and expenses are roughly the same** and thus their income is the strict limiter on their spending capacity.  
 He hospitalizes patients for minor **ailments**.  
@@ -422,7 +423,7 @@ Because you were too busy **ogling** me to listen a word what I've said.
 
 An aggressive, surfboard-stealing sea otter in California this week **eluded** wildlife officials who tried to catch it.  
 There will be a **culling** of the Unicorn herd, with some of these companies shutting down, others raising capital or exiting at valuations below $1 billion.  
-Back in 2009, Tumblr was so **ascendant**. -  
+Back in 2009, Tumblr was so **ascendant**.   
 
 
 **Pergola** **trellis**.  
@@ -462,7 +463,7 @@ You'll have to **abide by** the rules of the club.
 **shudder**, **dodder**  
 **Temptress**  
 
-A healthy, **delectable** vegan lunch. -  
+A healthy, **delectable** vegan lunch.   
 
 **portion** them out.  
 
@@ -531,7 +532,7 @@ Her kindness quite **abashed** me.
 **simp**, **pick-me girl**, **dead meat**, **quiet quitting**  
 
 I spoke from the **pulpit** **ad lib**.  
-The wheels sank deeper into the **mire**. -  
+The wheels sank deeper into the **mire**.   
 
 **detox**, **detoxify**  
 His **proclivity** for alcohol was almost as well-known as his **poetry**. -  

@@ -36,7 +36,7 @@ All humans are **broad**, we're all **multivariate**, but we get summarized in *
 
 Summer is **fast approaching**, and in some states, it is already in **full swing**.  
 She enjoys road trips with her family and has **fond** memories of cross-country adventures with her 3 sisters while growing up.  
-A **termagant** wife may, in some respects, be considered a tolerable blessing. -  
+A **termagant** wife may, in some respects, be considered a tolerable blessing.   
 
 > You have to shock the world to bring attention.  
 > dual responsibility  
@@ -414,7 +414,7 @@ His eyes **scintillated** excitation.
 **rigidity**  
 **retain**, **retentive**  
 Get out of bed, you fat **slob**!  
-The **drunkard** **tottered** along the road. -  
+The **drunkard** **tottered** along the road.   
 
 **meek**, **docile**, **submissive**  
 **tutelage**  
