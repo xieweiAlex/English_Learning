@@ -403,7 +403,6 @@ Her signature was an **illegible** **scrawl**.
 
 The government has refused to make up a $30,000 **shortfall** in funding.  
 **gallantly**  
-**dysentery** attack  
 **moldy**  
 **perspicacious**  
 **Masochist**  

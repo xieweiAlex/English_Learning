@@ -1,4 +1,6 @@
 
+**electrify**, **electrified**.  
+
 **laborious**, **arduous**, **painstaking**, **strenuous**
 
 **prospective**

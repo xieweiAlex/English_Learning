@@ -24,7 +24,6 @@ nuclear **warhead**, atomic **warhead**.
 **therapeutic**, **curative**  
 Too much is spent on **curative medicine** and too little on **preventive medicine**.  
 
-**Crayon** **Shin-chan**.  
 **coke**.  
 **pragma**  
 **dishearten**  

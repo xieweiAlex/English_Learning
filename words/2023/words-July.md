@@ -311,7 +311,7 @@ Because you were too busy **ogling** me to listen a word what I've said.
 
 An aggressive, surfboard-stealing sea otter in California this week **eluded** wildlife officials who tried to catch it.  
 There will be a **culling** of the Unicorn herd, with some of these companies shutting down, others raising capital or exiting at valuations below $1 billion.  
-Back in 2009, Tumblr was so **ascendant**.   
+Back in 2009, Tumblr was so **ascendant**.  
 
 
 **Pergola** **trellis**.  
@@ -351,7 +351,7 @@ You'll have to **abide by** the rules of the club.
 **shudder**, **dodder**  
 **Temptress**  
 
-A healthy, **delectable** vegan lunch.   
+A healthy, **delectable** vegan lunch.  
 
 **portion** them out.  
 
@@ -420,7 +420,7 @@ Her kindness quite **abashed** me.
 **simp**, **pick-me girl**, **dead meat**, **quiet quitting**  
 
 I spoke from the **pulpit** **ad lib**.  
-The wheels sank deeper into the **mire**.   
+The wheels sank deeper into the **mire**.  
 
 **detox**, **detoxify**  
 His **proclivity** for alcohol was almost as well-known as his **poetry**. -  

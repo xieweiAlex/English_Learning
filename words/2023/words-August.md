@@ -1,16 +1,46 @@
 
+she **fought** to **stave off** the hot tears **scalding** her eyes.  
+The **knee-jerk** reaction of many firms was to band together to stave off any threats to their bottom line. Hollywood actors and writers have gone on strike in part over fear that they might lose or share revenue with machines  
+
+
 ## Week 2 
+
+**dysentery** attack, **diarrhea**.  
+**lacerate**  
+What policy actions could China take to **palliate** the loss? -  
+**incense**  
+
+
+In conversation she **exudes** wit and self-assurance.  
+He **exuded** good humour and bonhomie. -  
+
+So he **concocted** a **fiendish** scheme to trick her into paying. -  
+
+Her **dismissal** came as **a bolt from the blue**.  
+**Crayon** **Shin-chan**.  
+**deport**, **deportation**  
+**prism**, **prismatic**  
+Her **carriage** and **diction** were always faultless.  
+**microbe**, **microbiome**   
+
+
+Your brain was designed to do this work. It was meant to separate what is important from what is senseless, to keep things **in perspective**, to only become troubled by that which is worth becoming troubled about. You only need to put it to use.  
+
+
+**obituary** notice.  
+**shriek**  
+This also makes the painting **impervious** to water.  
 
 **median** vs **mean** 
 
 **Celestial empire**.  
-They scurry about with solemn proclamations, filled with an excess of certitude, about everything under the sun.  
-Just as the British refused to kowtow to the emperor, Bitcoin won’t be deferential to the SEC.  
-The refusal of the Chinese civilization to negotiate with the superior force led to the Opium Wars. It took a while, but the outcome was pre-ordained.  
-Just as Qianlong sat on his throne (well he didn’t always sit, he had 12 official concubines and 27 children) and issued silly edicts to the British empire, the US government pretends that they can regulate bitcoin. They can’t.  
+They **scurry** about with **solemn** **proclamations**, filled with an excess of **certitude**, about everything under the sun.  
+Just as the British refused to **kowtow** to the emperor, Bitcoin won’t be **deferential** to the SEC.  
+The refusal of the Chinese civilization to negotiate with the superior force led to the **Opium Wars**. It took a while, but the outcome was **pre-ordained**.  
+Just as Qianlong sat on his throne (well he didn't always sit, he had 12 official **concubines** and 27 children) and issued silly **edicts** to the British empire, the US government pretends that they can regulate bitcoin. They can’t.  
 
 
-The Department of Justice is shelling out more than $6 billion to private companies to manage its asset forfeiture investigations, raising alarm from one nonprofit law firm that accuses police of "treating ordinary Americans like ATMs" and seizing their cash.  
+The Department of Justice is **shelling out** more than $6 billion to private companies to manage its asset **forfeiture** investigations, raising alarm from one nonprofit law firm that accuses police of "treating ordinary Americans like ATMs" and seizing their cash. -  
 
 **Veiling**  
 **sizzle**  
@@ -19,9 +49,9 @@ hair **follicle**.
 **makeshift**  
 **calamitous**  
 
-If your sandwich is fresh, wrap it in foil or parchment paper to keep it from drying.  
+If your sandwich is fresh, wrap it in foil or **parchment** paper to keep it from drying.  
 
-It is impossible to aim at a single point with a shotgun because it shoots pellets that scatter, and it seems almost equally difficult for System 1 not to do more than System 2 charges it to do.  
+It is impossible to aim at a single point with a shotgun because it shoots **pellets** that scatter, and it seems almost equally difficult for System 1 not to do more than System 2 charges it to do.  
 
 America’s wave of violence may have **crested**.  
 

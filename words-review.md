@@ -1,10 +1,16 @@
-## words-July.md ##  
-words/2023/words-July.md  
+## words-August.md ##  
+words/2023/words-August.md  
+**Thwack** -  
+Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  
+Meanwhile, crackdowns in recent years have left the private sector **reeling**. -  
 If love and friendship can't be together, I will **abnegate** the **resultless** love. -  
 Then there are the legal **travails** of Donald Trump. -  
 The bones were **disinterred** and moved to a **burial site**. -  
 He was out of work and living in **squalor**. -  
 Her bowel will **engorge** quite often, I'm afraid. -  
+
+## words-July.md ##  
+words/2023/words-July.md  
 Oversight of the crypto industry has **hitherto** been a **grey area**, with the SEC and the Commodity Futures Trading Commission **jockeying** for control. -  
 While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place. -  
 The pop culture view of startups is that they’re all about coming up with a great product idea. After the **eureka moment**, the outcome is **preordained**. This neglects the **years of toil** that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically. -  
@@ -30,9 +36,6 @@ They condemned the deal as a **craven** surrender. -
 ## words-May.md ##  
 words/2023/words-May.md  
 I'm a **gigolo**, that's different. -  
-
-## words-April.md ##  
-words/2023/words-April.md  
 
 ## words-Feb.md ##  
 words/2023/words-Feb.md  

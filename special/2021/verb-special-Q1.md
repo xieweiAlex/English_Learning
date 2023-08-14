@@ -7,8 +7,6 @@
 
 **pare**
 
-**pummel**
-
 **wring** 
 
 **churn**  
