@@ -1,4 +1,6 @@
 
+**woo-woo**
+
 she **fought** to **stave off** the hot tears **scalding** her eyes.  
 The **knee-jerk** reaction of many firms was to band together to stave off any threats to their bottom line. Hollywood actors and writers have gone on strike in part over fear that they might lose or share revenue with machines  
 

@@ -1,5 +1,9 @@
 ## words-August.md ##  
 words/2023/words-August.md  
+What policy actions could China take to **palliate** the loss? -  
+He **exuded** good humour and bonhomie. -  
+So he **concocted** a **fiendish** scheme to trick her into paying. -  
+The Department of Justice is **shelling out** more than $6 billion to private companies to manage its asset **forfeiture** investigations, raising alarm from one nonprofit law firm that accuses police of "treating ordinary Americans like ATMs" and seizing their cash. -  
 **Thwack** -  
 Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  
 Meanwhile, crackdowns in recent years have left the private sector **reeling**. -  
@@ -15,17 +19,14 @@ Oversight of the crypto industry has **hitherto** been a **grey area**, with the
 While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place. -  
 The pop culture view of startups is that they’re all about coming up with a great product idea. After the **eureka moment**, the outcome is **preordained**. This neglects the **years of toil** that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically. -  
 **helical** curve /  blade. -  
-We didn't do anything wrong. This isn’t **bigotry** or **hatred**. It’s just a mismatch. -  
 **Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China. -  
 Give the dog the bone do not **tantalize** him. -  
 She browsed in an **upscale** **antiques** shop. -  
-Fewer workers are needed to **solder** circuit boards. -  
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
 I knew his help wouldn't be given **gratis**. -  
 His **proclivity** for alcohol was almost as well-known as his **poetry**. -  
 They were **solicitous** and **intent**, watching her every move.  -  
 Seal tightly then leave for four to five days to **macerate**. -  
-The grant helped **defray** the expenses of the trip. -  
 
 ## words-June.md ##  
 words/2023/words-June.md  

@@ -1,4 +1,6 @@
 
+**adequate**
+
 **electrify**, **electrified**.  
 
 **laborious**, **arduous**, **painstaking**, **strenuous**
@@ -14,7 +16,7 @@
 **sideline**
 
 **homeostasis**
-**hormesis**
+**hormesis**, **hormetic**
 
 ## July 
 
