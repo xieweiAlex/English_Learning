@@ -158,4 +158,5 @@ That woman has the attention span of a **gnat**.
 
 > **Undeterred** in challenging **spurious** or poorly framed arguments, they can be formidable debaters. It truly **pains** this type to see **falsities** and **fallacies** go unchallenged.  
 
+They were **indignant** that they hadn't been invited. 
 
