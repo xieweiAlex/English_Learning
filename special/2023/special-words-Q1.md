@@ -1,4 +1,6 @@
 
+**steadfast**
+
 **adequate**
 
 **electrify**, **electrified**.  

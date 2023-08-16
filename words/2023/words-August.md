@@ -1,4 +1,15 @@
 
+Peddling  
+Warren Buffett, the good natured financier, became a homespun folk hero, without the tools and overalls.  
+twilight zone, evening twilight 
+
+
+
+Think about someone you know who has character of **granite**.  
+When he was younger and **frail**, he went to a gym in his home, every day, for hours **on end**.  
+When he was **shattered** by the loss of his wife and mother on the same day, he went to **The Badlands** and herded cattle. And on and on.  
+
+
 **woo-woo**
 
 she **fought** to **stave off** the hot tears **scalding** her eyes.  
