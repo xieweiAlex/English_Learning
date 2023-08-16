@@ -1,8 +1,18 @@
 
-Peddling  
-Warren Buffett, the good natured financier, became a homespun folk hero, without the tools and overalls.  
-twilight zone, evening twilight 
+India bazar / bazaar   
+We interrupt your August doldrums to tell you about our first-ever Developer Day at Oktane.  
 
+
+I was **distraught** and let out a bellow of tearful rage.  
+We waited for the judge's decision with **bated** breath.  
+**goeey**  
+**mooch around**  
+
+
+He **peddled** fish from a pushcart.
+**Peddling**  
+Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**. -  
+**twilight zone**, evening **twilight** 
 
 
 Think about someone you know who has character of **granite**.  

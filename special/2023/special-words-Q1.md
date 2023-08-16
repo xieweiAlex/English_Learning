@@ -1,4 +1,8 @@
 
+**vibrant**, **vibrancy**  
+
+**cynic**
+
 **steadfast**
 
 **adequate**
