@@ -1,24 +1,22 @@
 
-India bazar / bazaar   
-We interrupt your August doldrums to tell you about our first-ever Developer Day at Oktane.  
 
+
+India **bazar** / **bazaar**   
+We interrupt your August **doldrums** to tell you about our first-ever Developer Day at Oktane. -  
 
 I was **distraught** and let out a bellow of tearful rage.  
 We waited for the judge's decision with **bated** breath.  
 **goeey**  
 **mooch around**  
 
-
 He **peddled** fish from a pushcart.
 **Peddling**  
 Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**. -  
 **twilight zone**, evening **twilight** 
 
-
 Think about someone you know who has character of **granite**.  
 When he was younger and **frail**, he went to a gym in his home, every day, for hours **on end**.  
 When he was **shattered** by the loss of his wife and mother on the same day, he went to **The Badlands** and herded cattle. And on and on.  
-
 
 **woo-woo**
 
@@ -29,13 +27,12 @@ The **knee-jerk** reaction of many firms was to band together to stave off any t
 ## Week 2 
 
 **dysentery** attack, **diarrhea**.  
-**lacerate**  
+**lacerate**. -  
 What policy actions could China take to **palliate** the loss? -  
 **incense**  
 
-
 In conversation she **exudes** wit and self-assurance.  
-He **exuded** good humour and bonhomie. -  
+He **exuded** good humour and **bonhomie**. -  
 
 So he **concocted** a **fiendish** scheme to trick her into paying. -  
 
@@ -49,7 +46,6 @@ Her **carriage** and **diction** were always faultless.
 
 Your brain was designed to do this work. It was meant to separate what is important from what is senseless, to keep things **in perspective**, to only become troubled by that which is worth becoming troubled about. You only need to put it to use.  
 
-
 **obituary** notice.  
 **shriek**  
 This also makes the painting **impervious** to water.  
@@ -61,7 +57,6 @@ They **scurry** about with **solemn** **proclamations**, filled with an excess o
 Just as the British refused to **kowtow** to the emperor, Bitcoin won’t be **deferential** to the SEC.  
 The refusal of the Chinese civilization to negotiate with the superior force led to the **Opium Wars**. It took a while, but the outcome was **pre-ordained**.  
 Just as Qianlong sat on his throne (well he didn't always sit, he had 12 official **concubines** and 27 children) and issued silly **edicts** to the British empire, the US government pretends that they can regulate bitcoin. They can’t.  
-
 
 The Department of Justice is **shelling out** more than $6 billion to private companies to manage its asset **forfeiture** investigations, raising alarm from one nonprofit law firm that accuses police of "treating ordinary Americans like ATMs" and seizing their cash. -  
 
@@ -84,34 +79,34 @@ Given the amount of interest the question about shrinking **attention spans** ha
 Many different investigations that were either not quite answering the question I was asking or too **shoddy** (or murky) to be trusted.  
 Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  
 
-Rather than try to threaten or **cajole** their way to the productivity-boosting benefits of in-person work, they can bring their workers together by giving them space to keep apart.  
+Rather than try to threaten or **cajole** their way to the productivity-boosting benefits of in-person work, they can bring their workers together by giving them space to keep apart.   
 Some of them visibly annoyed that your chitchat is **derailing** their **train of thought**.  
 Tightly spaced desks in open offices also often feel cramped; everyone has just enough room to type without **jostling** elbows.  
 
+It is difficult to **cajole** him into consent.  
+**cajole** (sth.) out of [from] sb.  
+He hoped to **cajole** her into selling him her house.  
 
 **Arbitration** court / proceedings.  
 **Ballsy**.  
 **goon**  
 **goop**  
-She gave him the bad news **without preamble**.  
+She gave him the bad news **without preamble**. -  
 
 Monkeys were **screeching** in the trees.  
 **screeching** halt.  
 
 Meanwhile, crackdowns in recent years have left the private sector **reeling**. -  
-Deflation could **beget** deflation expectations, which may see demand suffer as consumers hold off on more purchases.  
+Deflation could **beget** deflation expectations, which may see demand suffer as consumers hold off on more purchases. -  
 **sawmill**  
 
-**Forego** exercise within three hours of bedtime.  
+**Forego** exercise within three hours of bedtime. -  
 I thought it was a **foregoing conclusion** that we would have peace.  
 
 You **fixed me up** with a bald woman.  
 
-
 **oblivion**, **oblivious**  
 **flatline**  
-
-
 Let's take a look at this **clip**.  
 
 **noodle over something**.  

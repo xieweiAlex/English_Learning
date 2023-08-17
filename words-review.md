@@ -1,12 +1,18 @@
 ## words-August.md ##  
 words/2023/words-August.md  
+We interrupt your August **doldrums** to tell you about our first-ever Developer Day at Oktane. -  
+Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**. -  
+**lacerate**. -  
 What policy actions could China take to **palliate** the loss? -  
-He **exuded** good humour and bonhomie. -  
+He **exuded** good humour and **bonhomie**. -  
 So he **concocted** a **fiendish** scheme to trick her into paying. -  
 The Department of Justice is **shelling out** more than $6 billion to private companies to manage its asset **forfeiture** investigations, raising alarm from one nonprofit law firm that accuses police of "treating ordinary Americans like ATMs" and seizing their cash. -  
 **Thwack** -  
 Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  
+She gave him the bad news **without preamble**. -  
 Meanwhile, crackdowns in recent years have left the private sector **reeling**. -  
+Deflation could **beget** deflation expectations, which may see demand suffer as consumers hold off on more purchases. -  
+**Forego** exercise within three hours of bedtime. -  
 If love and friendship can't be together, I will **abnegate** the **resultless** love. -  
 Then there are the legal **travails** of Donald Trump. -  
 The bones were **disinterred** and moved to a **burial site**. -  

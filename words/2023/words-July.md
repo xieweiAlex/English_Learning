@@ -94,7 +94,7 @@ Ask any CFO what excites them most about artificial intelligence, and you’ll g
 As finance departments start to implement AI into their workflows, this question will be debated and litigated **ad nauseam**.  
 “Anything that is currently manual entry is a **prime target**, and I would say **rightfully** so…for automation,” Glenn Hopper, CFO and director at Eventus Advisory Group, told CFO Brew. “Those tasks are **error-prone**.”  
 
-We didn't do anything wrong. This isn’t **bigotry** or **hatred**. It’s just a mismatch.   
+We didn't do anything wrong. This isn’t **bigotry** or **hatred**. It’s just a mismatch.  
 
 **autonomic**, runaway train.  
 
@@ -221,7 +221,7 @@ It’s like giving someone **Tylenol** when they have a **gunshot** wound; what 
 Those people have a greater **propensity** to spend any stimulus they receive, because **their income and expenses are roughly the same** and thus their income is the strict limiter on their spending capacity.  
 He hospitalizes patients for minor **ailments**.  
 
-Fewer workers are needed to **solder** circuit boards.   
+Fewer workers are needed to **solder** circuit boards.  
 **battalion**  
 We sincerely ask that each of you join us in **standing toe to toe** against the enemy.  
 **seismic** / mineral / gravity **prospecting**  
@@ -633,7 +633,7 @@ Japanese **sumo**
 **Expunge**  
 **Vassal** lord/state  
 The terrible scenes were **indelibly** imprinted on his mind.  
-The grant helped **defray** the expenses of the trip.   
+The grant helped **defray** the expenses of the trip.  
 
 > Sometimes, it's about doing less and enabling others to do more.  
 
