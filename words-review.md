@@ -12,7 +12,7 @@ Instead, focus on consuming soft foods that won't put **undue stress** on the fi
 She gave him the bad news **without preamble**. -  
 Meanwhile, crackdowns in recent years have left the private sector **reeling**. -  
 Deflation could **beget** deflation expectations, which may see demand suffer as consumers hold off on more purchases. -  
-**Forego** exercise within three hours of bedtime. -  
+**Forego** exercise within three hours of bedtime.   
 If love and friendship can't be together, I will **abnegate** the **resultless** love. -  
 Then there are the legal **travails** of Donald Trump. -  
 The bones were **disinterred** and moved to a **burial site**. -  
@@ -22,12 +22,12 @@ Her bowel will **engorge** quite often, I'm afraid. -
 ## words-July.md ##  
 words/2023/words-July.md  
 Oversight of the crypto industry has **hitherto** been a **grey area**, with the SEC and the Commodity Futures Trading Commission **jockeying** for control. -  
-While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place. -  
-The pop culture view of startups is that they’re all about coming up with a great product idea. After the **eureka moment**, the outcome is **preordained**. This neglects the **years of toil** that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically. -  
+While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place.   
+The pop culture view of startups is that they’re all about coming up with a great product idea. After the **eureka moment**, the outcome is **preordained**. This neglects the **years of toil** that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically.   
 **helical** curve /  blade. -  
 **Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China. -  
-Give the dog the bone do not **tantalize** him. -  
-She browsed in an **upscale** **antiques** shop. -  
+Give the dog the bone do not **tantalize** him.   
+She browsed in an **upscale** **antiques** shop.   
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
 I knew his help wouldn't be given **gratis**. -  
 His **proclivity** for alcohol was almost as well-known as his **poetry**. -  

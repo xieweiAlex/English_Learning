@@ -1,21 +1,30 @@
 
+China’s **disgruntled** youth have had enough  
+**Bushels** per acre per year. 
+
+> The Stoics aimed high. They did their best. They tried to be good people. They tried to be virtuous.
+
+What Marcus was doing, what we can do, is “**stripping** things of the legend that **encrusts** them.” He was using the power of his mind to **rip the polish off**, to remove the branding, to take things down to their **studs**.  
+So he could see what was really happening, that he was deceived, **puffed up**, **tempted**. Materialism, injustice, our lower urges–these things depend on legend and myth and marketing.  
+
+
 **I'm on it**. 
 
-I wasn't born yesterday.  
-How should I know.  
-Not again.  
-Enough is enough  
-Stop jerking/yanking my chain.  
+**I wasn't born yesterday**.  
+**How should I know**.  
+**Not again**.  
+**Enough is enough**  
+Stop **jerking/yanking my chain**.  
 
-black tea  
-busboy  
-busybody  
+**black tea**  
+**busboy**  
+**busybody**  
 
-captivating, riveting  
-cappuccino
-sprite  
-Macchiato
-liquor  
+**captivating**, **riveting**  
+**cappuccino**
+**sprite**  
+**Macchiato**
+**liquor**  
 
 it **goes without saying**.  
 **yellowdog**, **underdog**
