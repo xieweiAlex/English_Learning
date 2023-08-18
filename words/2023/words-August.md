@@ -1,4 +1,26 @@
 
+**I'm on it**. 
+
+I wasn't born yesterday.  
+How should I know.  
+Not again.  
+Enough is enough  
+Stop jerking/yanking my chain.  
+
+black tea  
+busboy  
+busybody  
+
+captivating, riveting  
+cappuccino
+sprite  
+Macchiato
+liquor  
+
+it **goes without saying**.  
+**yellowdog**, **underdog**
+
+"Water is wonderful," but if you're **exerting** yourself, consider supplementing with electrolyte drinks.  
 
 
 India **bazar** / **bazaar**   
