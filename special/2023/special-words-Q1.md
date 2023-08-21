@@ -1,4 +1,10 @@
 
+**tally**
+
+**symbiotic**
+
+**unsettling**
+
 **vibrant**, **vibrancy**  
 
 **cynic**

@@ -1,4 +1,36 @@
 
+
+Trump made a **mockery** of American democracy. Why are Americans shrugging this off?
+The thing they don't have is the know-how.  
+At the school, the Chinese Communist Party teaches how it fuses the ruling political party and the state, marking a clear departure from Beijing's previous, more subtle attempts to peddle influence on the international stage.  
+a throwback to Beijing's Soviet-era strategies — mark a departure from what the CCP has previously done, experts said.  
+
+
+Dirk Nowitzki was inducted into the Naismith Basketball Hall of Fame over the weekend as a member of its 2023 class.  
+> Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I'll be naked for you. It will be our **covenant**. -  
+
+He had an illicit association with Jane.  
+But is scarfing down raw oats actually good for you?  
+The practice of carrying mementos that remind us of loved ones who have passed away dates back thousands of years, to the **Iron Age**.  
+The meaning we ascribe can turn even the most ordinary things into priceless objects.  
+
+
+Which goes by the deceptively comforting name of Country Garden, also seems to be in difficulty.  
+Flaxseed is a cornucopia of vitamins and minerals, but it’s especially rich in thiamine, copper, and manganese.  
+
+
+Keep conversation low, and do not **employ** **rowdy** behavior. Saunas are designed for relaxation.  
+Do not leave litter of any kind behind, such as band aids or **bobby pins**.  
+
+a **ramshackle** old hut.  
+**insecticide**  
+**tingling**  
+**lament**, **lamentable**  
+**catastrophe**  
+**gurgle** vs **giggle** 
+
+**trollish** comments 
+
 China’s **disgruntled** youth have had enough  
 **Bushels** per acre per year. 
 
@@ -17,7 +49,7 @@ So he could see what was really happening, that he was deceived, **puffed up**, 
 Stop **jerking/yanking my chain**.  
 
 **black tea**  
-**busboy**  
+**busboy**     
 **busybody**  
 
 **captivating**, **riveting**  
