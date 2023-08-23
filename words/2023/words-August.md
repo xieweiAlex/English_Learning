@@ -1,4 +1,17 @@
 
+He felt pleasantly drowsy and had to fight off the urge to sleep.  
+stateside  
+Wind vane 
+The game will be a pushover.  
+Pedestal  
+his impenetrable eyes and inscrutable countenance give little away.  
+
+The omens for the game are still not propitious.  
+It was not a propitious time to start a new business.  
+**Vagabond**  
+
+
+
 A **pinched** nerve in the neck may feel like **pins and needles**.  
 
 I was **gasping** for breath.  
