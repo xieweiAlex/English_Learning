@@ -1,16 +1,23 @@
 
-He felt pleasantly drowsy and had to fight off the urge to sleep.  
-stateside  
-Wind vane 
-The game will be a pushover.  
-Pedestal  
-his impenetrable eyes and inscrutable countenance give little away.  
 
-The omens for the game are still not propitious.  
-It was not a propitious time to start a new business.  
+The speaker was **regrettably** **indisposed**.  
+
+
+**collegiate** athlete.  
+Inky Johnson is one of the most highly **sought after** speakers in the world.  
+But to believe the **sky is falling** and **all is lost** and we are doomed is total nonsense.  
+> give to gain
+
+He felt pleasantly **drowsy** and had to **fight off** the urge to sleep.  
+**stateside**  
+Wind **vane** 
+The game will be a **pushover**.  
+**Pedestal**??
+His **impenetrable** eyes and **inscrutable** **countenance** give little away. -  
+
+The **omens** for the game are still not **propitious**. -  
+It was not a **propitious** time to start a new business. -  
 **Vagabond**  
-
-
 
 A **pinched** nerve in the neck may feel like **pins and needles**.  
 
