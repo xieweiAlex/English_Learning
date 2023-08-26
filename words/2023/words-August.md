@@ -1,7 +1,7 @@
 
+dial in
 
 The speaker was **regrettably** **indisposed**.  
-
 
 **collegiate** athlete.  
 Inky Johnson is one of the most highly **sought after** speakers in the world.  
@@ -260,6 +260,8 @@ Russian forces **pummeled** a Ukrainian village in a counteroffensive today.
 ## Conversation  
 
 That woman has the attention span of a **gnat**.  
+
+> How is it going? 
 
 ## Interesting  
 
