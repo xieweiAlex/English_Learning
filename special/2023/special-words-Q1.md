@@ -1,22 +1,22 @@
 
-**substandard**
-**barometer**
+**Substandard**
+**Barometer**
 
-**tally**
+**Tally**
 
-**symbiotic**
+**Symbiotic**
 
 **unsettling**
 
-**vibrant**, **vibrancy**  
+**Vibrant**, **Vibrancy**  
 
-**cynic**
+**Cynic**
 
-**steadfast**
+**Steadfast**
 
 **adequate**
 
-**electrify**, **electrified**.  
+**Electrify**, **Electrified**  
 
 **laborious**, **arduous**, **painstaking**, **strenuous**
 

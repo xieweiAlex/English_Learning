@@ -1,5 +1,13 @@
 
-dial in
+moderation, immoderation.  
+
+The ADA states that this electric toothbrush can break up and remove plaque, and it can help reduce and prevent gingivitis.  
+
+
+> And that is what will come back to bite you. That is what is biting us right now, on every continent, in every corner of culture, at nearly every turn. Because character is fate. Always has been. Always will be.  
+
+**dial in**
+recant  
 
 The speaker was **regrettably** **indisposed**.  
 
@@ -117,7 +125,7 @@ The **knee-jerk** reaction of many firms was to band together to stave off any t
 
 **dysentery** attack, **diarrhea**.  
 **lacerate**. -  
-What policy actions could China take to **palliate** the loss? -  
+What policy actions could China take to **palliate** the loss?   
 **incense**  
 
 In conversation she **exudes** wit and self-assurance.  
@@ -147,7 +155,7 @@ Just as the British refused to **kowtow** to the emperor, Bitcoin won’t be **d
 The refusal of the Chinese civilization to negotiate with the superior force led to the **Opium Wars**. It took a while, but the outcome was **pre-ordained**.  
 Just as Qianlong sat on his throne (well he didn't always sit, he had 12 official **concubines** and 27 children) and issued silly **edicts** to the British empire, the US government pretends that they can regulate bitcoin. They can’t.  
 
-The Department of Justice is **shelling out** more than $6 billion to private companies to manage its asset **forfeiture** investigations, raising alarm from one nonprofit law firm that accuses police of "treating ordinary Americans like ATMs" and seizing their cash. -  
+The Department of Justice is **shelling out** more than $6 billion to private companies to manage its asset **forfeiture** investigations, raising alarm from one nonprofit law firm that accuses police of "treating ordinary Americans like ATMs" and seizing their cash.   
 
 **Veiling**  
 **sizzle**  
@@ -189,7 +197,7 @@ Meanwhile, crackdowns in recent years have left the private sector **reeling**. 
 Deflation could **beget** deflation expectations, which may see demand suffer as consumers hold off on more purchases. -  
 **sawmill**  
 
-**Forego** exercise within three hours of bedtime. -  
+**Forego** exercise within three hours of bedtime.   
 I thought it was a **foregoing conclusion** that we would have peace.  
 
 You **fixed me up** with a bald woman.  
@@ -207,7 +215,7 @@ front **axle**, **axle** shaft
 **catch fire**.  
 The governor was forced to **parley** with the rebels.  
 My judgement is that the plan is **incogitant**.  
-If love and friendship can't be together, I will **abnegate** the **resultless** love. -  
+If love and friendship can't be together, I will **abnegate** the **resultless** love.   
 Then there are the legal **travails** of Donald Trump. -  
 
 
@@ -239,7 +247,7 @@ We highly recommend using Free Range Chickens because they have better texture &
 They originated in ancient times and were historically used to **revive** people who had **fainted**. Today, some athletes use them because they believe the salts provide extra energy and focus before competitions.  
 
 The **leased vehicle** remains the property of the **lessor** -- the company that issued the lease.  
-Her bowel will **engorge** quite often, I'm afraid. -  
+Her bowel will **engorge** quite often, I'm afraid.   
 **Poundage**  
 
 One of my **all time favoriate** shows.  
@@ -262,6 +270,9 @@ Russian forces **pummeled** a Ukrainian village in a counteroffensive today.
 That woman has the attention span of a **gnat**.  
 
 > How is it going? 
+> The floor is yours 
+
+
 
 ## Interesting  
 
