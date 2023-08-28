@@ -1,8 +1,18 @@
 
-moderation, immoderation.  
+**unscrupulous**
+slice and dice  
+Anglican  
 
-The ADA states that this electric toothbrush can break up and remove plaque, and it can help reduce and prevent gingivitis.  
+Covenant  
 
+
+
+
+## Week 3
+
+**moderation**, **immoderation**.  
+
+The ADA states that this electric toothbrush can break up and remove **plaque**, and it can help reduce and prevent **gingivitis**.  
 
 > And that is what will come back to bite you. That is what is biting us right now, on every continent, in every corner of culture, at nearly every turn. Because character is fate. Always has been. Always will be.  
 
