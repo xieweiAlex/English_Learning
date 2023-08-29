@@ -1,22 +1,41 @@
 
-A mercurial billionaire, Terry Gou, shakes up Taiwan's presidential race.  
+The scenery is magnificent.  
 
 
-merch, merchandise.  
-pariah status.  
-North Korea's borders are creaking open.  
+The same went for the jewelry and the clothes. We are not gawking at the person wearing the clothes or the jewelry; we are imagining ourselves wearing them. The person does not matter to us at all.   
 
 
-The Prime Minister was reeling from a savaging inflicted in the Commons.  
-His mind was reeling at the shock.  
+
+He had **crippling** health problems.  
+
+> So don’t let anyone tell you that Stoicism is a **dour** and pessimistic philosophy. Don’t let anyone tell you this is a philosophy of **resignation**. On the contrary, it is a deeply optimistic and resilient belief system. It’s about not giving up, not giving in, not letting fate or misfortune break you, of loving life, despite it all.  
+
+
+People often take this quote (and others from Satoshi) and use it to fallaciously argue (via appeal to authority) that the bitcoin protocol must evolve in a specific way.  
+
+Then, I’d mention that **taking a walk after work** clears my mind.  
+Crypto experts say the case poses a **vexing** question: can publishing software be criminalized?  
+Meta and Goldman doubled down on return-to-office pushes, with Meta saying **holdouts** could lose their job.  
+Zimbabwe’s flawed election will ensure its pariah status **endures**.  
+
+It is an elegant way to discover new insights — and **duck** that tedious **bore** who loudly knows nothing but won’t change their mind!
+A **mercurial** billionaire, Terry Gou, shakes up Taiwan's presidential race. -  
+
+
+**merch**, **merchandise**.  
+**Pariah status**.  
+North Korea's borders are **creaking open**.  
+
+The Prime Minister was **reeling** from a **savaging** inflicted in the **Commons**.  
+His mind was **reeling** at the shock.  
 
 **unscrupulous**
-slice and dice  
-Anglican  
+**slice and dice**  
+**Anglican**  
 
-Covenant  
+**Covenant**  
 
-Enjoy a scenic run.  
+Enjoy a **scenic** run.  
 
 
 
@@ -29,7 +48,7 @@ The ADA states that this electric toothbrush can break up and remove **plaque**,
 > And that is what will come back to bite you. That is what is biting us right now, on every continent, in every corner of culture, at nearly every turn. Because character is fate. Always has been. Always will be.  
 
 **dial in**
-recant  
+**recant**  
 
 The speaker was **regrettably** **indisposed**.  
 
