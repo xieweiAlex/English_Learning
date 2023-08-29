@@ -11,7 +11,7 @@ Flaxseed is a **cornucopia** of vitamins and minerals, but it’s especially ric
 We interrupt your August **doldrums** to tell you about our first-ever Developer Day at Oktane. -  
 Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**. -  
 **lacerate**. -  
-He **exuded** good humour and **bonhomie**. -  
+He **exuded** good humour and **bonhomie**.   
 So he **concocted** a **fiendish** scheme to trick her into paying. -  
 **Thwack** -  
 Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  

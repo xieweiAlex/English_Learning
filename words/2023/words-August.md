@@ -1,10 +1,22 @@
 
+A mercurial billionaire, Terry Gou, shakes up Taiwan's presidential race.  
+
+
+merch, merchandise.  
+pariah status.  
+North Korea's borders are creaking open.  
+
+
+The Prime Minister was reeling from a savaging inflicted in the Commons.  
+His mind was reeling at the shock.  
+
 **unscrupulous**
 slice and dice  
 Anglican  
 
 Covenant  
 
+Enjoy a scenic run.  
 
 
 
