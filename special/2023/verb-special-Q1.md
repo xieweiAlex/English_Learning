@@ -1,4 +1,8 @@
 
+**negate**
+
+**bode**
+
 **alienate**
 
 **scrap** 

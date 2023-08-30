@@ -1,23 +1,25 @@
 
-levator scapula.  
-dead vs died  
+But how long does this stay with you? How quickly will its message **flutter away**? 
 
 
-enormous, humongous, gigantic, ginormous 
+Bitcoin (BTC-USD) is trading above $27,000 again after a federal court **vacated** an SEC ruling that had prohibited Grayscale from starting a Bitcoin exchange-traded fund in the U.S. Cryptocurrencies jumped on the news on Tuesday.  
 
-The scenery is magnificent.  
-
-
-The same went for the jewelry and the clothes. We are not gawking at the person wearing the clothes or the jewelry; we are imagining ourselves wearing them. The person does not matter to us at all.   
+**levator** **scapula**.  
+**dead** vs **died**  
 
 
+**enormous**, **humongous**, **gigantic**, **ginormous** 
 
+The **scenery** is **magnificent**.  
+**scenic**
+
+
+The same went for the jewelry and the clothes. We are not **gawking** at the person wearing the clothes or the jewelry; we are imagining ourselves wearing them. The person does not matter to us at all.   
 He had **crippling** health problems.  
 
 > So don’t let anyone tell you that Stoicism is a **dour** and pessimistic philosophy. Don’t let anyone tell you this is a philosophy of **resignation**. On the contrary, it is a deeply optimistic and resilient belief system. It’s about not giving up, not giving in, not letting fate or misfortune break you, of loving life, despite it all.  
 
-
-People often take this quote (and others from Satoshi) and use it to fallaciously argue (via appeal to authority) that the bitcoin protocol must evolve in a specific way.  
+People often take this quote (and others from Satoshi) and use it to **fallaciously** argue (via **appeal to authority**) that the bitcoin protocol must evolve in a specific way.  
 
 Then, I’d mention that **taking a walk after work** clears my mind.  
 Crypto experts say the case poses a **vexing** question: can publishing software be criminalized?  
