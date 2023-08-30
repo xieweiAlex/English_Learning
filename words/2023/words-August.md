@@ -1,4 +1,10 @@
 
+levator scapula.  
+dead vs died  
+
+
+enormous, humongous, gigantic, ginormous 
+
 The scenery is magnificent.  
 
 
