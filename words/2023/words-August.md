@@ -1,6 +1,11 @@
 
-But how long does this stay with you? How quickly will its message **flutter away**? 
 
+Drill down.  
+
+
+Their stage act is a little too **raunchy** for television.  
+
+But how long does this stay with you? How quickly will its message **flutter away**? 
 
 Bitcoin (BTC-USD) is trading above $27,000 again after a federal court **vacated** an SEC ruling that had prohibited Grayscale from starting a Bitcoin exchange-traded fund in the U.S. Cryptocurrencies jumped on the news on Tuesday.  
 
