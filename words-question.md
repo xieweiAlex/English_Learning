@@ -1,4 +1,5 @@
 
+* proclivity vs propensity
 * motto, adage, aphorism, proverb, axiom 
 
 * emblematic vs symbolic 

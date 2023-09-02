@@ -1,7 +1,15 @@
 
 
-Drill down.  
 
+High bond yields **imperil** America’s financial stability  
+Talk of a “**Goldilocks**” situation **belies** real danger.  
+
+Donald Trump’s **racketeering** indictment is the most **sweeping** yet.  
+
+Trump will skip **arraignment** in Georgia and pleads not guilty to charges  
+It's a change for the former president, who has **seized on his court appearances to fundraise and galvanize** his base.  
+
+**Drill down**.  
 
 Their stage act is a little too **raunchy** for television.  
 
@@ -17,7 +25,6 @@ Bitcoin (BTC-USD) is trading above $27,000 again after a federal court **vacated
 
 The **scenery** is **magnificent**.  
 **scenic**
-
 
 The same went for the jewelry and the clothes. We are not **gawking** at the person wearing the clothes or the jewelry; we are imagining ourselves wearing them. The person does not matter to us at all.   
 He had **crippling** health problems.  
@@ -183,7 +190,7 @@ What policy actions could China take to **palliate** the loss?
 **incense**  
 
 In conversation she **exudes** wit and self-assurance.  
-He **exuded** good humour and **bonhomie**. -  
+He **exuded** good humour and **bonhomie**.   
 
 So he **concocted** a **fiendish** scheme to trick her into paying. -  
 
@@ -247,7 +254,7 @@ She gave him the bad news **without preamble**. -
 Monkeys were **screeching** in the trees.  
 **screeching** halt.  
 
-Meanwhile, crackdowns in recent years have left the private sector **reeling**. -  
+Meanwhile, crackdowns in recent years have left the private sector **reeling**.   
 Deflation could **beget** deflation expectations, which may see demand suffer as consumers hold off on more purchases. -  
 **sawmill**  
 
@@ -277,7 +284,7 @@ Then there are the legal **travails** of Donald Trump. -
 
 The **tomb** had been **defiled** and **looted**.  
 
-The bones were **disinterred** and moved to a **burial site**. -  
+The bones were **disinterred** and moved to a **burial site**.   
 
 He was out of work and living in **squalor**. -  
 Have **flannel** PJs replaced your silky **negligees**?   

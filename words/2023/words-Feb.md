@@ -130,7 +130,7 @@ The **crux** of the matter is that the 2021/2022 inflation came from a surge in 
 **peg**  
 
 He was a **vociferous** opponent of Conservatism.  
-Strive for **rapport** with others. -  
+Strive for **rapport** with others.   
 
 **March through** the question list.  
 
@@ -261,7 +261,7 @@ Turn a king into that most feared and **detested** thing -- a tyrant.
 
 **set me up** for reading more.  
 
-Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance. -  
+Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance.   
 You might also describe a room as **scruffy** if it is **cluttered** with a lot of old and worn objects, or if it is dirty and in need of cleaning. In general, the word "scruffy" conveys a **sense of neglect or disrepair**.  
 
 He **regaled** us with some jokes.  

@@ -7,7 +7,7 @@ BlackRock announcing that it would launch a Bitcoin SPOT ETF set the market **ab
 **milking parlor**  
 **parlor trick**  
 
-Oversight of the crypto industry has **hitherto** been a **grey area**, with the SEC and the Commodity Futures Trading Commission **jockeying** for control.   
+Oversight of the crypto industry has **hitherto** been a **grey area**, with the SEC and the Commodity Futures Trading Commission **jockeying** for control.  
 
 Stocks, bonds and other traditional financial instruments fall under the SEC’s **remit**, but US authorities remain **locked in** debate as to whether all — or any — crypto tokens should fall under its **purview**.  
 
@@ -28,7 +28,7 @@ Ivy **leaguer**.
 bollinger bands range ??  
 
 
-While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place.   
+While good businesses do exist in the space, **unscrupulous** **profiteers** have been allowed to **run amok** without the proper **oversight** in place.  
 Until recently, lawmakers and regulators have mostly sat **on the sidelines**, permitting these activities to **take place**.  
 Bankers are looking for a **coalescence** of guidance from **prudential** regulators as it appears this asset class is **here to stay**.  
 **To date**, the banking industry has largely stood on the sidelines, **observing from afar** with little **impetus** to seriously explore how to fill market gaps and better serve their customers by providing digital asset products and services.  
@@ -66,7 +66,7 @@ When the mind **asserting the dominance** over the body.
 **Claw back**  
 **financier**.  
 
-The pop culture view of startups is that they’re all about coming up with a great product idea. After the **eureka moment**, the outcome is **preordained**. This neglects the **years of toil** that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically.   
+The pop culture view of startups is that they’re all about coming up with a great product idea. After the **eureka moment**, the outcome is **preordained**. This neglects the **years of toil** that entrepreneurs endure, and also the fact that the vast majority of startups change over time, often dramatically.  
 
 > The dominant payment systems (mainly, credit card systems) were designed to be offline systems and only much later awkwardly **grafted** onto the Internet. They are inefficient and prone to fraud.  
 
@@ -136,7 +136,7 @@ Whatever disagreements **lingered**, they were thoroughly **put to rest** after 
 China **buckled down** for a storm, pumping an **unfathomable** amount of credit into its economy in anticipation of hard times to come.  
 The rest of the world **marvels at**.  
 **unscathed**  
-**Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China. -  
+**Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China.   
 Corruption, **after all**, it's often a **pretext** for **eliminating** one's rivals. But this **misses the forest for the trees**.  
 The '**vanguard**' of the **proletariat** - cadres - tend to ... lose sight of their **comrades** once they own a BMW.  
 This places the party **on tenuous ground**, because its legitimacy would be at the whim of volatile stock market and real estate bubbles.  
@@ -144,7 +144,7 @@ A **grim** and **gruesome** inspection of Chinese history.
 
 **incense**, **license**  
 The research has been carried out with **scrupulous** **attention to detail**.  
-Give the dog the bone do not **tantalize** him.   
+Give the dog the bone do not **tantalize** him.  
 
 While **blemish**-free leaves are obviously the most aesthetic choice for showing off your culinary creations, are those tiny black flecks on your cabbage cause for concern?  
 
@@ -174,7 +174,7 @@ Without the chairman's support, the committee is **impotent**.
 
 The **admiral** visited the ships **under his command**.  
 He gave her an **affectionate** squeeze.  
-She browsed in an **upscale** **antiques** shop.   
+She browsed in an **upscale** **antiques** shop.  
 self-**immolation**  
 The hotel has a lovely **homely** feel to it.  
 
@@ -388,7 +388,7 @@ The monks lived a very **ascetic** life.
 
 I bought this package **off the shelf**.  
 **Thermal**  
-I knew his help wouldn't be given **gratis**. -  
+I knew his help wouldn't be given **gratis**.   
 **Cojones**  
 They were **indignant** that they hadn't been invited.  
 
@@ -423,7 +423,7 @@ I spoke from the **pulpit** **ad lib**.
 The wheels sank deeper into the **mire**.  
 
 **detox**, **detoxify**  
-His **proclivity** for alcohol was almost as well-known as his **poetry**. -  
+His **proclivity** for alcohol was almost as well-known as his **poetry**.   
 
 The timing of the launch is **fortuitous** for Meta, as recent technical changes at Twitter have frustrated some longtime users of the platform.  
 
