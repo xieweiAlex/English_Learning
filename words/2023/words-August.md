@@ -1,4 +1,18 @@
 
+Apple **Historian** & Senior Editor.  
+
+**prorate**
+**probate** lawyer   
+
+**Probity**  
+**ashram**  
+**Smirch**  
+**stipend**  
+The sudden change in management has created a whole new **kettle of fish** for the company.  
+soybean **lecithin**  
+**Exorcist**  
+
+**erogenous**  
 
 
 High bond yields **imperil** America’s financial stability  
@@ -7,7 +21,7 @@ Talk of a “**Goldilocks**” situation **belies** real danger.
 Donald Trump’s **racketeering** indictment is the most **sweeping** yet.  
 
 Trump will skip **arraignment** in Georgia and pleads not guilty to charges  
-It's a change for the former president, who has **seized on his court appearances to fundraise and galvanize** his base.  
+It's a change for the former president, who has **seized** on his court appearances to fundraise and **galvanize** his base.  
 
 **Drill down**.  
 
@@ -56,8 +70,6 @@ His mind was **reeling** at the shock.
 **Covenant**  
 
 Enjoy a **scenic** run.  
-
-
 
 ## Week 3
 

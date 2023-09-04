@@ -136,7 +136,7 @@ Whatever disagreements **lingered**, they were thoroughly **put to rest** after 
 China **buckled down** for a storm, pumping an **unfathomable** amount of credit into its economy in anticipation of hard times to come.  
 The rest of the world **marvels at**.  
 **unscathed**  
-**Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China.   
+**Above all**, he proved that Socialism, **at least one particular flavor**, still had **cachet** in China.  
 Corruption, **after all**, it's often a **pretext** for **eliminating** one's rivals. But this **misses the forest for the trees**.  
 The '**vanguard**' of the **proletariat** - cadres - tend to ... lose sight of their **comrades** once they own a BMW.  
 This places the party **on tenuous ground**, because its legitimacy would be at the whim of volatile stock market and real estate bubbles.  
@@ -388,7 +388,7 @@ The monks lived a very **ascetic** life.
 
 I bought this package **off the shelf**.  
 **Thermal**  
-I knew his help wouldn't be given **gratis**.   
+I knew his help wouldn't be given **gratis**.  
 **Cojones**  
 They were **indignant** that they hadn't been invited.  
 
@@ -423,7 +423,7 @@ I spoke from the **pulpit** **ad lib**.
 The wheels sank deeper into the **mire**.  
 
 **detox**, **detoxify**  
-His **proclivity** for alcohol was almost as well-known as his **poetry**.   
+His **proclivity** for alcohol was almost as well-known as his **poetry**.  
 
 The timing of the launch is **fortuitous** for Meta, as recent technical changes at Twitter have frustrated some longtime users of the platform.  
 

@@ -212,7 +212,7 @@ She repeated the almost **imperceptible** shrug.
 
 **Arabian**, **Arabic**.  
 The company made $1.67B revenue in 2022, **circa** $140M per month.  
-I'm a **gigolo**, that's different. -  
+I'm a **gigolo**, that's different.   
 **creationism**  
 Bill Clinton needed the world's **undying** attention.  
 **splashy**  

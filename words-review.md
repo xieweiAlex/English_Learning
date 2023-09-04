@@ -32,10 +32,6 @@ Standup comics are just incredibly insightful about human **folly**, and so ofte
 She gets various **perquisites** **in addition to** her **wages**. -  
 They condemned the deal as a **craven** surrender. -  
 
-## words-May.md ##  
-words/2023/words-May.md  
-I'm a **gigolo**, that's different. -  
-
 ## words-Dec.md ##  
 words/2022/words-Dec.md  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
