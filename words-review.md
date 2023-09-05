@@ -4,7 +4,9 @@ A **mercurial** billionaire, Terry Gou, shakes up Taiwan's presidential race. -
 His **impenetrable** eyes and **inscrutable** **countenance** give little away. -  
 The **omens** for the game are still not **propitious**. -  
 It was not a **propitious** time to start a new business. -  
+
 > Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I'll be naked for you. It will be our **covenant**. -  
+
 But is **scarfing down** raw oats actually good for you? -  
 The meaning we **ascribe** can turn even the most ordinary things into priceless objects. -  
 Flaxseed is a **cornucopia** of vitamins and minerals, but it’s especially rich in thiamine, copper, and manganese. -  

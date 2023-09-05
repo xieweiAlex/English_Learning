@@ -1,4 +1,54 @@
 
+In other words, on **techne** (crafts and **know-how**), not **episteme** (book knowledge, know what).  
+> All these things seemed like they mattered. Certainly that’s why you **stewed on** them, **kicked yourself** for them, argued about them, resented them, worried about them, were mad about them.  
+
+They would not **countenance** our suggestion.   
+
+When he doesn't know the answer, he gets **huffy**.  
+**Archetypical**  
+It also includes some **ticks**, **fleas** and **lice** and also a few **mites**.  
+
+
+> What makes ultra-processed foods so bad for your health?  --  They are calorie-rich, nutrient-poor and hard to stop eating
+
+> Add your fluff/positivity in the end. 
+
+
+
+**extortionate** price.  
+**Flamenco** Tap/dance  
+
+
+This **is bound to** go viral.  
+
+A **well-oiled** machinery.  
+Just **rip off** the band-aid, and **kick him to the curb**.  
+
+**buyout**.  
+**homegrown** nuclear reactor.  
+
+**boot licker**.  
+economic **strife**  
+**Saudis** vs **UAE**  
+
+I don't buy into the **premise** that these whales are individuals that are **propping up** the price.  
+
+
+**over-abundant**
+
+Due to it's volatility and finite supply, hashtag#Bitcoin is looked at by many as another rare opportunity to accumulate something special while most **surmise** it is dead.  
+Large Bitcoin Holders Accumulate $1.5B Worth of BTC as Price **Wavers**.  
+
+
+**pristine** asset.  
+
+**serum** protein.  
+**desiccant**, **desiccative**  
+**due time**, **high time**.  
+**paperclip**  
+**gastropathy**  
+
+
 Apple **Historian** & Senior Editor.  
 
 **prorate**
