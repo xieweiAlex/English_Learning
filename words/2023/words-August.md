@@ -1,4 +1,14 @@
 
+bedridden  
+canola  
+liposuction  
+climax  
+travesty, travail  
+
+Olio  
+
+
+
 In other words, on **techne** (crafts and **know-how**), not **episteme** (book knowledge, know what).  
 > All these things seemed like they mattered. Certainly that’s why you **stewed on** them, **kicked yourself** for them, argued about them, resented them, worried about them, were mad about them.  
 
