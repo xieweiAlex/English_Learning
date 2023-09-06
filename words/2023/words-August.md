@@ -7,6 +7,9 @@ travesty, travail
 
 Olio  
 
+**Release valve**
+We are passionate about bitcoin, but we are more passionate about sinners seeing the Gospel and repenting. Jesus is the ultimate hope, not bitcoin.  
+We are infallible. We have been wrong many times in life, but we also believe in the biblical process… and that iron sharpens iron.  
 
 
 In other words, on **techne** (crafts and **know-how**), not **episteme** (book knowledge, know what).  
