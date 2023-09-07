@@ -92,7 +92,7 @@ I need to **top up** my card.
 Sophia Efthimiatou talks with Nadia Bolz-Weber about sinners and **saints**, the enduring power of **scripture**, and how we should really think about **resurrection**  
 
 I want there to be some kind of direct address to those who are hearing my **sermon**. I don’t always get there, but I try to actually say “you” in the sermon, at the end especially, to let people know this is for you. When I hear a sermon, I want somebody to break my heart.  
-Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about. -  
+Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about.   
 It would be amazing if every tech company had an **ethicist** and a **theologian** as part of their board, as part of the conversation in terms of what they do or don’t do. That would be incredible.  
 
 Ryan Holiday details the two-year writing process of his all-ages **fable**, The Girl Who Would be Free, which had its **fair share** of difficulties and obstacles, along with valuable and rewarding experiences.  

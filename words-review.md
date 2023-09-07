@@ -9,28 +9,21 @@ It was not a **propitious** time to start a new business. -
 
 But is **scarfing down** raw oats actually good for you? -  
 The meaning we **ascribe** can turn even the most ordinary things into priceless objects. -  
-Flaxseed is a **cornucopia** of vitamins and minerals, but it’s especially rich in thiamine, copper, and manganese. -  
-We interrupt your August **doldrums** to tell you about our first-ever Developer Day at Oktane. -  
 Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**. -  
 **lacerate**. -  
 So he **concocted** a **fiendish** scheme to trick her into paying. -  
 **Thwack** -  
 Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  
 She gave him the bad news **without preamble**. -  
-Deflation could **beget** deflation expectations, which may see demand suffer as consumers hold off on more purchases. -  
-Then there are the legal **travails** of Donald Trump. -  
 He was out of work and living in **squalor**. -  
 
 ## words-July.md ##  
 words/2023/words-July.md  
 **helical** curve /  blade. -  
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
-They were **solicitous** and **intent**, watching her every move.  -  
-Seal tightly then leave for four to five days to **macerate**. -  
 
 ## words-June.md ##  
 words/2023/words-June.md  
-Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about. -  
 She gets various **perquisites** **in addition to** her **wages**. -  
 They condemned the deal as a **craven** surrender. -  
 

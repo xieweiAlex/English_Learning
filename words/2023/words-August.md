@@ -1,18 +1,21 @@
 
+
+I grew up **bereft** of hugs. -  
+Lemonade does not currently hold **accreditation** by the Better Business Bureau and has earned an F rating for its closed or ignored complaints.  
+
 > Being able to short the currency is the key part of wealth accumulation??
 
-bedridden  
-canola  
-liposuction  
-climax  
-travesty, travail  
+**bedridden**  
+**canola**  
+**liposuction**  
+**climax**  
+**travesty**, **travail**  
 
-Olio  
+**Olio**  
 
 **Release valve**
-We are passionate about bitcoin, but we are more passionate about sinners seeing the Gospel and repenting. Jesus is the ultimate hope, not bitcoin.  
-We are infallible. We have been wrong many times in life, but we also believe in the biblical process… and that iron sharpens iron.  
-
+We are passionate about bitcoin, but we are more passionate about sinners seeing the **Gospel** and **repenting**. Jesus is the ultimate hope, not bitcoin.  
+We are not **infallible**. We have been wrong many times in life, but we also believe in the **biblical** process… and that iron sharpens iron.  
 
 In other words, on **techne** (crafts and **know-how**), not **episteme** (book knowledge, know what).  
 > All these things seemed like they mattered. Certainly that’s why you **stewed on** them, **kicked yourself** for them, argued about them, resented them, worried about them, were mad about them.  
@@ -189,7 +192,7 @@ The practice of carrying mementos that remind us of loved ones who have passed a
 The meaning we **ascribe** can turn even the most ordinary things into priceless objects. -  
 
 Which goes by the **deceptively** comforting name of Country Garden, also seems to be in difficulty.  
-Flaxseed is a **cornucopia** of vitamins and minerals, but it’s especially rich in thiamine, copper, and manganese. -  
+Flaxseed is a **cornucopia** of vitamins and minerals, but it’s especially rich in thiamine, copper, and manganese.   
 
 Keep conversation low, and do not **employ** **rowdy** behavior. Saunas are designed for relaxation.  
 Do not leave litter of any kind behind, such as band aids or **bobby pins**.  
@@ -237,7 +240,7 @@ it **goes without saying**.
 
 
 India **bazar** / **bazaar**   
-We interrupt your August **doldrums** to tell you about our first-ever Developer Day at Oktane. -  
+We interrupt your August **doldrums** to tell you about our first-ever Developer Day at Oktane.   
 
 I was **distraught** and let out a bellow of tearful rage.  
 We waited for the judge's decision with **bated** breath.  
@@ -332,7 +335,7 @@ Monkeys were **screeching** in the trees.
 **screeching** halt.  
 
 Meanwhile, crackdowns in recent years have left the private sector **reeling**.   
-Deflation could **beget** deflation expectations, which may see demand suffer as consumers hold off on more purchases. -  
+Deflation could **beget** deflation expectations, which may see demand suffer as consumers hold off on more purchases.   
 **sawmill**  
 
 **Forego** exercise within three hours of bedtime.   
@@ -354,7 +357,7 @@ front **axle**, **axle** shaft
 The governor was forced to **parley** with the rebels.  
 My judgement is that the plan is **incogitant**.  
 If love and friendship can't be together, I will **abnegate** the **resultless** love.   
-Then there are the legal **travails** of Donald Trump. -  
+Then there are the legal **travails** of Donald Trump.   
 
 
 ## Week 1  
