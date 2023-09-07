@@ -1,5 +1,17 @@
 
 
+> We can’t guarantee success, we can do something better, we can deserve it. - Joseph Addison
+
+The Stoics were towering figures of their own time.  
+
+Made a habit of carrying a copy of Meditations in his **combat knapsack** to help him create that psychological detachment from the battlefield.  
+> As leaders, we will have good days and bad, moments of heartbreak and bad luck, as well as strokes of good fortune and good timing. What matters is how we respond to these **swings of fate**.  
+
+> Not a single solitary person who fired us came back for the same product they fired us for. 
+> Once in a blue moon.   
+> Nothing is more supremely irritating watching your neighbor getting rich, it's such just irresistible to try and join in 
+
+
 I grew up **bereft** of hugs. -  
 Lemonade does not currently hold **accreditation** by the Better Business Bureau and has earned an F rating for its closed or ignored complaints.  
 
