@@ -1,4 +1,6 @@
 
+> Being able to short the currency is the key part of wealth accumulation??
+
 bedridden  
 canola  
 liposuction  
