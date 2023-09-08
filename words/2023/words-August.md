@@ -1,4 +1,12 @@
 
+Countries being courted, such as Argentina and Saudi Arabia (and possibly Indonesia), are members of the G20 as well, setting up some interesting and unusual dynamics at this weekend's summit.  
+
+omens, ominous
+While I don't like the picture because it is ominous, I am glad that we agree on what it is because that might lead to actions to rectify it.   
+
+
+obscene
+
 **scenery**, **scenic** 
 
 Endearing  
@@ -52,7 +60,7 @@ It also includes some **ticks**, **fleas** and **lice** and also a few **mites**
 
 > Add your fluff/positivity in the end. 
 
-
+## Week 4
 
 **extortionate** price.  
 **Flamenco** Tap/dance  
@@ -433,6 +441,13 @@ That woman has the attention span of a **gnat**.
 
 > How is it going? 
 > The floor is yours 
+
+You go to a cocktail party, and telling people the world is falling apart.  
+The press has picked it up.  
+What we do with our money is more to the point.  
+I understand people getting carried away. I invested in that first bubble of 1968, and manged to make a small fortune and loss it.  
+
+
 
 
 
