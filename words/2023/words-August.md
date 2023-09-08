@@ -1,4 +1,13 @@
 
+**scenery**, **scenic** 
+
+Endearing  
+Scrounge  
+a **mercurial** nature.  
+His **mercurial** temperament.  
+To wriggle is to wrest about like a worm.  
+
+
 
 > We can’t guarantee success, we can do something better, we can deserve it. - Joseph Addison
 
