@@ -484,7 +484,7 @@ Every winter he has a problem with **dandruff** in his hair.
 
 Don't get too **engrossed** with the future and forget what's around you.  
 Notice how responsive and **grippy** the skin is. ??  
-They were **solicitous** and **intent**, watching her every move.    
+They were **solicitous** and **intent**, watching her every move.  
 
 **Pureed**  
 **sierra Nevada**  
@@ -597,7 +597,7 @@ She wore shorts and a **halter** top.
 My dream is to be a **dubbing**.  
 
 **machete**.  
-Seal tightly then leave for four to five days to **macerate**.   
+Seal tightly then leave for four to five days to **macerate**.  
 **witticism**  
 Although New York is home to the most **opulent** new-builds, **extravagant** offices are appearing in other global cities, too.  
 **tilde**  
