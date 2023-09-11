@@ -1,35 +1,81 @@
 
-Heat-related illnesses like heat exhaustion or heatstroke can occur if precautions are not taken.  
-cut-rate store.  
-flummox  
-crescent moon  
-cemetery, graves, churchyard, tombstone, 
-monument  
-
-**Scepter** 
+Bile ducts  
+gallbladder  
 
 
-Countries being courted, such as Argentina and Saudi Arabia (and possibly Indonesia), are members of the G20 as well, setting up some interesting and unusual dynamics at this weekend's summit.  
+There is nothing so **sanative** as a walk in the woods.   
+Warring states period  
+The explanation is too facile for such a complex phenomenon.  
+His facile banter was rather stupid.  
+vacuity  
+perilous  
 
-omens, ominous
-While I don't like the picture because it is ominous, I am glad that we agree on what it is because that might lead to actions to rectify it.   
 
 
-obscene
+**mouthy**.  
+badmouth, discredit  
 
+E-**Ballot**.  
+Lots of people think in order to get the **V-taper** appearance you need to work your **obliques** and build muscle there.  
+
+
+All Internet connections are **threadbare**.  
+
+We're a **seagoing** nation.  
+We've been since the **Bronze Age**.  
+I'm in **fine fettle**.  
+I'm **unwanted**.  
+
+My emotions are **unbridled**.  
+
+> I took great care to surround myself with old rivals. - I might have overdone it.  
+
+How many more dictators must be **wooed**, **appeased**, good God, given immense privileges before we learn?  
+I **blub** a lot.  
+via his **lackey**, **Mussolini**  
+Some might benefit, the powerful might be able to parlay good terms, preserve in their country redoubts 
+
+
+**Halloumi**
+Public services and many financial transactions are **hamstrung**.  
+Not your calves but for your **hamstrings** and your bottom.  
+
+**concentric**, eccentric  
+**isometric** contraction.  
+
+
+Even a **stopped clock is right twice a day**.  
+To not **buggering** it up.  
+
+
+Heat-related illnesses like **heat exhaustion** or **heatstroke** can occur if **precautions** are not taken.  
+**cut-rate** store.  
+**flummox**  
+**crescent** moon  
+**cemetery**, **graves**, churchyard, tombstone, 
+**monument**  
+
+**Scepter**  
+Countries being **courted**, such as Argentina and Saudi Arabia (and possibly Indonesia), are members of the G20 as well, setting up some interesting and unusual dynamics at this weekend's summit.  
+
+**omens**, **ominous**
+While I don't like the picture because it is **ominous**, I am glad that we agree on what it is because that might lead to actions to rectify it.   
+
+
+**obscene**
 **scenery**, **scenic** 
 
-Endearing  
-Scrounge  
+**Endearing**  
+**Scrounge**  
 a **mercurial** nature.  
 His **mercurial** temperament.  
-To wriggle is to wrest about like a worm.  
+To **wriggle** is to wrest about like a worm.  
 
 
 
 > We can’t guarantee success, we can do something better, we can deserve it. - Joseph Addison
 
-The Stoics were towering figures of their own time.  
+The Stoics were **towering figures** of their own time.  
 
 Made a habit of carrying a copy of Meditations in his **combat knapsack** to help him create that psychological detachment from the battlefield.  
 > As leaders, we will have good days and bad, moments of heartbreak and bad luck, as well as strokes of good fortune and good timing. What matters is how we respond to these **swings of fate**.  
@@ -452,13 +498,13 @@ That woman has the attention span of a **gnat**.
 > How is it going? 
 > The floor is yours 
 
-You go to a cocktail party, and telling people the world is falling apart.  
-The press has picked it up.  
-What we do with our money is more to the point.  
-I understand people getting carried away. I invested in that first bubble of 1968, and manged to make a small fortune and loss it.  
+You go to a **cocktail party**, and telling people the world is **falling apart**.  
+**The press** has **picked it up**.  
+What we do with our money is more **to the point**.  
+I understand people getting **carried away**. I invested in that first bubble of 1968, and manged to make a small fortune and loss it.  
 
-I can't pin you down.  
-
+I can't **pin you down**.  
+But I make up for it with enthusiasm and perseverance.  
 
 
 ## Interesting  

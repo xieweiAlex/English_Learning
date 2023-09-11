@@ -210,7 +210,6 @@ wisdom comes from **discernment** of the difference
 **machete**  
 **warder**  
 **mournful**  
-There is nothing so **sanative** as a walk in the woods.   
 **holdover**  
 He strangled her with a **nylon** stocking.  
 **boutique**  
