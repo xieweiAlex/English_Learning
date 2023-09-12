@@ -1,4 +1,7 @@
 
+Even though large tracts of Europe and many old and famous states have fallen, or may fall into the grip of the Gastapo.    
+And all the odious apparatus of the Nazi rule 
+
 You poor guy! Everyone knows he's a real windbag.  
 Afterthought  
 
@@ -509,7 +512,9 @@ What we do with our money is more **to the point**.
 I understand people getting **carried away**. I invested in that first bubble of 1968, and manged to make a small fortune and loss it.  
 
 I can't **pin you down**.  
-But I make up for it with enthusiasm and perseverance.  
+But I **make up for it** with enthusiasm and **perseverance**.  
+
+**Immaculate**. He is so clean, you could eat off of him.  
 
 
 ## Interesting  
