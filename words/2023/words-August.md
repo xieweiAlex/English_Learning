@@ -1,12 +1,13 @@
 
-Even though large tracts of Europe and many old and famous states have fallen, or may fall into the grip of the Gastapo.    
-And all the odious apparatus of the Nazi rule 
+focal length.  
 
-You poor guy! Everyone knows he's a real windbag.  
-Afterthought  
+Even though large tracts of Europe and many old and famous states have fallen, or may fall into the grip of the **Gestapo**.  
+And all the **odious** apparatus of the Nazi rule.  
 
+You poor guy! Everyone knows he's a real **windbag**.  
+**Afterthought**  
 
-But what you get in return—skills, knowledge, a leg up on your journey—is priceless.  
+But what you get in return—skills, knowledge, a **leg up** on your journey—is priceless.  
 
 **Bile ducts**  
 **gallbladder**  
