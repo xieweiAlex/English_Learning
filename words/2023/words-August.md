@@ -1,5 +1,10 @@
 
-focal length.  
+Impulsive and **self-destructive**: Elon Musk as **depicted** in a new book.  
+The billionaire has a **lofty vision** for humanity—and is unusually determined to see it through.  
+
+The US is not exactly at war but it's spending money **as if** it is at war.  
+
+**focal length**.  
 
 Even though large tracts of Europe and many old and famous states have fallen, or may fall into the grip of the **Gestapo**.  
 And all the **odious** apparatus of the Nazi rule.  
