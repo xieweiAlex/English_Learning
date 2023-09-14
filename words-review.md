@@ -7,9 +7,6 @@ A **mercurial** billionaire, Terry Gou, shakes up Taiwan's presidential race. -
 His **impenetrable** eyes and **inscrutable** **countenance** give little away. -  
 The **omens** for the game are still not **propitious**. -  
 It was not a **propitious** time to start a new business. -  
-
-> Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I'll be naked for you. It will be our **covenant**.   
-
 But is **scarfing down** raw oats actually good for you? -  
 The meaning we **ascribe** can turn even the most ordinary things into priceless objects. -  
 Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**. -  
@@ -22,7 +19,6 @@ He was out of work and living in **squalor**. -
 
 ## words-July.md ##  
 words/2023/words-July.md  
-**helical** curve /  blade.   
 His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
 
 ## words-June.md ##  

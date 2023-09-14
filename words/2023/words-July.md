@@ -77,7 +77,7 @@ We got a whole bunch of people **professing** their love for compact keyboards a
 **Eclectic**.  
 **Imperator**  
 **Polemic**  
-**helical** curve /  blade. -  
+**helical** curve /  blade.   
 
 **Seer**  
 **Dastard**  

@@ -1,6 +1,6 @@
 
 In cahoots.  
-pug 
+pug  
 stolid  
 
 
@@ -289,7 +289,7 @@ At the school, the Chinese Communist Party teaches how it **fuses** the ruling p
 A **throwback** to Beijing's Soviet-era strategies — mark a departure from what the CCP has previously done, experts said.  
 
 Dirk Nowitzki was **inducted** into the Naismith Basketball **Hall of Fame** over the weekend as a member of its 2023 class.  
-> Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I'll be naked for you. It will be our **covenant**. -  
+> Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I'll be naked for you. It will be our **covenant**.   
 
 He had an **illicit** association with Jane.  
 But is **scarfing down** raw oats actually good for you? -  
