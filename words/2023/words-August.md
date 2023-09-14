@@ -1,4 +1,11 @@
 
+In cahoots.  
+pug 
+stolid  
+
+
+mouthpiece.  
+
 Impulsive and **self-destructive**: Elon Musk as **depicted** in a new book.  
 The billionaire has a **lofty vision** for humanity—and is unusually determined to see it through.  
 
@@ -24,7 +31,6 @@ The explanation is too **facile** for such a complex phenomenon. -
 His **facile** banter was rather stupid.  
 **vacuity**  
 **perilous**  
-
 
 
 **mouthy**.  
