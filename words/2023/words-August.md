@@ -528,6 +528,8 @@ But I **make up for it** with enthusiasm and **perseverance**.
 
 **Immaculate**. He is so clean, you could eat off of him.  
 
+For better or worse, it hides certain 
+
 
 ## Interesting  
 
@@ -536,5 +538,6 @@ But I **make up for it** with enthusiasm and **perseverance**.
 They were **indignant** that they hadn't been invited.  
 Good secretaries are always **in demand**.  
 
+He's supported the team for over ten years through thick and thin.   
 
 
