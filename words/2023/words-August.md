@@ -1,10 +1,51 @@
 
-In cahoots.  
-pug  
-stolid  
+Self-deprecating.  
+The poisoned apple they were offered (tech our grandparents couldn't have imagined, the ability to connect with the entire world in seconds) came at a cost: attention spans zapped.  
+
+> Then came bombings, not once, but twice. His factory was **leveled**. 
 
 
-mouthpiece.  
+With the **immediacy** of today’s NASDAQ close and the timeless power of a Greek tragedy, The Quants is **at once** a masterpiece of **explanatory** journalism, a **gripping** tale of ambition and hubris, and an ominous warning about Wall Street’s future.  
+
+In March of 2006, four of the world’s richest men **sipped** champagne in an **opulent** New York hotel.  
+
+
+Americans **side-eye** AI in new Gallup poll.  
+**suburb**, **exurbs**.  
+
+The COVID-19 pandemic shifted the geography of income, with many high-earning Americans moving from major metros to the **exurbs** or rural areas.  
+
+
+**garlicky**
+
+He was sinking into the **Slough of Despond**.   
+**delinquent**, **insolvent** 
+
+One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
+First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
+
+**Goop**
+
+However, if you have any doubts, it's best to **err on the side of caution** and discard it.  
+
+You don’t want **junky fillers**, **stabilizers** and flavorings in the yogurt you’ll use to propagate an entirely new batch.
+He **glanced** **furtively** at the **stolid** faces of the two detectives. -  
+
+**to wit**.  
+when he's dead, he will be **relieved**.  
+
+This lifestyle upgrade doesn't even require you to **break a sweat** to be healthier.  
+
+
+White came from **clays**, **limestone**, or **gypsum**. -    
+As we know, **gypsum** is **soluble** in water.  
+
+
+**In cahoots**.  
+**pug**  
+**stolid**  
+
+**mouthpiece**.  
 
 Impulsive and **self-destructive**: Elon Musk as **depicted** in a new book.  
 The billionaire has a **lofty vision** for humanity—and is unusually determined to see it through.  
@@ -528,8 +569,9 @@ But I **make up for it** with enthusiasm and **perseverance**.
 
 **Immaculate**. He is so clean, you could eat off of him.  
 
-For better or worse, it hides certain 
+**For better or worse**, it hides certain functionalities from Hapi.  
 
+when he's dead, he will be **relieved**.  
 
 ## Interesting  
 
@@ -538,6 +580,8 @@ For better or worse, it hides certain
 They were **indignant** that they hadn't been invited.  
 Good secretaries are always **in demand**.  
 
-He's supported the team for over ten years through thick and thin.   
+He's supported the team for over ten years through **thick and thin**.   
+
+Your behavior was **out of line**.  
 
 

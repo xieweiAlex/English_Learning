@@ -1,4 +1,8 @@
 
+**applaud**
+
+**lament**
+
 **appear**
 
 **loosen**
