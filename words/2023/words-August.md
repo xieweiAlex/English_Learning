@@ -1,4 +1,13 @@
 
+skinny-dipping.  
+
+
+**mine field**.  
+Politicians are always off on a junket.  
+The cojones to make eye contact, no matter what dirty deed you're doing 
+headlamp  
+
+
 Self-deprecating.  
 The poisoned apple they were offered (tech our grandparents couldn't have imagined, the ability to connect with the entire world in seconds) came at a cost: attention spans zapped.  
 

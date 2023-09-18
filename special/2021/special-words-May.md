@@ -44,8 +44,6 @@
 
 **preposterous**
 
-**susceptible**
-**impervious**
 
 ## Week 1
 
