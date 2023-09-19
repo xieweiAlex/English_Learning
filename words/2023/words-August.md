@@ -1,15 +1,18 @@
 
-skinny-dipping.  
+All he desired was to **aggrandize** his estate.  
 
+Battling the late night **munchies**? How to stop eating at night.  
+**mechanistically**.  
+**skinny-dipping**.  
 
 **mine field**.  
-Politicians are always off on a junket.  
-The cojones to make eye contact, no matter what dirty deed you're doing 
-headlamp  
+Politicians are always **off on** a **junket**.  
+**off on a joyride**
+The **cojones** to make eye contact, no matter what **dirty deed** you're doing.   
+**headlamp**  
 
-
-Self-deprecating.  
-The poisoned apple they were offered (tech our grandparents couldn't have imagined, the ability to connect with the entire world in seconds) came at a cost: attention spans zapped.  
+**Self-deprecating**.  
+The poisoned apple they were offered (tech our grandparents couldn't have imagined, the ability to connect with the entire world in seconds) **came at a cost**: attention spans **zapped**.  
 
 > Then came bombings, not once, but twice. His factory was **leveled**. 
 

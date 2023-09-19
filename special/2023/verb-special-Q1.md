@@ -1,4 +1,9 @@
 
+**sway**
+
+
+**handicap** 
+
 **applaud**
 
 **lament**
