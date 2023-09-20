@@ -1,4 +1,16 @@
 
+Misanthropic.  
+True laziness cannot be disguised-if someone is malingering, chances are that their bosses already know.  
+
+
+
+**Carcase**  
+**Killjoy**  
+She hopes to parlay her success as a model into an acting career.  
+He was silenced by her stinging rebuke.  
+My eyes were stinging from the smoke.   
+Values and mores and practices are changing all the time.  
+
 All he desired was to **aggrandize** his estate.  
 
 Battling the late night **munchies**? How to stop eating at night.  
