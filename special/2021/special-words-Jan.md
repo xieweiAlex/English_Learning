@@ -25,7 +25,6 @@
 
 **verbiage** 
 
-**impeccable**
 
 **conventional**
 
