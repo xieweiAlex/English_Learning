@@ -1,4 +1,18 @@
 
+The deer were maddening farmers by eating their crops.  
+Flail.  
+Nursing a demented person is an all-consuming task.  
+handrail  
+Hops serve to embitter beer.  
+Polio  
+blowtorch  
+
+
+She's a black belt in judo.  
+BTC is supreme to garbage Fiat.  
+Penicillin  
+
+
 Misanthropic.  
 True laziness cannot be disguised-if someone is malingering, chances are that their bosses already know.  
 
@@ -8,7 +22,7 @@ True laziness cannot be disguised-if someone is malingering, chances are that th
 **Killjoy**  
 She hopes to parlay her success as a model into an acting career.  
 He was silenced by her stinging rebuke.  
-My eyes were stinging from the smoke.   
+My eyes were stinging from the smoke.  
 Values and mores and practices are changing all the time.  
 
 All he desired was to **aggrandize** his estate.  
@@ -19,14 +33,14 @@ Battling the late night **munchies**? How to stop eating at night.
 
 **mine field**.  
 Politicians are always **off on** a **junket**.  
-**off on a joyride**
-The **cojones** to make eye contact, no matter what **dirty deed** you're doing.   
+**off on a joyride**  
+The **cojones** to make eye contact, no matter what **dirty deed** you're doing.  
 **headlamp**  
 
 **Self-deprecating**.  
 The poisoned apple they were offered (tech our grandparents couldn't have imagined, the ability to connect with the entire world in seconds) **came at a cost**: attention spans **zapped**.  
 
-> Then came bombings, not once, but twice. His factory was **leveled**. 
+> Then came bombings, not once, but twice. His factory was **leveled**.  
 
 
 With the **immediacy** of today’s NASDAQ close and the timeless power of a Greek tragedy, The Quants is **at once** a masterpiece of **explanatory** journalism, a **gripping** tale of ambition and hubris, and an ominous warning about Wall Street’s future.  
@@ -40,19 +54,19 @@ Americans **side-eye** AI in new Gallup poll.
 The COVID-19 pandemic shifted the geography of income, with many high-earning Americans moving from major metros to the **exurbs** or rural areas.  
 
 
-**garlicky**
+**garlicky**  
 
-He was sinking into the **Slough of Despond**.   
-**delinquent**, **insolvent** 
+He was sinking into the **Slough of Despond**.  
+**delinquent**, **insolvent**  
 
 One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
 First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
 
-**Goop**
+**Goop**  
 
 However, if you have any doubts, it's best to **err on the side of caution** and discard it.  
 
-You don’t want **junky fillers**, **stabilizers** and flavorings in the yogurt you’ll use to propagate an entirely new batch.
+You don’t want **junky fillers**, **stabilizers** and flavorings in the yogurt you’ll use to propagate an entirely new batch.  
 He **glanced** **furtively** at the **stolid** faces of the two detectives. -  
 
 **to wit**.  
@@ -61,7 +75,7 @@ when he's dead, he will be **relieved**.
 This lifestyle upgrade doesn't even require you to **break a sweat** to be healthier.  
 
 
-White came from **clays**, **limestone**, or **gypsum**. -    
+White came from **clays**, **limestone**, or **gypsum**. -  
 As we know, **gypsum** is **soluble** in water.  
 
 
@@ -354,7 +368,7 @@ At the school, the Chinese Communist Party teaches how it **fuses** the ruling p
 A **throwback** to Beijing's Soviet-era strategies — mark a departure from what the CCP has previously done, experts said.  
 
 Dirk Nowitzki was **inducted** into the Naismith Basketball **Hall of Fame** over the weekend as a member of its 2023 class.  
-> Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I'll be naked for you. It will be our **covenant**.   
+> Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I'll be naked for you. It will be our **covenant**.  
 
 He had an **illicit** association with Jane.  
 But is **scarfing down** raw oats actually good for you? -  
@@ -604,7 +618,7 @@ when he's dead, he will be **relieved**.
 They were **indignant** that they hadn't been invited.  
 Good secretaries are always **in demand**.  
 
-He's supported the team for over ten years through **thick and thin**.   
+He's supported the team for over ten years through **thick and thin**.  
 
 Your behavior was **out of line**.  
 

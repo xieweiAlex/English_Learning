@@ -1,5 +1,9 @@
 ## words-August.md ##  
 words/2023/words-August.md  
+One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
+First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
+He **glanced** **furtively** at the **stolid** faces of the two detectives. -  
+White came from **clays**, **limestone**, or **gypsum**. -  
 The explanation is too **facile** for such a complex phenomenon. -  
 Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**. -  
 I grew up **bereft** of hugs. -  
