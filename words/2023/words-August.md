@@ -1,29 +1,37 @@
 
-The deer were maddening farmers by eating their crops.  
-Flail.  
-Nursing a demented person is an all-consuming task.  
-handrail  
-Hops serve to embitter beer.  
-Polio  
-blowtorch  
+monkeyshine.  
 
 
-She's a black belt in judo.  
-BTC is supreme to garbage Fiat.  
-Penicillin  
+light-headed, light-headedness  
+
+Thinking he might be able to save his boss’s property, one of Washington’s **overseers** rushed out to try to convince the enemy to spare them.
+
+> This is not to say that a Stoic must decline every **perk** in life. Or that you can’t be compensated for your work or your success. However, we must always consider whether these perks **come at the expense** of somebody else, or if our special treatment means neglect elsewhere.
 
 
-Misanthropic.  
-True laziness cannot be disguised-if someone is malingering, chances are that their bosses already know.  
+The deer were **maddening** farmers by eating their **crops**.  
+**Flail**.  
+Nursing a **demented** person is an all-consuming task.  
+**handrail**  
+**Hops** serve to **embitter** beer.  
+**Polio**  
+**blowtorch**  
 
 
+She's a black belt in **judo**.  
+BTC is **supreme** to garbage Fiat.  
+**Penicillin**  
+
+
+**Misanthropic**.  
+True laziness cannot be disguised-if someone is **malingering**, chances are that their bosses already know.  
 
 **Carcase**  
 **Killjoy**  
-She hopes to parlay her success as a model into an acting career.  
-He was silenced by her stinging rebuke.  
-My eyes were stinging from the smoke.  
-Values and mores and practices are changing all the time.  
+She hopes to **parlay** her success as a model into an acting career.  
+He was silenced by her **stinging** rebuke.  
+My eyes were **stinging** from the smoke.  
+Values and **mores** and practices are changing all the time.  
 
 All he desired was to **aggrandize** his estate.  
 
@@ -53,6 +61,7 @@ Americans **side-eye** AI in new Gallup poll.
 
 The COVID-19 pandemic shifted the geography of income, with many high-earning Americans moving from major metros to the **exurbs** or rural areas.  
 
+## Week 1 
 
 **garlicky**  
 
