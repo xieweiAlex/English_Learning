@@ -1,6 +1,11 @@
 
-**sway**
+**flaunt**
 
+**belittle**
+
+**facilitate**, **facilitative**
+
+**sway**
 
 **handicap** 
 

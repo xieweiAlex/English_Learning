@@ -4,18 +4,16 @@ That poison ivy **leaguer**'s long gone.
 
 
 
-chutney  
-sweltering  
-battalion   
-
-
+**chutney**  
+**sweltering**  
+**battalion**   
 
 tubal **ligation**.  
 warthog  
 plod along  
 
 
-serendipity  
+**serendipity**  
 karma is a bitch.  
 
 

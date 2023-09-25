@@ -1,4 +1,6 @@
 
+**slick**
+
 **impeccable**
 **immaculate**  
 
@@ -16,6 +18,7 @@
 ## August 
 
 **bellwether**
+**harbinger**
 
 **Scenic** 
 
