@@ -1,7 +1,21 @@
 
-## Week 3
+The real secret to living more than 100 years probably isn’t slurping kale smoothies every day or committing to CrossFit.  
+But research shows that Blue Zones (places that produce an unusually high number of centenarians) do have lots of similarities when it comes to their diets.  
+The secret ingredient of Blue Zones is … not so cut-and-dried.  
 
-**captive agent** vs independent agent 
+> To be successful and happy, you need to love the game: not the final scoreboard, but all the minutes on the clock.  
+
+The agency has suggested a new rule that would allow **golf cart-sized** electric quadricycles as a way to **slash** the number of delivery trucks **clogging up** city streets.  
+
+Its **backers** should **pray for a speedy victory—but plan for a long struggle**.  
+**Amity** makes employees more **engaged**. That’s no reason for companies to get involved.  
+It’s an exceptionally good time to work for a big **grocer**.  
+
+The **budgetary** **standoff** in the U.S. doesn't look like it will **abate** soon, raising the **likelihood** of the first government shutdown since 2019.  
+
+## Week 3  
+
+**captive agent** vs independent agent  
 
 The **heft** of the box surprised me; it was heavier than I expected.  
 A **pestilence** **overhangs** the country.  
@@ -11,15 +25,15 @@ He could **mesmerize** an audience by the sheer force of his presence.
 **nest egg**  
 **dull ache**.  
 
-It's precisely that sort of **slick** **sales-talk** that I **mistrust**.
+It's precisely that sort of **slick** **sales-talk** that I **mistrust**.  
 
-**protagonist** vs **antagonist** 
+**protagonist** vs **antagonist**  
 
 **Grim Reaper**.  
 
 **tubal** **ligation**.  
 
-**Maginot line** 
+**Maginot line**  
 
 Relaunch **Revelry**.  
 
@@ -31,9 +45,9 @@ The final stage of **waxing** left it with a **satin** **sheen**. -
 **monkeyshine**.  
 **light-headed**, **light-headedness**  
 
-Thinking he might be able to save his boss’s property, one of Washington’s **overseers** rushed out to try to convince the enemy to spare them.
+Thinking he might be able to save his boss’s property, one of Washington’s **overseers** rushed out to try to convince the enemy to spare them.  
 
-> This is not to say that a Stoic must decline every **perk** in life. Or that you can’t be compensated for your work or your success. However, we must always consider whether these perks **come at the expense** of somebody else, or if our special treatment means neglect elsewhere.
+> This is not to say that a Stoic must decline every **perk** in life. Or that you can’t be compensated for your work or your success. However, we must always consider whether these perks **come at the expense** of somebody else, or if our special treatment means neglect elsewhere.  
 
 
 The deer were **maddening** farmers by eating their **crops**.  
@@ -88,7 +102,7 @@ Americans **side-eye** AI in new Gallup poll.
 
 The COVID-19 pandemic shifted the geography of income, with many high-earning Americans moving from major metros to the **exurbs** or rural areas.  
 
-## Week 2 
+## Week 2  
 
 **garlicky**  
 
@@ -154,7 +168,7 @@ His **facile** banter was rather stupid.
 E-**Ballot**.  
 Lots of people think in order to get the **V-taper** appearance you need to work your **obliques** and build muscle there.  
 
-## Week 1
+## Week 1  
 
 All Internet connections are **threadbare**.  
 
@@ -219,7 +233,7 @@ Made a habit of carrying a copy of Meditations in his **combat knapsack** to hel
 > Nothing is more supremely irritating watching your neighbor getting rich, it's such just irresistible to try and join in  
 
 
-I grew up **bereft** of hugs. -  
+I grew up **bereft** of hugs.   
 Lemonade does not currently hold **accreditation** by the Better Business Bureau and has earned an F rating for its closed or ignored complaints.  
 
 > Being able to short the currency is the key part of wealth accumulation??  
@@ -276,6 +290,6 @@ Good secretaries are always **in demand**.
 
 He's supported the team for over ten years through **thick and thin**.  
 Your behavior was **out of line**.  
-His argument doesn't **hold water** when examined closely.
+His argument doesn't **hold water** when examined closely.  
 
-**foot the bill**.
+**foot the bill**.  

@@ -1,29 +1,28 @@
-## words-August.md ##  
-words/2023/words-August.md  
+## words-September.md ##  
+words/2023/words-September.md  
+The final stage of **waxing** left it with a **satin** **sheen**. -  
 One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
 First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
 He **glanced** **furtively** at the **stolid** faces of the two detectives. -  
 White came from **clays**, **limestone**, or **gypsum**. -  
 The explanation is too **facile** for such a complex phenomenon. -  
+I'm in **fine fettle**. -  
 Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**. -  
-I grew up **bereft** of hugs. -  
-A **mercurial** billionaire, Terry Gou, shakes up Taiwan's presidential race. -  
+
+## words-August.md ##  
+words/2023/words-August.md  
 His **impenetrable** eyes and **inscrutable** **countenance** give little away. -  
 The **omens** for the game are still not **propitious**. -  
 It was not a **propitious** time to start a new business. -  
-But is **scarfing down** raw oats actually good for you? -  
 The meaning we **ascribe** can turn even the most ordinary things into priceless objects. -  
-Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**. -  
 **lacerate**. -  
 So he **concocted** a **fiendish** scheme to trick her into paying. -  
 **Thwack** -  
 Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  
 She gave him the bad news **without preamble**. -  
-He was out of work and living in **squalor**. -  
 
 ## words-July.md ##  
 words/2023/words-July.md  
-His **dissolute** life is inconsistent with his **Puritan** upbringing. -  
 
 ## words-June.md ##  
 words/2023/words-June.md  

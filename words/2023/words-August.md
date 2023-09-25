@@ -88,7 +88,7 @@ Meta and Goldman doubled down on return-to-office pushes, with Meta saying **hol
 Zimbabwe’s flawed election will ensure its pariah status **endures**.  
 
 It is an elegant way to discover new insights — and **duck** that tedious **bore** who loudly knows nothing but won’t change their mind!  
-A **mercurial** billionaire, Terry Gou, shakes up Taiwan's presidential race. -  
+A **mercurial** billionaire, Terry Gou, shakes up Taiwan's presidential race.   
 
 
 **merch**, **merchandise**.  
@@ -154,7 +154,7 @@ Dirk Nowitzki was **inducted** into the Naismith Basketball **Hall of Fame** ove
 > Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I'll be naked for you. It will be our **covenant**.  
 
 He had an **illicit** association with Jane.  
-But is **scarfing down** raw oats actually good for you? -  
+But is **scarfing down** raw oats actually good for you?   
 The practice of carrying mementos that remind us of loved ones who have passed away dates back thousands of years, to the **Iron Age**.  
 The meaning we **ascribe** can turn even the most ordinary things into priceless objects. -  
 
@@ -216,7 +216,7 @@ We waited for the judge's decision with **bated** breath.
 
 He **peddled** fish from a pushcart.  
 **Peddling**  
-Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**. -  
+Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**.   
 **twilight zone**, evening **twilight**  
 
 Think about someone you know who has character of **granite**.  
@@ -333,7 +333,7 @@ The **tomb** had been **defiled** and **looted**.
 
 The bones were **disinterred** and moved to a **burial site**.  
 
-He was out of work and living in **squalor**. -  
+He was out of work and living in **squalor**.   
 Have **flannel** PJs replaced your silky **negligees**?  
 That was a **conjecture**, not a fact.  
 20 **delirious** tweets in 14 hours, you can tell how much trouble Trump is in  
