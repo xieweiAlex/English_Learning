@@ -1,22 +1,20 @@
 
-Grimy  
-Sleet  
-Martian  
-Turbid  
-incestuous  
+**Grimy**  
+**Sleet**  
+**Martian**  
+**Turbid**  
+**incestuous**  
 
-palpable, palatable  
-Shudder  
-The reactionary ruling clique was torn by internal strife.   
-
-
+**palpable**, **palatable**  
+**Shudder**  
+The **reactionary** **ruling clique** was **torn by** internal **strife**.  
 
 > Too much is spent on **curative** medicine and too little on preventive medicine.  
 
-**curative** vs **curated** 
+**curative** vs **curated**  
 Most of us were **neophytes**. We got our experience **right on the spot**. -  
 
-The real secret to living more than 100 years probably isn’t slurping kale smoothies every day or committing to CrossFit.  
+The real secret to living more than 100 years probably isn’t **slurping** kale smoothies every day or committing to CrossFit.  
 But research shows that Blue Zones (places that produce an unusually high number of centenarians) do have lots of similarities when it comes to their diets.  
 The secret ingredient of Blue Zones is … not so cut-and-dried.  
 
@@ -250,7 +248,7 @@ Made a habit of carrying a copy of Meditations in his **combat knapsack** to hel
 > Nothing is more supremely irritating watching your neighbor getting rich, it's such just irresistible to try and join in  
 
 
-I grew up **bereft** of hugs.   
+I grew up **bereft** of hugs.  
 Lemonade does not currently hold **accreditation** by the Better Business Bureau and has earned an F rating for its closed or ignored complaints.  
 
 > Being able to short the currency is the key part of wealth accumulation??  

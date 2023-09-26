@@ -1,5 +1,6 @@
 ## words-September.md ##  
 words/2023/words-September.md  
+Most of us were **neophytes**. We got our experience **right on the spot**. -  
 The final stage of **waxing** left it with a **satin** **sheen**. -  
 One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
 First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
@@ -20,9 +21,6 @@ So he **concocted** a **fiendish** scheme to trick her into paying. -
 **Thwack** -  
 Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  
 She gave him the bad news **without preamble**. -  
-
-## words-July.md ##  
-words/2023/words-July.md  
 
 ## words-June.md ##  
 words/2023/words-June.md  
