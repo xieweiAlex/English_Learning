@@ -1,4 +1,12 @@
 
+besides, except, other than  
+
+
+flub  
+asunder  
+simmer  
+
+
 **Grimy**  
 **Sleet**  
 **Martian**  
