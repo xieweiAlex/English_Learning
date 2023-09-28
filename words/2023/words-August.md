@@ -156,7 +156,7 @@ Dirk Nowitzki was **inducted** into the Naismith Basketball **Hall of Fame** ove
 He had an **illicit** association with Jane.  
 But is **scarfing down** raw oats actually good for you?   
 The practice of carrying mementos that remind us of loved ones who have passed away dates back thousands of years, to the **Iron Age**.  
-The meaning we **ascribe** can turn even the most ordinary things into priceless objects. -  
+The meaning we **ascribe** can turn even the most ordinary things into priceless objects.   
 
 Which goes by the **deceptively** comforting name of Country Garden, also seems to be in difficulty.  
 Flaxseed is a **cornucopia** of vitamins and minerals, but it’s especially rich in thiamine, copper, and manganese.  
@@ -296,7 +296,7 @@ He hoped to **cajole** her into selling him her house.
 **Ballsy**.  
 **goon**  
 **goop**  
-She gave him the bad news **without preamble**. -  
+She gave him the bad news **without preamble**.   
 
 Monkeys were **screeching** in the trees.  
 **screeching** halt.  

@@ -15,12 +15,10 @@ words/2023/words-August.md
 His **impenetrable** eyes and **inscrutable** **countenance** give little away. -  
 The **omens** for the game are still not **propitious**. -  
 It was not a **propitious** time to start a new business. -  
-The meaning we **ascribe** can turn even the most ordinary things into priceless objects. -  
 **lacerate**. -  
 So he **concocted** a **fiendish** scheme to trick her into paying. -  
 **Thwack** -  
 Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  
-She gave him the bad news **without preamble**. -  
 
 ## words-June.md ##  
 words/2023/words-June.md  

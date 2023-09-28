@@ -1,15 +1,20 @@
 
-> outright, downright
+> Who do you still owe an apology? Can you make one in the next 5 minutes?  
+
+
+Once you’re a **minnow** in a vast ocean, that’s not a good place to be. It means you have tons of competitors, and you don’t even know who all of the competitors are.  
+
+Europe is **eclipsing** the U.S. in crypto regulation, and drawing investors because of it.  
+
+> outright, downright  
 
 **marshy** ground, **marshy** meadow, **marshy** terrain  
 
 
-**Assassin**’s creed - States are becoming more **brazen** about killing foes abroad
+**Assassin**’s creed - States are becoming more **brazen** about killing foes abroad  
 Eating fewer calories can **ward off** ageing.  
 
-
 > **besides**, except, other than  
-
 
 **flub**, **flop**  
 **asunder**  
@@ -31,8 +36,8 @@ The **reactionary** **ruling clique** was **torn by** internal **strife**.
 Most of us were **neophytes**. We got our experience **right on the spot**. -  
 
 The real secret to living more than 100 years probably isn’t **slurping** kale smoothies every day or committing to CrossFit.  
-But research shows that Blue Zones (places that produce an unusually high number of centenarians) do have lots of similarities when it comes to their diets.  
-The secret ingredient of Blue Zones is … not so cut-and-dried.  
+But research shows that **Blue Zones** (places that produce an unusually high number of **centenarians**) do have lots of similarities when it comes to their diets.  
+The secret ingredient of Blue Zones is … not so **cut-and-dried**.  
 
 > To be successful and happy, you need to love the game: not the final scoreboard, but all the minutes on the clock.  
 
@@ -326,3 +331,5 @@ His argument doesn't **hold water** when examined closely.
 **foot the bill**.  
 
 Eating fewer calories can **ward off** ageing.  
+
+The secret ingredient of Blue Zones is … not so **cut-and-dried**.  
