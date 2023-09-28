@@ -1,4 +1,8 @@
 
+He peppered his speech with jokes.  
+He was wounded in both legs and severely peppered with shrapnel.  
+
+
 > Who do you still owe an apology? Can you make one in the next 5 minutes?  
 
 
