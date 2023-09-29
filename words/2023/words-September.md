@@ -1,6 +1,9 @@
 
 He peppered his speech with jokes.  
 He was wounded in both legs and severely peppered with shrapnel.  
+It's like clockwork.  
+> Marginal cost of production  
+Walters had already given it to some cheeky kid who'd asked for it first.  
 
 
 > Who do you still owe an apology? Can you make one in the next 5 minutes?  
