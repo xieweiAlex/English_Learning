@@ -1,4 +1,9 @@
 
+may cause your gums to recede.  
+Gum disease causes a space or gap between your teeth and gums, where tartar and plaque can become trapped.  
+During these cleanings, your mouth is considered in quadrants.  
+
+
 He peppered his speech with jokes.  
 He was wounded in both legs and severely peppered with shrapnel.  
 It's like clockwork.  
