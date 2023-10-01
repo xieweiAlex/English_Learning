@@ -1,27 +1,46 @@
 
-may cause your gums to recede.  
-Gum disease causes a space or gap between your teeth and gums, where tartar and plaque can become trapped.  
-During these cleanings, your mouth is considered in quadrants.  
+## Week 4  
+
+He **shuddered** with revulsion.  
+
+> "Tim wasn’t delivering software; Tim was delivering a team that was delivering software. The entire team became more effective, more productive, more aligned, more idiomatic, more fun, because Tim was in the team.  
+
+globefish, puffer, blowfish, balloonfish  
+An exponent of self-education.  
+Our senator is an exponent of free trade.  
+agape  
+toe to toe  
 
 
-He peppered his speech with jokes.  
-He was wounded in both legs and severely peppered with shrapnel.  
-It's like clockwork.  
+Uniformed and plainclothes police officers will be stationed throughout the grounds.  
+
+
+It vexed me to think of others gossiping behind my back.  
+You 'll really have to knuckle down if you want to pass the examination.  
+He would not knuckle down under their pressure.  
+
+
+May cause your **gums** to **recede**.  
+Gum disease causes a space or gap between your teeth and gums, where **tartar** and **plaque** can become **trapped**.  
+During these cleanings, your mouth is considered in **quadrants**.  
+
+He **peppered** his speech with jokes.  
+He was wounded in both legs and severely **peppered** with **shrapnel**.  
+It's like **clockwork**.  
+
 > Marginal cost of production  
-Walters had already given it to some cheeky kid who'd asked for it first.  
 
+Walters had already given it to some **cheeky** kid who'd asked for it first. -  
 
 > Who do you still owe an apology? Can you make one in the next 5 minutes?  
 
-
-Once you’re a **minnow** in a vast ocean, that’s not a good place to be. It means you have tons of competitors, and you don’t even know who all of the competitors are.  
+Once you’re a **minnow** in a vast ocean, that’s not a good place to be. It means you have tons of competitors, and you don’t even know who all of the competitors are. -  
 
 Europe is **eclipsing** the U.S. in crypto regulation, and drawing investors because of it.  
 
 > outright, downright  
 
 **marshy** ground, **marshy** meadow, **marshy** terrain  
-
 
 **Assassin**’s creed - States are becoming more **brazen** about killing foes abroad  
 Eating fewer calories can **ward off** ageing.  
@@ -35,11 +54,25 @@ Eating fewer calories can **ward off** ageing.
 **Grimy**  
 **Sleet**  
 **Martian**  
-**Turbid**  
+**turbid** water/feeling, **turbidity**  
 **incestuous**  
+**pithy**  
+**In cahoots**.  
+**pug**  
+**stolid**  
+
+**mouthpiece**.  
+
+**cut-rate** store.  
+**flummox**  
+**crescent** moon  
+**monument**  
+**Endearing**  
+**Scrounge**  
+**Scepter**  
+
 
 **palpable**, **palatable**  
-**Shudder**  
 The **reactionary** **ruling clique** was **torn by** internal **strife**.  
 
 > Too much is spent on **curative** medicine and too little on preventive medicine.  
@@ -65,15 +98,14 @@ The **budgetary** **standoff** in the U.S. doesn't look like it will **abate** s
 
 **captive agent** vs independent agent  
 
-The **heft** of the box surprised me; it was heavier than I expected.  
+The **heft** of the box surprised me; it was heavier than I expected. -  
 A **pestilence** **overhangs** the country.  
 He could **mesmerize** an audience by the sheer force of his presence.  
-**pithy**  
 **sideburns**  
 **nest egg**  
-**dull ache**.  
+**dull ache**. -  
 
-It's precisely that sort of **slick** **sales-talk** that I **mistrust**.  
+It's precisely that sort of **slick** **sales-talk** that I **mistrust**. -  
 
 **protagonist** vs **antagonist**  
 
@@ -83,8 +115,7 @@ It's precisely that sort of **slick** **sales-talk** that I **mistrust**.
 
 **Maginot line**  
 
-Relaunch **Revelry**.  
-
+Relaunch **Revelry**. -  
 
 Still, often a friendly “hi” will **suffice**. Studies show that loneliness can be a **debilitating** problem.  
 They discuss why the best leaders are **facilitative**, how leadership can go both directions, and why good leaders need to be “fans”  
@@ -99,24 +130,23 @@ Thinking he might be able to save his boss’s property, one of Washington’s *
 
 
 The deer were **maddening** farmers by eating their **crops**.  
-**Flail**.  
 Nursing a **demented** person is an all-consuming task.  
-**handrail**  
 **Hops** serve to **embitter** beer.  
+**Flail**.  
+**handrail**  
 **Polio**  
 **blowtorch**  
-
+**Penicillin**  
+**Carcase**  
+**Killjoy**  
+Americans **side-eye** AI in new **Gallup poll**.  
 
 She's a black belt in **judo**.  
 BTC is **supreme** to garbage Fiat.  
-**Penicillin**  
-
 
 **Misanthropic**.  
 True laziness cannot be disguised-if someone is **malingering**, chances are that their bosses already know.  
 
-**Carcase**  
-**Killjoy**  
 She hopes to **parlay** her success as a model into an acting career.  
 He was silenced by her **stinging** rebuke.  
 My eyes were **stinging** from the smoke.  
@@ -139,13 +169,9 @@ The poisoned apple they were offered (tech our grandparents couldn't have imagin
 
 > Then came bombings, not once, but twice. His factory was **leveled**.  
 
-
 With the **immediacy** of today’s NASDAQ close and the timeless power of a Greek tragedy, The Quants is **at once** a masterpiece of **explanatory** journalism, a **gripping** tale of ambition and hubris, and an ominous warning about Wall Street’s future.  
 
 In March of 2006, four of the world’s richest men **sipped** champagne in an **opulent** New York hotel.  
-
-
-Americans **side-eye** AI in new Gallup poll.  
 **suburb**, **exurbs**.  
 
 The COVID-19 pandemic shifted the geography of income, with many high-earning Americans moving from major metros to the **exurbs** or rural areas.  
@@ -175,13 +201,6 @@ This lifestyle upgrade doesn't even require you to **break a sweat** to be healt
 
 White came from **clays**, **limestone**, or **gypsum**. -  
 As we know, **gypsum** is **soluble** in water.  
-
-
-**In cahoots**.  
-**pug**  
-**stolid**  
-
-**mouthpiece**.  
 
 Impulsive and **self-destructive**: Elon Musk as **depicted** in a new book.  
 The billionaire has a **lofty vision** for humanity—and is unusually determined to see it through.  
@@ -247,13 +266,10 @@ To not **buggering** it up.
 
 
 Heat-related illnesses like **heat exhaustion** or **heatstroke** can occur if **precautions** are not taken.  
-**cut-rate** store.  
-**flummox**  
-**crescent** moon  
-**cemetery**, **graves**, churchyard, tombstone,  
-**monument**  
 
-**Scepter**  
+
+**cemetery**, **graves**, churchyard, tombstone,  
+
 Countries being **courted**, such as Argentina and Saudi Arabia (and possibly Indonesia), are members of the G20 as well, setting up some interesting and unusual dynamics at this weekend's summit.  
 
 **omens**, **ominous**  
@@ -263,8 +279,6 @@ While I don't like the picture because it is **ominous**, I am glad that we agre
 **obscene**  
 **scenery**, **scenic**  
 
-**Endearing**  
-**Scrounge**  
 a **mercurial** nature.  
 His **mercurial** temperament.  
 To **wriggle** is to wrest about like a worm.  
@@ -326,8 +340,10 @@ But I **make up for it** with enthusiasm and **perseverance**.
 **Immaculate**. He is so clean, you could eat off of him.  
 
 **For better or worse**, it hides certain functionalities from Hapi.  
-
 when he's dead, he will be **relieved**.  
+
+> I will see you at dinner  
+> I will see you in India 101  
 
 ## Interesting  
 
