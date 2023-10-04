@@ -1,24 +1,30 @@
 
+snug  
+stand-alone  
+assiduous  
+diabolic  
+sumptuous  
+suffrage, suffragette  
+
+
+
 ## Week 4  
 
 He **shuddered** with revulsion.  
 
 > "Tim wasn’t delivering software; Tim was delivering a team that was delivering software. The entire team became more effective, more productive, more aligned, more idiomatic, more fun, because Tim was in the team.  
 
-globefish, puffer, blowfish, balloonfish  
-An exponent of self-education.  
-Our senator is an exponent of free trade.  
-agape  
-toe to toe  
+**globefish**, **puffer**, **blowfish**, **balloonfish**  
+An **exponent** of self-education.  
+Our senator is an **exponent** of free trade.  
+**agape**  
+**toe to toe**  
 
+Uniformed and **plainclothes** police officers will be **stationed** throughout the grounds.  
 
-Uniformed and plainclothes police officers will be stationed throughout the grounds.  
-
-
-It vexed me to think of others gossiping behind my back.  
-You 'll really have to knuckle down if you want to pass the examination.  
-He would not knuckle down under their pressure.  
-
+It **vexed** me to think of others gossiping behind my back.  
+You will really have to **knuckle down** if you want to pass the examination.  
+He would not **knuckle down** under their pressure.  
 
 May cause your **gums** to **recede**.  
 Gum disease causes a space or gap between your teeth and gums, where **tartar** and **plaque** can become **trapped**.  
