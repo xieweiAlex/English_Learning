@@ -1,12 +1,15 @@
 
-snug  
-stand-alone  
-assiduous  
-diabolic  
-sumptuous  
-suffrage, suffragette  
+The House of Representatives on Tuesday voted to oust McCarthy as speaker just three days after a bipartisan stopgap spending bill was passed to avert a government shutdown.  
 
 
+> Scandals—whether in politics, academia, or other areas—can be useful. They focus our attention on problems in ways that no speaker or reformer ever could.
+
+**snug**  
+**stand-alone**  
+**assiduous**  
+**diabolic**  
+**sumptuous**  
+**suffrage**, **suffragette**  
 
 ## Week 4  
 
