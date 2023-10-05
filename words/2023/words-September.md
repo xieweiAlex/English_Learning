@@ -1,4 +1,15 @@
 
+crescent  
+driveline  
+water down.  
+
+
+Redolent  
+The market was glutted with shoddy goods.  
+detente  
+
+
+
 The House of Representatives on Tuesday voted to oust McCarthy as speaker just three days after a bipartisan stopgap spending bill was passed to avert a government shutdown.  
 
 
