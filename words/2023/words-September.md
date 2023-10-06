@@ -1,17 +1,24 @@
 
-crescent  
-driveline  
-water down.  
+truculent, belligerent, cranky 
 
+wallop  
+
+
+In 2020, Lilly said The Matrix was intended as an allegory for gender transition, but that "the corporate world wasn't ready".  
+
+
+We need to round up some volunteers to help with the charity event.  
+It’s going to germinate more competitors for your business.  
+
+**crescent**  
+**driveline**  
+**water down**.  
 
 Redolent  
-The market was glutted with shoddy goods.  
-detente  
+The market was **glutted** with **shoddy** goods.  
+**detente**  
 
-
-
-The House of Representatives on Tuesday voted to oust McCarthy as speaker just three days after a bipartisan stopgap spending bill was passed to avert a government shutdown.  
-
+The House of Representatives on Tuesday voted to oust McCarthy as speaker just three days after a bipartisan **stopgap** spending bill was passed to **avert** a government shutdown.  
 
 > Scandals—whether in politics, academia, or other areas—can be useful. They focus our attention on problems in ways that no speaker or reformer ever could.
 
