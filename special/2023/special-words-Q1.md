@@ -1,4 +1,8 @@
 
+**churn**
+
+**linearity**
+
 **compartmentalize**
 
 ## September
