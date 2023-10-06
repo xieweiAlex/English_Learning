@@ -1,20 +1,45 @@
 
-truculent, belligerent, cranky 
-
-wallop  
-
-
-In 2020, Lilly said The Matrix was intended as an allegory for gender transition, but that "the corporate world wasn't ready".  
+The Nobel prize in literature is prestigious, lucrative and bonkers.  
+Lifting the veil on how literature’s most coveted award is judged reveals its arbitrariness.  
 
 
-We need to round up some volunteers to help with the charity event.  
-It’s going to germinate more competitors for your business.  
+So, instead of going to waste, those parts are boiled to make gelatin.  
+negligee  
+
+He signed the confession under **duress**. -  
+**globetrotter**  
+
+
+**mount Everest**.  
+**truculent**, **belligerent**, **cranky** 
+
+**wallop**  
+**boomerang**  
+**flail**  
+**intestine**  
+**incredulous**  
+**Apostle**  
+
+**Pasturage** **aquiculture** already made the biggest industry of Hunan country.  
+He did not mention the **quarrel** with his wife.  
+**moonlighting**  
+**Carcase**  
+**blot out**  
+The hill was **blotted out** by **mist**.  
+
+**Clauses**  
+
+
+In 2020, Lilly said The Matrix was intended as an **allegory** for gender transition, but that "the corporate world wasn't ready".  
+
+We need to **round up** some volunteers to help with the charity event.  
+It’s going to **germinate** more competitors for your business.  
 
 **crescent**  
 **driveline**  
 **water down**.  
 
-Redolent  
+**Redolent**  
 The market was **glutted** with **shoddy** goods.  
 **detente**  
 
