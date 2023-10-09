@@ -1,13 +1,33 @@
 
-Nestled in a secluded and fertile valley, Little G Ranch offers a serene escape from the hustle and bustle of city life.  
+Nestled in a **secluded** and **fertile** valley, Little G Ranch offers a **serene** escape from the **hustle and bustle** of city life.  
+
+The Nobel prize in literature is **prestigious**, lucrative and **bonkers**.  
+Lifting the **veil** on how literature’s most **coveted** award is judged reveals its **arbitrariness**.  
+**membrane** keyboard 
+
+Then I **tamp down** the soil with the back of a rake.  
+
+Since, he says, the design argument was always prior to Darwin the strongest argument for God’s existence, the idea of a Creator is now extremely **improbable**—and placing faith in him is **tantamount to** choosing a delusion.  
+
+The authors of the study **envision** utilizing safe, **noninvasive** stimuli to encourage desired brain states.  
+The study found that listening to music and drinking coffee can **incite** higher levels of **beta band power** in brain waves.  
+
+Electrical **conductance**.  
+Dr. Faghih said that other safe **actuations** under consideration are soothing visual **stimuli** — perhaps images of peaceful scenery — meditation, gentle vibrations, or **haptic** feedback, virtual reality technologies, and PARO therapeutic robot experiences.  
+
+He went backstage and asked for her **autograph**.  
+His **composure** had the effect of **stoking** her anger.  
+**vociferous**  
+**calamity**  
+**hodgepodge**  
 
 
-The Nobel prize in literature is prestigious, lucrative and bonkers.  
-Lifting the veil on how literature’s most coveted award is judged reveals its arbitrariness.  
+The Nobel prize in literature is prestigious, lucrative and **bonkers**.  
+Lifting the **veil** on how literature’s most **coveted** award is judged reveals its **arbitrariness**.  
 
 
-So, instead of going to waste, those parts are boiled to make gelatin.  
-negligee  
+So, instead of going to waste, those parts are boiled to make **gelatin**. -  
+**negligee**  
 
 He signed the confession under **duress**. -  
 **globetrotter**  

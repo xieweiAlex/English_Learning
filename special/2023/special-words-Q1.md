@@ -1,7 +1,11 @@
 
+<<<<<<< HEAD
 **churn**
 
 **linearity**
+=======
+**reciprocal**
+>>>>>>> e50ae3c (Changes at: 10/09/2023 09:16:52 AM)
 
 **compartmentalize**
 
