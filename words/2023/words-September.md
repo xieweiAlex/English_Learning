@@ -1,4 +1,7 @@
 
+Thus, contrary to the New Atheists who claim there is no evidence of actual design in life—which, in their view renders belief in God untenable.  
+
+
 Finicky  
 squabble  
 gunship  
@@ -8,13 +11,11 @@ gawk
 meandering  
 
 
-
-
 Nestled in a **secluded** and **fertile** valley, Little G Ranch offers a **serene** escape from the **hustle and bustle** of city life.  
 
 The Nobel prize in literature is **prestigious**, lucrative and **bonkers**.  
 Lifting the **veil** on how literature’s most **coveted** award is judged reveals its **arbitrariness**.  
-**membrane** keyboard 
+**membrane** keyboard  
 
 Then I **tamp down** the soil with the back of a rake.  
 
@@ -45,7 +46,7 @@ He signed the confession under **duress**. -
 
 
 **mount Everest**.  
-**truculent**, **belligerent**, **cranky** 
+**truculent**, **belligerent**, **cranky**  
 
 **wallop**  
 **boomerang**  
@@ -79,7 +80,7 @@ The market was **glutted** with **shoddy** goods.
 
 The House of Representatives on Tuesday voted to oust McCarthy as speaker just three days after a bipartisan **stopgap** spending bill was passed to **avert** a government shutdown.  
 
-> Scandals—whether in politics, academia, or other areas—can be useful. They focus our attention on problems in ways that no speaker or reformer ever could.
+> Scandals—whether in politics, academia, or other areas—can be useful. They focus our attention on problems in ways that no speaker or reformer ever could.  
 
 **snug**  
 **stand-alone**  
