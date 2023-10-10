@@ -1,4 +1,15 @@
 
+Finicky  
+squabble  
+gunship  
+tidal wave  
+Nursing a demented person is an all-consuming task.  
+gawk  
+meandering  
+
+
+
+
 Nestled in a **secluded** and **fertile** valley, Little G Ranch offers a **serene** escape from the **hustle and bustle** of city life.  
 
 The Nobel prize in literature is **prestigious**, lucrative and **bonkers**.  
