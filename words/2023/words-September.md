@@ -1,4 +1,14 @@
 
+stopgap measures; a stopgap leader.  
+a crate serving as a stopgap for a chair.  
+
+
+
+Erogenous  
+obituary  
+efface  
+
+
 Thus, contrary to the New Atheists who claim there is no evidence of actual design in life—which, in their view renders belief in God untenable.  
 
 
@@ -10,6 +20,7 @@ Nursing a demented person is an all-consuming task.
 gawk  
 meandering  
 
+## Week 1 
 
 Nestled in a **secluded** and **fertile** valley, Little G Ranch offers a **serene** escape from the **hustle and bustle** of city life.  
 

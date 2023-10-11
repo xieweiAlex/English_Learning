@@ -113,7 +113,6 @@
 * onus vs responsibility, obligation 
 * discern
 * silver lining
-* stopgap 
 * stretch goal 
 * seat of the pants
 * anabolic steroids
