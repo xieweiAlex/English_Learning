@@ -1,26 +1,31 @@
 
-stopgap measures; a stopgap leader.  
-a crate serving as a stopgap for a chair.  
+**Stopgap measures**; **a stopgap leader**.  
+**makeshift**
+a **crate** serving as a **stopgap** for a chair.  
 
-
-
-Erogenous  
-obituary  
-efface  
-
+**Erogenous**  
+**obituary**  
+**efface**  
 
 Thus, contrary to the New Atheists who claim there is no evidence of actual design in life—which, in their view renders belief in God untenable.  
+it connects to my phone instantly and it has a built-in satnav.  
+I believe electric cars will take over because they are the better product. But the transition won’t be a smooth ride.  
 
 
-Finicky  
-squabble  
-gunship  
-tidal wave  
-Nursing a demented person is an all-consuming task.  
-gawk  
-meandering  
+Motherhood often **knocks** women **out of** the labor force, at least temporarily — contributing to the gender pay gap.  
+Also clear that Binyamin Netanyahu’s long-pursued policy of ignoring Palestinians’ aspirations to sovereignty is **in tatters**.  
 
-## Week 1 
+Thus, contrary to the New Atheists who claim there is no evidence of actual design in life—which, in their view renders belief in God **untenable**.  
+
+
+**nanny state**  
+**Finicky**  
+**squabble**  
+**gunship**  
+**tidal wave**  
+Nursing a **demented** person is an all-consuming task.  
+**gawk**  
+**meandering**  
 
 Nestled in a **secluded** and **fertile** valley, Little G Ranch offers a **serene** escape from the **hustle and bustle** of city life.  
 
