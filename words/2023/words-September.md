@@ -1,6 +1,26 @@
 
+**restraint**  
+**repulsive violence**  
+these types of brutal wars are more likely to **spread than subside**.  
+In my book, I **lay out** how these things typically **transpire**, and then I compare what is actually happening with the template and how other cases have transpired in the past to help me see and be ready for—and help you think about—what’s most likely to happen.  
+It seems to me that the Israel-Hamas war is another classic, unfortunate step toward a more violent and **encompassing** international war.  
+
+
+**Poke the bear**  
+
+The miscalculations of Israel’s and Gaza’s leaders are being **laid bare**.  
+**Pester**  
+**Stinging**  
+**inferiority complex**  
+**prognosis**  
+**stitcher**  
+He had a chance to confess and **expiate** his guilt. -  
+
+I’m not here to **wallow** or **despair**.  
+No one thinks you're smarter when you're **babbling** or **filibustering** or self-indulging.  
+
 **Stopgap measures**; **a stopgap leader**.  
-**makeshift**
+**makeshift**  
 a **crate** serving as a **stopgap** for a chair.  
 
 **Erogenous**  
