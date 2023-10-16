@@ -1,4 +1,40 @@
 
+She's beautiful, vivacious, and charming.   
+
+
+
+Pls eat some meat bc the anemia gonna slow you down.  
+life and death situation.  
+You know those files by heart.  
+
+I think Austen herself has been typed posthumously as an INTJ.  
+
+
+creatine
+
+
+> The Stoics said we must always be aware of Fortune’s habit of behaving as she pleases. We must always keep in mind that we 'could leave life right now,' as Marcus Aurelius writes. That we don’t have the time to indulge in idle chit chat, to complain about small stuff, to leave things unsaid. We can’t take tomorrow for granted. We must do what we can, while we can, for whom we can.  
+
+
+It’s time to treat our time as a gift and not waste it on the trivial and vain.   
+
+Governments have been known to snoop on and harass innocent citizens in the past.  
+
+She wore shorts and a **halter top**.
+I found the **truant** throwing stones in the river.  
+I want no part of this **sordid** business. -  
+
+**expropriate**  
+**parabola**  
+**gelatin**, **collagen**  
+**bifurcate**  
+**synopsis**  
+**doom and gloom**.  
+**splatter**  
+
+
+**self-serving bias**.  
+
 **restraint**  
 **repulsive violence**  
 these types of brutal wars are more likely to **spread than subside**.  
@@ -27,9 +63,9 @@ a **crate** serving as a **stopgap** for a chair.
 **obituary**  
 **efface**  
 
-Thus, contrary to the New Atheists who claim there is no evidence of actual design in life—which, in their view renders belief in God untenable.  
-it connects to my phone instantly and it has a built-in satnav.  
-I believe electric cars will take over because they are the better product. But the transition won’t be a smooth ride.  
+Thus, contrary to the New Atheists who claim there is no evidence of actual design in life—which, in their view renders belief in God **untenable**.  
+It connects to my phone instantly and it has a built-in **satnav**.  
+I believe electric cars will take over because they are the better product. But the transition won’t be a **smooth ride**.  
 
 
 Motherhood often **knocks** women **out of** the labor force, at least temporarily — contributing to the gender pay gap.  
