@@ -1,15 +1,21 @@
 
-incogitant  
-morgue  
-she put us in that draughty morgue of a sitting room.  
-limo, limousine . 
-sawmill . 
-chainsaw . 
-batter 
-meanly . 
-slapstick comedy  
-a jug of water.  
-litterbug . 
+It’s time to stop letting fees rob you of your hard-earned retirement.  
+
+Famed investor John Bogle calls this, fittingly, “The Tyranny of Compounding Costs.”
+
+Local **excision**.  
+
+**incogitant**  
+**morgue**  
+she put us in that **draughty** morgue of a sitting room.  
+**limo**, **limousine**  
+**sawmill**  
+**chainsaw**  
+**batter** 
+**meanly**  
+**slapstick comedy** -   
+**a jug of water**  
+**litterbug**  
 This is a **holdover** from a time when humans' food supply was unreliable and storing energy was an advantage.  
 
 
