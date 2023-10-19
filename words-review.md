@@ -1,5 +1,7 @@
 ## words-September.md ##  
 words/2023/words-September.md  
+**slapstick comedy** -  
+I want no part of this **sordid** business. -  
 He had a chance to confess and **expiate** his guilt. -  
 So, instead of going to waste, those parts are boiled to make **gelatin**. -  
 He signed the confession under **duress**. -  

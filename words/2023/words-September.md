@@ -1,9 +1,33 @@
 
-It’s time to stop letting fees rob you of your hard-earned retirement.  
+Transfix
+singe . 
+asphalt pavement/road
+Most streets are laid with asphalt. 
+pothole . 
+wistful . 
+dogfish  
+desecrate 
 
-Famed investor John Bogle calls this, fittingly, “The Tyranny of Compounding Costs.”
 
-Local **excision**.  
+These pages, this philosophy came a bit more easily to the boy, and were still inspiring him nearly to a point of **reverie** decades later.  
+
+**Pedometer**  
+**malstrom**  
+**wooden pallet**.  
+**trope**  
+**delineate**  
+Second, **face-to-face** contact allows us to **size up** others.  
+
+
+**maxim**, **adage**, **axiom**, **proverb**, **motto** 
+**precepts**, **tenet**, **doctrine**, **dogma**
+
+**formidable**, intimdable
+**heresy**, **heretical** 
+
+It’s time to stop letting fees **rob you of** your hard-earned retirement.  
+Famed investor John Bogle calls this, **fittingly**, “The **Tyranny** of Compounding Costs.”  
+Local **excision**. -  
 
 **incogitant**  
 **morgue**  
@@ -11,30 +35,28 @@ she put us in that **draughty** morgue of a sitting room.
 **limo**, **limousine**  
 **sawmill**  
 **chainsaw**  
-**batter** 
+**batter**  
 **meanly**  
-**slapstick comedy** -   
+**slapstick comedy** -  
 **a jug of water**  
 **litterbug**  
 This is a **holdover** from a time when humans' food supply was unreliable and storing energy was an advantage.  
-
-
-She's beautiful, **vivacious**, and charming.   
+She's beautiful, **vivacious**, and charming.  
 
 Pls eat some meat bc the **anemia** gonna slow you down.  
 **life and death situation**.  
 You know those files **by heart**.  
 I think Austen herself has been typed **posthumously** as an INTJ.  
 
-**creatine**
+**creatine**  
 
 
 > The Stoics said we must always be aware of Fortune’s habit of behaving as she pleases. We must always keep in mind that we 'could leave life right now,' as Marcus Aurelius writes. That we don’t have the time to indulge in idle chit chat, to complain about small stuff, to leave things unsaid. We can’t take tomorrow for granted. We must do what we can, while we can, for whom we can.  
 
-It’s time to treat our time as a gift and not waste it on the **trivial and vain**.   
+It’s time to treat our time as a gift and not waste it on the **trivial and vain**.  
 Governments have been known to **snoop on** and harass innocent citizens in the past.  
 
-She wore shorts and a **halter top**.
+She wore shorts and a **halter top**.  
 I found the **truant** throwing stones in the river.  
 I want no part of this **sordid** business. -  
 
@@ -46,6 +68,7 @@ I want no part of this **sordid** business. -
 **doom and gloom**.  
 **splatter**  
 
+## Week 1,2
 
 **self-serving bias**.  
 
