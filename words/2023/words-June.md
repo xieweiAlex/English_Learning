@@ -291,7 +291,7 @@ The air is thick with **acrid** smoke from the fires.
 We do not like his **acrid** temper.  
 This is an **acrid** and pungent substance.  
 
-They condemned the deal as a **craven** surrender. -  
+They condemned the deal as a **craven** surrender.   
 It has five **concourses** connected to a main hall.  
 fish **fillet**  
 old **codger**.  

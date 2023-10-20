@@ -131,7 +131,7 @@ The game will be a **pushover**.
 **Pedestal**??  
 His **impenetrable** eyes and **inscrutable** **countenance** give little away. -  
 
-The **omens** for the game are still not **propitious**. -  
+The **omens** for the game are still not **propitious**.   
 It was not a **propitious** time to start a new business. -  
 **Vagabond**  
 
@@ -282,7 +282,7 @@ America’s wave of violence may have **crested**.
 
 Given the amount of interest the question about shrinking **attention spans** has received, I was surprised to not find a **knockdown** study of the type I was looking for.  
 Many different investigations that were either not quite answering the question I was asking or too **shoddy** (or murky) to be trusted.  
-Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene. -  
+Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene.   
 
 Rather than try to threaten or **cajole** their way to the productivity-boosting benefits of in-person work, they can bring their workers together by giving them space to keep apart.  
 Some of them visibly annoyed that your chitchat is **derailing** their **train of thought**.  

@@ -6,6 +6,7 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 [Words Review](./words-review.md)
 
 ### 2023
+[Oct Words](./words/2023/words-October.md) |
 [Sep Words](./words/2023/words-September.md) |
 [August Words](./words/2023/words-August.md) |
 [July Words](./words/2023/words-July.md) |
