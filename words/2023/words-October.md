@@ -150,10 +150,10 @@ The Nobel prize in literature is prestigious, lucrative and **bonkers**.
 Lifting the **veil** on how literature’s most **coveted** award is judged reveals its **arbitrariness**.  
 
 
-So, instead of going to waste, those parts are boiled to make **gelatin**. -  
+So, instead of going to waste, those parts are boiled to make **gelatin**.   
 **negligee**  
 
-He signed the confession under **duress**. -  
+He signed the confession under **duress**.   
 **globetrotter**  
 
 
