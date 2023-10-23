@@ -113,7 +113,7 @@ An author could be considered **eclectic** if they draw on a range of literary t
 **cut back on**  
 
 I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**.   
-**predilection** ??  
+**predilection** 
 
 
 **ricochet**  
