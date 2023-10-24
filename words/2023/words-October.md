@@ -1,15 +1,23 @@
 
-## Week 3 
+It's right old downpour out there.  
+
+
+Too many **well-intentioned** politicians want to help us, imposing rules or regulations.  
+Humans are **herd animals**.  
+That third item received the least amount of funding and was more of a **footnote** to **placate** those US citizens who are catching on to the fact that their tax dollars are being spent on everything else besides the very country to which they’re paying them.  
+
+
+## Week 3  
 
 He tried to **nobble** one of the juror.  
 people always tried to **nobble** her at parties.  
 they **nobbled** him and threw him on to the train.  
 **Lilac** is best used as a **garnish**. -  
 
-**pool cue**.  
+**pool cue**, **cue stick**  
 highly **un-nuanced** phrases.  
 
-**aforementioned** fields 
+**aforementioned** fields  
 
 The INTJ is naturally **attuned to** the big picture and **can’t help but** see how everything is **interconnected**.  
 Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers. -  
@@ -20,7 +28,7 @@ They may even joke about the nerdy or **esoteric** nature of their interests.
 Unfortunately, this can sometimes result in INTJs being **misconstrued** as arrogant “**know-it-alls**.”  
 Like the INFJ, they can talk **at great length** (and depth) on topics that interest them.  
 And while they are rarely the most dynamic or energetic of **orators**, INTJs are typically decent **story-tellers** and good for occasional injections of **droll humor** or cultural references.  
-More proactive types, such as ENTJs, might even consider them a bit lazy or **apathetic**. -  
+More **proactive types**, such as ENTJs, might even consider them a bit lazy or **apathetic**. -  
 Indeed, the reason that INTJs’ theories and insights are often superior is because they do not **force** things.  
 **pertinent** information.  
 
@@ -29,50 +37,47 @@ They acquire much of their knowledge through **happenstance**, without much in t
 Te helps INTJs rationally **explicate** their intuitions, whether in math, science, consulting, or related fields.  
 
 Phase III INTJs **wise up to** the tricks and temptations of the inferior function, discovering more sustainable ways of integrating their functions.  
-Because of its **prescience** and depth of insight, Ni may at times seem to border on magical or **supernatural**.  
+Because of its **prescience** and depth of insight, Ni may at times seem to **border on** magical or **supernatural**.  
 This is consistent with Jung’s characterization of the Ni type as the dreamer or **seer**.  
-The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, prediction, and control. -  
+The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
 And because Ni comes first in INTJs’ function stack, Te is ultimately more of a **servant than a master**.  
-**Flesh out**. 
+**Flesh out**.  
 **state of being**.  
-Te is not concerned with **procuring** **social harmony** or group **morale**. It is characteristically **impersonal**—focused on facts, objects, and systems rather than feelings.  
+Te is not concerned with **procuring** **social harmony** or **group morale**. It is characteristically **impersonal**—focused on facts, objects, and systems rather than feelings.  
 INTJs often feel that, regardless of how sound their arguments or the amount of evidence they present, some people simply won’t **budge**.  
 When this happens repeatedly, INTJs may become **dismayed** or **nihilistic**, concerned that humanity will forever remain blind to the truth.  
 
 They tend to be loyal and committed partners, as well as **unswervingly** devoted to the well-being of their children  
-Some INTJs are emotionally **labile** and constantly turning to others for support. - 
+Some INTJs are emotionally **labile** and constantly turning to others for support. -  
 For quite some time, I was **perplexed** as to why so many INTJs took interest in personality typology.  
 **Namely**, similar to what we see in FP types, INTJs’ Fi compels them to understand who they are as unique individuals.  
 
 Many feel they cannot rest or move forward until certain foundational matters have been **squared away**.  
 
-She gently **chastised** her son for not doing his homework, reminding him of the importance of completing his assignments.
-**analogous**
+She gently **chastised** her son for not doing his homework, reminding him of the importance of completing his assignments.  
+**analogous**  
 
 **drugged up**.  
 Why **fusilli**?  
 
 
 **Chances are** you've engaged in it more than a few times.  
-The **downbeat** comments dragged Chinese EV stocks and other related firms.   
+The **downbeat** comments dragged Chinese EV stocks and other related firms.  
 this **briny** brew is **chock-full** of compounds that have been found to be anti-inflammatory, which may **imbue** it with special health benefits.  
 
 We don’t control the **vileness** of the world or of other people. We do control whether we contribute to it though, whether we choose to contrast it with our own splendor and goodness.  
 But it was part of his job to attend them, so he did his best to distract himself with a book–often to the **bemusement** of the crowd.  
 This life thing: It’s wonderful. We are **sentient** beings. The **apex** predators at the top of the food chain.  
 
-
 **malleable** and **plastic**.  
 
-You **start off** with a **zoom out view** and you see something that look like **fecal material** that digest inside the gut.   
+You **start off** with a **zoom out view** and you see something that look like **fecal material** that digest inside the gut.  
 **distal colon**  
 **fetus** in the **womb**.  
 
-
 **Mauritian**.  
-
 **far from obvious**.  
-there is a huge **latent** desire in the population to understand Bitcoin. 
+there is a huge **latent** desire in the population to understand Bitcoin. -  
 **latent** vs **potential**  
 
 **emote**  
@@ -242,10 +247,10 @@ The Nobel prize in literature is prestigious, lucrative and **bonkers**.
 Lifting the **veil** on how literature’s most **coveted** award is judged reveals its **arbitrariness**.  
 
 
-So, instead of going to waste, those parts are boiled to make **gelatin**.   
+So, instead of going to waste, those parts are boiled to make **gelatin**.  
 **negligee**  
 
-He signed the confession under **duress**.   
+He signed the confession under **duress**.  
 **globetrotter**  
 
 

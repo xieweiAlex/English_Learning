@@ -1,5 +1,12 @@
 ## words-October.md ##  
 words/2023/words-October.md  
+**Lilac** is best used as a **garnish**. -  
+Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers. -  
+More **proactive types**, such as ENTJs, might even consider them a bit lazy or **apathetic**. -  
+The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
+Some INTJs are emotionally **labile** and constantly turning to others for support. -  
+there is a huge **latent** desire in the population to understand Bitcoin. -  
+he looked at her with a **sombre** expression. -  
 Local **excision**. -  
 **slapstick comedy** -  
 I want no part of this **sordid** business. -  
