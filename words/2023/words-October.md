@@ -1,6 +1,5 @@
 
-It's right old downpour out there.  
-
+It's **right old** **downpour** **out there**.  
 
 Too many **well-intentioned** politicians want to help us, imposing rules or regulations.  
 Humans are **herd animals**.  
