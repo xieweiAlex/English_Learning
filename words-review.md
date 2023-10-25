@@ -6,7 +6,7 @@ More **proactive types**, such as ENTJs, might even consider them a bit lazy or 
 The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
 Some INTJs are emotionally **labile** and constantly turning to others for support. -  
 there is a huge **latent** desire in the population to understand Bitcoin. -  
-he looked at her with a **sombre** expression. -  
+he looked at her with a **sombre** expression.   
 Local **excision**. -  
 **slapstick comedy** -  
 I want no part of this **sordid** business. -  
@@ -23,16 +23,16 @@ The final stage of **waxing** left it with a **satin** **sheen**. -
 One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
 First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
 White came from **clays**, **limestone**, or **gypsum**. -  
-The explanation is too **facile** for such a complex phenomenon. -  
-I'm in **fine fettle**. -  
+The explanation is too **facile** for such a complex phenomenon.   
+I'm in **fine fettle**.   
 Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**. -  
 
 ## words-August.md ##  
 words/2023/words-August.md  
-His **impenetrable** eyes and **inscrutable** **countenance** give little away. -  
+His **impenetrable** eyes and **inscrutable** **countenance** give little away.   
 It was not a **propitious** time to start a new business. -  
 **lacerate**. -  
-So he **concocted** a **fiendish** scheme to trick her into paying. -  
+So he **concocted** a **fiendish** scheme to trick her into paying.   
 **Thwack** -  
 
 ## words-June.md ##  
