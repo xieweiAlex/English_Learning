@@ -1,8 +1,12 @@
 
+"This is a shot across the bow — a message to Foxconn but also to Foxconn's customers, alerting them that if relations between China and the U.S. get worse, these companies could incur costs"  
+China's economy hinges on a peaceful Middle East.  
+Beijing is making a big diplomatic push for peace in the region, where it has significant sway among Arab states and Hamas-backer Iran.  
+It goes for the low-hanging fruits and basically stops there.  
+China produces about 65% of the world's mined graphite, according to the U.S. Geological Survey, and it dominates the market for synthetic graphite, which is made from coal or oil.  
 
 The president's hopes for the country were high-minded, but too vague.  
 And with widespread uncertainty marred with geopolitical friction and a looming recession, investors are looking for stable returns in low-risk investments like Treasury bills.  
-
 
 That equity is **insulation**.  
 
