@@ -1,8 +1,18 @@
 
 
+The president's hopes for the country were high-minded, but too vague.  
+And with widespread uncertainty marred with geopolitical friction and a looming recession, investors are looking for stable returns in low-risk investments like Treasury bills.  
+
+
+That equity is **insulation**.  
+
+
+> efface vs erase vs wipe out 
+> motive vs incentive
+
 **LOE**: level of effort 
 **on the back foot**.  
-Emmer may struggle to cobble together the 217 votes needed to win the speaker’s gavel on the House floor.  
+Emmer may struggle to **cobble together** the 217 votes needed to win the speaker’s gavel on the House floor.  
 
 
 **tantalize** . 
@@ -14,7 +24,6 @@ In describing what the code is supposed to do and observing what it actually doe
 
 > It has been a **truism** for decades that WW3, **should it ever occur**, would end civilization.  
 
-
 It just **belabors**. It just **stirs up** resentments and anger. It distracts. It takes us away from what we do control, what does matter, which is how we respond. Which is how we change ourselves **in light of** the unchangeable new wrinkle in reality. -  
 Don’t be trapped by **dogma**—which is living with the results of other people’s thinking.  
 Don’t let the noise of others’ opinions **drown out** your own inner voice.  
@@ -22,8 +31,6 @@ Brian Tracy nails it with the term "**attraction of distraction**," cautioning u
 Take Thomas Edison, for instance. We **owe** our bright nights to his invention, the electric lightbulb. -  
 
 **Suffice to say**.  
-
-
 It's **right old** **downpour** **out there**.  
 
 Too many **well-intentioned** politicians want to help us, imposing rules or regulations.  
