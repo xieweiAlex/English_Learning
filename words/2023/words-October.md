@@ -1,15 +1,17 @@
 
-"This is a shot across the bow — a message to Foxconn but also to Foxconn's customers, alerting them that if relations between China and the U.S. get worse, these companies could incur costs"  
-China's economy hinges on a peaceful Middle East.  
-Beijing is making a big diplomatic push for peace in the region, where it has significant sway among Arab states and Hamas-backer Iran.  
-It goes for the low-hanging fruits and basically stops there.  
-China produces about 65% of the world's mined graphite, according to the U.S. Geological Survey, and it dominates the market for synthetic graphite, which is made from coal or oil.  
+**sewer pipe**, **sewer system**, **sewerage**  
+They came out of the **gutters** and **sewers** **in droves**.  
+Like in **Victorian times** before the invention of **modern sewers** and **sanitation**.  
 
-The president's hopes for the country were high-minded, but too vague.  
-And with widespread uncertainty marred with geopolitical friction and a looming recession, investors are looking for stable returns in low-risk investments like Treasury bills.  
+"This is a **shot across the bow** — a message to Foxconn but also to Foxconn's customers, alerting them that if relations between China and the U.S. get worse, these companies could incur costs"  
+China's economy **hinges on** a peaceful Middle East.  
+Beijing is making a big diplomatic push for peace in the region, where it has significant **sway** among Arab states and Hamas-backer Iran.  
+It goes for the **low-hanging fruits** and basically stops there.  
+China produces about 65% of the world's mined **graphite**, according to the U.S. Geological Survey, and it dominates the market for **synthetic graphite**, which is made from coal or oil.  
 
+The president's hopes for the country were **high-minded**, but too vague.  
+And with widespread uncertainty **marred with** geopolitical friction and a looming recession, investors are looking for stable returns in low-risk investments like Treasury bills.  
 That equity is **insulation**.  
-
 
 > efface vs erase vs wipe out 
 > motive vs incentive
@@ -18,13 +20,11 @@ That equity is **insulation**.
 **on the back foot**.  
 Emmer may struggle to **cobble together** the 217 votes needed to win the speaker’s gavel on the House floor.  
 
-
 **tantalize** . 
 Modern capitalist economy follows its own **immanent** laws. -  
 **crib** . 
 
 In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent. -  
-
 
 > It has been a **truism** for decades that WW3, **should it ever occur**, would end civilization.  
 
