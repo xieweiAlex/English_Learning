@@ -1,4 +1,15 @@
 
+he would arrive in a small town and sit and wait, often without recognition, sometimes quietly enduring snubs or indignities from people who had no idea who he was.  
+
+I realized there was no fog **veiling** my window.  
+I know this is an **imposition**. But please **hear me out**.  
+The **imposition** of martial law. -  
+The women wore veils **in deference to** the customs of the country.  
+**deafening**  
+**filial** . 
+
+> I was raised in this way. 
+
 **sewer pipe**, **sewer system**, **sewerage**  
 They came out of the **gutters** and **sewers** **in droves**.  
 Like in **Victorian times** before the invention of **modern sewers** and **sanitation**.  
