@@ -1,12 +1,21 @@
 ## words-October.md ##  
 words/2023/words-October.md  
+Make a **feint** in the east but hit in the west. -  
+When life's priorities get **jumbled**. -  
+Cellular, internet and other communications in the **enclave** have also been cut, according to Palestinian human rights groups and several reports. -  
+**Mouth ulcers** are painful and typically small **lesions** that develop in your mouth or at the base of your gums. -  
+He would arrive in a small town and sit and wait, often without recognition, sometimes quietly **enduring** **snubs** or **indignities** from people who had no idea who he was. -  
+The **imposition** of martial law. -  
+Modern capitalist economy follows its own **immanent** laws. -  
+In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent. -  
+It just **belabors**. It just **stirs up** resentments and anger. It distracts. It takes us away from what we do control, what does matter, which is how we respond. Which is how we change ourselves **in light of** the unchangeable new wrinkle in reality. -  
+Take Thomas Edison, for instance. We **owe** our bright nights to his invention, the electric lightbulb. -  
 **Lilac** is best used as a **garnish**. -  
 Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers. -  
 More **proactive types**, such as ENTJs, might even consider them a bit lazy or **apathetic**. -  
 The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
 Some INTJs are emotionally **labile** and constantly turning to others for support. -  
 there is a huge **latent** desire in the population to understand Bitcoin. -  
-he looked at her with a **sombre** expression.   
 Local **excision**. -  
 **slapstick comedy** -  
 I want no part of this **sordid** business. -  
@@ -23,16 +32,12 @@ The final stage of **waxing** left it with a **satin** **sheen**. -
 One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
 First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
 White came from **clays**, **limestone**, or **gypsum**. -  
-The explanation is too **facile** for such a complex phenomenon.   
-I'm in **fine fettle**.   
 Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**. -  
 
 ## words-August.md ##  
 words/2023/words-August.md  
-His **impenetrable** eyes and **inscrutable** **countenance** give little away.   
 It was not a **propitious** time to start a new business. -  
 **lacerate**. -  
-So he **concocted** a **fiendish** scheme to trick her into paying.   
 **Thwack** -  
 
 ## words-June.md ##  

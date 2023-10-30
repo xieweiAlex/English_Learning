@@ -346,7 +346,6 @@ urging Americans to **keep** their **guard up**.
 go out for **varsity** soccer.  
 he is a **shrewd** businessman  
 **fasten on**  
-**finite**  
 explore it **graphically**  
 
 this seems to be **the final straw** for most of the world to change their manufacoring strategy  

@@ -219,7 +219,7 @@ But what you get in return—skills, knowledge, a **leg up** on your journey—i
 
 There is nothing so **sanative** as a walk in the woods.  
 **Warring states** period  
-The explanation is too **facile** for such a complex phenomenon. -  
+The explanation is too **facile** for such a complex phenomenon.   
 His **facile** banter was rather stupid.  
 **vacuity**  
 **perilous**  
@@ -237,7 +237,7 @@ All Internet connections are **threadbare**.
 
 We're a **seagoing** nation.  
 We've been since the **Bronze Age**.  
-I'm in **fine fettle**. -  
+I'm in **fine fettle**.   
 I'm **unwanted**.  
 
 My emotions are **unbridled**.  

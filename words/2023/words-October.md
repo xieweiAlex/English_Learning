@@ -1,14 +1,86 @@
 
-he would arrive in a small town and sit and wait, often without recognition, sometimes quietly enduring snubs or indignities from people who had no idea who he was.  
+muscular dystrophy.  
+
+kamikaze  
+Scurry  
+
+
+
+Why on earth would anyone want to plunge their bodies into cold water? Well, the **purported** benefits are pretty **enticing**.  
+
+**snapper**.  
+**dabble**  
+**intervening period**.  
+I was **entranced** by a cluster of trees which were **lit up** by **glow-worms**.  
+I might never have heard that **entrancing** sound, or smelt that **bewitching** smell!  
+
+**Burp** them if necessary to release excess pressure and prevent explosions.  
+**acetic acid**.  
+
+My pro-Palestinian perspective began more than 30 years ago when I was introduced to the Palestinian community and their **plight** in the early 1990s.  
+While I have always hoped for a **viable** and peaceful **two-state solution**, the Gaza experiment has been an **abject failure**.  
+As always, I welcome your input, **critiques** and **rebuttal**.  
+
+Make a **feint** in the east but hit in the west. -  
+**faint of heart**.  
+**panacea**  
+> The madcap can be saved; the self-contemptuous is beyond rescue.  
+
+> How often do you tell yourself that you're too swamped for a workout or even a brisk walk?  
+
+Check if your desk, chair, and computer screen are set up to keep you **upright** and **alert**.  
+Add small exercise tools like resistance bands. A little stretching here and a few elliptical rotations there **add up**!  
+**tote bag**.  
+
+Money is complicated, it makes everyone **squeamish**, it makes everyone act kind of weird.  
+Do not be too timid and **squeamish** about your actions. All life is an experiment.  
+What if they are a little **coarse**, and you may get your coat **soiled** or torn?  
+
+When life's priorities get **jumbled**. -  
+**cognitive load**.  
+Putin **lauds** **Belt and Road**.  
+
+
+> Think of your childhood. What is one area where your parents did a good job? What is one area where they could have done better?  
+
+
+The California Department of Motor Vehicles suspended Cruise’s operating permits, forcing the GM-owned service to pull all cars from the road immediately after **a spate of** accidents involving its autonomous vehicles.  
+Maine's massive **manhunt**.  
+
+> Meaning if you don’t create your boundaries and create blocks of productive work, you’ll get pulled in different directions and be at the mercy of other people or distractions, creating your schedule for you.  
+
+
+
+The **Anthology** of Balaji.  
+A **blow** to Chinese **hubris** in the Middle East, but a chance to **bash** America.  
+Cellular, internet and other communications in the **enclave** have also been cut, according to Palestinian human rights groups and several reports. -  
+To master a language, start learning it early -- New evidence suggests a **drop-off** in results after the age of 17.  
+
+Your behaviours exercised a **malign** influence on the children.  
+
+**Mouth ulcers** are painful and typically small **lesions** that develop in your mouth or at the base of your gums. -  
+Types of **mouth ulcers** include **canker sores** and the sores caused by hand, foot, and mouth disease.  
+**cold sore**.  
+
+
+He was **affable** at one moment, **choleric** the next.  
+Bob was always **genial** and **welcoming**.  
+"**Genial**" also means pleasant, cheerful, and affable, but it often carries the additional connotation of being congenial or having a pleasant disposition. It suggests a certain charm and good-naturedness.  
+The **genial** atmosphere in the office helped foster creativity and collaboration.  
+
+
+The war and its **aftermath** will test that perception against reality.  
+
+He would arrive in a small town and sit and wait, often without recognition, sometimes quietly **enduring** **snubs** or **indignities** from people who had no idea who he was. -  
 
 I realized there was no fog **veiling** my window.  
 I know this is an **imposition**. But please **hear me out**.  
 The **imposition** of martial law. -  
 The women wore veils **in deference to** the customs of the country.  
 **deafening**  
-**filial** . 
+**filial** .  
 
-> I was raised in this way. 
+> I was raised in this way.  
 
 **sewer pipe**, **sewer system**, **sewerage**  
 They came out of the **gutters** and **sewers** **in droves**.  
@@ -24,16 +96,16 @@ The president's hopes for the country were **high-minded**, but too vague.
 And with widespread uncertainty **marred with** geopolitical friction and a looming recession, investors are looking for stable returns in low-risk investments like Treasury bills.  
 That equity is **insulation**.  
 
-> efface vs erase vs wipe out 
-> motive vs incentive
+> efface vs erase vs wipe out  
+> motive vs incentive  
 
-**LOE**: level of effort 
+**LOE**: level of effort  
 **on the back foot**.  
 Emmer may struggle to **cobble together** the 217 votes needed to win the speaker’s gavel on the House floor.  
 
-**tantalize** . 
+**tantalize** .  
 Modern capitalist economy follows its own **immanent** laws. -  
-**crib** . 
+**crib** .  
 
 In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent. -  
 
@@ -129,7 +201,7 @@ there is a huge **latent** desire in the population to understand Bitcoin. -
 **emote**  
 **houseboat**  
 the night skies were **sombre** and starless.  
-he looked at her with a **sombre** expression. -  
+he looked at her with a **sombre** expression.   
 **gills**  
 **composure**  
 **synopsis**  

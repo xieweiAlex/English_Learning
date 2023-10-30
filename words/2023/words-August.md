@@ -129,7 +129,7 @@ He felt pleasantly **drowsy** and had to **fight off** the urge to sleep.
 Wind **vane**  
 The game will be a **pushover**.  
 **Pedestal**??  
-His **impenetrable** eyes and **inscrutable** **countenance** give little away. -  
+His **impenetrable** eyes and **inscrutable** **countenance** give little away.   
 
 The **omens** for the game are still not **propitious**.   
 It was not a **propitious** time to start a new business. -  
@@ -239,7 +239,7 @@ What policy actions could China take to **palliate** the loss?
 In conversation she **exudes** wit and self-assurance.  
 He **exuded** good humour and **bonhomie**.  
 
-So he **concocted** a **fiendish** scheme to trick her into paying. -  
+So he **concocted** a **fiendish** scheme to trick her into paying.   
 
 Her **dismissal** came as **a bolt from the blue**.  
 **Crayon** **Shin-chan**.  
