@@ -1,10 +1,20 @@
 
-muscular dystrophy.  
+## Week 4
 
-kamikaze  
-Scurry  
+> Look back ten years and you can probably identify a few blind spots or mistaken beliefs you held at the time. Now, fast forward ten years from today... what are likely to be your current blind spots? What are you not spending enough time thinking about or perhaps even willfully ignoring?
+
+fulminate . 
+humdrum . 
+cacophony . 
+ridge . 
+expiate  
+heat sink, money sink.  
 
 
+
+muscular **dystrophy**.  
+**kamikaze**  
+**Scurry**  
 
 Why on earth would anyone want to plunge their bodies into cold water? Well, the **purported** benefits are pretty **enticing**.  
 
