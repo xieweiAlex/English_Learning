@@ -1,16 +1,27 @@
 
 ## Week 4
 
+> Psychological problems are based, **in part**, on **faulty** or unhelpful ways of thinking.  
+
+Because it’s easy to imagine our heroes as **unflappable** **juggernauts**, who conquer insecurity with a **majestic** mental **karate chop** every morning.  
+
+Hundreds of towns still **feature** **tracks** that pass right through the **heart of Main Street**, and mega-cities like Chicago, Atlanta, and Los Angeles all owe their **prominence** to the explosive growth in rail.  
+**In essence**, **embargoes** are **analogous** to **force majeures**.  
+cut jobs, **mothball** equipment, and delay infrastructure investments.  
+**hazmat**: hazardous material  
+The environmental damage resulting from the recent **derailment** of a Norfolk Southern train in East Palestine, Ohio **is sure to** bring this complicated **scuffle** to the **forefront**. -  
+
+
+Muscular **dystrophy**.  
+
 > Look back ten years and you can probably identify a few blind spots or mistaken beliefs you held at the time. Now, fast forward ten years from today... what are likely to be your current blind spots? What are you not spending enough time thinking about or perhaps even willfully ignoring?
 
-fulminate . 
-humdrum . 
-cacophony . 
-ridge . 
-expiate  
-heat sink, money sink.  
-
-
+**fulminate** . 
+**humdrum** . 
+**cacophony** . 
+**ridge** . 
+**expiate**  
+**heat sink**, **money sink**.  
 
 muscular **dystrophy**.  
 **kamikaze**  
