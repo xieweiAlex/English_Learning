@@ -1,5 +1,8 @@
 
-## Week 4
+**perverse effect**  
+
+
+## Week 4  
 
 > Psychological problems are based, **in part**, on **faulty** or unhelpful ways of thinking.  
 
@@ -14,12 +17,12 @@ The environmental damage resulting from the recent **derailment** of a Norfolk S
 
 Muscular **dystrophy**.  
 
-> Look back ten years and you can probably identify a few blind spots or mistaken beliefs you held at the time. Now, fast forward ten years from today... what are likely to be your current blind spots? What are you not spending enough time thinking about or perhaps even willfully ignoring?
+> Look back ten years and you can probably identify a few blind spots or mistaken beliefs you held at the time. Now, fast forward ten years from today... what are likely to be your current blind spots? What are you not spending enough time thinking about or perhaps even willfully ignoring?  
 
-**fulminate** . 
-**humdrum** . 
-**cacophony** . 
-**ridge** . 
+**fulminate** .  
+**humdrum** .  
+**cacophony** .  
+**ridge** .  
 **expiate**  
 **heat sink**, **money sink**.  
 
@@ -167,7 +170,7 @@ They may even joke about the nerdy or **esoteric** nature of their interests.
 Unfortunately, this can sometimes result in INTJs being **misconstrued** as arrogant “**know-it-alls**.”  
 Like the INFJ, they can talk **at great length** (and depth) on topics that interest them.  
 And while they are rarely the most dynamic or energetic of **orators**, INTJs are typically decent **story-tellers** and good for occasional injections of **droll humor** or cultural references.  
-More **proactive types**, such as ENTJs, might even consider them a bit lazy or **apathetic**. -  
+More **proactive types**, such as ENTJs, might even consider them a bit lazy or **apathetic**.   
 Indeed, the reason that INTJs’ theories and insights are often superior is because they do not **force** things.  
 **pertinent** information.  
 
@@ -222,7 +225,7 @@ there is a huge **latent** desire in the population to understand Bitcoin. -
 **emote**  
 **houseboat**  
 the night skies were **sombre** and starless.  
-he looked at her with a **sombre** expression.   
+he looked at her with a **sombre** expression.  
 **gills**  
 **composure**  
 **synopsis**  
