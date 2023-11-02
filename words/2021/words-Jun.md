@@ -64,7 +64,6 @@ Hundreds of people packed into the **mosque**.
 He seems to **live off** junk food  
 Todd have been **living off** Bojack for years and that Bojack couldn't let him go.  
 Diane goes on **antidepressants**, which lead her to gain weight, but **nonetheless** do make her happier, less **irritable**, and in general more **content**.  
-It is important that we **dovetail** our respective interests.  
 It makes you look **moronic**  
 he’s **bankrolled** a group that promotes building floating nations that would impose no **compulsory** income taxes  
 Thiel has quietly turned his Roth IRA — a **humdrum** retirement vehicle intended to **spur** Americans to save for their golden years — into a **gargantuan** tax-exempt piggy bank  
