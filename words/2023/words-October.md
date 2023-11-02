@@ -1,22 +1,22 @@
 
+
 We do not understand how Apple managed to release an OS update that, when upgraded to normally, leaves machines unbootable if their display refresh rate is not the default. This seems to have been a major QA oversight by Apple.  
 
-Baptize, baptism. 
+**Baptize**, **baptism**. 
 It is important that we **dovetail** our respective interests.  
-crucify, crucifixion
-accomplice . 
+**crucify**, **crucifixion**
+**accomplice** . 
 The apartment building was **lavishly** decorated. - 
-gibberish . 
-formality . 
+**gibberish** . 
+**formality** . 
 
 
 
-He became a taunt to his neighbours.  
-obit . 
-humdrum . 
-fulminated against political chicanery.  
-The newspapers fulminate against the crime.  
-
+He became a **taunt** to his neighbours. -  
+**obit**  
+**humdrum**  
+**fulminated** against political **chicanery**.  
+The newspapers **fulminate** against the crime.  
 
 **perverse effect**  
 
