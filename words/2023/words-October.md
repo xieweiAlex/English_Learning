@@ -7,6 +7,7 @@ Rather than strings of surplus code, what’s returned is exactly what’s reque
 **Alimony**  
 **exigency**  
 The Labour Party **repealed** the Act.  
+Major landlords nationwide are effectively colluding to keep rents high, D.C.'s attorney general argues in a new lawsuit.  
 
 We do not understand how Apple managed to release an OS update that, when upgraded to normally, leaves machines unbootable if their display refresh rate is not the default. This seems to have been a major QA oversight by Apple.  
 
