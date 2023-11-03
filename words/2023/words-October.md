@@ -1,16 +1,22 @@
 
+Rather than strings of surplus code, what’s returned is exactly what’s requested.  
+**superfluous**, **surplus**.  
+
+
+
+**Alimony**  
+**exigency**  
+The Labour Party **repealed** the Act.  
 
 We do not understand how Apple managed to release an OS update that, when upgraded to normally, leaves machines unbootable if their display refresh rate is not the default. This seems to have been a major QA oversight by Apple.  
 
 **Baptize**, **baptism**. 
 It is important that we **dovetail** our respective interests.  
 **crucify**, **crucifixion**
-**accomplice** . 
+**accomplice**  
 The apartment building was **lavishly** decorated. - 
-**gibberish** . 
-**formality** . 
-
-
+**gibberish**  
+**formality**  
 
 He became a **taunt** to his neighbours. -  
 **obit**  
