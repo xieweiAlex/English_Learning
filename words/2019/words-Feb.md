@@ -8,11 +8,6 @@ I think I've evolved beyond my simple rustic **upbringing**.
 Sometimes you have to **walk away** from negotiations, the president said during an **uncharacteristically** **subdued** appearance before the media  
 an administration official explained that the **gambit** was designed to avoid the **pitfalls** of decades of ultimately unsuccessful lower-level negotiations  
 
-**funeral parlour**  
-
-**house oversight committee**.  
-be under the **oversight** of.  
-
 Google—the search engine company that everyone grew to love at the time—announced that they’re entering the **ring**. Chrome was born.  
 What started as an **avant-garde**, **standard-compliant** browser is now a **sprawling** platform that spares no area of modern computing.  
 While the Chrome browser itself is not open-source, most of its **innards** are. Chromium, the non-proprietary subset of Chrome, was open-sourced early on with a generously **permissive license** as a sign of commitment to the open Web community.  

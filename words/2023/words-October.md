@@ -1,15 +1,29 @@
 
-Rather than strings of surplus code, what’s returned is exactly what’s requested.  
+
+“It seems like that’s still a ways off in my mind,” Richmond Fed President Thomas Barkin said during an interview on CNBC’s “Squawk on the Street.”  
+
+The **erstwhile** crypto king is convicted of seven counts of fraud.  
+
+Nap better to **reap** the most benefits.  
+The fear of making mistakes will **pale in comparison** to the satisfaction and fulfillment of intensely giving your best.  
+I got **brigaded** with laser eyes saying, “Have fun being poor.”  
+
+**dendrite**, **dandruff**. 
+U.S. Federal Reserve Threatening to Sue Bitcoin Magazine Over **Apparel** that **Parodies** its FedNow System.  
+
+Rather than strings of **surplus** code, what’s returned is exactly what’s requested.  
 **superfluous**, **surplus**.  
-
-
 
 **Alimony**  
 **exigency**  
 The Labour Party **repealed** the Act.  
-Major landlords nationwide are effectively colluding to keep rents high, D.C.'s attorney general argues in a new lawsuit.  
+Major landlords nationwide are effectively **colluding** to keep rents high, D.C.'s attorney general argues in a new lawsuit.  
 
-We do not understand how Apple managed to release an OS update that, when upgraded to normally, leaves machines unbootable if their display refresh rate is not the default. This seems to have been a major QA oversight by Apple.  
+**funeral parlour**  
+We do not understand how Apple managed to release an OS update that, when upgraded to normally, leaves machines unbootable if their display refresh rate is not the default. This seems to have been a major QA **oversight** by Apple.  
+
+**house oversight committee**.  
+be under the **oversight** of.  
 
 **Baptize**, **baptism**. 
 It is important that we **dovetail** our respective interests.  
