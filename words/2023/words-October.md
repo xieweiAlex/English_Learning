@@ -1,4 +1,10 @@
 
+> Which of your current habits is least aligned with the type of person you hope to become?
+
+The outlook is bleak.  
+General Valery Zaluzhny admits the war is at a stalemate.  
+
+
 ## Week 1  
 
 **osteoporosis**.  
