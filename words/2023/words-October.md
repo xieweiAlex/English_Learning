@@ -1,4 +1,39 @@
 
+## Week 1  
+
+**osteoporosis**.  
+**set in stone**.  
+**cut corners**.  
+**knock yourself out**.  
+
+
+We're two months in arrears with the rent.  
+scavenger hunt, treasure hunt  
+
+We managed to scrape together eight volunteers.  
+
+
+He was **stuck in a rut** of losses against his coach and reached a point of **exasperation**.  
+Had he **succumbed** to that impulse, choosing to escape the discomfort, he'd be skipping the very lessons and practice that would sharpen his skills.  
+The sweetness of **instant gratification**.  
+We continually **sideline** significant gains for momentary pleasures, ultimately feeling unhappy and unfulfilled.  
+**desensitization**  
+Since my childhood, my culinary tastes have grown up (except for my forever-**disdain** of chips as snacks.  
+
+**Soothsayer**  
+**euthanize**.  
+
+**derisive**  
+
+**Oddly specific**  
+she was **in the thick of it**.  
+
+She put the vase of flowers on the **window ledge**.  
+**photosynthesis**.  
+Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  
+unique **homeliness**.  
+
+There is real value in taking time to process and grieve and dance with **the morbidity of our mortality**, of creating a ritual that allows us to **come to terms** with this essential part of our existence.  
 
 “It seems like that’s still a ways off in my mind,” Richmond Fed President Thomas Barkin said during an interview on CNBC’s “Squawk on the Street.”  
 
@@ -8,7 +43,7 @@ Nap better to **reap** the most benefits.
 The fear of making mistakes will **pale in comparison** to the satisfaction and fulfillment of intensely giving your best.  
 I got **brigaded** with laser eyes saying, “Have fun being poor.”  
 
-**dendrite**, **dandruff**. 
+**dendrite**, **dandruff**.  
 U.S. Federal Reserve Threatening to Sue Bitcoin Magazine Over **Apparel** that **Parodies** its FedNow System.  
 
 Rather than strings of **surplus** code, what’s returned is exactly what’s requested.  
@@ -25,11 +60,11 @@ We do not understand how Apple managed to release an OS update that, when upgrad
 **house oversight committee**.  
 be under the **oversight** of.  
 
-**Baptize**, **baptism**. 
+**Baptize**, **baptism**.  
 It is important that we **dovetail** our respective interests.  
-**crucify**, **crucifixion**
+**crucify**, **crucifixion**  
 **accomplice**  
-The apartment building was **lavishly** decorated. - 
+The apartment building was **lavishly** decorated. -  
 **gibberish**  
 **formality**  
 
@@ -41,7 +76,7 @@ The newspapers **fulminate** against the crime.
 
 **perverse effect**  
 
-**crapshoot** 
+**crapshoot**  
 **dolly**  
 
 ## Week 4  
@@ -212,7 +247,7 @@ They may even joke about the nerdy or **esoteric** nature of their interests.
 Unfortunately, this can sometimes result in INTJs being **misconstrued** as arrogant “**know-it-alls**.”  
 Like the INFJ, they can talk **at great length** (and depth) on topics that interest them.  
 And while they are rarely the most dynamic or energetic of **orators**, INTJs are typically decent **story-tellers** and good for occasional injections of **droll humor** or cultural references.  
-More **proactive types**, such as ENTJs, might even consider them a bit lazy or **apathetic**.   
+More **proactive types**, such as ENTJs, might even consider them a bit lazy or **apathetic**.  
 Indeed, the reason that INTJs’ theories and insights are often superior is because they do not **force** things.  
 **pertinent** information.  
 

@@ -1,5 +1,8 @@
 ## words-October.md ##  
 words/2023/words-October.md  
+Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  
+The apartment building was **lavishly** decorated. -  
+He became a **taunt** to his neighbours. -  
 The environmental damage resulting from the recent **derailment** of a Norfolk Southern train in East Palestine, Ohio **is sure to** bring this complicated **scuffle** to the **forefront**. -  
 Make a **feint** in the east but hit in the west. -  
 When life's priorities get **jumbled**. -  
