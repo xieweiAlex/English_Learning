@@ -1,18 +1,15 @@
 
-Fabric or faux-leather upper.  
-Jerrycan
-scalpel  
-Fire hydrant . 
-untapped  
-
-
+Fabric or **faux**-leather upper.  
+**Jerrycan**
+**scalpel**  
+Fire **hydrant** . 
+**untapped**  
 
 
 > Which of your current habits is least aligned with the type of person you hope to become?
 
-The outlook is bleak.  
-General Valery Zaluzhny admits the war is at a stalemate.  
-
+The **outlook** is **bleak**.  
+General Valery Zaluzhny admits the war is at a **stalemate**.  
 
 ## Week 1  
 
@@ -21,12 +18,10 @@ General Valery Zaluzhny admits the war is at a stalemate.
 **cut corners**.  
 **knock yourself out**.  
 
+We're two months **in arrears** with the rent.  
+**scavenger** hunt, **treasure hunt**  
 
-We're two months in arrears with the rent.  
-scavenger hunt, treasure hunt  
-
-We managed to scrape together eight volunteers.  
-
+We managed to **scrape together** eight volunteers.  
 
 He was **stuck in a rut** of losses against his coach and reached a point of **exasperation**.  
 Had he **succumbed** to that impulse, choosing to escape the discomfort, he'd be skipping the very lessons and practice that would sharpen his skills.  
