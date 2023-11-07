@@ -1,4 +1,13 @@
 
+Fabric or faux-leather upper.  
+Jerrycan
+scalpel  
+Fire hydrant . 
+untapped  
+
+
+
+
 > Which of your current habits is least aligned with the type of person you hope to become?
 
 The outlook is bleak.  
