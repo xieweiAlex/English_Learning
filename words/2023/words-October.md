@@ -1,12 +1,34 @@
 
+medallion.  
+He was a great brawny brute of a man.  
+
+
+
+**aquatic grass**.  
+If you haven’t tried wild rice yet, then you’re **in for a treat**.  
+Forbidden black rice refers to a type of **heirloom** rice that has been part of the Asian diet for thousands of years.  
+While black rice is generally safe (and no longer restricted to emperors), it contains the **heavy metal arsenic**, as does all rice.  
+
+**carried away**. 
+> terms for cooking eggs
+
+Don’t **vilify** W-2 income. It’s incredibly powerful.  
+**Pep rally**.  
+
+**tiddly** .  
+**skimpy** **tanktop**. -  
+Illinois's pension funds were **skimpy** even before the crisis. -  
+**Crusty** whole wheat bread is my favorite.  
+**hybridization**  
+Unfortunately, the entire evening was a total **nonevent**.  
+
 Fabric or **faux**-leather upper.  
-**Jerrycan**
+**Jerrycan**  
 **scalpel**  
-Fire **hydrant** . 
+Fire **hydrant** .  
 **untapped**  
 
-
-> Which of your current habits is least aligned with the type of person you hope to become?
+> Which of your current habits is least aligned with the type of person you hope to become?  
 
 The **outlook** is **bleak**.  
 General Valery Zaluzhny admits the war is at a **stalemate**.  
