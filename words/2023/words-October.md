@@ -1,8 +1,20 @@
 
-medallion.  
-He was a great brawny brute of a man.  
+She's the internet's crustiest kitten and, in the words of her owner, our fair "icky stinky queen."  
+This 3½-month-old Persian kitten from Tampa Bay has taken over the internet with her scroungy fur, clumsy gait and sassy, soprano mews.  
 
 
+untapped resources.  
+Automakers are tapping the brakes on their ambitious electric vehicle targets, trying to make sense of consumer appetites amid rising interest rates.  
+A slew of downbeat announcements from automakers and suppliers would suggest the EV bubble has burst.  
+
+
+I always feel a bit **logy** until I have my coffee in the morning.  
+Britain’s home secretary uses a pro-Palestinian march to **sow discord**.  
+The right to protest is fundamental—**as is** an independent police force.  
+
+He was showing off, **as is** the way with **adolescent** boys.  
+**medallion**.  
+He was a great **brawny** **brute** of a man. -  
 
 **aquatic grass**.  
 If you haven’t tried wild rice yet, then you’re **in for a treat**.  
