@@ -1,4 +1,17 @@
 
+They ascribed their disaster to an unkind fate.  
+Airstrip, airfield, tarmac, runway(s)  
+squadron, Luftwaffe  
+Clerks bundled papers into files willy-nilly.  
+orthogonal, perpendicular, diagonal, tangent  
+off the cuff  
+I submit to your superior judgement.  
+hunt and peck.  
+The firecrackers were crackling and spluttering.  
+Spain is famous for its bullfight.  
+semisoft.  
+
+
 She's the internet's crustiest kitten and, in the words of her owner, our fair "icky stinky queen."  
 This 3½-month-old Persian kitten from Tampa Bay has taken over the internet with her scroungy fur, clumsy gait and sassy, soprano mews.  
 
