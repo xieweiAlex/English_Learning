@@ -1,4 +1,17 @@
 
+he was unabashed by the furore his words provoked.  
+
+
+
+If those were the accolades collected over the course of an entire career, it’d be enough to put that writer up there with the all-time greats.  
+Meyer hit two grand-slam home runs with his first two at-bats.  
+We don’t pay enough attention to Seneca’s first exile–the ten years he spent recuperating from an illness in Egypt.  
+Marcus Aurelius waited in the wings for 23 years before putting on imperial purple.  
+
+
+
+neither the head office nor the New York branch of ICBC itself were affected.  
+
 They ascribed their disaster to an unkind fate.  
 Airstrip, airfield, tarmac, runway(s)  
 squadron, Luftwaffe  
