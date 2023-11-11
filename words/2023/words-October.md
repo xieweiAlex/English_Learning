@@ -1,37 +1,44 @@
 
-he was unabashed by the furore his words provoked.  
+conspicuous facts.  
+
+The batter rises as it bakes.  
+Some students often doze off in class.  
+They use opium as a **sedative**, rather than as a **narcotic**. -  
+His parents kept a round-the-clock vigil at his bedside.  
+resuscitate   
+fishing rod, piston rod  
 
 
+We are getting **palpably** close to efficiently provable general computation.  
 
-If those were the accolades collected over the course of an entire career, it’d be enough to put that writer up there with the all-time greats.  
-Meyer hit two grand-slam home runs with his first two at-bats.  
-We don’t pay enough attention to Seneca’s first exile–the ten years he spent recuperating from an illness in Egypt.  
-Marcus Aurelius waited in the wings for 23 years before putting on imperial purple.  
+He was **unabashed** by the **furore** his words provoked. -  
+If those were the **accolades** collected over the course of an entire career, it’d be enough to put that writer up there with the all-time greats.  
+Meyer hit two **grand-slam** **home runs** with his first two at-bats.  
+We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
+Marcus Aurelius waited **in the wings** for 23 years before putting on **imperial purple**.  
+
+**Neither** the **head office** **nor** the New York branch of ICBC itself were affected.  
+
+They **ascribed** their disaster **to** an unkind fate.  
+**Airstrip**, **airfield**, tarmac, runway(s)  
+**squadron**, **Luftwaffe**  
+Clerks bundled papers into files **willy-nilly**. -  
+
+**orthogonal**, **perpendicular**, **diagonal**, **tangent**  
+**off the cuff**  
+I **submit** to your superior judgement.  
+**hunt and peck**.  
+The **firecrackers** were **crackling** and **spluttering**.  
+Spain is famous for its **bullfight**.  
+**semisoft**.  
+
+She's the internet's **crustiest** kitten and, in the words of her owner, our fair "**icky** stinky queen." -  
+This 3½-month-old **Persian** kitten from Tampa Bay has **taken over** the internet with her **scroungy** **fur**, **clumsy** **gait** and sassy, **soprano** mews. -  
 
 
-
-neither the head office nor the New York branch of ICBC itself were affected.  
-
-They ascribed their disaster to an unkind fate.  
-Airstrip, airfield, tarmac, runway(s)  
-squadron, Luftwaffe  
-Clerks bundled papers into files willy-nilly.  
-orthogonal, perpendicular, diagonal, tangent  
-off the cuff  
-I submit to your superior judgement.  
-hunt and peck.  
-The firecrackers were crackling and spluttering.  
-Spain is famous for its bullfight.  
-semisoft.  
-
-
-She's the internet's crustiest kitten and, in the words of her owner, our fair "icky stinky queen."  
-This 3½-month-old Persian kitten from Tampa Bay has taken over the internet with her scroungy fur, clumsy gait and sassy, soprano mews.  
-
-
-untapped resources.  
-Automakers are tapping the brakes on their ambitious electric vehicle targets, trying to make sense of consumer appetites amid rising interest rates.  
-A slew of downbeat announcements from automakers and suppliers would suggest the EV bubble has burst.  
+**untapped** resources.  
+Automakers are **tapping the brakes** on their ambitious electric vehicle targets, trying to make sense of consumer appetites amid rising interest rates.  
+**A slew of** downbeat announcements from automakers and suppliers would suggest the EV bubble has burst.  
 
 
 I always feel a bit **logy** until I have my coffee in the morning.  
