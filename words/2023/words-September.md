@@ -30,7 +30,7 @@ Walters had already given it to some **cheeky** kid who'd asked for it first.
 
 > Who do you still owe an apology? Can you make one in the next 5 minutes?  
 
-Once you’re a **minnow** in a vast ocean, that’s not a good place to be. It means you have tons of competitors, and you don’t even know who all of the competitors are. -  
+Once you’re a **minnow** in a vast ocean, that’s not a good place to be. It means you have tons of competitors, and you don’t even know who all of the competitors are.   
 
 Europe is **eclipsing** the U.S. in crypto regulation, and drawing investors because of it.  
 
@@ -99,7 +99,7 @@ A **pestilence** **overhangs** the country.
 He could **mesmerize** an audience by the sheer force of his presence.  
 **sideburns**  
 **nest egg**  
-**dull ache**. -  
+**dull ache**.   
 
 It's precisely that sort of **slick** **sales-talk** that I **mistrust**.   
 
@@ -115,7 +115,7 @@ Relaunch **Revelry**. -
 
 Still, often a friendly “hi” will **suffice**. Studies show that loneliness can be a **debilitating** problem.  
 They discuss why the best leaders are **facilitative**, how leadership can go both directions, and why good leaders need to be “fans”  
-The final stage of **waxing** left it with a **satin** **sheen**. -  
+The final stage of **waxing** left it with a **satin** **sheen**.   
 
 **monkeyshine**.  
 **light-headed**, **light-headedness**  

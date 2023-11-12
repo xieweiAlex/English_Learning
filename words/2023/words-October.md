@@ -1,12 +1,45 @@
 
-conspicuous facts.  
+## Week 2
 
-The batter rises as it bakes.  
-Some students often doze off in class.  
+
+They're encumbered with heavy guns, **artillery**. Some of them have trucks, even tanks, and all sorts of other equipment, the **detritus** of war. -   
+We could build our own **jetties** and do it using **lorries**. -  
+
+**all is lost**.  
+**bull in a china shop**.  
+**damage limitation**.  
+
+I started off with Nautica pillows from Marshalls, which were a total **flop**.  
+> Opportunities in life come through people. Who do you need to connect with to gain access to the opportunities you want?  
+
+Once the fires of **infatuation** have **simmered down**, simply “living on love” becomes more of a dream than a reality.  
+they run from the **grind** of **mundane** work and throw themselves into **thrills**.  
+
+The same goes for us when we try to **cut** the workout **short**, when we want to get away with not practicing, when we say something is too much work.  
+
+**Wring** those wet things out.  
+**wring** the neck of a chicken. -  
+Bones will be **shattered**, necks will be **wrung**.  
+
+
+> **Creatine** is one of the best supplements for improving strength and high intensity exercise performance. It works by increasing your capacity to produce ATP energy.  
+
+Like your muscles, your brain stores phosphocreatine and requires plenty of **ATP** for optimal function.  
+
+
+**larceny**, **burglary**, **extortion**, mischief, forgery  
+**grand larceny**  
+
+
+**conspicuous** facts.  
+
+The **batter** **rises** as it bakes.  
+Some students often **doze off** in class.  
 They use opium as a **sedative**, rather than as a **narcotic**. -  
-His parents kept a round-the-clock vigil at his bedside.  
-resuscitate   
-fishing rod, piston rod  
+His parents kept a **round-the-clock** **vigil** at his bedside. -  
+**resuscitate**  
+**fishing rod**, **piston rod**  
+**spinal cord**, power cord.  
 
 
 We are getting **palpably** close to efficiently provable general computation.  
@@ -54,8 +87,8 @@ If you haven’t tried wild rice yet, then you’re **in for a treat**.
 Forbidden black rice refers to a type of **heirloom** rice that has been part of the Asian diet for thousands of years.  
 While black rice is generally safe (and no longer restricted to emperors), it contains the **heavy metal arsenic**, as does all rice.  
 
-**carried away**. 
-> terms for cooking eggs
+**carried away**.  
+> terms for cooking eggs  
 
 Don’t **vilify** W-2 income. It’s incredibly powerful.  
 **Pep rally**.  
@@ -141,7 +174,7 @@ be under the **oversight** of.
 It is important that we **dovetail** our respective interests.  
 **crucify**, **crucifixion**  
 **accomplice**  
-The apartment building was **lavishly** decorated. -  
+The apartment building was **lavishly** decorated.   
 **gibberish**  
 **formality**  
 
@@ -253,7 +286,7 @@ He would arrive in a small town and sit and wait, often without recognition, som
 
 I realized there was no fog **veiling** my window.  
 I know this is an **imposition**. But please **hear me out**.  
-The **imposition** of martial law. -  
+The **imposition** of martial law.   
 The women wore veils **in deference to** the customs of the country.  
 **deafening**  
 **filial** .  
@@ -293,7 +326,7 @@ It just **belabors**. It just **stirs up** resentments and anger. It distracts. 
 Don’t be trapped by **dogma**—which is living with the results of other people’s thinking.  
 Don’t let the noise of others’ opinions **drown out** your own inner voice.  
 Brian Tracy nails it with the term "**attraction of distraction**," cautioning us against technological disruptions.  
-Take Thomas Edison, for instance. We **owe** our bright nights to his invention, the electric lightbulb. -  
+Take Thomas Edison, for instance. We **owe** our bright nights to his invention, the electric lightbulb.   
 
 **Suffice to say**.  
 It's **right old** **downpour** **out there**.  
@@ -308,7 +341,7 @@ That third item received the least amount of funding and was more of a **footnot
 He tried to **nobble** one of the juror.  
 people always tried to **nobble** her at parties.  
 they **nobbled** him and threw him on to the train.  
-**Lilac** is best used as a **garnish**. -  
+**Lilac** is best used as a **garnish**.   
 
 **pool cue**, **cue stick**  
 highly **un-nuanced** phrases.  
@@ -423,7 +456,7 @@ Second, **face-to-face** contact allows us to **size up** others.
 
 It’s time to stop letting fees **rob you of** your hard-earned retirement.  
 Famed investor John Bogle calls this, **fittingly**, “The **Tyranny** of Compounding Costs.”  
-Local **excision**. -  
+Local **excision**.   
 
 **incogitant**  
 **morgue**  
