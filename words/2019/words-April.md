@@ -345,8 +345,6 @@ a physical hole in every office where paper containing illegal ideas or "wrong" 
 
 **latch bolt**, **latch plate**  
 Both teams were **severely** **depleted** by injuries.  
-He was **scourge** of by the memory of his misdeeds.  
-The **scourge** of mass unemployment.  
 The war was **protracted** for 4 years  
 a **protracted** and bitter dispute  
 

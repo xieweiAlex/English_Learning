@@ -1,7 +1,24 @@
-## words-October.md ##  
-words/2023/words-October.md  
+## words-Nov.md ##  
+words/2023/words-Nov.md  
+Inflation was the **scourge** of the 1970s. -  
+They're encumbered with heavy guns, **artillery**. Some of them have trucks, even tanks, and all sorts of other equipment, the **detritus** of war. -  
+We could build our own **jetties** and do it using **lorries**. -  
+**wring** the neck of a chicken. -  
+They use opium as a **sedative**, rather than as a **narcotic**. -  
+His parents kept a **round-the-clock** **vigil** at his bedside. -  
+He was **unabashed** by the **furore** his words provoked. -  
+We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
+Clerks bundled papers into files **willy-nilly**. -  
+She's the internet's **crustiest** kitten and, in the words of her owner, our fair "**icky** stinky queen." -  
+This 3½-month-old **Persian** kitten from Tampa Bay has **taken over** the internet with her **scroungy** **fur**, **clumsy** **gait** and sassy, **soprano** mews. -  
+He was a great **brawny** **brute** of a man. -  
+**skimpy** **tanktop**. -  
+Illinois's pension funds were **skimpy** even before the crisis. -  
 Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  
 He became a **taunt** to his neighbours. -  
+
+## words-October.md ##  
+words/2023/words-October.md  
 The environmental damage resulting from the recent **derailment** of a Norfolk Southern train in East Palestine, Ohio **is sure to** bring this complicated **scuffle** to the **forefront**. -  
 Make a **feint** in the east but hit in the west. -  
 When life's priorities get **jumbled**. -  
