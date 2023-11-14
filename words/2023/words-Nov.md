@@ -1,13 +1,27 @@
 
 
-If it starts to feel like a slog and you’re pushing yourself every day—I mean, we all have periods of that—but [do it] too long and that really becomes laborious. To me, it’s often a flag that perhaps you shouldn’t be in that area at all.  
+In general **parlance**, **bootstrapping** usually refers to a self-starting process that is supposed to proceed without external input.  
+
+The proposed plan was considered to have been pro-Zionist by its **detractors**.  
+
+
+> Don't hate me, I'm just a messenger . 
+
+
+**textile** fibre / plants  
+He makes his own point in his own **inimitable** way.   
+
+
+> Not to mention....
+
+> If it starts to feel like a **slog** and you’re pushing yourself every day—I mean, we all have periods of that—but [do it] too long and that really becomes laborious. To me, it’s often a flag that perhaps you shouldn’t be in that area at all.  
+
 
 ## Week 2  
 
-Bitcoin is a Sam Bankman Fried trinket.  
+Bitcoin is a Sam Bankman Fried **trinket**.  
 
-
-both licit and illicit purposes.  
+both **licit** and **illicit** purposes.  
 After **fumbling** with nvm to try and install the right Node version, I finally got the backend API running.  
 
 He was **scourge** of by the memory of his misdeeds.  
@@ -25,14 +39,11 @@ She's very **thorough** and **conscientious**.
 **clammy**  
 Man has rights only in so far as they are a **correlative** of duty.  
 
-
-However, a solution to the conflict is currently still evasive.  
-Both sides continue to suffer casualties as the impasse over territorial rights in the region continues.  
-This conflict spills over into the regional and international communities, with both sides drawing support and military aide.  
+However, a solution to the conflict is currently still **evasive**.  
+Both sides continue to suffer casualties as the **impasse** over territorial rights in the region continues.  
+This conflict **spills over** into the regional and international communities, with both sides drawing support and military aide.  
 
 She is sent to a nondescript office building where she is tasked with watching the hidden-camera feed of an author suspected of storing **contraband** goods.  
-
-
 They're encumbered with heavy guns, **artillery**. Some of them have trucks, even tanks, and all sorts of other equipment, the **detritus** of war. -  
 We could build our own **jetties** and do it using **lorries**. -  
 
