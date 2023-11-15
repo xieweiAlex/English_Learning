@@ -1,4 +1,6 @@
 
+It's highly efficient and extensible, perfect for the discerning hacker. Check out the screencast above to get an idea of how it's used.  
+
 
 In general **parlance**, **bootstrapping** usually refers to a self-starting process that is supposed to proceed without external input.  
 
@@ -19,8 +21,7 @@ He makes his own point in his own **inimitable** way.
 
 ## Week 2  
 
-Bitcoin is a Sam Bankman Fried **trinket**.  
-
+Bitcoin is a Sam Bankman Fried **trinket**. -  
 both **licit** and **illicit** purposes.  
 After **fumbling** with nvm to try and install the right Node version, I finally got the backend API running.  
 
@@ -81,8 +82,7 @@ They use opium as a **sedative**, rather than as a **narcotic**. -
 His parents kept a **round-the-clock** **vigil** at his bedside. -  
 **resuscitate**  
 **fishing rod**, **piston rod**  
-**spinal cord**, power cord.  
-
+**spinal cord**, **power cord**. -  
 
 We are getting **palpably** close to efficiently provable general computation.  
 
