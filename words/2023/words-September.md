@@ -111,7 +111,7 @@ It's precisely that sort of **slick** **sales-talk** that I **mistrust**.
 
 **Maginot line**  
 
-Relaunch **Revelry**. -  
+Relaunch **Revelry**.   
 
 Still, often a friendly “hi” will **suffice**. Studies show that loneliness can be a **debilitating** problem.  
 They discuss why the best leaders are **facilitative**, how leadership can go both directions, and why good leaders need to be “fans”  

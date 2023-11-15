@@ -1,22 +1,33 @@
 
-It's highly efficient and extensible, perfect for the discerning hacker. Check out the screencast above to get an idea of how it's used.  
+The government pushed through plans to **rejuvenate** the inner cities.  
+Shelley was advised that the Italian climate would **rejuvenate** him.  
 
+
+> Look back ten years and you can probably identify a few blind spots or mistaken beliefs you held at the time. Now, fast forward ten years from today... what are likely to be your current blind spots? What are you not spending enough time thinking about or perhaps even willfully ignoring?  
+
+**syrupy**.  
+**He slouches**.  
+He **pored over** Scotch reviews for two hours before buying his dad a bottle for Father’s Day.  
+
+**true to form**  
+**secular**  
+**play catch**  
+**put decision on ice**.  
+
+
+It's highly efficient and extensible, perfect for the **discerning** hacker. Check out the screencast above to get an idea of how it's used. -  
 
 In general **parlance**, **bootstrapping** usually refers to a self-starting process that is supposed to proceed without external input.  
-
 The proposed plan was considered to have been pro-Zionist by its **detractors**.  
 
-
-> Don't hate me, I'm just a messenger . 
-
+> Don't hate me, I'm just a messenger .  
 
 **textile** fibre / plants  
-He makes his own point in his own **inimitable** way.   
+He makes his own point in his own **inimitable** way.  
 
+> Not to mention....  
 
-> Not to mention....
-
-> If it starts to feel like a **slog** and you’re pushing yourself every day—I mean, we all have periods of that—but [do it] too long and that really becomes laborious. To me, it’s often a flag that perhaps you shouldn’t be in that area at all.  
+> If it starts to feel like a **slog** and you’re pushing yourself every day—I mean, we all have periods of that—but [do it] too long and that really becomes **laborious**. To me, it’s often a flag that perhaps you shouldn’t be in that area at all.  
 
 
 ## Week 2  
@@ -28,17 +39,17 @@ After **fumbling** with nvm to try and install the right Node version, I finally
 He was **scourge** of by the memory of his misdeeds.  
 The **scourge** of mass unemployment.  
 Inflation was the **scourge** of the 1970s. -  
-chronic **renal** failure  
+chronic **renal** failure. -  
 
 **In favor**, against, **abstention**.  
 **dogfish**  
 **impervious**, **imperious**  
 **lampshade**  
-She's very **thorough** and **conscientious**.  
+She's very **thorough** and **conscientious**. -  
 **Exorcise**  
 **egghead**  
 **clammy**  
-Man has rights only in so far as they are a **correlative** of duty.  
+Man has rights only **in so far as** they are a **correlative** of duty.  
 
 However, a solution to the conflict is currently still **evasive**.  
 Both sides continue to suffer casualties as the **impasse** over territorial rights in the region continues.  
@@ -50,9 +61,10 @@ We could build our own **jetties** and do it using **lorries**. -
 
 **all is lost**.  
 **bull in a china shop**.  
-**damage limitation**.  
+**damage limitation**, **damage control**  
 
 I started off with Nautica pillows from Marshalls, which were a total **flop**.  
+
 > Opportunities in life come through people. Who do you need to connect with to gain access to the opportunities you want?  
 
 Once the fires of **infatuation** have **simmered down**, simply “living on love” becomes more of a dream than a reality.  
@@ -69,10 +81,8 @@ Bones will be **shattered**, necks will be **wrung**.
 
 Like your muscles, your brain stores phosphocreatine and requires plenty of **ATP** for optimal function.  
 
-
 **larceny**, **burglary**, **extortion**, mischief, forgery  
 **grand larceny**  
-
 
 **conspicuous** facts.  
 

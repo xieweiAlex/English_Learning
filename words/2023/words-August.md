@@ -132,7 +132,7 @@ The game will be a **pushover**.
 His **impenetrable** eyes and **inscrutable** **countenance** give little away.   
 
 The **omens** for the game are still not **propitious**.   
-It was not a **propitious** time to start a new business. -  
+It was not a **propitious** time to start a new business.   
 **Vagabond**  
 
 A **pinched** nerve in the neck may feel like **pins and needles**.  
