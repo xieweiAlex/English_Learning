@@ -1,4 +1,10 @@
 
+I wasn’t a wild child, in fact, I was even a good **pupil**.  
+
+
+That sounds **petty** and personal.  
+They were **distressful** memories to her.  
+
 The government pushed through plans to **rejuvenate** the inner cities.  
 Shelley was advised that the Italian climate would **rejuvenate** him.  
 
