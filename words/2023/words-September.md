@@ -74,7 +74,7 @@ The **reactionary** **ruling clique** was **torn by** internal **strife**.
 > Too much is spent on **curative** medicine and too little on preventive medicine.  
 
 **curative** vs **curated**  
-Most of us were **neophytes**. We got our experience **right on the spot**. -  
+Most of us were **neophytes**. We got our experience **right on the spot**.   
 
 The real secret to living more than 100 years probably isn’t **slurping** kale smoothies every day or committing to CrossFit.  
 But research shows that **Blue Zones** (places that produce an unusually high number of **centenarians**) do have lots of similarities when it comes to their diets.  
@@ -195,7 +195,7 @@ when he's dead, he will be **relieved**.
 This lifestyle upgrade doesn't even require you to **break a sweat** to be healthier.  
 
 
-White came from **clays**, **limestone**, or **gypsum**. -  
+White came from **clays**, **limestone**, or **gypsum**.   
 As we know, **gypsum** is **soluble** in water.  
 
 Impulsive and **self-destructive**: Elon Musk as **depicted** in a new book.  

@@ -73,12 +73,12 @@ Maine's massive **manhunt**.
 
 The **Anthology** of Balaji.  
 A **blow** to Chinese **hubris** in the Middle East, but a chance to **bash** America.  
-Cellular, internet and other communications in the **enclave** have also been cut, according to Palestinian human rights groups and several reports. -  
+Cellular, internet and other communications in the **enclave** have also been cut, according to Palestinian human rights groups and several reports.   
 To master a language, start learning it early -- New evidence suggests a **drop-off** in results after the age of 17.  
 
 Your behaviours exercised a **malign** influence on the children.  
 
-**Mouth ulcers** are painful and typically small **lesions** that develop in your mouth or at the base of your gums. -  
+**Mouth ulcers** are painful and typically small **lesions** that develop in your mouth or at the base of your gums.   
 Types of **mouth ulcers** include **canker sores** and the sores caused by hand, foot, and mouth disease.  
 **cold sore**.  
 

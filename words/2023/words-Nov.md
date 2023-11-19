@@ -1,12 +1,23 @@
 
-I wasn’t a wild child, in fact, I was even a good **pupil**.  
+That sounds **cold and callous** on the surface.  
 
+His lecture was so **pedantic** and uninteresting. -  
+He is **blanching** linen in the sun.  
+In her **delirium**, she had fallen to the floor several times.  
+
+Do you want to take that pill to **quell** your nausea?  
+The government is trying to **quell** fears of a looming oil crisis.  
+I was **elated** with the thrill of success.  
+
+I wasn’t a wild child, in fact, I was even a good **pupil**.  
 
 That sounds **petty** and personal.  
 They were **distressful** memories to her.  
 
 The government pushed through plans to **rejuvenate** the inner cities.  
 Shelley was advised that the Italian climate would **rejuvenate** him.  
+
+But the current environment has left sellers at an **impasse**.  
 
 
 > Look back ten years and you can probably identify a few blind spots or mistaken beliefs you held at the time. Now, fast forward ten years from today... what are likely to be your current blind spots? What are you not spending enough time thinking about or perhaps even willfully ignoring?  
@@ -62,7 +73,7 @@ Both sides continue to suffer casualties as the **impasse** over territorial rig
 This conflict **spills over** into the regional and international communities, with both sides drawing support and military aide.  
 
 She is sent to a nondescript office building where she is tasked with watching the hidden-camera feed of an author suspected of storing **contraband** goods.  
-They're encumbered with heavy guns, **artillery**. Some of them have trucks, even tanks, and all sorts of other equipment, the **detritus** of war. -  
+They're encumbered with heavy guns, **artillery**. Some of them have trucks, even tanks, and all sorts of other equipment, the **detritus** of war.   
 We could build our own **jetties** and do it using **lorries**. -  
 
 **all is lost**.  
@@ -79,7 +90,7 @@ they run from the **grind** of **mundane** work and throw themselves into **thri
 The same goes for us when we try to **cut** the workout **short**, when we want to get away with not practicing, when we say something is too much work.  
 
 **Wring** those wet things out.  
-**wring** the neck of a chicken. -  
+**wring** the neck of a chicken.   
 Bones will be **shattered**, necks will be **wrung**.  
 
 
@@ -152,7 +163,7 @@ Don’t **vilify** W-2 income. It’s incredibly powerful.
 **Pep rally**.  
 
 **tiddly** .  
-**skimpy** **tanktop**. -  
+**skimpy** **tanktop**.   
 Illinois's pension funds were **skimpy** even before the crisis. -  
 **Crusty** whole wheat bread is my favorite.  
 **hybridization**  
