@@ -1,19 +1,21 @@
 # English_Learning
 
-
 Expanding vocabulary for a non native-speaker is taxing and time-consuming. I try to jot down the **words or phrases** I encounter day to day with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight. If it can inspire someone else, that's even better 💖.  
 
 [Words Review](./words-review.md)
 
 ### 2023
-[Oct Words](./words/2023/words-Nov.md) |
+[Nov Words](./words/2023/words-Nov.md) |
 [Oct Words](./words/2023/words-October.md) |
+
 [Sep Words](./words/2023/words-September.md) |
-[August Words](./words/2023/words-August.md) |
-[July Words](./words/2023/words-July.md) |
+[Aug Words](./words/2023/words-August.md) |
+[Jul Words](./words/2023/words-July.md) |
+
 [June Words](./words/2023/words-June.md) |
 [May Words](./words/2023/words-May.md) |
 [April Words](./words/2023/words-April.md) |
+
 [Mar Words](./words/2023/words-March.md) |
 [Feb Words](./words/2023/words-Feb.md) |
 [Jan Words](./words/2023/words-Jan.md) |
@@ -38,44 +40,6 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 [SeinField](./media/seinfeld.md) |
 [F is for family](./media/f-family.md) |
 [Impromptu](./impromptu.md)
-
-
-### Prior 
-[words-july](./words/2022/words-July.md)
-[Words-May](./words/2022/words-May.md)
-[Words-April](./words/2022/words-April.md)
-[Words-Mar](./words/2022/words-Mar.md)
-
-Jan | 
-[Words](./words/2022/words-Jan.md) |
-
-Dec | 
-[Words](./words/2021/words-Dec.md) |
-
-
-Nov | 
-[Words](./words/2021/words-Dec.md) |
-[Special word](./special/2021/special-words-Nov.md) |
-[Phrase](./special/2021/phrase-Nov.md) |
-[Verb](./special/2021/verb-special-Q4.md)
-
-Oct | 
-[Words](./words/2021/words-Oct.md) |
-[Special word](./special/2021/special-words-Oct.md) |
-[Phrase](./special/2021/phrase-Oct.md) |
-[Verb](./special/2021/verb-special-Q4.md)
-
-Set | 
-[Words](./words/2021/words-Sep.md) |
-[Special word](./special/2021/special-words-Sep.md) |
-[Phrase](./special/2021/phrase-Sep.md) |
-[Verb](./special/2021/verb-special-Q3.md)
-
-Aug | 
-[Words](./words/2021/words-Aug.md) |
-[Special word](./special/2021/special-words-Aug.md) |
-[Phrase](./special/2021/phrase-Aug.md) |
-[Verb](./special/2021/verb-special-Q2.md)
 
 ### House of Cards 
 [S1](./media/houseOfCards/HOC1.md) |
