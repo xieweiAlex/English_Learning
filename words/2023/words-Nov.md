@@ -1,4 +1,51 @@
 
+## Week 3 
+
+Be **wary** of strangers who offer you a ride.  
+
+
+Different **shades of melanin**.  
+**pocket** the profit.  
+to go the government buy off some politicians, some **stooge**.   
+The existence of Bitcoin holds the dollar feet to the fire, to make sure it can't be manipulated in a way that people don't just opt out and go other direction.  
+keep us on our own toes.  
+The bogeyman of climate change agenda.  
+Think about what would that entail, a surveillance state to know in your own home, how you're actually using that.  
+
+
+Obviously you're **mistaken**.  
+I'm gonna be as **forthcoming** as I can be, Mr. Anderson.  
+We're willing to **wipe the slate clean**... give you a **fresh start**.  
+You can't scare me with this **Gestapo** crap. I know my rights. I want my phone call.  
+
+Some **flattering** lighting and a friend with a decent phone (oh, hey, portrait mode!) will do.  
+That’s because secure people tend to get **snatched up** quickly. They’re good at building healthy relationships, so they tend to stay in them.  
+
+The last 2 years we've been **walloped** by inflation, but now deflation could rearing its head.  
+We could see broader problems **crop up in** the economy and the housing market.  
+The bed **sags** in the middle, and is uncomfortable.  
+
+
+The more a user pays, the higher the chance their transaction will be picked up immediately **as there is** only a limited amount of space in each block.  
+Be aware that fee estimation algorithms are **fallible** in certain instances; if you need your transaction confirmed ASAP, better to **err on the side of caution**, and pay a higher fee.  
+
+
+**supranational**.  
+There is little evidence such services **move the needle** much for people who aren't already engaged with their finances.   
+The team behind Mint felt the **drudgery** of managing money just needed a Silicon Valley **makeover**.
+An app that **scolds** you to keep your wallet in your pants is never going to be as exciting as trading stocks, buying concert tickets or scrolling social media, said Patzer, Mint’s founder.  
+
+The clock **oscillates** at its own **endogenous**, or internal, period. -  
+
+**current account surplus**.  
+**snuff out** inflation.  
+other countries had to **pony up** $100 of actual goods in order to obtain one.  
+Nonproductive **expenditures** keep tapering down.  
+
+This **dismal** scientist was Belgium-born Robert Triffin, and he was right.  
+The U.S. had a stable political climate, did not experience the **ravages** of world wars like Europe had.  
+The country had to achieve this by **instilling** international confidence through a current account surplus while also having a current account deficit by providing immediate access to gold.  
+In the short-term, the **prospect** of a reserve currency replacing the dollar is **slim to none**.  
 That sounds **cold and callous** on the surface.  
 
 His lecture was so **pedantic** and uninteresting. -  
