@@ -1,9 +1,19 @@
 
+Decrepit.  
+all-nighter.  
+
+
+
+swanky holiday wear or ugly holiday sweater.  
+
+**Popsicle** on a stick.  
+
+a **grafter** of roses.  
+**skin graft**.  
+
 ## Week 3 
 
 Be **wary** of strangers who offer you a ride.  
-
-
 Different **shades of melanin**.  
 **pocket** the profit.  
 to go the government buy off some politicians, some **stooge**.   
