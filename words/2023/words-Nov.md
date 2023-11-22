@@ -1,8 +1,10 @@
 
-transfix, affix
-cavalier . 
+**name of the game**.  
+**part and parcel**.  
 
 
+**transfix**, **affix**  
+**cavalier** .  
 
 The **barbed wire** had **lacerated** her arm.  
 Men don't **lacerate** themselves in their attempts to get laughs. -  

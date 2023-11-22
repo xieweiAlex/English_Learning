@@ -1,9 +1,17 @@
 ## words-Nov.md ##  
 words/2023/words-Nov.md  
+Men don't **lacerate** themselves in their attempts to get laughs. -  
+The clock **oscillates** at its own **endogenous**, or internal, period. -  
+His lecture was so **pedantic** and uninteresting. -  
+It's highly efficient and extensible, perfect for the **discerning** hacker. Check out the screencast above to get an idea of how it's used. -  
+Bitcoin is a Sam Bankman Fried **trinket**. -  
 Inflation was the **scourge** of the 1970s. -  
+chronic **renal** failure. -  
+She's very **thorough** and **conscientious**. -  
 We could build our own **jetties** and do it using **lorries**. -  
 They use opium as a **sedative**, rather than as a **narcotic**. -  
 His parents kept a **round-the-clock** **vigil** at his bedside. -  
+**spinal cord**, **power cord**. -  
 He was **unabashed** by the **furore** his words provoked. -  
 We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
 Clerks bundled papers into files **willy-nilly**. -  

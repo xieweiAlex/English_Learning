@@ -1,6 +1,8 @@
 
-**entail**
 
+**antithesis**
+
+**entail**
 
 **methodical**, **surgical**  
 
