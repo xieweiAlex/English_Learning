@@ -41,7 +41,7 @@ My pro-Palestinian perspective began more than 30 years ago when I was introduce
 While I have always hoped for a **viable** and peaceful **two-state solution**, the Gaza experiment has been an **abject failure**.  
 As always, I welcome your input, **critiques** and **rebuttal**.  
 
-Make a **feint** in the east but hit in the west. -  
+Make a **feint** in the east but hit in the west.   
 **faint of heart**.  
 **panacea**  
 > The madcap can be saved; the self-contemptuous is beyond rescue.  
@@ -56,7 +56,7 @@ Money is complicated, it makes everyone **squeamish**, it makes everyone act kin
 Do not be too timid and **squeamish** about your actions. All life is an experiment.  
 What if they are a little **coarse**, and you may get your coat **soiled** or torn?  
 
-When life's priorities get **jumbled**. -  
+When life's priorities get **jumbled**.   
 **cognitive load**.  
 Putin **lauds** **Belt and Road**.  
 
@@ -325,7 +325,7 @@ The miscalculations of Israel’s and Gaza’s leaders are being **laid bare**.
 **inferiority complex**  
 **prognosis**  
 **stitcher**  
-He had a chance to confess and **expiate** his guilt. -  
+He had a chance to confess and **expiate** his guilt.   
 
 I’m not here to **wallow** or **despair**.  
 No one thinks you're smarter when you're **babbling** or **filibustering** or self-indulging.  

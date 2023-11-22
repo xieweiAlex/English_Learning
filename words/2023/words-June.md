@@ -181,7 +181,7 @@ infantry **battalion**
 
 
 
-She gets various **perquisites** **in addition to** her **wages**. -  
+She gets various **perquisites** **in addition to** her **wages**.   
 Politics used to be the **perquisite** of the property-owning classes.  
 For example, generous **remuneration** packages are offered in this position.   
 

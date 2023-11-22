@@ -17,8 +17,6 @@ He became a **taunt** to his neighbours. -
 ## words-October.md ##  
 words/2023/words-October.md  
 The environmental damage resulting from the recent **derailment** of a Norfolk Southern train in East Palestine, Ohio **is sure to** bring this complicated **scuffle** to the **forefront**. -  
-Make a **feint** in the east but hit in the west. -  
-When life's priorities get **jumbled**. -  
 He would arrive in a small town and sit and wait, often without recognition, sometimes quietly **enduring** **snubs** or **indignities** from people who had no idea who he was. -  
 Modern capitalist economy follows its own **immanent** laws. -  
 In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent. -  
@@ -29,7 +27,6 @@ Some INTJs are emotionally **labile** and constantly turning to others for suppo
 there is a huge **latent** desire in the population to understand Bitcoin. -  
 **slapstick comedy** -  
 I want no part of this **sordid** business. -  
-He had a chance to confess and **expiate** his guilt. -  
 
 ## words-September.md ##  
 words/2023/words-September.md  
@@ -37,15 +34,6 @@ The **heft** of the box surprised me; it was heavier than I expected. -
 One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
 First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
 Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**. -  
-
-## words-August.md ##  
-words/2023/words-August.md  
-**lacerate**. -  
-**Thwack** -  
-
-## words-June.md ##  
-words/2023/words-June.md  
-She gets various **perquisites** **in addition to** her **wages**. -  
 
 ## words-Dec.md ##  
 words/2022/words-Dec.md  

@@ -1,35 +1,42 @@
 
-
-Hold your high horses.  
-You're so high-maintenance.  
-You're hard to deal with.  
-Stop pestering me.  
+transfix, affix
+cavalier . 
 
 
 
-Decrepit.  
-all-nighter.  
+The **barbed wire** had **lacerated** her arm.  
+Men don't **lacerate** themselves in their attempts to get laughs. -  
+**thwack**, **thump**, **whack**, **stomp**  
+**trample** .  
+she **thwacked** the back of their knees with a cane.  
 
+But they're still not sure if the more lethal **nerve agent** **sarin** was used.  
 
+**Hold your high horses**.  
+You're so **high-maintenance**.  
+**You're hard to deal with**.  
+Stop **pestering** me.  
 
-swanky holiday wear or ugly holiday sweater.  
+**Decrepit**.  
+**all-nighter**.  
+
+**swanky** holiday wear or ugly holiday sweater.  
 
 **Popsicle** on a stick.  
 
 a **grafter** of roses.  
 **skin graft**.  
 
-## Week 3 
+## Week 3  
 
 Be **wary** of strangers who offer you a ride.  
 Different **shades of melanin**.  
 **pocket** the profit.  
-to go the government buy off some politicians, some **stooge**.   
-The existence of Bitcoin holds the dollar feet to the fire, to make sure it can't be manipulated in a way that people don't just opt out and go other direction.  
-keep us on our own toes.  
-The bogeyman of climate change agenda.  
-Think about what would that entail, a surveillance state to know in your own home, how you're actually using that.  
-
+to go the government buy off some politicians, some **stooge**.  
+The existence of Bitcoin holds the dollar **feet to the fire**, to make sure it can't be manipulated in a way that people don't just **opt out** and go other direction.  
+keep us **on our own toes**.  
+The **bogeyman** of climate change agenda.  
+Think about what would that **entail**, a surveillance state to know in your own home, how you're actually using that.  
 
 Obviously you're **mistaken**.  
 I'm gonna be as **forthcoming** as I can be, Mr. Anderson.  
@@ -49,8 +56,8 @@ Be aware that fee estimation algorithms are **fallible** in certain instances; i
 
 
 **supranational**.  
-There is little evidence such services **move the needle** much for people who aren't already engaged with their finances.   
-The team behind Mint felt the **drudgery** of managing money just needed a Silicon Valley **makeover**.
+There is little evidence such services **move the needle** much for people who aren't already engaged with their finances.  
+The team behind Mint felt the **drudgery** of managing money just needed a Silicon Valley **makeover**.  
 An app that **scolds** you to keep your wallet in your pants is never going to be as exciting as trading stocks, buying concert tickets or scrolling social media, said Patzer, Mint’s founder.  
 
 The clock **oscillates** at its own **endogenous**, or internal, period. -  
@@ -138,7 +145,7 @@ Both sides continue to suffer casualties as the **impasse** over territorial rig
 This conflict **spills over** into the regional and international communities, with both sides drawing support and military aide.  
 
 She is sent to a nondescript office building where she is tasked with watching the hidden-camera feed of an author suspected of storing **contraband** goods.  
-They're encumbered with heavy guns, **artillery**. Some of them have trucks, even tanks, and all sorts of other equipment, the **detritus** of war.   
+They're encumbered with heavy guns, **artillery**. Some of them have trucks, even tanks, and all sorts of other equipment, the **detritus** of war.  
 We could build our own **jetties** and do it using **lorries**. -  
 
 **all is lost**.  
@@ -155,7 +162,7 @@ they run from the **grind** of **mundane** work and throw themselves into **thri
 The same goes for us when we try to **cut** the workout **short**, when we want to get away with not practicing, when we say something is too much work.  
 
 **Wring** those wet things out.  
-**wring** the neck of a chicken.   
+**wring** the neck of a chicken.  
 Bones will be **shattered**, necks will be **wrung**.  
 
 
@@ -228,7 +235,7 @@ Don’t **vilify** W-2 income. It’s incredibly powerful.
 **Pep rally**.  
 
 **tiddly** .  
-**skimpy** **tanktop**.   
+**skimpy** **tanktop**.  
 Illinois's pension funds were **skimpy** even before the crisis. -  
 **Crusty** whole wheat bread is my favorite.  
 **hybridization**  

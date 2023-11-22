@@ -232,7 +232,7 @@ The **knee-jerk** reaction of many firms was to band together to stave off any t
 ## Week 2  
 
 **dysentery** attack, **diarrhea**.  
-**lacerate**. -  
+**lacerate**.   
 What policy actions could China take to **palliate** the loss?  
 **incense**  
 
@@ -268,7 +268,7 @@ The Department of Justice is **shelling out** more than $6 billion to private co
 **Veiling**  
 **sizzle**  
 hair **follicle**.  
-**Thwack** -  
+**Thwack**   
 **makeshift**  
 **calamitous**  
 

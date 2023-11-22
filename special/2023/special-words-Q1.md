@@ -1,4 +1,7 @@
 
+**entail**
+
+
 **methodical**, **surgical**  
 
 **attitude**
