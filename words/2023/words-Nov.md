@@ -1,6 +1,22 @@
 
+muggy, sweltering.  
+crackling.  
+
+
+They **spurn** all our offers of help.  
+spurn: reject with disdain or contempt.  
+
+> Preschool(er), elementary/primary, middle school / junior high, high school
+
+
+You got some really good lines hombre.  
+
 **name of the game**.  
 **part and parcel**.  
+
+
+transfix, affix
+cavalier . 
 
 
 **transfix**, **affix**  
