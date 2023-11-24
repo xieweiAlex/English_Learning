@@ -120,7 +120,7 @@ Straight line **parallel** to the corners of the mouth, and a **radian**.
 **Mahatma** Gandhi.  
 The work appears to be light and the pay **munificent**.  
 
-You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
+You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics.   
 The rule is **antiquated** and wrong.  
 It's easy to **succumb** to an **authoritative**, dictatorial father who wouldn't **brook** any dissent.  
 This man is a **menance**, it had been proven during the covid pandemic.  

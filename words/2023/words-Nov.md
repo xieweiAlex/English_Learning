@@ -1,22 +1,36 @@
 
-muggy, sweltering.  
-crackling.  
+**cup of joe**.  
 
+
+
+**as far as I'm concerned**  
+1 big thing: Black Friday **surf and turf**.  
+
+
+**minutia**  
+It is often described as being "a show about nothing", as many of its episodes are about the **minutiae** of daily life.  
+
+**You have what it takes**.  
+He'd **get out of his way** and let me know.  
+**butterfly in stomach**  
+Most of us have had those **fluttering** feelings we commonly call “**butterflies in the stomach**”—the feeling we get when we're nervous or excited about something. It's a common phenomenon for people everywhere  
+
+**muggy**, **sweltering**.  
+**crackling**.  
 
 They **spurn** all our offers of help.  
-spurn: reject with disdain or contempt.  
+**spurn**: reject with disdain or contempt.  
 
-> Preschool(er), elementary/primary, middle school / junior high, high school
+> Preschool(er), elementary/primary, middle school / junior high, high school  
 
-
-You got some really good lines hombre.  
+You got some really good lines **hombre**.  
 
 **name of the game**.  
 **part and parcel**.  
 
 
-transfix, affix
-cavalier . 
+**transfix**, **affix**  
+**cavalier**  
 
 
 **transfix**, **affix**  
@@ -139,13 +153,13 @@ He makes his own point in his own **inimitable** way.
 
 ## Week 2  
 
-Bitcoin is a Sam Bankman Fried **trinket**. -  
+Bitcoin is a Sam Bankman Fried **trinket**.   
 both **licit** and **illicit** purposes.  
 After **fumbling** with nvm to try and install the right Node version, I finally got the backend API running.  
 
 He was **scourge** of by the memory of his misdeeds.  
 The **scourge** of mass unemployment.  
-Inflation was the **scourge** of the 1970s. -  
+Inflation was the **scourge** of the 1970s.   
 chronic **renal** failure. -  
 
 **In favor**, against, **abstention**.  

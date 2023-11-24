@@ -4,8 +4,6 @@ Men don't **lacerate** themselves in their attempts to get laughs. -
 The clock **oscillates** at its own **endogenous**, or internal, period. -  
 His lecture was so **pedantic** and uninteresting. -  
 It's highly efficient and extensible, perfect for the **discerning** hacker. Check out the screencast above to get an idea of how it's used. -  
-Bitcoin is a Sam Bankman Fried **trinket**. -  
-Inflation was the **scourge** of the 1970s. -  
 chronic **renal** failure. -  
 She's very **thorough** and **conscientious**. -  
 We could build our own **jetties** and do it using **lorries**. -  
@@ -46,5 +44,4 @@ Some might benefit, the powerful might be able to **parlay** good terms, preserv
 ## words-Dec.md ##  
 words/2022/words-Dec.md  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
-You can imagine the **avalanche** of correspondence from Nazi sympathizers **castigating** me, **chastising** me and critisizing me for mixing my profession with politics. -  
 We **supplicate** your majesty to grant him **amnesty**. -  
