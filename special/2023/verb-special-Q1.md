@@ -1,4 +1,8 @@
 
+**intoxicate**
+
+**renege**
+
 **avert**
 
 **fortify**
@@ -11,7 +15,7 @@
 
 **desensitize**
 
-**downplay**
+**downplay**, **overplay**
 
 **instrument**
 

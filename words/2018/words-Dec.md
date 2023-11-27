@@ -420,7 +420,7 @@ they get all these **tax breaks** and all these **subsidies**
 
 **contrarian**  
 the comment came more from a **contrarian** **disposition** than moral conviction  
-Home to Japanese soul food, **unbridled** creativity and  
+Home to Japanese soul food, **unbridled** creativity and ...  
 Beef muscles **simmered** in many hours until it becomes tender  
 It's **baffling** to me that Osaka is so often **overlooked** by visitors to Japan  
 **inexorably** drawn in by Tokyo's overwhelming **gravitational pull**  

@@ -1,7 +1,49 @@
 
+## Week 3
+
+**Anarcho-capitalism**
+
+A brutal battle for southern Gaza **beckons** after the truce ends. -  
+
+Introduce yourself to people when you're **out and about**.  
+“Oh, that’s too bad,” I said, deciding not to launch into a tirade against the dangerous myth of “the spark.”
+“No, I hate the mornings. I’m a night owl. I’m a wreck until I grab my coffee before work.”  
+**evaluative** vs **experimental**  
+He was bringing a **harried**, **sexless** mindset into dating and was then surprised when he felt no attraction to the other person.  
+This type of date **quells** any sexuality that might enter the equation. Even worse, dates that are structured like job interviews put us into “**press play**” mode.  
+We launch into a story we've already told half a dozen times—likely on other dates—and start **rattling off** our résumé. In these moments, we’re just **spewing out** information, not connecting with the other person. -  
+If you **sit through** a date trying to evaluate the other person and your own reaction, you’re not present. Your date can’t get a good sense of who you are, and you aren't present enough to experience the moment, **let alone** enjoy it.  
+
+**look over their shoulder**.  
+**chump change**, **chunk of change** 
+
+**dance-off**.  
+a **chummy** activity.  
+
+Interestingly, unlike other drugs such as alcohol or cocaine, **Ayahuasca** does not seem to create a tolerance, so regular drinkers aren't required to drink more in order to achieve the same effect experienced the first time.  
+
+To realize the value of the present is only **half of the battle**.  
+
+**unbridled** meritocracy.  
+**unbridled** pursuit of excellence.  
+Politicians in both parties that's what they're **acclimated** to doing.  
+It's a deep understanding of how a **fringe** worldview, anti-American worldview that was about challenging the system.  
+**That takes guts**.  
+**Half of the battle** is showing up.  
+
+**Austrian school of economics**.  
+**circular economy**.  
+
+**Risk adjusted returns**.  
+
+He’d written, “Marrying someone with a name that isn’t **conducive** to a wedding hashtag.” She found the answer **flippant** and—I’m quoting her Facebook post here—thought it represented “the downfall of millennial dating.” -  
+
+**Precedential**, **unprecedented**  
+**gladden**, **madden**, **sadden**.  
+In Argentina you have to use the black money market, otherwise you get **rekt**.  
+
+**prosaic**  
 **cup of joe**.  
-
-
 
 **as far as I'm concerned**  
 1 big thing: Black Friday **surf and turf**.  
@@ -59,7 +101,7 @@ Stop **pestering** me.
 a **grafter** of roses.  
 **skin graft**.  
 
-## Week 3  
+## Week 2  
 
 Be **wary** of strangers who offer you a ride.  
 Different **shades of melanin**.  
@@ -151,7 +193,7 @@ He makes his own point in his own **inimitable** way.
 > If it starts to feel like a **slog** and you’re pushing yourself every day—I mean, we all have periods of that—but [do it] too long and that really becomes **laborious**. To me, it’s often a flag that perhaps you shouldn’t be in that area at all.  
 
 
-## Week 2  
+## Week 1  
 
 Bitcoin is a Sam Bankman Fried **trinket**.   
 both **licit** and **illicit** purposes.  
@@ -284,7 +326,7 @@ Fire **hydrant** .
 The **outlook** is **bleak**.  
 General Valery Zaluzhny admits the war is at a **stalemate**.  
 
-## Week 1  
+## Week 0  
 
 **osteoporosis**.  
 **set in stone**.  
