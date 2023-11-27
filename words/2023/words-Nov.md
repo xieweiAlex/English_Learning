@@ -1,4 +1,16 @@
 
+Although they **boast** a long list of essential nutrients, they’re also high in calories and fat, causing many to wonder whether they’re healthy.  
+
+Everything's **topsy-turvy** in my life at the moment.  
+**cubby** . 
+You shouldn't eat too much **stodge** in your diet.  
+**misanthropic**  
+**frugality**  
+the **sphere** of the heavens.  
+a **sphere** of influence.  
+
+**prospect**, **prospective**, **prospectus**.  
+
 ## Week 3
 
 **Anarcho-capitalism**

@@ -1,6 +1,6 @@
 ## words-Nov.md ##  
 words/2023/words-Nov.md  
-Men don't **lacerate** themselves in their attempts to get laughs. -  
+Men don't **lacerate** themselves in their attempts to get laughs.   
 The clock **oscillates** at its own **endogenous**, or internal, period. -  
 His lecture was so **pedantic** and uninteresting. -  
 It's highly efficient and extensible, perfect for the **discerning** hacker. Check out the screencast above to get an idea of how it's used. -  
@@ -9,7 +9,7 @@ She's very **thorough** and **conscientious**. -
 We could build our own **jetties** and do it using **lorries**. -  
 They use opium as a **sedative**, rather than as a **narcotic**. -  
 His parents kept a **round-the-clock** **vigil** at his bedside. -  
-**spinal cord**, **power cord**. -  
+**spinal cord**, **power cord**.   
 He was **unabashed** by the **furore** his words provoked. -  
 We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
 Clerks bundled papers into files **willy-nilly**. -  
@@ -38,7 +38,7 @@ I want no part of this **sordid** business. -
 words/2023/words-September.md  
 The **heft** of the box surprised me; it was heavier than I expected. -  
 One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
-First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
+First responders salute as an American flag is **unfurled** at the Pentagon at sunrise.   
 Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**. -  
 
 ## words-Dec.md ##  
