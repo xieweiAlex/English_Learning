@@ -1,24 +1,38 @@
 
+
+**Gubernatorial** election.  
+Sometimes with, let’s say, colorful **flair**. 🎨  
+Gov. Abbott has chosen to waste millions of **hard-earned taxpayer dollars** on a **political stunt** that will help no one.  
+
+You're **portly** fellow.  
+
+**jumping jacks**.  
+She performed **improv** on the weekends and would often make me howl with her tales of first dates gone wrong.  
+
+Cold, dry air can be a trigger, but some foods may help ease **flares**.  
+
+**chili**, **chile**  
+Alcohol severely **taxes** your liver, so moderating your intake is wise.  
+
 Although they **boast** a long list of essential nutrients, they’re also high in calories and fat, causing many to wonder whether they’re healthy.  
 
 Everything's **topsy-turvy** in my life at the moment.  
-**cubby** . 
+**cubby** .  
 You shouldn't eat too much **stodge** in your diet.  
 **misanthropic**  
 **frugality**  
 the **sphere** of the heavens.  
 a **sphere** of influence.  
-
 **prospect**, **prospective**, **prospectus**.  
 
-## Week 3
+## Week 3  
 
-**Anarcho-capitalism**
+**Anarcho-capitalism**  
 
 A brutal battle for southern Gaza **beckons** after the truce ends. -  
 
 Introduce yourself to people when you're **out and about**.  
-“Oh, that’s too bad,” I said, deciding not to launch into a tirade against the dangerous myth of “the spark.”
+“Oh, that’s too bad,” I said, deciding not to launch into a tirade against the dangerous myth of “the spark.”  
 “No, I hate the mornings. I’m a night owl. I’m a wreck until I grab my coffee before work.”  
 **evaluative** vs **experimental**  
 He was bringing a **harried**, **sexless** mindset into dating and was then surprised when he felt no attraction to the other person.  
@@ -27,7 +41,7 @@ We launch into a story we've already told half a dozen times—likely on other d
 If you **sit through** a date trying to evaluate the other person and your own reaction, you’re not present. Your date can’t get a good sense of who you are, and you aren't present enough to experience the moment, **let alone** enjoy it.  
 
 **look over their shoulder**.  
-**chump change**, **chunk of change** 
+**chump change**, **chunk of change**  
 
 **dance-off**.  
 a **chummy** activity.  
@@ -91,7 +105,7 @@ You got some really good lines **hombre**.
 **cavalier** .  
 
 The **barbed wire** had **lacerated** her arm.  
-Men don't **lacerate** themselves in their attempts to get laughs. -  
+Men don't **lacerate** themselves in their attempts to get laughs.   
 **thwack**, **thump**, **whack**, **stomp**  
 **trample** .  
 she **thwacked** the back of their knees with a cane.  
@@ -207,13 +221,13 @@ He makes his own point in his own **inimitable** way.
 
 ## Week 1  
 
-Bitcoin is a Sam Bankman Fried **trinket**.   
+Bitcoin is a Sam Bankman Fried **trinket**.  
 both **licit** and **illicit** purposes.  
 After **fumbling** with nvm to try and install the right Node version, I finally got the backend API running.  
 
 He was **scourge** of by the memory of his misdeeds.  
 The **scourge** of mass unemployment.  
-Inflation was the **scourge** of the 1970s.   
+Inflation was the **scourge** of the 1970s.  
 chronic **renal** failure. -  
 
 **In favor**, against, **abstention**.  
@@ -267,7 +281,7 @@ They use opium as a **sedative**, rather than as a **narcotic**. -
 His parents kept a **round-the-clock** **vigil** at his bedside. -  
 **resuscitate**  
 **fishing rod**, **piston rod**  
-**spinal cord**, **power cord**. -  
+**spinal cord**, **power cord**.   
 
 We are getting **palpably** close to efficiently provable general computation.  
 

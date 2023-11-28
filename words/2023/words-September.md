@@ -180,7 +180,7 @@ He was sinking into the **Slough of Despond**.
 **delinquent**, **insolvent**  
 
 One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
-First responders salute as an American flag is **unfurled** at the Pentagon at sunrise. -  
+First responders salute as an American flag is **unfurled** at the Pentagon at sunrise.   
 
 **Goop**  
 

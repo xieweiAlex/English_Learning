@@ -1,6 +1,8 @@
 ## words-Nov.md ##  
 words/2023/words-Nov.md  
-Men don't **lacerate** themselves in their attempts to get laughs.   
+A brutal battle for southern Gaza **beckons** after the truce ends. -  
+We launch into a story we've already told half a dozen times—likely on other dates—and start **rattling off** our résumé. In these moments, we’re just **spewing out** information, not connecting with the other person. -  
+He’d written, “Marrying someone with a name that isn’t **conducive** to a wedding hashtag.” She found the answer **flippant** and—I’m quoting her Facebook post here—thought it represented “the downfall of millennial dating.” -  
 The clock **oscillates** at its own **endogenous**, or internal, period. -  
 His lecture was so **pedantic** and uninteresting. -  
 It's highly efficient and extensible, perfect for the **discerning** hacker. Check out the screencast above to get an idea of how it's used. -  
@@ -9,7 +11,6 @@ She's very **thorough** and **conscientious**. -
 We could build our own **jetties** and do it using **lorries**. -  
 They use opium as a **sedative**, rather than as a **narcotic**. -  
 His parents kept a **round-the-clock** **vigil** at his bedside. -  
-**spinal cord**, **power cord**.   
 He was **unabashed** by the **furore** his words provoked. -  
 We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
 Clerks bundled papers into files **willy-nilly**. -  
@@ -38,7 +39,6 @@ I want no part of this **sordid** business. -
 words/2023/words-September.md  
 The **heft** of the box surprised me; it was heavier than I expected. -  
 One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home. -  
-First responders salute as an American flag is **unfurled** at the Pentagon at sunrise.   
 Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**. -  
 
 ## words-Dec.md ##  
