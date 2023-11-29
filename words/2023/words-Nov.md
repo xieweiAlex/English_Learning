@@ -1,4 +1,5 @@
 
+In the past, gender differences in infant mortality were the leading cause of the gap in life expectancy. But now, differences at older ages are a larger contributor to the gap in life expectancy.  
 
 **Gubernatorial** election.  
 Sometimes with, let’s say, colorful **flair**. 🎨  
