@@ -1,4 +1,16 @@
 
+in-your-face.  
+punch out.  
+stifle, stymie . 
+We lived on the breadline to get our son through college.  
+bread and butter  
+break bread.  
+
+
+
+gold caps.  
+
+
 In the past, gender differences in infant mortality were the leading cause of the gap in life expectancy. But now, differences at older ages are a larger contributor to the gap in life expectancy.  
 
 **Gubernatorial** election.  
