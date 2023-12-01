@@ -28,7 +28,7 @@ He would arrive in a small town and sit and wait, often without recognition, som
 Modern capitalist economy follows its own **immanent** laws. -  
 In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent. -  
 It just **belabors**. It just **stirs up** resentments and anger. It distracts. It takes us away from what we do control, what does matter, which is how we respond. Which is how we change ourselves **in light of** the unchangeable new wrinkle in reality. -  
-Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers. -  
+Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers.   
 The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
 Some INTJs are emotionally **labile** and constantly turning to others for support. -  
 there is a huge **latent** desire in the population to understand Bitcoin. -  
