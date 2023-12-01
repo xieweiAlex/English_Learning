@@ -1,28 +1,28 @@
 
-The tech luminary was referring to OpenAI CEO Sam Altman, who he called a "genuine hero."  
+
+“I wasn’t feeling it at first,” she told me. “But he **grew on me**. It took time for those feelings to develop, but now I can’t imagine my life without him.”  
+
+**Stupendous**  
+Nobel **laureate**.  
+The object is to **addle** and not to **elucidate**. -  
+
+The tech **luminary** was referring to OpenAI CEO Sam Altman, who he called a "genuine hero."  
+
+How to thrive in a **fractured** world.  
+Lessons from the ambitious **ascent** of the United Arab Emirates.  
+Outgoing British governments can **bequeath** a total mess or embed their preferences. -  
+Are we really set for **liftoff** in 2024? And if so, how should you invest?  
 
 
+**in-your-face**.  
+**punch out**.  
+**stifle**, **stymie** . 
+We lived on the **breadline** to get our son through college. -  
+**bread and butter**  
+**break bread**.  
+**gold caps**, **psilocybin**, magic mushroom 
 
-How to thrive in a fractured world.  
-Lessons from the ambitious ascent of the United Arab Emirates.  
-Outgoing British governments can bequeath a total mess or embed their preferences.  
-
-Are we really set for liftoff in 2024? And if so, how should you invest?  
-
-
-in-your-face.  
-punch out.  
-stifle, stymie . 
-We lived on the breadline to get our son through college.  
-bread and butter  
-break bread.  
-
-
-
-gold caps.  
-
-
-In the past, gender differences in infant mortality were the leading cause of the gap in life expectancy. But now, differences at older ages are a larger contributor to the gap in life expectancy.  
+In the past, gender differences in infant mortality were the **leading cause** of the gap in life expectancy. But now, differences at older ages are a **larger contributor** to the gap in life expectancy.  
 
 **Gubernatorial** election.  
 Sometimes with, let’s say, colorful **flair**. 🎨  

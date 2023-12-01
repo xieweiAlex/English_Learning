@@ -64,7 +64,6 @@ Don't **sell yourself short**.
 His head moved in an almost **imperceptible** nod.  
 The **enigmatic** designer is **no stranger** to scandal.  
 **Neandertal** vertebrae were not **simian** at all.  
-**Stupendous**  
 **borderline** personality  
 **indefensible**  
 **Dolly** Girl  
