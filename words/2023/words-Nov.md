@@ -1,4 +1,38 @@
 
+## Week 4  
+
+Is it speculation run amok?  
+pulpit of **misknowledge**  
+
+
+You're **washed up**. You're old, you're boring, you're not scary.  
+You're just a Hollywood **has-been**.  
+
+
+**capex**, **opex**.  
+**cap rate**  
+
+
+You're a **rat** of insurance company.  
+You **ratted me out** to my mother?  
+Just a playful **jab** at Bitcoin.  
+
+**handgun**, **revolver**, **pistol**, **holster**  
+**ammo**, **ammunition**  
+
+
+**Knock-on effect**.  
+**Body of water**.  
+**wicked problem**.  
+**contain**, **bottle up**.  
+It is better to cry than to **bottle up** your feelings.  
+**one less bad option**.  
+**lose lose proposition**.  
+They would have to pay a **god-awful** price to win the war.  
+
+**preceding**  
+
+Munger **propounds** the 'Multiple Mental Models' approach to decision making. This collection of 'Big Ideas from Big Disciplines' contains an **iconoclastic** checklist for decision-making.  
 
 “I wasn’t feeling it at first,” she told me. “But he **grew on me**. It took time for those feelings to develop, but now I can’t imagine my life without him.”  
 
@@ -16,11 +50,11 @@ Are we really set for **liftoff** in 2024? And if so, how should you invest?
 
 **in-your-face**.  
 **punch out**.  
-**stifle**, **stymie** . 
+**stifle**, **stymie** .  
 We lived on the **breadline** to get our son through college. -  
 **bread and butter**  
 **break bread**.  
-**gold caps**, **psilocybin**, magic mushroom 
+**gold caps**, **psilocybin**, magic mushroom  
 
 In the past, gender differences in infant mortality were the **leading cause** of the gap in life expectancy. But now, differences at older ages are a **larger contributor** to the gap in life expectancy.  
 
@@ -31,7 +65,7 @@ Gov. Abbott has chosen to waste millions of **hard-earned taxpayer dollars** on 
 You're **portly** fellow.  
 
 **jumping jacks**.  
-She performed **improv** on the weekends and would often make me howl with her tales of first dates gone wrong.  
+She performed **improv** on the weekends and would often make me **howl** with her tales of first dates gone wrong.  
 
 Cold, dry air can be a trigger, but some foods may help ease **flares**.  
 
@@ -56,8 +90,8 @@ a **sphere** of influence.
 A brutal battle for southern Gaza **beckons** after the truce ends. -  
 
 Introduce yourself to people when you're **out and about**.  
-“Oh, that’s too bad,” I said, deciding not to launch into a tirade against the dangerous myth of “the spark.”  
-“No, I hate the mornings. I’m a night owl. I’m a wreck until I grab my coffee before work.”  
+“Oh, that’s too bad,” I said, deciding not to launch into a **tirade** against the dangerous myth of “the spark.”  
+“No, I hate the mornings. I’m a night owl. I’m a **wreck** until I grab my coffee before work.”  
 **evaluative** vs **experimental**  
 He was bringing a **harried**, **sexless** mindset into dating and was then surprised when he felt no attraction to the other person.  
 This type of date **quells** any sexuality that might enter the equation. Even worse, dates that are structured like job interviews put us into “**press play**” mode.  
@@ -129,7 +163,7 @@ You got some really good lines **hombre**.
 **cavalier** .  
 
 The **barbed wire** had **lacerated** her arm.  
-Men don't **lacerate** themselves in their attempts to get laughs.   
+Men don't **lacerate** themselves in their attempts to get laughs.  
 **thwack**, **thump**, **whack**, **stomp**  
 **trample** .  
 she **thwacked** the back of their knees with a cane.  
@@ -305,7 +339,7 @@ They use opium as a **sedative**, rather than as a **narcotic**. -
 His parents kept a **round-the-clock** **vigil** at his bedside. -  
 **resuscitate**  
 **fishing rod**, **piston rod**  
-**spinal cord**, **power cord**.   
+**spinal cord**, **power cord**.  
 
 We are getting **palpably** close to efficiently provable general computation.  
 

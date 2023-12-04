@@ -158,7 +158,7 @@ highly **un-nuanced** phrases.
 **aforementioned** fields  
 
 The INTJ is naturally **attuned to** the big picture and **can’t help but** see how everything is **interconnected**.  
-Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers. -  
+Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers.   
 This can lead them to feel **estranged** from their physical **environs**, not to mention their own bodies.  
 **Onlookers** sense that INTJs seem to “live in their own world.”  
 INTJs can be **oblivious** to **social norms** or other practical aspects of life.  

@@ -188,7 +188,7 @@ The sudden unwinding of **stringent** pandemic measures, if not handled carefull
 With representatives from 49 African countries visiting Washington, the White House is using the **pageantry** of a summit to convince leaders that Africa is a priority.  
 "My son Josh, a U.S. Capitol Police officer who fought so **valiantly** on Jan. 6, is my hero," writes Finish Line reader Kathleen D., pictured above.  
 
-We **supplicate** your majesty to grant him **amnesty**. -  
+We **supplicate** your majesty to grant him **amnesty**.   
 And **tenderness**, too-but does that appear a **mawkish** thing to **desiderate** in life?   
 He found that his **extremities** grew cold.  
 
