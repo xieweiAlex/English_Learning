@@ -1,6 +1,13 @@
 
 ## Week 4  
 
+Bitcoin is the **apex** predator of money.  
+
+
+She was apprised of our arrival.  
+The pheasant is a close relative of the guinea hen.  
+
+
 Is it speculation run amok?  
 pulpit of **misknowledge**  
 
