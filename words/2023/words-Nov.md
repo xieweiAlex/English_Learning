@@ -1,14 +1,29 @@
 
+
+He wasn't able to follow his own **precepts**, in terms of keeping an open mind
+
+**dysentery**.  
+**spherical**, **sphere**  
+**negligence**.  
+His **tightfisted** employer is unwilling to give him a raise.  
+In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
+
+**lavishly**.  
+**voluptuous** . 
+**sling-back**, **sandals** . 
+He is very **sceptical** about the value of rote learning.  
+Newly rich consumers eager to **flaunt** their prosperity. -  
+**Gothic** style/architecture. -  
+
 ## Week 4  
 
 Bitcoin is the **apex** predator of money.  
 
 
-She was apprised of our arrival.  
-The pheasant is a close relative of the guinea hen.  
+She was **apprised** of our arrival.  
+The **pheasant** is a close relative of the **guinea hen**.  
 
-
-Is it speculation run amok?  
+Is it speculation **run amok**?  
 pulpit of **misknowledge**  
 
 
