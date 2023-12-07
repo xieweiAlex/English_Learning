@@ -1,26 +1,21 @@
 
-Slacks.  
+**Slacks**.  
 
-The car's design is a throwback to the 1960s.  
+The car's design is a **throwback** to the 1960s.  
 
-
-Courtesy must be instilled in childhood.  
-confidence will not be instilled by harping solely on the negative.  
-Talmud.  
-
-
+Courtesy must be **instilled** in childhood.  
+confidence will not be **instilled** by harping solely on the negative.  
+**Talmud**.  
 How can I **atone** for hurting your feelings? -  
-That pretty girl rode astride the horse.  
-
-
-You should draw up a plan or outline for the essay.   
-The general ordered the troops to draw up in formation.  
+That pretty girl rode **astride** the horse.  
+You should **draw up** a plan or outline for the essay.  
+The general ordered the troops to **draw up** in formation.  
 The **honey badger** is known for its fierce and fearless nature.  
 **back rent**  
 **Objection**. **Counsel** is **badgering** the witness.  
 
 
-He wasn't able to follow his own **precepts**, in terms of keeping an open mind
+He wasn't able to follow his own **precepts**, in terms of keeping an open mind  
 
 **dysentery**.  
 **spherical**, **sphere**  
@@ -29,8 +24,8 @@ His **tightfisted** employer is unwilling to give him a raise.
 In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
 
 **lavishly**.  
-**voluptuous** . 
-**sling-back**, **sandals** . 
+**voluptuous** .  
+**sling-back**, **sandals** .  
 He is very **sceptical** about the value of rote learning.  
 Newly rich consumers eager to **flaunt** their prosperity. -  
 **Gothic** style/architecture. -  

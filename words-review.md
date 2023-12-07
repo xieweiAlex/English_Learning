@@ -1,5 +1,9 @@
 ## words-Nov.md ##  
 words/2023/words-Nov.md  
+How can I **atone** for hurting your feelings? -  
+In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
+Newly rich consumers eager to **flaunt** their prosperity. -  
+**Gothic** style/architecture. -  
 The object is to **addle** and not to **elucidate**. -  
 Outgoing British governments can **bequeath** a total mess or embed their preferences. -  
 We lived on the **breadline** to get our son through college. -  
