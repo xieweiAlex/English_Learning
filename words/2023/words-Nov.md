@@ -1,4 +1,24 @@
 
+Slacks.  
+
+The car's design is a throwback to the 1960s.  
+
+
+Courtesy must be instilled in childhood.  
+confidence will not be instilled by harping solely on the negative.  
+Talmud.  
+
+
+How can I **atone** for hurting your feelings? -  
+That pretty girl rode astride the horse.  
+
+
+You should draw up a plan or outline for the essay.   
+The general ordered the troops to draw up in formation.  
+The **honey badger** is known for its fierce and fearless nature.  
+**back rent**  
+**Objection**. **Counsel** is **badgering** the witness.  
+
 
 He wasn't able to follow his own **precepts**, in terms of keeping an open mind
 
