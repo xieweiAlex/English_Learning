@@ -1,4 +1,10 @@
 
+Normal, common 
+Average, regular 
+
+
+## Nov 
+
 **floor**, **ceiling**  
 
 **unbridled**
