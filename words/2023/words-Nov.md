@@ -1,4 +1,48 @@
 
+**broom and dustpan**.  
+**seminal**.  
+
+**vagus nerve**.  
+
+
+**overture** conditions for a cease fire.  
+He drew three **squiggly** lines.  
+And they're **over-the-top**, **buttery** and delicious.  
+
+Sheila had an **ulterior motive** for trying to help Stan.  
+
+The **hardbitten** detective had **seen it all** and was not easily shocked by the **gruesome** crime scene.
+
+**Orca**.  
+**underpin**, **undermine**  
+The **inauguration** was set to **resemble** a **coronation**.
+
+
+These tendencies **wax and wane** depending on whom we're with, what’s going on in our lives, and many other factors.  
+I know this sounds **snobby**, but it’s the way she speaks.
+I know that in a long relationship, you go through periods of **ups and downs**. But now that it’s been a few years, this feels like a **major shift** that needs to be addressed.  
+Mateo is like that kind of **scrubby** old sweatshirt that you have that you love but maybe wouldn’t wear to an important meeting  
+Are there **extenuating** circumstances going on in your partner’s life right now—like a new job or a sick parent—that make it hard for them to show up for you the way you want them to?  
+You're about to **detonate** a bomb in someone else's life.  
+
+**Skinhead**, **punk**.    
+
+China supplies about one-third of US **graphite** imports, according to the US Geological Survey, and it’s the world’s leading graphite producer.  
+
+This one goes out to my fellow "**bah humbugs**". -  
+**crabby**, **crusty**, **cranky**, **edgy**    
+
+How many people spend an enormous amount to keep up their estates, but then let their brain fall into **disrepair**.  
+
+
+Everything's **topsy-turvy** in my life at the moment.  
+I think lots of people have now just **tuned that out**, basically. -  
+**platonic** love.  
+
+play the **peacock**.  
+proud as a **peacock**.  
+He was **confined** in an **internment camp** in Utah.  
+**reflector**.  
 **Slacks**.  
 
 The car's design is a **throwback** to the 1960s.  
@@ -111,7 +155,6 @@ Alcohol severely **taxes** your liver, so moderating your intake is wise.
 
 Although they **boast** a long list of essential nutrients, they’re also high in calories and fat, causing many to wonder whether they’re healthy.  
 
-Everything's **topsy-turvy** in my life at the moment.  
 **cubby** .  
 You shouldn't eat too much **stodge** in your diet.  
 **misanthropic**  

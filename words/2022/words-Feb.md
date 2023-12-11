@@ -221,7 +221,7 @@ The market is in an **itsy-bitsy** little gully right now.
 The market was **glutted** with **shoddy** goods.  
 You might describe someone's **dainty** hands if they have small, feminine hands.  
 
-The **coronation** of the new king was a splendid pageant.  
+The **coronation** of the new king was a **splendid** **pageant**.  
 A **contemptuous** smile flitted across Injun Joe's face.  
 **refractory** concrete, **refractory** coating/clay  
 **tabby cat**  
