@@ -1,7 +1,9 @@
 
-Normal, common 
-Average, regular 
 
+**overt**, **covert**
+
+> Normal, common 
+> Average, regular 
 
 ## Nov 
 

@@ -1,4 +1,9 @@
 
+kickstart your networking journey with fellow Bitcoin enthusiasts over a delectable meat feast and drinks.  
+
+
+It progressively harder as you go. 
+
 **broom and dustpan**.  
 **seminal**.  
 
