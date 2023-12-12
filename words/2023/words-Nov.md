@@ -2,7 +2,7 @@
 kickstart your networking journey with fellow Bitcoin enthusiasts over a delectable meat feast and drinks.  
 
 
-It progressively harder as you go. 
+It progressively harder as you go.  
 
 **broom and dustpan**.  
 **seminal**.  
@@ -16,26 +16,26 @@ And they're **over-the-top**, **buttery** and delicious.
 
 Sheila had an **ulterior motive** for trying to help Stan.  
 
-The **hardbitten** detective had **seen it all** and was not easily shocked by the **gruesome** crime scene.
+The **hardbitten** detective had **seen it all** and was not easily shocked by the **gruesome** crime scene.  
 
 **Orca**.  
 **underpin**, **undermine**  
-The **inauguration** was set to **resemble** a **coronation**.
+The **inauguration** was set to **resemble** a **coronation**.  
 
 
 These tendencies **wax and wane** depending on whom we're with, what’s going on in our lives, and many other factors.  
-I know this sounds **snobby**, but it’s the way she speaks.
+I know this sounds **snobby**, but it’s the way she speaks.  
 I know that in a long relationship, you go through periods of **ups and downs**. But now that it’s been a few years, this feels like a **major shift** that needs to be addressed.  
 Mateo is like that kind of **scrubby** old sweatshirt that you have that you love but maybe wouldn’t wear to an important meeting  
 Are there **extenuating** circumstances going on in your partner’s life right now—like a new job or a sick parent—that make it hard for them to show up for you the way you want them to?  
 You're about to **detonate** a bomb in someone else's life.  
 
-**Skinhead**, **punk**.    
+**Skinhead**, **punk**.  
 
 China supplies about one-third of US **graphite** imports, according to the US Geological Survey, and it’s the world’s leading graphite producer.  
 
 This one goes out to my fellow "**bah humbugs**". -  
-**crabby**, **crusty**, **cranky**, **edgy**    
+**crabby**, **crusty**, **cranky**, **edgy**  
 
 How many people spend an enormous amount to keep up their estates, but then let their brain fall into **disrepair**.  
 

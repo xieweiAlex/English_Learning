@@ -1,5 +1,7 @@
 ## words-Nov.md ##  
 words/2023/words-Nov.md  
+This one goes out to my fellow "**bah humbugs**". -  
+I think lots of people have now just **tuned that out**, basically. -  
 How can I **atone** for hurting your feelings? -  
 In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
 Newly rich consumers eager to **flaunt** their prosperity. -  

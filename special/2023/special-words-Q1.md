@@ -1,4 +1,5 @@
 
+**corner**, **cornered**
 
 **overt**, **covert**
 
