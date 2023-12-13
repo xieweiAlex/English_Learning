@@ -127,11 +127,11 @@ Emmer may struggle to **cobble together** the 217 votes needed to win the speake
 Modern capitalist economy follows its own **immanent** laws. -  
 **crib** .  
 
-In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent. -  
+In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent.   
 
 > It has been a **truism** for decades that WW3, **should it ever occur**, would end civilization.  
 
-It just **belabors**. It just **stirs up** resentments and anger. It distracts. It takes us away from what we do control, what does matter, which is how we respond. Which is how we change ourselves **in light of** the unchangeable new wrinkle in reality. -  
+It just **belabors**. It just **stirs up** resentments and anger. It distracts. It takes us away from what we do control, what does matter, which is how we respond. Which is how we change ourselves **in light of** the unchangeable new wrinkle in reality.   
 Don’t be trapped by **dogma**—which is living with the results of other people’s thinking.  
 Don’t let the noise of others’ opinions **drown out** your own inner voice.  
 Brian Tracy nails it with the term "**attraction of distraction**," cautioning us against technological disruptions.  
@@ -296,7 +296,7 @@ Governments have been known to **snoop on** and harass innocent citizens in the 
 
 She wore shorts and a **halter top**.  
 I found the **truant** throwing stones in the river.  
-I want no part of this **sordid** business. -  
+I want no part of this **sordid** business.   
 
 **expropriate**  
 **parabola**  

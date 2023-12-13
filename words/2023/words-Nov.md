@@ -1,27 +1,24 @@
 
-kickstart your networking journey with fellow Bitcoin enthusiasts over a delectable meat feast and drinks.  
+**Asphalt** pavement/road.  
+**in disorder**.  
+**retrench** expenditures. -  
 
+**kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
 
-It progressively harder as you go.  
+It **progressively** harder as you go.  
 
 **broom and dustpan**.  
 **seminal**.  
 
 **vagus nerve**.  
-
-
 **overture** conditions for a cease fire.  
 He drew three **squiggly** lines.  
 And they're **over-the-top**, **buttery** and delicious.  
-
 Sheila had an **ulterior motive** for trying to help Stan.  
-
 The **hardbitten** detective had **seen it all** and was not easily shocked by the **gruesome** crime scene.  
-
 **Orca**.  
 **underpin**, **undermine**  
 The **inauguration** was set to **resemble** a **coronation**.  
-
 
 These tendencies **wax and wane** depending on whom we're with, what’s going on in our lives, and many other factors.  
 I know this sounds **snobby**, but it’s the way she speaks.  
@@ -41,7 +38,7 @@ How many people spend an enormous amount to keep up their estates, but then let 
 
 
 Everything's **topsy-turvy** in my life at the moment.  
-I think lots of people have now just **tuned that out**, basically. -  
+I think lots of people have now just **tuned that out**, basically.   
 **platonic** love.  
 
 play the **peacock**.  
@@ -55,7 +52,7 @@ The car's design is a **throwback** to the 1960s.
 Courtesy must be **instilled** in childhood.  
 confidence will not be **instilled** by harping solely on the negative.  
 **Talmud**.  
-How can I **atone** for hurting your feelings? -  
+How can I **atone** for hurting your feelings?   
 That pretty girl rode **astride** the horse.  
 You should **draw up** a plan or outline for the essay.  
 The general ordered the troops to **draw up** in formation.  
@@ -172,7 +169,7 @@ a **sphere** of influence.
 
 **Anarcho-capitalism**  
 
-A brutal battle for southern Gaza **beckons** after the truce ends. -  
+A brutal battle for southern Gaza **beckons** after the truce ends.   
 
 Introduce yourself to people when you're **out and about**.  
 “Oh, that’s too bad,” I said, deciding not to launch into a **tirade** against the dangerous myth of “the spark.”  
@@ -316,7 +313,7 @@ The country had to achieve this by **instilling** international confidence throu
 In the short-term, the **prospect** of a reserve currency replacing the dollar is **slim to none**.  
 That sounds **cold and callous** on the surface.  
 
-His lecture was so **pedantic** and uninteresting. -  
+His lecture was so **pedantic** and uninteresting.   
 He is **blanching** linen in the sun.  
 In her **delirium**, she had fallen to the floor several times.  
 
@@ -347,7 +344,7 @@ He **pored over** Scotch reviews for two hours before buying his dad a bottle fo
 **put decision on ice**.  
 
 
-It's highly efficient and extensible, perfect for the **discerning** hacker. Check out the screencast above to get an idea of how it's used. -  
+It's highly efficient and extensible, perfect for the **discerning** hacker. Check out the screencast above to get an idea of how it's used.   
 
 In general **parlance**, **bootstrapping** usually refers to a self-starting process that is supposed to proceed without external input.  
 The proposed plan was considered to have been pro-Zionist by its **detractors**.  
@@ -420,8 +417,8 @@ Like your muscles, your brain stores phosphocreatine and requires plenty of **AT
 
 The **batter** **rises** as it bakes.  
 Some students often **doze off** in class.  
-They use opium as a **sedative**, rather than as a **narcotic**. -  
-His parents kept a **round-the-clock** **vigil** at his bedside. -  
+They use opium as a **sedative**, rather than as a **narcotic**.   
+His parents kept a **round-the-clock** **vigil** at his bedside.   
 **resuscitate**  
 **fishing rod**, **piston rod**  
 **spinal cord**, **power cord**.  
@@ -479,7 +476,7 @@ Don’t **vilify** W-2 income. It’s incredibly powerful.
 
 **tiddly** .  
 **skimpy** **tanktop**.  
-Illinois's pension funds were **skimpy** even before the crisis. -  
+Illinois's pension funds were **skimpy** even before the crisis.   
 **Crusty** whole wheat bread is my favorite.  
 **hybridization**  
 Unfortunately, the entire evening was a total **nonevent**.  
