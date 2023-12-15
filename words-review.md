@@ -1,5 +1,7 @@
 ## words-Nov.md ##  
 words/2023/words-Nov.md  
+**retrench** expenditures. -  
+**kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
 This one goes out to my fellow "**bah humbugs**". -  
 In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
 Newly rich consumers eager to **flaunt** their prosperity. -  
@@ -36,4 +38,3 @@ there is a huge **latent** desire in the population to understand Bitcoin. -
 words/2023/words-September.md  
 The **heft** of the box surprised me; it was heavier than I expected. -  
 Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**. -  
-
