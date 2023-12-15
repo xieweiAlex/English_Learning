@@ -1,4 +1,12 @@
 
+I hate his smarmy compliments.  
+
+
+Well, it can have a negative connotation, yes.  
+
+Berserk . 
+Inquisitive.  
+
 Facebook supplanted MySpace because it didn’t cost anything to open up an account on both networks.  
 Bitcoin is good at doing some very basic things— storing value and making it possible to send that value anywhere in  the world. If you added more bells and whistles, it would only increase the attack surface of Bitcoin.  
 

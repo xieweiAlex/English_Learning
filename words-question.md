@@ -1,4 +1,6 @@
 
+
+* enough vs suffice
 * proclivity vs propensity
 * motto, adage, aphorism, proverb, axiom 
 
