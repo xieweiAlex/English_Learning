@@ -1,11 +1,15 @@
-## words-Nov.md ##  
-words/2023/words-Nov.md  
+## words-Dec.md ##  
+words/2023/words-Dec.md  
+Some people like to **laminate** the piece of paper that has their recovery seed written on it and store it in a **fireproof** and waterproof home safe. -  
 **retrench** expenditures. -  
 **kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
 This one goes out to my fellow "**bah humbugs**". -  
 In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
 Newly rich consumers eager to **flaunt** their prosperity. -  
 **Gothic** style/architecture. -  
+
+## words-Nov.md ##  
+words/2023/words-Nov.md  
 The object is to **addle** and not to **elucidate**. -  
 Outgoing British governments can **bequeath** a total mess or embed their preferences. -  
 We lived on the **breadline** to get our son through college. -  
@@ -22,7 +26,6 @@ She's the internet's **crustiest** kitten and, in the words of her owner, our fa
 This 3½-month-old **Persian** kitten from Tampa Bay has **taken over** the internet with her **scroungy** **fur**, **clumsy** **gait** and sassy, **soprano** mews. -  
 He was a great **brawny** **brute** of a man. -  
 Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  
-He became a **taunt** to his neighbours. -  
 
 ## words-October.md ##  
 words/2023/words-October.md  

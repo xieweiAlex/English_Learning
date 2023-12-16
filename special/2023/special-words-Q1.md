@@ -1,4 +1,8 @@
 
+**scrutiny**
+
+**luminary**
+
 **demarcation**
 
 **crafted**, **uncrafted**

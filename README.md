@@ -4,7 +4,13 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 
 [Words Review](./words-review.md)
 
+<!-- sync.sh -->
+<!-- variable -->
+<!-- .LfBookmarks -->
+<!-- Readme -->
+
 ### 2023
+[Dec Words](./words/2023/words-Dec.md) |
 [Nov Words](./words/2023/words-Nov.md) |
 [Oct Words](./words/2023/words-October.md) |
 
