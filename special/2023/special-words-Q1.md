@@ -1,4 +1,10 @@
 
+**demarcation**
+
+**crafted**, **uncrafted**
+
+**crispy**
+
 **snapshot**
 
 **corner**, **cornered**

@@ -1,10 +1,16 @@
 
-I hate his smarmy compliments.  
+To help with seating, we ask associates to not block off seats tomorrow, strictly use pods as hoteling desks, and when not in use, please vacate them.  
 
-Well, it can have a negative connotation, yes.  
 
-Berserk . 
-Inquisitive.  
+
+> No, "except" and "besides" have different meanings and cannot be used interchangeably. "Except" means to exclude or leave out, while "besides" means in addition to or apart from.
+
+
+I hate his **smarmy** compliments.  
+Well, it can have a negative **connotation**, yes.  
+
+**Berserk** . 
+**Inquisitive**.  
 
 Facebook supplanted MySpace because it didn’t cost anything to open up an account on both networks.  
 Bitcoin is good at doing some very basic things— storing value and making it possible to send that value anywhere in  the world. If you added more bells and whistles, it would only increase the attack surface of Bitcoin.  
