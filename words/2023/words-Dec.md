@@ -1,6 +1,32 @@
 
 
 ## Week 2  
+The feasting, drinking, dancing and revelry continued for several days.  
+the voters' **visceral** fear of change.  
+
+> What are my favorite hours of the day and what adjustments can I make to ensure they are under my control?
+
+
+She could **rattle on** for hours.  
+
+**shun**.  
+We **old codgers** have our work cut out for us keeping spirits high at home.  
+
+**Pitchforks** and **torches**
+This is a **glider** that's falling, and you have to be able to make sure you start with enough **physiologic** **headroom** to make that work.  
+No, for some reason, we think of an academic. We think of somebody **scrawny**. -  
+Nero, for instance, demanded that enormous audiences celebrate his greatness. This was also the same emperor who **banished** a poet from Rome for being too talented, and thus a threat.  
+
+we should be routinely peering ahead, planning for the unexpected, running these war games–to lessen the strength of the blow before it lands.  
+
+
+Italy is even more generous to its diaspora.  
+But the diaspora provides more than just money.  
+release valve.  
+
+
+Rule of law is subservient to money. If you have broken money, the rule of law just breaks faster and faster.   
+
 
 While **Keynes** is absolutely deserving of **scrutiny** and skepticism for its poor contributions to economics, I would prefer Saifedean not to **succumb** to academic "name-calling".  
 

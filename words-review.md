@@ -21,7 +21,7 @@ She's very **thorough** and **conscientious**. -
 We could build our own **jetties** and do it using **lorries**. -  
 He was **unabashed** by the **furore** his words provoked. -  
 We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
-Clerks bundled papers into files **willy-nilly**. -  
+Clerks bundled papers into files **willy-nilly**.   
 She's the internet's **crustiest** kitten and, in the words of her owner, our fair "**icky** stinky queen." -  
 This 3½-month-old **Persian** kitten from Tampa Bay has **taken over** the internet with her **scroungy** **fur**, **clumsy** **gait** and sassy, **soprano** mews. -  
 He was a great **brawny** **brute** of a man. -  
@@ -36,6 +36,9 @@ The ultimate goal of Te is to render things logically intelligible, making them 
 Some INTJs are emotionally **labile** and constantly turning to others for support. -  
 there is a huge **latent** desire in the population to understand Bitcoin. -  
 **slapstick comedy** -  
+Slapstick comedy is a type of physical comedy that relies on exaggerated, often violent actions and movements to create humor. It often involves characters falling, tripping, and getting hit or hit by objects in a comical manner. It also includes elements of surprise, absurdity, and exaggeration to create laughter. Slapstick comedy is often associated with silent films and vaudeville performances, but it is still used in modern comedy films and television shows. It is similar to other forms of physical comedy, such as clowning and physical theater, but it is distinct in its use of exaggerated and often painful physical actions for comedic effect.
+
+
 
 ## words-September.md ##  
 words/2023/words-September.md  
