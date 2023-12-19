@@ -1,4 +1,9 @@
 
+evolutionary taxonomy.  
+Various taxonomies are used to categorise models of capitalism.  
+
+Rememberance is a form of meeting. Forgetfulness is a form of freedom.  
+
 
 stocky, stout,  
 
