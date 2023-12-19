@@ -358,7 +358,7 @@ Marcus Aurelius waited **in the wings** for 23 years before putting on **imperia
 They **ascribed** their disaster **to** an unkind fate.  
 **Airstrip**, **airfield**, tarmac, runway(s)  
 **squadron**, **Luftwaffe**  
-Clerks bundled papers into files **willy-nilly**. -  
+Clerks bundled papers into files **willy-nilly**.   
 
 **orthogonal**, **perpendicular**, **diagonal**, **tangent**  
 **off the cuff**  
