@@ -1,4 +1,12 @@
 
+diffused
+
+complimentary tickets.  
+
+> hold sth in hostage. 
+> high time preference vs low time preference 
+
+
 
 ## Week 2  
 The feasting, drinking, dancing and revelry continued for several days.  
