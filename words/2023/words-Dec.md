@@ -1,27 +1,39 @@
 
-evolutionary taxonomy.  
-Various taxonomies are used to categorise models of capitalism.  
-
-Rememberance is a form of meeting. Forgetfulness is a form of freedom.  
+The natural trend of whichever country has the reserve currency is to inflate the money supply and increase deficit spending until it loses that advantage.  
+They may start moving fiat into crypto, as an antidote to inflation.  
 
 
-stocky, stout,  
+I suddenly realize that I completely went off the rails, rushing into repetitive tasks without sense of growth, chasing shiny new technology without sense of sharpening the craft, draining energy on fruitless debate without sense of priority, none of what I was doing matters in terms of whom I want to become.  
 
-diffused  
+A **pipe bomb** is an **improvised** explosive device (IED) that uses a tightly sealed section of pipe filled with an explosive material.  
 
-complimentary tickets.  
+
+The emails are public record now and reading through them feels like reading a **dissertation** defense, with articulate questions and articulate answers between professionals.  
+Satoshi continued to provide updates for the code and discussed various concepts with early users, keeping with his calmly spoken and **matter-of-fact** persona.  
+
+The total number of bitcoin that will eventually exist is 21 million, and they are divisible into a total of 2.1 **quadrillion** sats.  
+**aristocracy**, **aristocratic**  
+
+evolutionary **taxonomy**.  
+Various **taxonomies** are used to categorize models of capitalism.  
+
+**Rememberance** is a form of meeting. **Forgetfulness** is a form of freedom.  
+
+**stocky**, **stout**, **portly**, **plump**, **chubby**, **chonky**   
+
+**diffused**  
+
+**complimentary tickets**.  
 
 > hold sth in hostage.  
 > high time preference vs low time preference  
 
-
-
 ## Week 2  
-The feasting, drinking, dancing and revelry continued for several days.  
+
+The **feasting**, drinking, dancing and **revelry** continued for several days.  
 the voters' **visceral** fear of change.  
 
 > What are my favorite hours of the day and what adjustments can I make to ensure they are under my control?  
-
 
 She could **rattle on** for hours.  
 
@@ -33,15 +45,13 @@ This is a **glider** that's falling, and you have to be able to make sure you st
 No, for some reason, we think of an academic. We think of somebody **scrawny**. -  
 Nero, for instance, demanded that enormous audiences celebrate his greatness. This was also the same emperor who **banished** a poet from Rome for being too talented, and thus a threat.  
 
-we should be routinely peering ahead, planning for the unexpected, running these war games–to lessen the strength of the blow before it lands.  
+we should be routinely **peering ahead**, planning for the unexpected, running these war games–to **lessen** the strength of the **blow** before it lands.  
 
+Italy is even more generous to its **diaspora**. -  
+But the **diaspora** provides more than just money.  
+**release valve**.  
 
-Italy is even more generous to its diaspora.  
-But the diaspora provides more than just money.  
-release valve.  
-
-
-Rule of law is subservient to money. If you have broken money, the rule of law just breaks faster and faster.  
+Rule of law is **subservient** to money. If you have broken money, the rule of law just breaks faster and faster.  
 
 
 While **Keynes** is absolutely deserving of **scrutiny** and skepticism for its poor contributions to economics, I would prefer Saifedean not to **succumb** to academic "name-calling".  
