@@ -1,4 +1,21 @@
 
+**paperweight**.  
+**captive insurance**.  
+
+**rooming**.  
+**wimpy**  
+**vindictive**  
+**hexadecimal**  
+incantation.  
+**Amphibian**.  
+
+**Copious**  
+**Unilaterally**.  
+**conman**. 
+
+He's very **tightfisted**. 
+Her boss is a **skinflint**.  
+
 The natural trend of whichever country has the reserve currency is to inflate the money supply and increase deficit spending until it loses that advantage.  
 They may start moving fiat into crypto, as an antidote to inflation.  
 
