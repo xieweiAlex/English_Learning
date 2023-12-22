@@ -1,4 +1,12 @@
 
+
+unwieldy, cumbersome, clunky  
+
+**gyration**
+
+> risk parity
+
+
 **paperweight**.  
 **captive insurance**.  
 
@@ -6,7 +14,7 @@
 **wimpy**  
 **vindictive**  
 **hexadecimal**  
-incantation.  
+**incantation**.  
 **Amphibian**.  
 
 **Copious**  
@@ -16,11 +24,10 @@ incantation.
 He's very **tightfisted**. 
 Her boss is a **skinflint**.  
 
-The natural trend of whichever country has the reserve currency is to inflate the money supply and increase deficit spending until it loses that advantage.  
-They may start moving fiat into crypto, as an antidote to inflation.  
+The natural trend of whichever country has the reserve currency is to inflate the money supply and increase **deficit spending** until it loses that advantage.  
+They may start moving fiat into crypto, as an **antidote** to inflation.  
 
-
-I suddenly realize that I completely went off the rails, rushing into repetitive tasks without sense of growth, chasing shiny new technology without sense of sharpening the craft, draining energy on fruitless debate without sense of priority, none of what I was doing matters in terms of whom I want to become.  
+I suddenly realize that I completely **went off the rails**, rushing into repetitive tasks without sense of growth, chasing shiny new technology without sense of **sharpening the craft**, draining energy on **fruitless** debate without sense of priority, none of what I was doing matters in terms of whom I want to become.  
 
 A **pipe bomb** is an **improvised** explosive device (IED) that uses a tightly sealed section of pipe filled with an explosive material.  
 
