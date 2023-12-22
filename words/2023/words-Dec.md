@@ -1,6 +1,15 @@
 
+Crypto has its uses, too, such as portfolio diversification and keeping money safe under despotic regimes.  
 
-unwieldy, cumbersome, clunky  
+The **furtherance** of human civilization.  
+**industrialize** & **urbanize**.  
+
+Marcus Aurelius talks about how crazy it is that we just go on staying the same person we’ve always been—how we just “keep being mauled and degraded” by the life we’re living.  
+
+In her earlier writings, she was unvarnished and revelatory–mostly about herself and her famous family.  
+
+**uninhibited**.  
+**unwieldy**, **cumbersome**, **clunky**  
 
 **gyration**
 
