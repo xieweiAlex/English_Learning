@@ -1,5 +1,12 @@
 
+
+**delirium**, **deranged**, **unhinged**, **lunatic**, **demented**, **schizophrenic**  
+**insane**, **delusional**, **psycho**  
+
+
 Crypto has its uses, too, such as portfolio diversification and keeping money safe under despotic regimes.  
+Musk has also repeatedly clashed with the Securities and Exchange Commission, which regulates US public markets, since Tesla listed on the Nasdaq back in 2010.
+cape of good hope, Capetown
 
 The **furtherance** of human civilization.  
 **industrialize** & **urbanize**.  
