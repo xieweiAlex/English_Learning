@@ -1,4 +1,6 @@
 
+**lament**
+
 **position** 
 
 **retain** 
@@ -69,8 +71,6 @@
 **handicap** 
 
 **applaud**
-
-**lament**
 
 **appear**
 

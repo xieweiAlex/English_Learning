@@ -35,7 +35,7 @@ Modern capitalist economy follows its own **immanent** laws. -
 The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
 Some INTJs are emotionally **labile** and constantly turning to others for support. -  
 there is a huge **latent** desire in the population to understand Bitcoin. -  
-**slapstick comedy** -  
+**slapstick comedy**   
 
 ## words-September.md ##  
 words/2023/words-September.md  

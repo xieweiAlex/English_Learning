@@ -1,7 +1,14 @@
 
 
-**unwieldy**
+**Given**
 
+**infallible**
+
+**once** - once it's done
+
+**unvarnished**
+
+**unwieldy**
 
 **sensational**
 
@@ -337,7 +344,6 @@
 **backfill**
 
 **gingerly** 
-**hurtle**
 
 **cornerstone**, **backbone**
 

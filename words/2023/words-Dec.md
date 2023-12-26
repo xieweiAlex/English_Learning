@@ -1,27 +1,100 @@
 
 
+The **tinsel** and the **holly** were decorating the drug store.  
+There is a pole requires no decoration, I find **tinsel** distracting.  
+This new holiday of yours is **scratching me right where I itch**.  
+
+**drain the swamp**.  
+
+**crony capitalism**.  
+
+Finally, the SU Committee **collated** the results and **drew up** a report. -   
+
+**tag alone**: to follow another's lead especially in going from one place to another
+
+No man is **infallible**.  
+Jack Welch was viewed as an **infallible** titan of a CEO and was named “Manager of the Century” by Fortune.   
+**conglomerate**.  
+When GE ran into the funding issues that put them on bankruptcies door, GE went **hat in hand** to the government.  
+The Fed demanded that they provide **reams** of data and increase the amount of equity in the company.  
+One meeting turned **fiery** after a regulator trashed GE and the CEO pushed back.  
+
+
+Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
+(I had a letter from a company trying to **flog** me insurance. )
+In October the court **upheld** its ruling—in effect ordering the sec to **give way**.  
+**Given** the returns bitcoin has offered in the past, and its **correlations** with other assets, the result could be **a rush of cash** into bitcoin, as even **sensible** investors consider putting small slices of their pension pots or portfolios into crypto for diversification.  
+Many feel instinctive **revulsion** when they spy a roach.  
+
+
+## Week 3
+
+I love that they get up **once it’s done** **as if** there was no other reason to be in the room.  
+Don’t settle for friends, relationships, or others who aren't **lifting you up**.   
+The **capstone** in **Maslow**'s hierarchy, it is reaching your potential.  
+**well-spoken**.  
+**grave**.  
+**kowtow**.  
+
+Such a **transformation** is a big deal. Becoming global money will not be a **walk in the park**, it will not come easy, it will face many, many **headwinds** and **corpses** will line the path along that journey. -  
+
+**Cardinal numbers** count objects, while **ordinal numbers** indicate the position of objects in a list.  
+Spears **hurtled** against **shields**.  
+I **hurtled** down the path, trusting to luck that I wouldn't **put a foot wrong**.  
+The United States is **hurtling** into the modern age. -  
+We should **winnow out** the errors in logic.  
+women **winnow** the **chaff** from piles of unhusked rice.  
+
+I need to **claw back** a sense of **normalcy**.  
+The Federal Reserve says that it will not raise interest rates through 2022, as the economy **claws back** from the pandemic recession.  
+**fortress**.  
+**scalpel**.  
+
+**expiate**, **atone**, **penance**, **repentance**, **retribution**.  
+
+**orgy**.  
+Her hair was thick, **glossy** and in tiptop condition.  
+
+> Splurge means to spend money extravagantly or to indulge in something luxurious or expensive. It has a positive connotation and implies treating oneself to something special.
+> Flaunt means to display or show off something in a boastful or ostentatious manner. It can have a negative connotation and implies showing off or bragging about something.
+
+> risk adjusted return 
+> unit price bias
+
+
+
+
+**Eudaimonia**
+
+
+
+**amenable**, **conducive**, **gullible**, **susceptible**
+
+**pliable**, **supple**, **amenable**, **deference**, **flexible**, **malleable**, **plasticity**  
+
+**brittle**, **fragile**/**fragility**, **tenuous**, 
+
 **delirium**, **deranged**, **unhinged**, **lunatic**, **demented**, **schizophrenic**  
 **insane**, **delusional**, **psycho**  
 
 
-Crypto has its uses, too, such as portfolio diversification and keeping money safe under despotic regimes.  
-Musk has also repeatedly clashed with the Securities and Exchange Commission, which regulates US public markets, since Tesla listed on the Nasdaq back in 2010.
-cape of good hope, Capetown
+Crypto has its uses, too, such as portfolio diversification and keeping money safe under **despotic** regimes.  
+Musk has also repeatedly **clashed** with the Securities and Exchange Commission, which regulates US public markets, since Tesla listed on the Nasdaq back in 2010.
+**cape of good hope**, **Capetown**
 
 The **furtherance** of human civilization.  
 **industrialize** & **urbanize**.  
 
-Marcus Aurelius talks about how crazy it is that we just go on staying the same person we’ve always been—how we just “keep being mauled and degraded” by the life we’re living.  
+Marcus Aurelius talks about how crazy it is that we just go on staying the same person we've always been—how we just “keep being **mauled** and degraded” by the life we’re living.  
 
-In her earlier writings, she was unvarnished and revelatory–mostly about herself and her famous family.  
+In her earlier writings, she was **unvarnished** and revelatory–mostly about herself and her famous family.  
+The public expects us to deliver the **unvarnished truth**.  
 
 **uninhibited**.  
 **unwieldy**, **cumbersome**, **clunky**  
-
 **gyration**
 
 > risk parity
-
 
 **paperweight**.  
 **captive insurance**.  
@@ -47,14 +120,13 @@ I suddenly realize that I completely **went off the rails**, rushing into repeti
 
 A **pipe bomb** is an **improvised** explosive device (IED) that uses a tightly sealed section of pipe filled with an explosive material.  
 
-
 The emails are public record now and reading through them feels like reading a **dissertation** defense, with articulate questions and articulate answers between professionals.  
 Satoshi continued to provide updates for the code and discussed various concepts with early users, keeping with his calmly spoken and **matter-of-fact** persona.  
 
 The total number of bitcoin that will eventually exist is 21 million, and they are divisible into a total of 2.1 **quadrillion** sats.  
 **aristocracy**, **aristocratic**  
 
-evolutionary **taxonomy**.  
+Evolutionary **taxonomy**.  
 Various **taxonomies** are used to categorize models of capitalism.  
 
 **Rememberance** is a form of meeting. **Forgetfulness** is a form of freedom.  
