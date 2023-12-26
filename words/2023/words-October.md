@@ -8,7 +8,7 @@ Hundreds of towns still **feature** **tracks** that pass right through the **hea
 **In essence**, **embargoes** are **analogous** to **force majeures**.  
 cut jobs, **mothball** equipment, and delay infrastructure investments.  
 **hazmat**: hazardous material  
-The environmental damage resulting from the recent **derailment** of a Norfolk Southern train in East Palestine, Ohio **is sure to** bring this complicated **scuffle** to the **forefront**. -  
+The environmental damage resulting from the recent **derailment** of a Norfolk Southern train in East Palestine, Ohio **is sure to** bring this complicated **scuffle** to the **forefront**.   
 
 
 Muscular **dystrophy**.  
@@ -91,7 +91,7 @@ The **genial** atmosphere in the office helped foster creativity and collaborati
 
 The war and its **aftermath** will test that perception against reality.  
 
-He would arrive in a small town and sit and wait, often without recognition, sometimes quietly **enduring** **snubs** or **indignities** from people who had no idea who he was. -  
+He would arrive in a small town and sit and wait, often without recognition, sometimes quietly **enduring** **snubs** or **indignities** from people who had no idea who he was.   
 
 I realized there was no fog **veiling** my window.  
 I know this is an **imposition**. But please **hear me out**.  
@@ -275,7 +275,7 @@ she put us in that **draughty** morgue of a sitting room.
 **chainsaw**  
 **batter**  
 **meanly**  
-**slapstick comedy** -  
+**slapstick comedy**   
 **a jug of water**  
 **litterbug**  
 This is a **holdover** from a time when humans' food supply was unreliable and storing energy was an advantage.  

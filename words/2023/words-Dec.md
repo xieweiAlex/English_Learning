@@ -1,4 +1,8 @@
 
+Stratospheric.  
+Claustrophobic  
+
+
 
 The **tinsel** and the **holly** were decorating the drug store.  
 There is a pole requires no decoration, I find **tinsel** distracting.  
@@ -8,12 +12,12 @@ This new holiday of yours is **scratching me right where I itch**.
 
 **crony capitalism**.  
 
-Finally, the SU Committee **collated** the results and **drew up** a report. -   
+Finally, the SU Committee **collated** the results and **drew up** a report. -  
 
-**tag alone**: to follow another's lead especially in going from one place to another
+**tag alone**: to follow another's lead especially in going from one place to another  
 
 No man is **infallible**.  
-Jack Welch was viewed as an **infallible** titan of a CEO and was named “Manager of the Century” by Fortune.   
+Jack Welch was viewed as an **infallible** titan of a CEO and was named “Manager of the Century” by Fortune.  
 **conglomerate**.  
 When GE ran into the funding issues that put them on bankruptcies door, GE went **hat in hand** to the government.  
 The Fed demanded that they provide **reams** of data and increase the amount of equity in the company.  
@@ -21,16 +25,16 @@ One meeting turned **fiery** after a regulator trashed GE and the CEO pushed bac
 
 
 Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
-(I had a letter from a company trying to **flog** me insurance. )
+(I had a letter from a company trying to **flog** me insurance. )  
 In October the court **upheld** its ruling—in effect ordering the sec to **give way**.  
 **Given** the returns bitcoin has offered in the past, and its **correlations** with other assets, the result could be **a rush of cash** into bitcoin, as even **sensible** investors consider putting small slices of their pension pots or portfolios into crypto for diversification.  
 Many feel instinctive **revulsion** when they spy a roach.  
 
 
-## Week 3
+## Week 3  
 
 I love that they get up **once it’s done** **as if** there was no other reason to be in the room.  
-Don’t settle for friends, relationships, or others who aren't **lifting you up**.   
+Don’t settle for friends, relationships, or others who aren't **lifting you up**.  
 The **capstone** in **Maslow**'s hierarchy, it is reaching your potential.  
 **well-spoken**.  
 **grave**.  
@@ -55,32 +59,32 @@ The Federal Reserve says that it will not raise interest rates through 2022, as 
 **orgy**.  
 Her hair was thick, **glossy** and in tiptop condition.  
 
-> Splurge means to spend money extravagantly or to indulge in something luxurious or expensive. It has a positive connotation and implies treating oneself to something special.
-> Flaunt means to display or show off something in a boastful or ostentatious manner. It can have a negative connotation and implies showing off or bragging about something.
+> Splurge means to spend money extravagantly or to indulge in something luxurious or expensive. It has a positive connotation and implies treating oneself to something special.  
+> Flaunt means to display or show off something in a boastful or ostentatious manner. It can have a negative connotation and implies showing off or bragging about something.  
 
-> risk adjusted return 
-> unit price bias
-
-
-
-
-**Eudaimonia**
+> risk adjusted return  
+> unit price bias  
 
 
 
-**amenable**, **conducive**, **gullible**, **susceptible**
+
+**Eudaimonia**  
+
+
+
+**amenable**, **conducive**, **gullible**, **susceptible**  
 
 **pliable**, **supple**, **amenable**, **deference**, **flexible**, **malleable**, **plasticity**  
 
-**brittle**, **fragile**/**fragility**, **tenuous**, 
+**brittle**, **fragile**/**fragility**, **tenuous**,  
 
 **delirium**, **deranged**, **unhinged**, **lunatic**, **demented**, **schizophrenic**  
 **insane**, **delusional**, **psycho**  
 
 
 Crypto has its uses, too, such as portfolio diversification and keeping money safe under **despotic** regimes.  
-Musk has also repeatedly **clashed** with the Securities and Exchange Commission, which regulates US public markets, since Tesla listed on the Nasdaq back in 2010.
-**cape of good hope**, **Capetown**
+Musk has also repeatedly **clashed** with the Securities and Exchange Commission, which regulates US public markets, since Tesla listed on the Nasdaq back in 2010.  
+**cape of good hope**, **Capetown**  
 
 The **furtherance** of human civilization.  
 **industrialize** & **urbanize**.  
@@ -92,9 +96,9 @@ The public expects us to deliver the **unvarnished truth**.
 
 **uninhibited**.  
 **unwieldy**, **cumbersome**, **clunky**  
-**gyration**
+**gyration**  
 
-> risk parity
+> risk parity  
 
 **paperweight**.  
 **captive insurance**.  
@@ -108,9 +112,9 @@ The public expects us to deliver the **unvarnished truth**.
 
 **Copious**  
 **Unilaterally**.  
-**conman**. 
+**conman**.  
 
-He's very **tightfisted**. 
+He's very **tightfisted**.  
 Her boss is a **skinflint**.  
 
 The natural trend of whichever country has the reserve currency is to inflate the money supply and increase **deficit spending** until it loses that advantage.  
@@ -131,7 +135,7 @@ Various **taxonomies** are used to categorize models of capitalism.
 
 **Rememberance** is a form of meeting. **Forgetfulness** is a form of freedom.  
 
-**stocky**, **stout**, **portly**, **plump**, **chubby**, **chonky**   
+**stocky**, **stout**, **portly**, **plump**, **chubby**, **chonky**  
 
 **diffused**  
 
@@ -178,7 +182,7 @@ A **worthy** economist's view of Bitcoin.
 **Enlighten us**.  
 **holographic** seal.  
 
-Some people like to **laminate** the piece of paper that has their recovery seed written on it and store it in a **fireproof** and waterproof home safe. -  
+Some people like to **laminate** the piece of paper that has their recovery seed written on it and store it in a **fireproof** and waterproof home safe.   
 
 
 To help with seating, we ask associates to not **block off** seats tomorrow, strictly use pods as **hoteling desks**, and when not in use, please vacate them.  
@@ -275,7 +279,7 @@ In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love
 **sling-back**, **sandals** .  
 He is very **sceptical** about the value of **rote learning**.  
 Newly rich consumers eager to **flaunt** their prosperity. -  
-**Gothic** style/architecture. -  
+**Gothic** style/architecture.   
 
 ## Conversation  
 

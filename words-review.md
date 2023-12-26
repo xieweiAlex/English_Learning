@@ -1,13 +1,16 @@
 ## words-Dec.md ##  
 words/2023/words-Dec.md  
+Finally, the SU Committee **collated** the results and **drew up** a report. -  
+Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
+Such a **transformation** is a big deal. Becoming global money will not be a **walk in the park**, it will not come easy, it will face many, many **headwinds** and **corpses** will line the path along that journey. -  
+The United States is **hurtling** into the modern age. -  
 No, for some reason, we think of an academic. We think of somebody **scrawny**. -  
-Some people like to **laminate** the piece of paper that has their recovery seed written on it and store it in a **fireproof** and waterproof home safe. -  
+Italy is even more generous to its **diaspora**. -  
 **retrench** expenditures. -  
 **kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
 This one goes out to my fellow "**bah humbugs**". -  
 In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
 Newly rich consumers eager to **flaunt** their prosperity. -  
-**Gothic** style/architecture. -  
 
 ## words-Nov.md ##  
 words/2023/words-Nov.md  
@@ -29,13 +32,10 @@ Another disadvantage of a houseplant can be **fungal spores** and bacteria that 
 
 ## words-October.md ##  
 words/2023/words-October.md  
-The environmental damage resulting from the recent **derailment** of a Norfolk Southern train in East Palestine, Ohio **is sure to** bring this complicated **scuffle** to the **forefront**. -  
-He would arrive in a small town and sit and wait, often without recognition, sometimes quietly **enduring** **snubs** or **indignities** from people who had no idea who he was. -  
 Modern capitalist economy follows its own **immanent** laws. -  
 The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
 Some INTJs are emotionally **labile** and constantly turning to others for support. -  
 there is a huge **latent** desire in the population to understand Bitcoin. -  
-**slapstick comedy**   
 
 ## words-September.md ##  
 words/2023/words-September.md  
