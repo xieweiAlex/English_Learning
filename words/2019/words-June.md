@@ -8,7 +8,6 @@ He sees **culling** deer as **necessity**.
 **Anecdotes** **culled** from Greek and Roman  
 
 
-Higher protein diets provide more **satiety** than lower protein diets, which helps keep hunger at bay  
 I want to **vent**.  
 I don't say this to be **jaded**, but I want to warn you ahead of time that when you put something out into the world, you are going to have critics and haters  
 I pretty much **crawled** under my desk and cried—ok, maybe not, but I wanted to  

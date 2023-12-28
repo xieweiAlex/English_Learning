@@ -1,8 +1,53 @@
 
-Stratospheric.  
-Claustrophobic  
+
+We should cultivate the habit of choosing the more **demanding** option, actively seeking out challenges, and embracing discomfort.  
+
+However, pasteurization doesn't eliminate all types of bacteria. Plus, once you open a **carton** of milk, it’s exposed to additional bacteria from the environment.  
+When milk begins to spoil, it develops an unpleasant, **rancid odor**. The scent is hard to miss and gets stronger with time.  
+
+> 8 is 2 to the 3rd power, aka 2^3  
+
+**auditory** system, **auditory** learner.  
+**neocon**: Neoconservatism  
+
+Dual n-back training is a cognitive exercise where you’re required to remember and recall both visual and **auditory** stimuli.  
+
+Higher protein diets provide more **satiety** than lower protein diets, which helps **keep hunger at bay**.  
+
+Also, be mindful of how caffeine consumption increases your overall water intake needs, as it is a **diuretic**. -  
+
+Many people **slam their foot on the gas** and give up after a couple of weeks.  
+I'm literally **in shambles** right now.  
+
+I know I showed a lot in this video, it's a bit like **whirlwind**.  
+I believe this **wholeheartedly**.  
+
+LazyVim’s a **featherweight** **champ**, so it doesn't **hog** your system resources.  
+Sure, its minimalist approach might mean it doesn't have all the **bells and whistles** some might want.  
+But for those who want a **zippy**, responsive editing environment without **drowning in** options, LazyVim could be your perfect match.  
 
 
+See them out there, **skulking** around?  
+She is a remarkably **adroit** and determined politician. -  
+At any time I could run into rain, **sleet**, snow, or scorching heat.  
+**Flurry**.  
+**grantee**.  
+She's an **old hand** at dealing with the press.  
+
+Severe overdoses of magnesium are rare in **otherwise** healthy people. Getting too much magnesium from the diet is not typically a cause for concern.  
+The only blot on an **otherwise** clean campaign..  
+The soup was cold, but it was **otherwise** an excellent meal.  
+
+
+Best of all, you can keep still with him. It makes no matter. He likes you. He is like fire that purges **to the bone**.  
+The juice is **worth the squeeze**.  
+
+
+Bitcoin's been **on a tear** lately.  
+
+
+**Stratospheric**.  
+**Claustrophobic**  
 
 The **tinsel** and the **holly** were decorating the drug store.  
 There is a pole requires no decoration, I find **tinsel** distracting.  
@@ -182,7 +227,7 @@ A **worthy** economist's view of Bitcoin.
 **Enlighten us**.  
 **holographic** seal.  
 
-Some people like to **laminate** the piece of paper that has their recovery seed written on it and store it in a **fireproof** and waterproof home safe.   
+Some people like to **laminate** the piece of paper that has their recovery seed written on it and store it in a **fireproof** and waterproof home safe.  
 
 
 To help with seating, we ask associates to not **block off** seats tomorrow, strictly use pods as **hoteling desks**, and when not in use, please vacate them.  
@@ -279,7 +324,7 @@ In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love
 **sling-back**, **sandals** .  
 He is very **sceptical** about the value of **rote learning**.  
 Newly rich consumers eager to **flaunt** their prosperity. -  
-**Gothic** style/architecture.   
+**Gothic** style/architecture.  
 
 ## Conversation  
 

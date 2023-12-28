@@ -124,7 +124,7 @@ That equity is **insulation**.
 Emmer may struggle to **cobble together** the 217 votes needed to win the speaker’s gavel on the House floor.  
 
 **tantalize** .  
-Modern capitalist economy follows its own **immanent** laws. -  
+Modern capitalist economy follows its own **immanent** laws.   
 **crib** .  
 
 In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent.   

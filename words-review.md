@@ -1,5 +1,7 @@
 ## words-Dec.md ##  
 words/2023/words-Dec.md  
+Also, be mindful of how caffeine consumption increases your overall water intake needs, as it is a **diuretic**. -  
+She is a remarkably **adroit** and determined politician. -  
 Finally, the SU Committee **collated** the results and **drew up** a report. -  
 Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
 Such a **transformation** is a big deal. Becoming global money will not be a **walk in the park**, it will not come easy, it will face many, many **headwinds** and **corpses** will line the path along that journey. -  
@@ -32,7 +34,6 @@ Another disadvantage of a houseplant can be **fungal spores** and bacteria that 
 
 ## words-October.md ##  
 words/2023/words-October.md  
-Modern capitalist economy follows its own **immanent** laws. -  
 The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
 Some INTJs are emotionally **labile** and constantly turning to others for support. -  
 there is a huge **latent** desire in the population to understand Bitcoin. -  
