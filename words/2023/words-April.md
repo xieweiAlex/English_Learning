@@ -75,11 +75,11 @@ I did what I could, but her mother's influence was **pernicious**.
 A **compliant** person **gives in** easily to other people's views.  
 They are **taught** to be **compliant** and respectful to adults.  
 I **reckon** she's pulling in over $100 000.  
-They lived in a **squalid** **hovel** for the next five years.   
+They lived in a **squalid** **hovel** for the next five years.  
 Saying she's improved **comes over** as a **backhanded** compliment.  
 The stars **scintillate**.  
 **fatso**  
-The **mendacious** beggar told a different **tale of woe** at every house.    
+The **mendacious** beggar told a different **tale of woe** at every house.  
 
 
 > Carl Jung, the influential **psychiatrist**, on the value of knowing yourself:"The world will ask you who you are, and if you don't know, the world will tell you."  
@@ -99,7 +99,7 @@ How do you dispose of 18,000 **carcasses**?
 **More precisely**, 'we' used your **loofah**.  
 **auger drill**.  
 **consul**  
-Her hatred of authority led to her **expulsion** from high school.   
+Her hatred of authority led to her **expulsion** from high school.  
 **breadline**  
 **thongs**  
 **immoderation**  

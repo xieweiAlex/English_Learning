@@ -8,7 +8,7 @@ Hundreds of towns still **feature** **tracks** that pass right through the **hea
 **In essence**, **embargoes** are **analogous** to **force majeures**.  
 cut jobs, **mothball** equipment, and delay infrastructure investments.  
 **hazmat**: hazardous material  
-The environmental damage resulting from the recent **derailment** of a Norfolk Southern train in East Palestine, Ohio **is sure to** bring this complicated **scuffle** to the **forefront**.   
+The environmental damage resulting from the recent **derailment** of a Norfolk Southern train in East Palestine, Ohio **is sure to** bring this complicated **scuffle** to the **forefront**.  
 
 
 Muscular **dystrophy**.  
@@ -41,7 +41,7 @@ My pro-Palestinian perspective began more than 30 years ago when I was introduce
 While I have always hoped for a **viable** and peaceful **two-state solution**, the Gaza experiment has been an **abject failure**.  
 As always, I welcome your input, **critiques** and **rebuttal**.  
 
-Make a **feint** in the east but hit in the west.   
+Make a **feint** in the east but hit in the west.  
 **faint of heart**.  
 **panacea**  
 > The madcap can be saved; the self-contemptuous is beyond rescue.  
@@ -56,7 +56,7 @@ Money is complicated, it makes everyone **squeamish**, it makes everyone act kin
 Do not be too timid and **squeamish** about your actions. All life is an experiment.  
 What if they are a little **coarse**, and you may get your coat **soiled** or torn?  
 
-When life's priorities get **jumbled**.   
+When life's priorities get **jumbled**.  
 **cognitive load**.  
 Putin **lauds** **Belt and Road**.  
 
@@ -73,12 +73,12 @@ Maine's massive **manhunt**.
 
 The **Anthology** of Balaji.  
 A **blow** to Chinese **hubris** in the Middle East, but a chance to **bash** America.  
-Cellular, internet and other communications in the **enclave** have also been cut, according to Palestinian human rights groups and several reports.   
+Cellular, internet and other communications in the **enclave** have also been cut, according to Palestinian human rights groups and several reports.  
 To master a language, start learning it early -- New evidence suggests a **drop-off** in results after the age of 17.  
 
 Your behaviours exercised a **malign** influence on the children.  
 
-**Mouth ulcers** are painful and typically small **lesions** that develop in your mouth or at the base of your gums.   
+**Mouth ulcers** are painful and typically small **lesions** that develop in your mouth or at the base of your gums.  
 Types of **mouth ulcers** include **canker sores** and the sores caused by hand, foot, and mouth disease.  
 **cold sore**.  
 
@@ -91,11 +91,11 @@ The **genial** atmosphere in the office helped foster creativity and collaborati
 
 The war and its **aftermath** will test that perception against reality.  
 
-He would arrive in a small town and sit and wait, often without recognition, sometimes quietly **enduring** **snubs** or **indignities** from people who had no idea who he was.   
+He would arrive in a small town and sit and wait, often without recognition, sometimes quietly **enduring** **snubs** or **indignities** from people who had no idea who he was.  
 
 I realized there was no fog **veiling** my window.  
 I know this is an **imposition**. But please **hear me out**.  
-The **imposition** of martial law.   
+The **imposition** of martial law.  
 The women wore veils **in deference to** the customs of the country.  
 **deafening**  
 **filial** .  
@@ -124,18 +124,18 @@ That equity is **insulation**.
 Emmer may struggle to **cobble together** the 217 votes needed to win the speaker’s gavel on the House floor.  
 
 **tantalize** .  
-Modern capitalist economy follows its own **immanent** laws.   
+Modern capitalist economy follows its own **immanent** laws.  
 **crib** .  
 
-In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent.   
+In describing what the code is supposed to do and observing what it actually does, any **incongruity** between these two becomes apparent.  
 
 > It has been a **truism** for decades that WW3, **should it ever occur**, would end civilization.  
 
-It just **belabors**. It just **stirs up** resentments and anger. It distracts. It takes us away from what we do control, what does matter, which is how we respond. Which is how we change ourselves **in light of** the unchangeable new wrinkle in reality.   
+It just **belabors**. It just **stirs up** resentments and anger. It distracts. It takes us away from what we do control, what does matter, which is how we respond. Which is how we change ourselves **in light of** the unchangeable new wrinkle in reality.  
 Don’t be trapped by **dogma**—which is living with the results of other people’s thinking.  
 Don’t let the noise of others’ opinions **drown out** your own inner voice.  
 Brian Tracy nails it with the term "**attraction of distraction**," cautioning us against technological disruptions.  
-Take Thomas Edison, for instance. We **owe** our bright nights to his invention, the electric lightbulb.   
+Take Thomas Edison, for instance. We **owe** our bright nights to his invention, the electric lightbulb.  
 
 **Suffice to say**.  
 It's **right old** **downpour** **out there**.  
@@ -150,7 +150,7 @@ That third item received the least amount of funding and was more of a **footnot
 He tried to **nobble** one of the juror.  
 people always tried to **nobble** her at parties.  
 they **nobbled** him and threw him on to the train.  
-**Lilac** is best used as a **garnish**.   
+**Lilac** is best used as a **garnish**.  
 
 **pool cue**, **cue stick**  
 highly **un-nuanced** phrases.  
@@ -158,7 +158,7 @@ highly **un-nuanced** phrases.
 **aforementioned** fields  
 
 The INTJ is naturally **attuned to** the big picture and **can’t help but** see how everything is **interconnected**.  
-Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers.   
+Their ability to perceive deep patterns and causal relationships has helped many achieve **eminence** in science, mathematics, medicine, and other INTJ careers.  
 This can lead them to feel **estranged** from their physical **environs**, not to mention their own bodies.  
 **Onlookers** sense that INTJs seem to “live in their own world.”  
 INTJs can be **oblivious** to **social norms** or other practical aspects of life.  
@@ -265,7 +265,7 @@ Second, **face-to-face** contact allows us to **size up** others.
 
 It’s time to stop letting fees **rob you of** your hard-earned retirement.  
 Famed investor John Bogle calls this, **fittingly**, “The **Tyranny** of Compounding Costs.”  
-Local **excision**.   
+Local **excision**.  
 
 **incogitant**  
 **morgue**  
@@ -275,7 +275,7 @@ she put us in that **draughty** morgue of a sitting room.
 **chainsaw**  
 **batter**  
 **meanly**  
-**slapstick comedy**   
+**slapstick comedy**  
 **a jug of water**  
 **litterbug**  
 This is a **holdover** from a time when humans' food supply was unreliable and storing energy was an advantage.  
@@ -296,7 +296,7 @@ Governments have been known to **snoop on** and harass innocent citizens in the 
 
 She wore shorts and a **halter top**.  
 I found the **truant** throwing stones in the river.  
-I want no part of this **sordid** business.   
+I want no part of this **sordid** business.  
 
 **expropriate**  
 **parabola**  
@@ -325,7 +325,7 @@ The miscalculations of Israel’s and Gaza’s leaders are being **laid bare**.
 **inferiority complex**  
 **prognosis**  
 **stitcher**  
-He had a chance to confess and **expiate** his guilt.   
+He had a chance to confess and **expiate** his guilt.  
 
 I’m not here to **wallow** or **despair**.  
 No one thinks you're smarter when you're **babbling** or **filibustering** or self-indulging.  

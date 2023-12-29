@@ -88,7 +88,7 @@ Meta and Goldman doubled down on return-to-office pushes, with Meta saying **hol
 Zimbabwe’s flawed election will ensure its pariah status **endures**.  
 
 It is an elegant way to discover new insights — and **duck** that tedious **bore** who loudly knows nothing but won’t change their mind!  
-A **mercurial** billionaire, Terry Gou, shakes up Taiwan's presidential race.   
+A **mercurial** billionaire, Terry Gou, shakes up Taiwan's presidential race.  
 
 
 **merch**, **merchandise**.  
@@ -129,10 +129,10 @@ He felt pleasantly **drowsy** and had to **fight off** the urge to sleep.
 Wind **vane**  
 The game will be a **pushover**.  
 **Pedestal**??  
-His **impenetrable** eyes and **inscrutable** **countenance** give little away.   
+His **impenetrable** eyes and **inscrutable** **countenance** give little away.  
 
-The **omens** for the game are still not **propitious**.   
-It was not a **propitious** time to start a new business.   
+The **omens** for the game are still not **propitious**.  
+It was not a **propitious** time to start a new business.  
 **Vagabond**  
 
 A **pinched** nerve in the neck may feel like **pins and needles**.  
@@ -154,9 +154,9 @@ Dirk Nowitzki was **inducted** into the Naismith Basketball **Hall of Fame** ove
 > Write the story that you were always afraid to tell. I swear to you that there is magic in it, and if you show yourself naked for me, I'll be naked for you. It will be our **covenant**.  
 
 He had an **illicit** association with Jane.  
-But is **scarfing down** raw oats actually good for you?   
+But is **scarfing down** raw oats actually good for you?  
 The practice of carrying mementos that remind us of loved ones who have passed away dates back thousands of years, to the **Iron Age**.  
-The meaning we **ascribe** can turn even the most ordinary things into priceless objects.   
+The meaning we **ascribe** can turn even the most ordinary things into priceless objects.  
 
 Which goes by the **deceptively** comforting name of Country Garden, also seems to be in difficulty.  
 Flaxseed is a **cornucopia** of vitamins and minerals, but it’s especially rich in thiamine, copper, and manganese.  
@@ -216,7 +216,7 @@ We waited for the judge's decision with **bated** breath.
 
 He **peddled** fish from a pushcart.  
 **Peddling**  
-Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**.   
+Warren Buffett, the **good natured** **financier**, became a **homespun** folk hero, without the tools and **overalls**.  
 **twilight zone**, evening **twilight**  
 
 Think about someone you know who has character of **granite**.  
@@ -232,14 +232,14 @@ The **knee-jerk** reaction of many firms was to band together to stave off any t
 ## Week 2  
 
 **dysentery** attack, **diarrhea**.  
-**lacerate**.   
+**lacerate**.  
 What policy actions could China take to **palliate** the loss?  
 **incense**  
 
 In conversation she **exudes** wit and self-assurance.  
 He **exuded** good humour and **bonhomie**.  
 
-So he **concocted** a **fiendish** scheme to trick her into paying.   
+So he **concocted** a **fiendish** scheme to trick her into paying.  
 
 Her **dismissal** came as **a bolt from the blue**.  
 **Crayon** **Shin-chan**.  
@@ -268,7 +268,7 @@ The Department of Justice is **shelling out** more than $6 billion to private co
 **Veiling**  
 **sizzle**  
 hair **follicle**.  
-**Thwack**   
+**Thwack**  
 **makeshift**  
 **calamitous**  
 
@@ -282,7 +282,7 @@ America’s wave of violence may have **crested**.
 
 Given the amount of interest the question about shrinking **attention spans** has received, I was surprised to not find a **knockdown** study of the type I was looking for.  
 Many different investigations that were either not quite answering the question I was asking or too **shoddy** (or murky) to be trusted.  
-Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene.   
+Instead, focus on consuming soft foods that won't put **undue stress** on the filling site and maintaining good oral hygiene.  
 
 Rather than try to threaten or **cajole** their way to the productivity-boosting benefits of in-person work, they can bring their workers together by giving them space to keep apart.  
 Some of them visibly annoyed that your chitchat is **derailing** their **train of thought**.  
@@ -296,7 +296,7 @@ He hoped to **cajole** her into selling him her house.
 **Ballsy**.  
 **goon**  
 **goop**  
-She gave him the bad news **without preamble**.   
+She gave him the bad news **without preamble**.  
 
 Monkeys were **screeching** in the trees.  
 **screeching** halt.  
@@ -333,7 +333,7 @@ The **tomb** had been **defiled** and **looted**.
 
 The bones were **disinterred** and moved to a **burial site**.  
 
-He was out of work and living in **squalor**.   
+He was out of work and living in **squalor**.  
 Have **flannel** PJs replaced your silky **negligees**?  
 That was a **conjecture**, not a fact.  
 20 **delirious** tweets in 14 hours, you can tell how much trouble Trump is in  

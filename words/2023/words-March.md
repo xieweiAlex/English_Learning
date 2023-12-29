@@ -6,7 +6,7 @@ That poison ivy **leaguer**'s long gone.
 
 **chutney**  
 **sweltering**  
-**battalion**   
+**battalion**  
 
 tubal **ligation**.  
 warthog  
@@ -63,7 +63,7 @@ INTJs are open-minded yet they appear to be **aloof**.
 **obsequious**  
 
 Given that you'll likely pay a **hefty** markup for car insurance if you let your policy **lapse**, it's essential to avoid having a break in coverage.  
-diamond **encrusted** sofa.   
+diamond **encrusted** sofa.  
 
 
 ## Week 3  
@@ -86,12 +86,12 @@ and here is where the term **Nash equilibrium** **comes to play**.
 First-time buyers without a big pile of cash now have a shot at **nabbing** a home.  
 
 The word "**supercilious**" means behaving or looking as though one is **superior** to others, and it is often used to describe someone who is arrogant, **haughty**, or **condescending**. While it is not a word that is used every day, it is still a useful and valuable word in English vocabulary.  
-It is illegal to **adulterate** food by adding harmful substances, such as chemicals or toxins, to it.   
+It is illegal to **adulterate** food by adding harmful substances, such as chemicals or toxins, to it.  
 
 It would be **foolhardy** to sail in weather like this.  
 He was smiling, but his eyes retained a look of **solemnity**.  
 **provident**, **providence**  
-I don't trust that salesman, he comes across as **smarmy** and **insincere**.   
+I don't trust that salesman, he comes across as **smarmy** and **insincere**.  
 
 **junkyard**  
 **ensue**  
@@ -115,16 +115,16 @@ It's **odds-on** that he'll be late.
 **contemporary**  
 **preamble**  
 
-The subject of racism is admittedly too complex for **facile** summarization.   
+The subject of racism is admittedly too complex for **facile** summarization.  
 **old chap**  
 **rain check**  
-**snapper**   
+**snapper**  
 **galactic**  
 **shellacking**  
 **phallic**  
 **papperclip**  
 
-**mantle**   
+**mantle**  
 **credit crunch**, **crunch time**.  
 Are science and religion fated to be **adversaries**?.  
 
@@ -373,7 +373,7 @@ There was no one he **revered** more than Antoninus. How could he possibly live 
 
 Is there anything good on the **telly** tonight?  
 An **emblem** is a symbol, sign, or representation that is used to identify or represent a person, group, or idea.  
-The party began to **splinter**.   
+The party began to **splinter**.  
 **recumbent** chair  
 What a Westerner considers an honest look in the eye, the **Oriental** takes as a **lack of respect** and a personal **affront**.  
 Iran: a **theocratic** Islamic republic in the Middle East in western Asia.  
@@ -384,7 +384,7 @@ Iran: a **theocratic** Islamic republic in the Middle East in western Asia.
 He talks about the trajectory of the industry, where he sees it going, the **impediments** it faces, and much more.  
 **Ravenous**  
 Every **gnarled** hack knows that the best way to bury bad news is to counter it with a splashy new announcement.  
-Like everyone else, I **deplore** and condemn this killing.   
+Like everyone else, I **deplore** and condemn this killing.  
 You know, ever since N.A.F.T.A. , corporate outsourcing has been the **bane** of the American worker.  
 A **gasp** rippled through the crowd.  
 The **uncut** grass came up to her waist.  

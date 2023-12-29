@@ -27,7 +27,7 @@ Take away that **shining** **bauble** there, and lock up the doors.
 The **Exorcist**.  
 **Entreaty**: it is a noun that means a serious or earnest request or petition. It is often used in formal or written language, such as legal documents or **literature**.  
 The word "**rucksack**" is often used interchangeably with the word "backpack," but it generally implies a larger size and more **rugged** construction.  
-China is home to many rapidly modernizing cities that are **enthralling** to visit.   
+China is home to many rapidly modernizing cities that are **enthralling** to visit.  
 They were **enthralled** with the play.  
 He volunteered as a **correspondent** for the war.  
 The result was **correspondent** with my wishes.  
@@ -42,7 +42,7 @@ a **destroyer** flotilla.
 **enforceable**  
 
 One thing we have to remember is the Stoics did not regard guilt as a productive emotion. It does nothing for you but send you **plummeting** down a **spiral** of **self-loathing**.  
-That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns.   
+That’s why it’s filled with **admonishments** for losing his temper, for being lazy, for temptations, for all sorts of bad habits or **destructive** thought patterns.  
 He would have been **aghast** at the fact that Seneca regularly quoted **Epicurus** in his Letters, even if Seneca **stipulated** that he was no Epicurean.  
 To **tarry** in the garden? To avoid pain? This was the **antithesis** of what the Stoic was supposed to advise or celebrate.  
 And instead of **scorning** the Epicureans, we should try, as Seneca did, to learn from them.  
@@ -112,8 +112,8 @@ An author could be considered **eclectic** if they draw on a range of literary t
 **fentanyl**  
 **cut back on**  
 
-I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**.   
-**predilection** 
+I shall not reply to such a **scurrilous** attack upon me; it is **beneath contempt**.  
+**predilection**  
 
 
 **ricochet**  
@@ -122,7 +122,7 @@ I shall not reply to such a **scurrilous** attack upon me; it is **beneath conte
 **shellacking**  
 **acorn**  
 **ashram**  
-His manner is **supercilious** and arrogant.   
+His manner is **supercilious** and arrogant.  
 
 I will pull around the garage and **stage** something, you owe me **big time**.  
 
@@ -130,7 +130,7 @@ The **crux** of the matter is that the 2021/2022 inflation came from a surge in 
 **peg**  
 
 He was a **vociferous** opponent of Conservatism.  
-Strive for **rapport** with others.   
+Strive for **rapport** with others.  
 
 **March through** the question list.  
 
@@ -146,7 +146,7 @@ She's a black belt in **judo**.
 **fash**??  
 **talmud**  
 **shellacking**  
-The **hospice** aims to ease the sufferings of the dying.   
+The **hospice** aims to ease the sufferings of the dying.  
 
 **decibel**  
 **habitat**  
@@ -174,7 +174,7 @@ One thing I **glossed over** a few minutes ago was exactly what the rng is doing
 **Conjure**  
 **unencumbered**  
 **arboreal**  
-**seer**.   
+**seer**.  
 **turgid**.  
 
 
@@ -199,7 +199,7 @@ Gold has been deemed a **relic** by Bitcoiners, and stocks are proving to be vol
 **soothsaying**  
 **extraneous**  
 **infirm**  
-The whole hall is filled with joy and laughter -- there is only one who feels **distressful**.   
+The whole hall is filled with joy and laughter -- there is only one who feels **distressful**.  
 **acrobatic**  
 **peasant**  
 
@@ -210,8 +210,8 @@ A 2015 study suggests that **aspartame** was the largest source of **methanol** 
 
 “Whenever you get an impression of some pleasure, as with any impression, guard yourself from being **carried away** by it, let it await your action, give yourself a pause.  
 
-Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that.   
-The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble.   
+Nobody is going to listen to some old **codger** tell his war stories about when he got wiped out, I get that.  
+The power, the psychological power of a bubble to suck everybody in is **prodigious**, and we've known it since the Tulip bubble.  
 
 
 **Swat**  
@@ -252,7 +252,7 @@ When it comes to **medicines for the mind**, the placebo effect is 100 percent e
 He shows you the single-most important thing is to be present and **hammers it home** over and over again until you get it.  
 We’re sitting indoors, wearing clothes, **well-fed**, and communicating with each other **through space and time**.  
 
-The hunter is a **stout** **lusty** fellow.   
+The hunter is a **stout** **lusty** fellow.  
 
 **Life and death situations**  
 Why are you **subjecting** yourself to this?  
@@ -261,7 +261,7 @@ Turn a king into that most feared and **detested** thing -- a tyrant.
 
 **set me up** for reading more.  
 
-Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance.   
+Yes, the word "**scruffy**" is commonly used. It is an adjective used to describe something or someone that is **untidy**, **shabby**, or **unkempt** in appearance.  
 You might also describe a room as **scruffy** if it is **cluttered** with a lot of old and worn objects, or if it is dirty and in need of cleaning. In general, the word "scruffy" conveys a **sense of neglect or disrepair**.  
 
 He **regaled** us with some jokes.  
@@ -287,12 +287,12 @@ I have a **knack** for **impression**.
 **reacquainted**  
 
 **taste buds**  
-It's a little **greasy** for my **palate**, said my insanely jealous mom.   
+It's a little **greasy** for my **palate**, said my insanely jealous mom.  
 **exotic** tea  
 
-I was reading on this paper, and I heard this **commotion** up in your room.   
-This **mangy** raccoon had busted through your screen.   
-He must have **scampered** up to where Shel was.   
+I was reading on this paper, and I heard this **commotion** up in your room.  
+This **mangy** raccoon had busted through your screen.  
+He must have **scampered** up to where Shel was.  
 He just stared at me with that **smug look** and then **bolted**.  
 **If only** I'd have got here earlier...  
 **Nocturnal**  
@@ -374,7 +374,7 @@ Accuse her of being a **fabulist**.
 While I do love Thanksgiving, it feels more and more like an **anachronism**. A brief pause in our escalators ever quickening churn higher. An old holiday we wheel out to say, look, we really are still all about community, family, and **togetherness**. Really about the **transcendent**.  
 
 
-He is **obstinate** and determined and will not give up.   
+He is **obstinate** and determined and will not give up.  
 **blowfish**  
 Newsom could no longer let his state **play footsie** with those opposing the basic laws of physics.  
 California’s last remaining nuclear power plant was **set to close** in 2025 and under no reasonable scenario was this a responsible course of action but **mustering** the political support to keep it open seemed daunting.  
@@ -392,7 +392,7 @@ What would totally **upend** your views?
 **lusty**  
 **cupid**  
 **in demand**  
-**abet**, youglish.   
+**abet**, youglish.  
 They go into a kind of romantic **cocoon**.  
 **gizzard**  
 **ladybug**  
@@ -415,7 +415,7 @@ A **miserly** father makes a **prodigal** son.
 **geography**  
 **come to the boil**  
 **make the cut**  
-Her **supercilious** attitude enraged me.   
+Her **supercilious** attitude enraged me.  
 
 There was the usual romantic **postscript** at the end of his letter.  
 I think we may just **loiter** around above 4000 for another week or two.  
@@ -450,7 +450,7 @@ I was buying it for the probiotic benefits of fermented cabbage and **sulfites**
 **agaric**  
 He was a big **strapping** guy but short on brains.  
 **rubric**  
-He had a rather forbidding, **saturnine** manner.   
+He had a rather forbidding, **saturnine** manner.  
 
 We get the **buy in**.  
 **go south**.  
@@ -464,7 +464,7 @@ That's our **edge** as a company.
 
 
 The driver lost control and the car **careen** down the hill.  
-That will **preclude** him from escaping.   
+That will **preclude** him from escaping.  
 The old woman had a **careworn** look on her face.  
 He has a **predilection** for rich food.  
 

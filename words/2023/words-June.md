@@ -8,7 +8,7 @@ Banks make hedge funds look **pedestrian** when it comes to leverage,” says Ju
 This will be a slow and **cancerous** burn for the underlying economy because we have to have credit to see growth.  
 Furthermore, the proposal gives BlackRock considerable **latitude** in case of a Bitcoin fork, allowing them to determine which Bitcoin version to back.  
 
-Though the bridge is a bit **rickety**, there is no immediate danger in walking over it.   
+Though the bridge is a bit **rickety**, there is no immediate danger in walking over it.  
 
 **oomph**  
 
@@ -36,7 +36,7 @@ All humans are **broad**, we're all **multivariate**, but we get summarized in *
 
 Summer is **fast approaching**, and in some states, it is already in **full swing**.  
 She enjoys road trips with her family and has **fond** memories of cross-country adventures with her 3 sisters while growing up.  
-A **termagant** wife may, in some respects, be considered a tolerable blessing.   
+A **termagant** wife may, in some respects, be considered a tolerable blessing.  
 
 > You have to shock the world to bring attention.  
 > dual responsibility  
@@ -47,7 +47,7 @@ Yet throughout it, he was **implacable**–when they tried to shout him down, wh
 
 
 SigNoz uses a **columnar** database ClickHouse to store logs, which is very efficient at ingesting and storing logs data.  
-The whole **rigmarole** of getting a visa didn't even exist until recent decades.   
+The whole **rigmarole** of getting a visa didn't even exist until recent decades.  
 
 It was **wanton**, **moronic** vandalism.  
 **triage**  
@@ -92,7 +92,7 @@ I need to **top up** my card.
 Sophia Efthimiatou talks with Nadia Bolz-Weber about sinners and **saints**, the enduring power of **scripture**, and how we should really think about **resurrection**  
 
 I want there to be some kind of direct address to those who are hearing my **sermon**. I don’t always get there, but I try to actually say “you” in the sermon, at the end especially, to let people know this is for you. When I hear a sermon, I want somebody to break my heart.  
-Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about.   
+Standup comics are just incredibly insightful about human **folly**, and so often that’s what they’re talking about.  
 It would be amazing if every tech company had an **ethicist** and a **theologian** as part of their board, as part of the conversation in terms of what they do or don’t do. That would be incredible.  
 
 Ryan Holiday details the two-year writing process of his all-ages **fable**, The Girl Who Would be Free, which had its **fair share** of difficulties and obstacles, along with valuable and rewarding experiences.  
@@ -151,7 +151,7 @@ Yet memories from the war have left an **indelible** mark on many.
 Tigers are **solitary** animals.  
 **receptacle**  
 **Somersault**  
-First of all, quit **groveling**. Needy guys are such a **turnoff**.   
+First of all, quit **groveling**. Needy guys are such a **turnoff**.  
 It's a very **hard-hitting** critical article.  
 **filmography**  
 We can **transmute** water power into electrical power.  
@@ -181,9 +181,9 @@ infantry **battalion**
 
 
 
-She gets various **perquisites** **in addition to** her **wages**.   
+She gets various **perquisites** **in addition to** her **wages**.  
 Politics used to be the **perquisite** of the property-owning classes.  
-For example, generous **remuneration** packages are offered in this position.   
+For example, generous **remuneration** packages are offered in this position.  
 
 He was paranoid, self-obsessed and **misanthropic**.  
 
@@ -252,7 +252,7 @@ I hope he doesn't try to **meddle** in my affairs.
 
 
 **Factor in** the leverage  
-The **bugle** sounded the **charge**.   
+The **bugle** sounded the **charge**.  
 
 But consider how incredibly **neutered** the experience really is when money isn't allowed to flow freely in this environment, and how much it actually would flow, if not for both centralized payment processors and the horrible KYC and regulatory hurdle it entails for large, centralized entities.  
 **slowly but surely**.  
@@ -291,7 +291,7 @@ The air is thick with **acrid** smoke from the fires.
 We do not like his **acrid** temper.  
 This is an **acrid** and pungent substance.  
 
-They condemned the deal as a **craven** surrender.   
+They condemned the deal as a **craven** surrender.  
 It has five **concourses** connected to a main hall.  
 fish **fillet**  
 old **codger**.  
@@ -317,7 +317,7 @@ There is always a price to pay for the sexual **dalliance**.
 
 Weight has caused the **sag**.  
 **penniless**  
-It is a country where corruption is **rife**.   
+It is a country where corruption is **rife**.  
 **sinuses**  
 **savagery**  
 **Cuz** Texas is to valuable to the Union. So this is a way to “exit” without technically **seceding**.  
@@ -413,7 +413,7 @@ His eyes **scintillated** excitation.
 **rigidity**  
 **retain**, **retentive**  
 Get out of bed, you fat **slob**!  
-The **drunkard** **tottered** along the road.   
+The **drunkard** **tottered** along the road.  
 
 **meek**, **docile**, **submissive**  
 **tutelage**  
@@ -422,7 +422,7 @@ The **drunkard** **tottered** along the road.
 **Pumice** my toenail.  
 
 Are You Breathing? Do You Have **Email Apnea**?  
-The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day.   
+The study found that the odds of developing **frailty** were reduced by 20% for every 10mg of **flavonols** consumed per day.  
 "[R]estaurants are trying to coax people to eat out, and the seduction of a dining room is part of the get — dusky candlelight and uninterrupted, eye-to-eye conversation. A QR code can kill the mood: phones up, blue lights on, conviviality off."  
 
 
@@ -432,7 +432,7 @@ However, the **outermost** leaves are highest in nutrient density. No matter whi
 **smugness**.  
 **receptive**  
 A brief, handwritten **postscript** lay beneath his signature.  
-wash them in a mesh **garment** bag that’s securely closed.   
+wash them in a mesh **garment** bag that’s securely closed.  
 
 
 **simpleton**, **nitwit**, **dimwit**, **moron**, **lunatic**  

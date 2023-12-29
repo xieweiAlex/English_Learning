@@ -26,11 +26,11 @@ It's like **clockwork**.
 
 > Marginal cost of production  
 
-Walters had already given it to some **cheeky** kid who'd asked for it first.   
+Walters had already given it to some **cheeky** kid who'd asked for it first.  
 
 > Who do you still owe an apology? Can you make one in the next 5 minutes?  
 
-Once you’re a **minnow** in a vast ocean, that’s not a good place to be. It means you have tons of competitors, and you don’t even know who all of the competitors are.   
+Once you’re a **minnow** in a vast ocean, that’s not a good place to be. It means you have tons of competitors, and you don’t even know who all of the competitors are.  
 
 Europe is **eclipsing** the U.S. in crypto regulation, and drawing investors because of it.  
 
@@ -74,7 +74,7 @@ The **reactionary** **ruling clique** was **torn by** internal **strife**.
 > Too much is spent on **curative** medicine and too little on preventive medicine.  
 
 **curative** vs **curated**  
-Most of us were **neophytes**. We got our experience **right on the spot**.   
+Most of us were **neophytes**. We got our experience **right on the spot**.  
 
 The real secret to living more than 100 years probably isn’t **slurping** kale smoothies every day or committing to CrossFit.  
 But research shows that **Blue Zones** (places that produce an unusually high number of **centenarians**) do have lots of similarities when it comes to their diets.  
@@ -99,9 +99,9 @@ A **pestilence** **overhangs** the country.
 He could **mesmerize** an audience by the sheer force of his presence.  
 **sideburns**  
 **nest egg**  
-**dull ache**.   
+**dull ache**.  
 
-It's precisely that sort of **slick** **sales-talk** that I **mistrust**.   
+It's precisely that sort of **slick** **sales-talk** that I **mistrust**.  
 
 **protagonist** vs **antagonist**  
 
@@ -111,11 +111,11 @@ It's precisely that sort of **slick** **sales-talk** that I **mistrust**.
 
 **Maginot line**  
 
-Relaunch **Revelry**.   
+Relaunch **Revelry**.  
 
 Still, often a friendly “hi” will **suffice**. Studies show that loneliness can be a **debilitating** problem.  
 They discuss why the best leaders are **facilitative**, how leadership can go both directions, and why good leaders need to be “fans”  
-The final stage of **waxing** left it with a **satin** **sheen**.   
+The final stage of **waxing** left it with a **satin** **sheen**.  
 
 **monkeyshine**.  
 **light-headed**, **light-headedness**  
@@ -179,15 +179,15 @@ The COVID-19 pandemic shifted the geography of income, with many high-earning Am
 He was sinking into the **Slough of Despond**.  
 **delinquent**, **insolvent**  
 
-One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home.   
-First responders salute as an American flag is **unfurled** at the Pentagon at sunrise.   
+One notable **absentee** in **Delhi** was Xi Jinping. Mr Xi’s reasons for **spurning** Mr Modi’s summit are unclear, but China’s grinding economic slowdown leaves plenty for him to do at home.  
+First responders salute as an American flag is **unfurled** at the Pentagon at sunrise.  
 
 **Goop**  
 
 However, if you have any doubts, it's best to **err on the side of caution** and discard it.  
 
 You don’t want **junky fillers**, **stabilizers** and flavorings in the yogurt you’ll use to propagate an entirely new batch.  
-He **glanced** **furtively** at the **stolid** faces of the two detectives.   
+He **glanced** **furtively** at the **stolid** faces of the two detectives.  
 
 **to wit**.  
 when he's dead, he will be **relieved**.  
@@ -195,7 +195,7 @@ when he's dead, he will be **relieved**.
 This lifestyle upgrade doesn't even require you to **break a sweat** to be healthier.  
 
 
-White came from **clays**, **limestone**, or **gypsum**.   
+White came from **clays**, **limestone**, or **gypsum**.  
 As we know, **gypsum** is **soluble** in water.  
 
 Impulsive and **self-destructive**: Elon Musk as **depicted** in a new book.  
@@ -219,7 +219,7 @@ But what you get in return—skills, knowledge, a **leg up** on your journey—i
 
 There is nothing so **sanative** as a walk in the woods.  
 **Warring states** period  
-The explanation is too **facile** for such a complex phenomenon.   
+The explanation is too **facile** for such a complex phenomenon.  
 His **facile** banter was rather stupid.  
 **vacuity**  
 **perilous**  
@@ -237,7 +237,7 @@ All Internet connections are **threadbare**.
 
 We're a **seagoing** nation.  
 We've been since the **Bronze Age**.  
-I'm in **fine fettle**.   
+I'm in **fine fettle**.  
 I'm **unwanted**.  
 
 My emotions are **unbridled**.  

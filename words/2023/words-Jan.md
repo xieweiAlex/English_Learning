@@ -115,7 +115,7 @@ It's a peaceful, **prosperous** country with the longest life expectancy in the 
 **neon-lit**.  
 Hong Kong was an **assault on the senses**, noisy, smelly, a city of extremes - from **gaudy** mansions on Victoria Peak to the "dark satanic" **sweatshops** at the north end of **Kowloon**.  
 In Taipei, where I was studying Chinese, the streets **thronged** to the sound of **two-stroke scooters** **spewing** **acrid** smoke that **enveloped** the city in **a blanket of smog** so thick you could often see barely two blocks.  
-If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up.   
+If Hong Kong and Taipei were Asia's **raucous** teenagers, Japan was the grown-up.  
 Yes, Tokyo was a **concrete jungle**, but it was a beautifully **manicured** one.  
 In front of the Imperial Palace in Tokyo, the **skyline** was dominated by the glass towers of the country's corporate titans.  
 Rather the bureaucracy can be terrifying, while huge amounts of public money are spent on activities of **dubious** utility.  
@@ -126,7 +126,7 @@ A hundred and fifty years after it was forced to open its doors, Japan is still 
 > Hijack the conversation.  
 > Holding the conversation in hostage.  
 
-**Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health.   
+**Quinoa**, a gluten-free seed often mistaken for a **grain**, was **hailed** as a **sacred food** by the **Inca** people hundreds of years ago. Today, it’s **lauded** for its nutrient contents like fiber, protein, **folate**, and magnesium, making it useful for weight management and gut health.  
 
 He likes girls that play the **coquette**.  
 It is a **sacrilege** to offend democracy.  
@@ -138,7 +138,7 @@ We lost our way in the **labyrinth** of streets.
 **psychiatry**  
 
 What makes **academic prose** so **turgid**?  
-Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting.   
+Associate Davos with **turgid** discussions of interest rates and Middle East policy and whatever, not particularly about genital cutting.  
 
 She received **fellowships** from the Wellcome Trust, the Forum of European Philosophy and the British Academy, among others.  
 MBTI 4-letter **Nomenclature**. -w  
@@ -245,7 +245,7 @@ This **seismic** shift gonna affect everything.
 Have **grandiose** aims but puny abilities,great ambition but little talent.  
 
 Have you ever stopped to ask why the four points on a compass—north, south, east, west—are called the “**cardinal directions**”?  
-This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go.   
+This is a reference to the **cardinal virtues**—courage, temperance, justice, wisdom—which guide us and tell us where to go.  
 
 > The market, or any given stock isn't always in an uptrend, if they were, investing would be a **cakewalk**.  
 
@@ -370,7 +370,7 @@ A **Herculean** Choice: **Virtue or Vice**.
 ## Week 1  
 
 He considered himself the master of crypto universe, which the market has **disabused** him.  
-Located in Arizona, this National Park is full of **cactus** across a desert Park.   
+Located in Arizona, this National Park is full of **cactus** across a desert Park.  
 
 **riff a bit**.  
 **go terrible awry**.  
@@ -412,7 +412,7 @@ Yaml is the **lingua franca** of cloud config (although verbose...)
 
 Everything he owned was **sequestered**.  
 **Vouchsafe** me a spirit of faith and knowledge.  
-The tone of the article is **intemperate**.   
+The tone of the article is **intemperate**.  
 The picture showed this **impish** kid with this like wicked smile on his face.  
 
 ## Conversation  

@@ -77,7 +77,7 @@ We got a whole bunch of people **professing** their love for compact keyboards a
 **Eclectic**.  
 **Imperator**  
 **Polemic**  
-**helical** curve /  blade.   
+**helical** curve /  blade.  
 
 **Seer**  
 **Dastard**  
@@ -226,7 +226,7 @@ Fewer workers are needed to **solder** circuit boards.
 We sincerely ask that each of you join us in **standing toe to toe** against the enemy.  
 **seismic** / mineral / gravity **prospecting**  
 
-His **dissolute** life is inconsistent with his **Puritan** upbringing.   
+His **dissolute** life is inconsistent with his **Puritan** upbringing.  
 **disseminate**, dissemination  
 Especially educated **pampered** middle-class xx people.  
 
