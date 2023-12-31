@@ -278,7 +278,6 @@ This is clearly designed to **befuddle** the public.
 **capsize**  
 Bird **perched** on the branch  
 I like fishing for **perch** on vacation.  
-When he was little, a fever gave him **cerebral palsy**.  
 **epilepsia**  
 
 The author's descriptions of the main character's childhood serve to **adumbrate** his later experiences and personality.  

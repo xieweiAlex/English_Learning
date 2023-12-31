@@ -10,7 +10,7 @@ No, for some reason, we think of an academic. We think of somebody **scrawny**. 
 Italy is even more generous to its **diaspora**. -  
 **retrench** expenditures. -  
 **kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
-This one goes out to my fellow "**bah humbugs**". -  
+This one goes out to my fellow "**bah humbugs**".   
 In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
 Newly rich consumers eager to **flaunt** their prosperity. -  
 

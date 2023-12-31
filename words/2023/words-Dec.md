@@ -1,14 +1,41 @@
 
-
-urinary incontinence, fecal incontinence.  
-Black and tarry stool.  
-tarmac.  
-mawkish  
+When he was little, a fever gave him **cerebral palsy**.  
+**scrimp**  
 
 
+A **flippant** remark.  
 
+Being called a “bitcoin maxi” is about as offensive to me as being called a “**heliocentric** maxi.” Satoshi helped us this year.  
+(**geocentric**)
+
+
+**burglar**, **burglary**.  
+She gives **showbiz** parties **a wide berth**.  
+
+As China has grown in **global stature**, the Chinese government has sought to present itself as a different sort of superpower.  
+
+This farmer still owns most of his shares. A 10,000 **bagger**.  
+A **primer** on Time Preference.  
+As such, the effect inflation has on civilization is **regressive**. It **heightens** our **time preference**, erodes our capital and drives us backward morally, socially and institutionally.  
+
+For anyone out there, and I know you’re out there, who hates meditation, I hate to **break it to you**: it really does, nearly **invariably**, change your life.  
+I knew I couldn't be relaxed like this. So as a **last ditch effort** to make my brain shut up, I decided to turn to meditation.  
+
+Bitcoin is infecting the system. It’s a virus of sorts that **latches onto** hosts who then act in such a way as to cause it to spread further.  
+
+It’s also completely different in a **paradigmatic** sense.  
+To fix the **debauchery**, Bitcoin must **subsume** the debauchery and then slowly, like a virus (or in the case of Bitcoin, an anti-virus), infect the hosts and begin to change them.  
+
+**limp to the pot**.  
+Poker is a psychological **warfare**. -  
+**aforementioned**.  
+**Go out on a limb** and give it a shot.   
+
+Urinary **incontinence**, fecal **incontinence**.  
+Black and **tarry** stool.  
+**tarmac**.  
+**mawkish**  
 A **Mercedes** carries a certain **cachet**.  
-
 This test result is **yet to be reviewed** by the provider.  
 
 We should cultivate the habit of choosing the more **demanding** option, actively seeking out challenges, and embracing discomfort.  
@@ -24,7 +51,6 @@ When milk begins to spoil, it develops an unpleasant, **rancid odor**. The scent
 Dual n-back training is a cognitive exercise where you’re required to remember and recall both visual and **auditory** stimuli.  
 
 Higher protein diets provide more **satiety** than lower protein diets, which helps **keep hunger at bay**.  
-
 Also, be mindful of how caffeine consumption increases your overall water intake needs, as it is a **diuretic**. -  
 
 Many people **slam their foot on the gas** and give up after a couple of weeks.  
