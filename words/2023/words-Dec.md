@@ -1,12 +1,21 @@
 
+**flash in the pan**.  
+**featherweight** political issues.  
+
+**Crackling**.  
+**get off the ground**.  
+The essay was a meaningless **jumble** of ideas.  
+
+## Week 4  
+
+**Wrecking-Ball**.  
+
 When he was little, a fever gave him **cerebral palsy**.  
 **scrimp**  
-
-
 A **flippant** remark.  
 
 Being called a “bitcoin maxi” is about as offensive to me as being called a “**heliocentric** maxi.” Satoshi helped us this year.  
-(**geocentric**)
+(**geocentric**)  
 
 
 **burglar**, **burglary**.  
@@ -29,7 +38,7 @@ To fix the **debauchery**, Bitcoin must **subsume** the debauchery and then slow
 **limp to the pot**.  
 Poker is a psychological **warfare**. -  
 **aforementioned**.  
-**Go out on a limb** and give it a shot.   
+**Go out on a limb** and give it a shot.  
 
 Urinary **incontinence**, fecal **incontinence**.  
 Black and **tarry** stool.  
@@ -122,12 +131,12 @@ The **capstone** in **Maslow**'s hierarchy, it is reaching your potential.
 **grave**.  
 **kowtow**.  
 
-Such a **transformation** is a big deal. Becoming global money will not be a **walk in the park**, it will not come easy, it will face many, many **headwinds** and **corpses** will line the path along that journey. -  
+Such a **transformation** is a big deal. Becoming global money will not be a **walk in the park**, it will not come easy, it will face many, many **headwinds** and **corpses** will line the path along that journey.   
 
 **Cardinal numbers** count objects, while **ordinal numbers** indicate the position of objects in a list.  
 Spears **hurtled** against **shields**.  
 I **hurtled** down the path, trusting to luck that I wouldn't **put a foot wrong**.  
-The United States is **hurtling** into the modern age. -  
+The United States is **hurtling** into the modern age.   
 We should **winnow out** the errors in logic.  
 women **winnow** the **chaff** from piles of unhusked rice.  
 
@@ -317,7 +326,7 @@ You're about to **detonate** a bomb in someone else's life.
 
 China supplies about one-third of US **graphite** imports, according to the US Geological Survey, and it’s the world’s leading graphite producer.  
 
-This one goes out to my fellow "**bah humbugs**". -  
+This one goes out to my fellow "**bah humbugs**".   
 **crabby**, **crusty**, **cranky**, **edgy**  
 
 How many people spend an enormous amount to keep up their estates, but then let their brain fall into **disrepair**.  

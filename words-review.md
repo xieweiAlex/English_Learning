@@ -1,16 +1,14 @@
 ## words-Dec.md ##  
 words/2023/words-Dec.md  
+Poker is a psychological **warfare**. -  
 Also, be mindful of how caffeine consumption increases your overall water intake needs, as it is a **diuretic**. -  
 She is a remarkably **adroit** and determined politician. -  
 Finally, the SU Committee **collated** the results and **drew up** a report. -  
 Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
-Such a **transformation** is a big deal. Becoming global money will not be a **walk in the park**, it will not come easy, it will face many, many **headwinds** and **corpses** will line the path along that journey. -  
-The United States is **hurtling** into the modern age. -  
 No, for some reason, we think of an academic. We think of somebody **scrawny**. -  
 Italy is even more generous to its **diaspora**. -  
 **retrench** expenditures. -  
 **kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
-This one goes out to my fellow "**bah humbugs**".   
 In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
 Newly rich consumers eager to **flaunt** their prosperity. -  
 
@@ -28,7 +26,6 @@ We could build our own **jetties** and do it using **lorries**. -
 He was **unabashed** by the **furore** his words provoked. -  
 We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
 She's the internet's **crustiest** kitten and, in the words of her owner, our fair "**icky** stinky queen." -  
-This 3½-month-old **Persian** kitten from Tampa Bay has **taken over** the internet with her **scroungy** **fur**, **clumsy** **gait** and sassy, **soprano** mews. -  
 He was a great **brawny** **brute** of a man. -  
 Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  
 

@@ -369,7 +369,7 @@ Spain is famous for its **bullfight**.
 **semisoft**.  
 
 She's the internet's **crustiest** kitten and, in the words of her owner, our fair "**icky** stinky queen." -  
-This 3½-month-old **Persian** kitten from Tampa Bay has **taken over** the internet with her **scroungy** **fur**, **clumsy** **gait** and sassy, **soprano** mews. -  
+This 3½-month-old **Persian** kitten from Tampa Bay has **taken over** the internet with her **scroungy** **fur**, **clumsy** **gait** and sassy, **soprano** mews.   
 
 
 **untapped** resources.  
