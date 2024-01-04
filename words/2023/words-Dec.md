@@ -1,4 +1,21 @@
 
+The US is woefully behind on high-speed rail.  
+Harvard's provost Alan Garber will serve as interim president.  
+
+
+It would have such a salutary effect.  
+
+
+off-the-record.  
+I accepted the author’s meat offerings in exchange for an off-the-record interview. I torpedoed questions his way between bites.   
+Long before he became a bitcoiner, Ammous was a carnivore.  
+low-carb diet.  
+
+wild goose chase.  
+Golden goose 
+
+It's woven in my soul, I need to let you go.  
+
 **flash in the pan**.  
 **featherweight** political issues.  
 
