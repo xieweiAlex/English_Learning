@@ -1,21 +1,30 @@
 
-The US is woefully behind on high-speed rail.  
-Harvard's provost Alan Garber will serve as interim president.  
+Never before had I heard a **venerated** businessperson express such **trenchant** insights about investing, finance, and the world more broadly, and with such—to use a favored Munger phrase—**chutzpah**.  
+**numerical fluency**.  
+
+> His essays **extol** the virtues of free enterprise, yes, but also of doing business the right way, with integrity and **rigor**. Of taking your work very seriously, but never yourself.  
+
+Which started humbly when a teenage Charlie took a job in Warren’s grandfather’s grocery store and **culminated** in the one of the most successful investing relationships of all time.  
+I am immensely grateful to Peter Kaufman for compiling this classic **tome**, and to Charlie Munger for his **irrefutable** wisdom and his gracious mentorship.  
+
+Seek a partner who will never **second-guess** you nor **sulk** when you make expensive mistakes.
+All of the above is **splendid** advice. (I’ve never scored less than an A in self-graded exams.)  
+follow it **slavishly**.  
+
+The US is **woefully** behind on high-speed rail.  
+Harvard's **provost** Alan Garber will serve as interim president.  
 
 
-It would have such a salutary effect.  
+It would have such a **salutary** effect.  
 
+I accepted the author’s meat offerings in exchange for an **off-the-record** interview. I **torpedoed** questions his way between bites.   
+**Long before** he became a bitcoiner, Ammous was a **carnivore**.  
+**low-carb diet**.  
 
-off-the-record.  
-I accepted the author’s meat offerings in exchange for an off-the-record interview. I torpedoed questions his way between bites.   
-Long before he became a bitcoiner, Ammous was a carnivore.  
-low-carb diet.  
+**wild goose chase**.  
+**Golden goose** 
 
-wild goose chase.  
-Golden goose 
-
-It's woven in my soul, I need to let you go.  
-
+It's **woven** in my soul, I need to let you go.  
 **flash in the pan**.  
 **featherweight** political issues.  
 
