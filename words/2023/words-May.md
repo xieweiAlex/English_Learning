@@ -332,7 +332,6 @@ Teeth have a hard surface layer called **enamel**.
 **telly**  
 **flute**, **fluting**  
 
-I **desiderate** the resources of a family.  
 
 Fiber does digestive **grunt work** but doesn't get the same **glamour** as vitamin D, calcium, and other nutrients.  
 In general, “dietary fiber” is an **umbrella term** for the parts of plants and other foods that your body can’t digest.  

@@ -1,4 +1,16 @@
 
+rape and pillage.  
+American stocks loiter near an all-time high.  
+We know what Seneca thought of Alexander the Great. We know what he thought of Marius. We know what he thought of entitled and gluttonous Romans. We have his seething satire of Claudius.  
+Again and again, the Stoics pored over the same texts. So the ideas could take firm hold. So they could be absorbed. So it could become muscle memory, infused into their DNA.  
+So you give yourself a mulligan and say that actually tomorrow is the real first day of the year.  
+
+
+I **desiderate** the resources of a family.  
+**prophet**, **prophesy**, **prophecy**
+**apocalyptic**, **apocalypse**, **Armageddon**
+
+
 Never before had I heard a **venerated** businessperson express such **trenchant** insights about investing, finance, and the world more broadly, and with such—to use a favored Munger phrase—**chutzpah**.  
 **numerical fluency**.  
 
