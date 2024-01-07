@@ -1,6 +1,22 @@
 
-That's a bastardization of our constitution.  
+## Week 1
 
+A **retroactive** pay increase.  
+
+
+London’s resilience is an **object lesson** in letting cities grow.  
+It would be nice if Bitcoiners saved their **vitriol** for the state and shitcoiners, rather than attacking Bitcoin-only companies like SwanBitcoin. -   
+**Milk jug**.  
+**pebble** bed.  
+The monster in the film **petrified** the baby.  
+
+**senile**, **presenile**, **frail**.  
+
+
+War, hunger and disease **stalk** Gaza’s 2.2m people.  
+
+Trump did nothing. It was among the worst **dereliction of duty** by a president in American history
+That's a **bastardization** of our constitution.  
 
 **unshackle**.  
 
