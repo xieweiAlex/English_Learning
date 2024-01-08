@@ -1,6 +1,20 @@
 
+
+Can anything stop Trump the sequel? He’d like you to think his chances of strutting back into the White House.  
+Perhaps AI is a busted flush. Perhaps the revolution will just take time.  
+
+
 ## Week 1
 
+double, triple, **quadruple**.  
+The boy was **enthralled** by the stories of adventure. -  
+
+**Lining it** with foil can **constrict** the air flow and your food won't cook properly.  
+
+Unemployment rate will continue to go up, it's still at a very low levels, but it has **turned the corner**.   
+This would be the **tail end** of it(rolling recession).  
+
+Cheese is surprisingly nutritious, **despite** its **iffy** reputation.  
 A **retroactive** pay increase.  
 
 

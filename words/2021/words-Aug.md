@@ -1,7 +1,6 @@
 
 ## Week 4  
 He was **reprimanded** for playing **truant**.  
-The boy was **enthralled** by the stories of adventure.  
 He was a **stand-in** for my regular doctor.  
 **Undivided attention**  
 The oldest **extant** document is dated 1492.  
