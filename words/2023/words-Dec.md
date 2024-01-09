@@ -1,5 +1,18 @@
 
-percolate, permeate, penetrate 
+Police formed a **cordon** between the two crowds.  
+leaf **succulent**.  
+
+
+**marshy waste land**. 
+**marsh**, **marshy land**, **wetland**.  
+
+**percolate**, **permeate**, **penetrate** 
+**percolate** water through sand
+
+> Percolate means to filter or pass through a porous material, such as water through coffee grounds.
+> Permeate means to spread or diffuse throughout, often referring to a liquid or gas passing through a solid substance.
+> Penetrate means to enter or pass through something, often with force or difficulty. It can also refer to understanding or making an impact on something.
+
 
 **tinder box** 
 The rocks **underfoot** are still soft.  
