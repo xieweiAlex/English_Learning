@@ -1,7 +1,38 @@
 
+percolate, permeate, penetrate 
 
-Can anything stop Trump the sequel? He’d like you to think his chances of strutting back into the White House.  
-Perhaps AI is a busted flush. Perhaps the revolution will just take time.  
+**tinder box** 
+The rocks **underfoot** are still soft.  
+
+Throughout the book, Charlie reveals his intellect, wit, values, and no end of rhetorical **flair**.  
+Using **self-deprecation** and imagination to great effect, Charlie cheerfully compares himself to a counting horse, proposes “Glotz’s Sugared, Caffeinated Water” as a **marketing-bereft** label for Coca-Cola, and attests, “At least when I was young, I wasn't a total **klutz**.”  
+**Inversion**.  
+He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information. -  
+**human foibles**.  
+Charlie has purposefully **sidestepped** the **limelight**, choosing relative anonymity instead.  
+Charlie’s formal education began at Dundee Elementary School, where he and his younger sisters, Mary and Carol, were **indoctrinated** with **ethical homilies**.  
+
+Charlie’s teachers remember a smart kid who was also inclined to be a bit of a **wiseacre**. -
+Today, he can’t remember the first time he was exposed to the aphorisms of Ben Franklin, but they fueled an **ineffaceable** admiration for the eclectic and eccentric **statesman** and inventor. -  
+By the time he was 14, the **precocious** learner had also become one of the doctor’s best friends.  
+Even at an early age, Charlie showed a **sagacious** negotiating ability and usually gained a bigger **specimen** or one with unusual coloring.  
+One of his sisters remembered years later that the family had to **endure** the **incessant** squeaking of hungry hamsters until Charlie arrived home from school to feed them.  
+Kids played kick the can on warm summer evenings and went to Saturday **matinees** to see the latest **talkies**, such as **King Kong**, a favorite of 8-year-old Charlie.  
+**hobos**.  
+
+His lack of an undergraduate degree threatened to derail him, but a family friend, former Harvard Law School dean Roscoe Pound, **interceded** on Charlie’s behalf. -  
+
+**Bell curve**, **top of the curve**.  
+Charlie was just in a hurry, and the **customary pleasantries** of the classroom were of little concern to him.  
+
+His **adored** son, Teddy, was **terminally** ill with **leukemia**.  
+Charlie’s **affinity** for Benjamin Franklin’s expansive career in government, business, finance, and industry can be found in his many speeches and whenever he holds an audience, large or small.  
+
+Charlie admires that trait in his mentor and strives to **emulate** Franklin.
+
+
+Can anything stop Trump the **sequel**? He’d like you to think his chances of **strutting** back into the White House. -  
+Perhaps AI is a **busted flush**. Perhaps the revolution will just take time.  
 
 
 ## Week 1
