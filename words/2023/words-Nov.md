@@ -56,7 +56,7 @@ Are we really set for **liftoff** in 2024? And if so, how should you invest?
 **in-your-face**.  
 **punch out**.  
 **stifle**, **stymie** .  
-We lived on the **breadline** to get our son through college. -  
+We lived on the **breadline** to get our son through college.   
 **bread and butter**  
 **break bread**.  
 **gold caps**, **psilocybin**, magic mushroom  
@@ -124,7 +124,7 @@ It's a deep understanding of how a **fringe** worldview, anti-American worldview
 
 **Risk adjusted returns**.  
 
-He’d written, “Marrying someone with a name that isn’t **conducive** to a wedding hashtag.” She found the answer **flippant** and—I’m quoting her Facebook post here—thought it represented “the downfall of millennial dating.” -  
+He’d written, “Marrying someone with a name that isn’t **conducive** to a wedding hashtag.” She found the answer **flippant** and—I’m quoting her Facebook post here—thought it represented “the downfall of millennial dating.”   
 
 **Precedential**, **unprecedented**  
 **gladden**, **madden**, **sadden**.  
@@ -296,7 +296,7 @@ chronic **renal** failure. -
 **dogfish**  
 **impervious**, **imperious**  
 **lampshade**  
-She's very **thorough** and **conscientious**. -  
+She's very **thorough** and **conscientious**.   
 **Exorcise**  
 **egghead**  
 **clammy**  
@@ -347,7 +347,7 @@ His parents kept a **round-the-clock** **vigil** at his bedside.
 
 We are getting **palpably** close to efficiently provable general computation.  
 
-He was **unabashed** by the **furore** his words provoked. -  
+He was **unabashed** by the **furore** his words provoked.   
 If those were the **accolades** collected over the course of an entire career, it’d be enough to put that writer up there with the all-time greats.  
 Meyer hit two **grand-slam** **home runs** with his first two at-bats.  
 We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  

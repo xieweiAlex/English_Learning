@@ -1,36 +1,52 @@
 
-You can't twirl your hair and make me tell you things.  
-Grand rapids.  
-China heaps pressure on Taiwan ahead of a big election.  
+
+> It marks an **inflection point** in Bitcoin’s adoption. For the first time ever, millions of investors will now have access to Bitcoin in traditional brokerage accounts and large institutions like financial advisors, pension funds, and endowments will now be able to gain exposure to the asset.  
 
 
+But trading volumes provide an incomplete picture because it doesn’t **delineate** between the dollar amount of inflows compared to outflows.  
+Over the long term, these ETFs will likely improve liquidity in the asset because they **enlarge** the investor base and there will likely be increased trading volumes as institutions execute arbitrage trades when there is a price **discrepancy** between the ETF and the underlying bitcoin  
+
+I don't want to **boast**, but I can actually speak six languages.  
+**boast**, **flaunt**, **brag**  
+
+These ETF issuers will **viciously** compete with one another for capital because, in the ETF world, liquidity is king.  
+
+Does Golden Globe success **presage** an Oscar?  
+By certain signs we may **presage** of heats and rains. -  
+The truth about Flight MH17 -- Investigating the crime that **presaged** the war in Ukraine  
+
+> If these unavoidable experience distress us, we become **playthings** of our environment.  
+
+You can't **twirl** your hair and make me tell you things.  
+**Grand rapids**.  
+China **heaps** pressure on Taiwan ahead of a big election.  
 Police formed a **cordon** between the two crowds.  
 leaf **succulent**.  
 
 
-**marshy waste land**. 
+**marshy waste land**.  
 **marsh**, **marshy land**, **wetland**.  
 
-**percolate**, **permeate**, **penetrate** 
-**percolate** water through sand
+**percolate**, **permeate**, **penetrate**  
+**percolate** water through sand  
 
-> Percolate means to filter or pass through a porous material, such as water through coffee grounds.
-> Permeate means to spread or diffuse throughout, often referring to a liquid or gas passing through a solid substance.
-> Penetrate means to enter or pass through something, often with force or difficulty. It can also refer to understanding or making an impact on something.
+> Percolate means to filter or pass through a porous material, such as water through coffee grounds.  
+> Permeate means to spread or diffuse throughout, often referring to a liquid or gas passing through a solid substance.  
+> Penetrate means to enter or pass through something, often with force or difficulty. It can also refer to understanding or making an impact on something.  
 
 
-**tinder box** 
+**tinder box**  
 The rocks **underfoot** are still soft.  
 
 Throughout the book, Charlie reveals his intellect, wit, values, and no end of rhetorical **flair**.  
-Using **self-deprecation** and imagination to great effect, Charlie cheerfully compares himself to a counting horse, proposes “Glotz’s Sugared, Caffeinated Water” as a **marketing-bereft** label for Coca-Cola, and attests, “At least when I was young, I wasn't a total **klutz**.”  
+Using **self-deprecation** and imagination to great effect, Charlie cheerfully compares himself to a counting horse, proposes “Glotz’s Sugared, Caffeinated Water” as a **marketing-bereft** label for Coca-Cola, and attests, “At least when I was young, I wasn't a total **klutz**." -  
 **Inversion**.  
 He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information. -  
 **human foibles**.  
 Charlie has purposefully **sidestepped** the **limelight**, choosing relative anonymity instead.  
 Charlie’s formal education began at Dundee Elementary School, where he and his younger sisters, Mary and Carol, were **indoctrinated** with **ethical homilies**.  
 
-Charlie’s teachers remember a smart kid who was also inclined to be a bit of a **wiseacre**. -
+Charlie’s teachers remember a smart kid who was also inclined to be a bit of a **wiseacre**. -  
 Today, he can’t remember the first time he was exposed to the aphorisms of Ben Franklin, but they fueled an **ineffaceable** admiration for the eclectic and eccentric **statesman** and inventor. -  
 By the time he was 14, the **precocious** learner had also become one of the doctor’s best friends.  
 Even at an early age, Charlie showed a **sagacious** negotiating ability and usually gained a bigger **specimen** or one with unusual coloring.  
@@ -46,21 +62,21 @@ Charlie was just in a hurry, and the **customary pleasantries** of the classroom
 His **adored** son, Teddy, was **terminally** ill with **leukemia**.  
 Charlie’s **affinity** for Benjamin Franklin’s expansive career in government, business, finance, and industry can be found in his many speeches and whenever he holds an audience, large or small.  
 
-Charlie admires that trait in his mentor and strives to **emulate** Franklin.
+Charlie admires that trait in his mentor and strives to **emulate** Franklin.  
 
 
 Can anything stop Trump the **sequel**? He’d like you to think his chances of **strutting** back into the White House. -  
 Perhaps AI is a **busted flush**. Perhaps the revolution will just take time.  
 
 
-## Week 1
+## Week 1  
 
 double, triple, **quadruple**.  
 The boy was **enthralled** by the stories of adventure. -  
 
 **Lining it** with foil can **constrict** the air flow and your food won't cook properly.  
 
-Unemployment rate will continue to go up, it's still at a very low levels, but it has **turned the corner**.   
+Unemployment rate will continue to go up, it's still at a very low levels, but it has **turned the corner**.  
 This would be the **tail end** of it(rolling recession).  
 
 Cheese is surprisingly nutritious, **despite** its **iffy** reputation.  
@@ -68,7 +84,7 @@ A **retroactive** pay increase.
 
 
 London’s resilience is an **object lesson** in letting cities grow.  
-It would be nice if Bitcoiners saved their **vitriol** for the state and shitcoiners, rather than attacking Bitcoin-only companies like SwanBitcoin. -   
+It would be nice if Bitcoiners saved their **vitriol** for the state and shitcoiners, rather than attacking Bitcoin-only companies like SwanBitcoin. -  
 **Milk jug**.  
 **pebble** bed.  
 The monster in the film **petrified** the baby.  
@@ -78,7 +94,7 @@ The monster in the film **petrified** the baby.
 
 War, hunger and disease **stalk** Gaza’s 2.2m people.  
 
-Trump did nothing. It was among the worst **dereliction of duty** by a president in American history
+Trump did nothing. It was among the worst **dereliction of duty** by a president in American history  
 That's a **bastardization** of our constitution.  
 
 **unshackle**.  
@@ -91,8 +107,8 @@ Again and again, the Stoics **pored over** the same texts. So the ideas could **
 So you give yourself a **mulligan** and say that actually tomorrow is the real first day of the year.  
 
 I **desiderate** the resources of a family.  
-**prophet**, **prophesy**, **prophecy**
-**apocalyptic**, **apocalypse**, **Armageddon**
+**prophet**, **prophesy**, **prophecy**  
+**apocalyptic**, **apocalypse**, **Armageddon**  
 
 Never before had I heard a **venerated** businessperson express such **trenchant** insights about investing, finance, and the world more broadly, and with such—to use a favored Munger phrase—**chutzpah**.  
 **numerical fluency**.  
@@ -102,7 +118,7 @@ Never before had I heard a **venerated** businessperson express such **trenchant
 Which started humbly when a teenage Charlie took a job in Warren’s grandfather’s grocery store and **culminated** in the one of the most successful investing relationships of all time.  
 I am immensely grateful to Peter Kaufman for compiling this classic **tome**, and to Charlie Munger for his **irrefutable** wisdom and his gracious mentorship.  
 
-Seek a partner who will never **second-guess** you nor **sulk** when you make expensive mistakes.
+Seek a partner who will never **second-guess** you nor **sulk** when you make expensive mistakes.  
 All of the above is **splendid** advice. (I’ve never scored less than an A in self-graded exams.)  
 follow it **slavishly**.  
 
@@ -112,12 +128,12 @@ Harvard's **provost** Alan Garber will serve as interim president.
 
 It would have such a **salutary** effect.  
 
-I accepted the author’s meat offerings in exchange for an **off-the-record** interview. I **torpedoed** questions his way between bites.   
+I accepted the author’s meat offerings in exchange for an **off-the-record** interview. I **torpedoed** questions his way between bites.  
 **Long before** he became a bitcoiner, Ammous was a **carnivore**.  
 **low-carb diet**.  
 
 **wild goose chase**.  
-**Golden goose** 
+**Golden goose**  
 
 It's **woven** in my soul, I need to let you go.  
 **flash in the pan**.  
@@ -157,7 +173,7 @@ It’s also completely different in a **paradigmatic** sense.
 To fix the **debauchery**, Bitcoin must **subsume** the debauchery and then slowly, like a virus (or in the case of Bitcoin, an anti-virus), infect the hosts and begin to change them.  
 
 **limp to the pot**.  
-Poker is a psychological **warfare**. -  
+Poker is a psychological **warfare**.   
 **aforementioned**.  
 **Go out on a limb** and give it a shot.  
 
@@ -181,7 +197,7 @@ When milk begins to spoil, it develops an unpleasant, **rancid odor**. The scent
 Dual n-back training is a cognitive exercise where you’re required to remember and recall both visual and **auditory** stimuli.  
 
 Higher protein diets provide more **satiety** than lower protein diets, which helps **keep hunger at bay**.  
-Also, be mindful of how caffeine consumption increases your overall water intake needs, as it is a **diuretic**. -  
+Also, be mindful of how caffeine consumption increases your overall water intake needs, as it is a **diuretic**.   
 
 Many people **slam their foot on the gas** and give up after a couple of weeks.  
 I'm literally **in shambles** right now.  
@@ -252,12 +268,12 @@ The **capstone** in **Maslow**'s hierarchy, it is reaching your potential.
 **grave**.  
 **kowtow**.  
 
-Such a **transformation** is a big deal. Becoming global money will not be a **walk in the park**, it will not come easy, it will face many, many **headwinds** and **corpses** will line the path along that journey.   
+Such a **transformation** is a big deal. Becoming global money will not be a **walk in the park**, it will not come easy, it will face many, many **headwinds** and **corpses** will line the path along that journey.  
 
 **Cardinal numbers** count objects, while **ordinal numbers** indicate the position of objects in a list.  
 Spears **hurtled** against **shields**.  
 I **hurtled** down the path, trusting to luck that I wouldn't **put a foot wrong**.  
-The United States is **hurtling** into the modern age.   
+The United States is **hurtling** into the modern age.  
 We should **winnow out** the errors in logic.  
 women **winnow** the **chaff** from piles of unhusked rice.  
 
@@ -375,7 +391,7 @@ Nero, for instance, demanded that enormous audiences celebrate his greatness. Th
 
 we should be routinely **peering ahead**, planning for the unexpected, running these war games–to **lessen** the strength of the **blow** before it lands.  
 
-Italy is even more generous to its **diaspora**. -  
+Italy is even more generous to its **diaspora**.   
 But the **diaspora** provides more than just money.  
 **release valve**.  
 
@@ -447,7 +463,7 @@ You're about to **detonate** a bomb in someone else's life.
 
 China supplies about one-third of US **graphite** imports, according to the US Geological Survey, and it’s the world’s leading graphite producer.  
 
-This one goes out to my fellow "**bah humbugs**".   
+This one goes out to my fellow "**bah humbugs**".  
 **crabby**, **crusty**, **cranky**, **edgy**  
 
 How many people spend an enormous amount to keep up their estates, but then let their brain fall into **disrepair**.  
@@ -484,13 +500,13 @@ He wasn't able to follow his own **precepts**, in terms of keeping an open mind
 **spherical**, **sphere**  
 **negligence**.  
 His **tightfisted** employer is unwilling to give him a raise.  
-In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love. -  
+In Hollywood's **pagan** **pantheon**, **Marilyn Monroe** is the Goddess of Love.   
 
 **lavishly**.  
 **voluptuous** .  
 **sling-back**, **sandals** .  
 He is very **sceptical** about the value of **rote learning**.  
-Newly rich consumers eager to **flaunt** their prosperity. -  
+Newly rich consumers eager to **flaunt** their prosperity.   
 **Gothic** style/architecture.  
 
 ## Conversation  

@@ -215,7 +215,7 @@ You **start off** with a **zoom out view** and you see something that look like 
 
 **Mauritian**.  
 **far from obvious**.  
-there is a huge **latent** desire in the population to understand Bitcoin. -  
+there is a huge **latent** desire in the population to understand Bitcoin.   
 **latent** vs **potential**  
 
 **emote**  

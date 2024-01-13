@@ -94,7 +94,7 @@ The **budgetary** **standoff** in the U.S. doesn't look like it will **abate** s
 
 **captive agent** vs independent agent  
 
-The **heft** of the box surprised me; it was heavier than I expected. -  
+The **heft** of the box surprised me; it was heavier than I expected.   
 A **pestilence** **overhangs** the country.  
 He could **mesmerize** an audience by the sheer force of his presence.  
 **sideburns**  

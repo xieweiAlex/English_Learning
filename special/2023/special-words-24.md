@@ -1,4 +1,9 @@
 
+
+**delineate**
+
+**affinity**
+
 **despite**
 
 ## Dec 
