@@ -1,4 +1,9 @@
 
+**painstakingly**
+
+**adversarial**
+
+**blaring**
 
 **delineate**
 

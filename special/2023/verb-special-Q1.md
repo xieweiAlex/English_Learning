@@ -1,11 +1,4 @@
 
-**fiddle**
-
-**charge** 
-
-**perpetuate**
-
-
 ## Dec 
 
 **latch**, **hitch**

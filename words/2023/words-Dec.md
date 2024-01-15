@@ -1,4 +1,73 @@
 
+## Week 2
+
+Charlie is content to swim **imperturbably** against the tide of popular opinion. -  
+Most especially his appetite for hard work, but also his insatiable curiosity and patient **demeanor**.
+Charlie’s approach to investing is quite different from the more **rudimentary** systems used by most investors.  
+The **unassailable** logic of Charlie’s ecosystem approach to investment analysis.  
+Other times the factors employed combine to create enormous “**lollapalooza**-level” results, good or bad. -  
+It is this **signature approach**, backed by Charlie’s formidable intellect, temperament, and decades of relevant experience, that have made him the virtuoso of business pattern recognition so valued by Buffett.  
+His clarity is **hard-won**, the product of a lifetime of studying the patterns of human behavior, business systems, and a **myriad** of other scientific disciplines.  
+
+> few investors share Charlie’s willingness to appear foolish by not following the herd.  
+
+As we shall witness throughout the **remainder** of this book, the right kind of genetically **predetermined** wiring is needed as well.  
+Charlie generally focuses first on what to avoid—that is, on what not to do—before he considers the **affirmative** steps he will take in a given situation.  
+“All I want to know is where I’m going to die, so I’ll never go there” is one of his favorite quips.  
+**chessboard**.  
+
+his carefully identified **circles of competence**.  
+
+> To stay within these circles, he first applies a basic, overall screen, designed to limit his investment field to only “simple, understandable candidates.” As he says, “We have three baskets for investing: yes, no, and too tough to understand.”  
+
+> It’s kind of fun to sit there and **outthink** people who are way smarter than you are because you’ve trained yourself to be more objective and more multidisciplinary. Furthermore, there is a lot of money in it, as I can testify from my own personal experience.
+
+
+**winnow**.  
+Charlie **detests** placer mining, the process of sifting through piles of sand for specks of gold. -  
+Charlie refers to a company’s competitive advantage as its moat: the virtual physical barrier it presents against **incursions**.  
+
+> While poor outcomes are **excusable** in the Munger–Buffett world—given the fact that some outcomes are outside of their control—**sloppy** preparation and decision-making are never excusable because they are controllable.  
+
+Such behavior implies uncertainty, and Charlie’s moves, few as they are, are **anything but uncertain**.  
+When this theme is **extrapolated** into investment selection, the preferred Munger business emerges: some thrive by outcompeting (à la Selfish Gene) and others by out-cooperating (à la Darwin’s Blind Spot).  
+Rather, each must be considered as part of the complex whole or **gestalt** of the investment analysis process, in much the same way that an individual tile is **integral to** the **larger mosaic** in which it appears. -  
+
+Avoid big mistakes; **shun** permanent capital loss.  
+
+> **Mimicking** the herd invites **regression to the mean**.  
+Like his hero, Benjamin Franklin, Charlie Munger **painstakingly** developed and perfected unique approaches to personal and business endeavors.  
+
+Do not just **spout** marketing **spiel** or you will quickly lose followers. -  
+Let's **clear the air** so to speak. 
+Quagmire just sort of **goes off on** Brian.  
+
+Tim could barely **conceal** his disappointment. -  
+Do Chinese Citizens **Conceal** Opposition to the CCP in Surveys?  
+
+> A confession: most of my bogs are imaginary. The world doesn’t stick me there; I stick me there. These are, paradoxically, the most difficult bogs to escape, because it requires realizing that my perception of reality is not reality, and a lot of the mind is dedicated to preventing that exact thought. 
+
+**fits and starts**.  
+I only need a few more experience points to **level up**.   
+
+**synopsis**  
+**upheaval**  
+**martinet**  
+Your love for me is a natural **anti-depressant**.  
+**tip off**.  
+**Dysbiosis**  
+
+The fact that my father shares many of these qualities, even if he’s not known for his **discernment** about produce, does not fully explain my attachment to this light, **deft**, and anecdotal little book.  
+
+He had told us often funny stories of people who either followed the group too blindly or **lashed out** too **reflexively**. “Crazy,” “**maladjusted**,” “pompous,” “self-satisfied”—we knew from his adjectives what he thought we should avoid.  
+
+In both instances, he appears blunt and **avuncular**—that inimitable Charlie—but at the card table, he uses **a lack of indirection** for **harmless ribbing**, and at the dinner table, he uses indirection  
+Even if he didn’t recognize himself in it, I figured he would enjoy the book’s Midwestern **milieu**, the immigrant striving of the Trillin family, and the humor. -  
+He once said that he was **nonconformist** enough in his behavior and opinions that it made sense to chart a very straight course in **attire**.  
+His going along with normal social customs and his sense of humor, he said, were what allowed his otherwise sometimes **prickly** temperament to harmonize with other people.  
+
+**sartorial**
+As I walked home from the Bodleian Library each night, that nasty, **damp**, **penetrating** English cold would not get through.  
 
 > It marks an **inflection point** in Bitcoin’s adoption. For the first time ever, millions of investors will now have access to Bitcoin in traditional brokerage accounts and large institutions like financial advisors, pension funds, and endowments will now be able to gain exposure to the asset.  
 
