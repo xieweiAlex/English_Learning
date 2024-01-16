@@ -1,4 +1,61 @@
 
+
+
+
+**whittle down** your existing library backlog.  
+
+
+**High/low signal**
+
+We've a lot to talk about, so **gird your proverbial loins**.  
+
+
+Inflation, partisanship and the pandemic have made them **glummer** than the numbers suggest they should feel.  
+Donald Trump’s Iowa operation suggests his campaign will be **formidable**.  
+I can’t decide whether to envy reporters **traipsing** around Iowa at the moment.   
+ As we reported recently, in contrast, Donald Trump is mounting a formidable campaign in Iowa and beyond.  
+**arctic** chill  
+**foul-mouthed**.  
+So, with an eye on securing the commercial future of The Economist, I invite you to send me your own original **couplets** or other **verse** (max five short lines) on the theme of what 2024 will bring.  
+
+**pamphlet**, **brochure**, **booklet**  
+
+
+### Talk 1 
+
+In a **vow** that students the world over may hope he **renounces**, Charlie delivered “the one and only graduation speech I will ever make” in 1986 at the Harvard School in Los Angeles.  
+
+**The occasion** was the graduation of Philip Munger, the last of five Munger family sons to **matriculate** at this **prep school** (originally an all-boys institution and now the **coeducational** school called Harvard-Westlake).  
+
+Despite Charlie’s **self-effacing** protestations.  
+For those of you who want to remain unenlightened and **mirthless**, do not, under any circumstances, read this selection. -  
+
+But whatever the topic, Charlie is **apt** to tell it like it is, which is exactly what he has done in over two decades of public speaking.  
+Now that Headmaster Berrisford has selected one of the oldest and longest-serving trustees to make a **commencement speech**, **it behooves** the speaker to address two questions in every mind. -  
+
+Benjamin Disraeli,78 as he rose to become one of the greatest prime ministers, learned to give up **vengeance** as a motivation for action, but he did retain some **outlet** for resentment by putting the names of people who wronged him on pieces of paper in a drawer.  
+
+> Then, from time to time, he reviewed these names and took pleasure in noting the way the world had taken his enemies down without his assistance.
+
+once the richest king in the world. Later, in **ignominious** captivity, as he prepared to be burned alive, he said, “Well now do I remember the words of the historian Solon: ‘No man’s life should be accounted a happy one until it is over.’  (盖棺定论)  
+
+My second prescription for misery is to learn everything you possibly can from your own experience, minimizing what you learn **vicariously** from the good and bad experiences of others, living and dead. This prescription is a sure-shot producer of misery and second-rate achievement.
+How little **originality** there is in the common disasters of mankind: drunk driving deaths, reckless driving **maimings**, **incurable** **venereal** diseases. -  
+The other aspect of avoiding **vicarious wisdom** is the rule of not learning from the best work done before yours. -  
+Because there is so much adversity out there, even for the lucky and wise, this will guarantee that, **in due course**, you will be permanently mired in misery.  
+If my experience is any guide, the rustic’s approach is to be avoided at all cost by someone **bent on** misery.
+
+> as Carson and was known for his constant repetition of one phrase: “Invert, always invert.”  
+
+> To the class of 1986: Gentlemen, may each of you rise by spending each day of a long life aiming low.
+
+
+### Talk 2 
+**Dissecting** business management, he brilliantly describes psychological impacts that can damage or benefit a firm.
+
+
+
+
 ## Week 2
 
 Charlie is content to swim **imperturbably** against the tide of popular opinion. -  
