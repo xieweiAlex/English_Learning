@@ -2,8 +2,6 @@
 
 **strip**
 
-**detest**
-
 **conceal** 
 
 **fiddle**

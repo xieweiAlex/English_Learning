@@ -1,4 +1,6 @@
 
+**well-meaning**
+**Detest**: It implies a strong feeling of aversion or **repugnance**, and it may be used when one finds something morally offensive or **abhorrent**.
 
 ## Talk 2  
 **Dissecting** business management, he brilliantly describes psychological impacts that can damage or benefit a firm.  

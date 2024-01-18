@@ -2,6 +2,7 @@
 
 Expanding vocabulary for a non native-speaker is taxing and time-consuming. I try to jot down the **words or phrases** I encounter day to day with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight. If it can inspire someone else, that's even better 💖.  
 
+
 [Words Review](./words-review.md)
 
 <!-- sync.sh -->
