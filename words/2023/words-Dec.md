@@ -1,6 +1,16 @@
 
+His attendance record was spotty.  
+She was rather fat, and her complexion was spotty.  
 
+Don't talk such **drivel**! -  
+**imposture** . 
+Don't **make a mountain out of molehill**.  
+U.N. officials **decried** the bombing and shelling and said they needed calm. -  
+**nonentity** . 
+financial **distress**. 
+She was obviously **in distress** after the attack.  
 
+With 40% of the **precincts** reporting, Donald Trump leads with 52.5% of the vote.  
 
 **whittle down** your existing library backlog.  
 
