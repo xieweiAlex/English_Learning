@@ -3,16 +3,14 @@
 ## Talk 2  
 **Dissecting** business management, he brilliantly describes psychological impacts that can damage or benefit a firm.  
 
-So, emphasizing what I sometimes waggishly call remedial worldly wisdom, I’m going to start by waltzing you through a few basic notions.  
-I don’t think it’s necessary for most people to be terribly facile in statistics.  
-The notion of a critical mass—that comes out of physics—is a very powerful model.  
-It’s just been dolled up a little bit with fancy lingo.  
-Then, when you get into psychology, of course, it gets very much more complicated. But it’s an ungodly important subject if you’re going to have any worldly wisdom.  
+So, emphasizing what I sometimes **waggishly** call **remedial** worldly wisdom, I’m going to start by **waltzing** you through a few basic notions.  
+I don’t think it’s necessary for most people to be terribly **facile** in statistics.  
+The **notion** of a critical mass—that comes out of physics—is a very powerful model.  
+It’s just been **dolled up** a little bit with fancy **lingo**.  
+Then, when you get into psychology, of course, it gets very much more complicated. But it’s an **ungodly** important subject if you’re going to have any worldly wisdom.  
 
-
-His attendance record was spotty.  
-She was rather fat, and her complexion was spotty.  
-
+His attendance record was **spotty**.  
+She was **rather fat**, and her **complexion** was **spotty**.  
 Don't talk such **drivel**! -  
 **imposture** .  
 Don't **make a mountain out of molehill**.  
@@ -22,23 +20,21 @@ financial **distress**.
 She was obviously **in distress** after the attack.  
 
 With 40% of the **precincts** reporting, Donald Trump leads with 52.5% of the vote.  
-strapping machine.  
-He was a big strapping guy but short on brains.  
-I'm not wheezing. I'm just a little short of breath.  
+**strapping machine**.  
+He was a big **strapping** guy but short on brains.  
+I'm not **wheezing**. I'm just a little short of breath.  
 Vitamin c, which is also known as **ascorbic acid**, is one of the most powerful anti-oxidants.  
 
 **whittle down** your existing library backlog.  
 
 
 **High/low signal**  
-
 We've a lot to talk about, so **gird your proverbial loins**.  
-
 
 Inflation, partisanship and the pandemic have made them **glummer** than the numbers suggest they should feel.  
 Donald Trump’s Iowa operation suggests his campaign will be **formidable**.  
 I can’t decide whether to envy reporters **traipsing** around Iowa at the moment.  
-As we reported recently, in contrast, Donald Trump is mounting a formidable campaign in Iowa and beyond.  
+As we reported recently, in contrast, Donald Trump is **mounting** a **formidable** campaign in Iowa and beyond.  
 **arctic** chill  
 **foul-mouthed**.  
 So, with an eye on securing the commercial future of The Economist, I invite you to send me your own original **couplets** or other **verse** (max five short lines) on the theme of what 2024 will bring.  

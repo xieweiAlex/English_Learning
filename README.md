@@ -10,6 +10,10 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 <!-- Readme -->
 
 ### 2024 
+
+[Special words](./special/2024/special-words-24.md) |
+[Special Verbs](./special/2024/verb-24.md) |
+
 [Jan Words](./words/2024/words-Jan-24.md) |
 
 ### 2023
