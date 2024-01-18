@@ -1,5 +1,18 @@
-## words-Dec.md ##  
-words/2023/words-Dec.md  
+## words-Jan-24.md ##  
+words/2024/words-Jan-24.md  
+Don't talk such **drivel**! -  
+U.N. officials **decried** the bombing and shelling and said they needed calm. -  
+For those of you who want to remain unenlightened and **mirthless**, do not, under any circumstances, read this selection. -  
+Now that Headmaster Berrisford has selected one of the oldest and longest-serving trustees to make a **commencement speech**, **it behooves** the speaker to address two questions in every mind. -  
+How little **originality** there is in the common disasters of mankind: drunk driving deaths, reckless driving **maimings**, **incurable** **venereal** diseases. -  
+The other aspect of avoiding **vicarious wisdom** is the rule of not learning from the best work done before yours. -  
+Charlie is content to swim **imperturbably** against the tide of popular opinion. -  
+Other times the factors employed combine to create enormous “**lollapalooza**-level” results, good or bad. -  
+Charlie **detests** placer mining, the process of sifting through piles of sand for specks of gold. -  
+Rather, each must be considered as part of the complex whole or **gestalt** of the investment analysis process, in much the same way that an individual tile is **integral to** the **larger mosaic** in which it appears. -  
+Do not just **spout** marketing **spiel** or you will quickly lose followers. -  
+Tim could barely **conceal** his disappointment. -  
+Even if he didn’t recognize himself in it, I figured he would enjoy the book’s Midwestern **milieu**, the immigrant striving of the Trillin family, and the humor. -  
 By certain signs we may **presage** of heats and rains. -  
 Using **self-deprecation** and imagination to great effect, Charlie cheerfully compares himself to a counting horse, proposes “Glotz’s Sugared, Caffeinated Water” as a **marketing-bereft** label for Coca-Cola, and attests, “At least when I was young, I wasn't a total **klutz**." -  
 He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information. -  
@@ -9,6 +22,9 @@ His lack of an undergraduate degree threatened to derail him, but a family frien
 Can anything stop Trump the **sequel**? He’d like you to think his chances of **strutting** back into the White House. -  
 The boy was **enthralled** by the stories of adventure. -  
 It would be nice if Bitcoiners saved their **vitriol** for the state and shitcoiners, rather than attacking Bitcoin-only companies like SwanBitcoin. -  
+
+## words-Dec.md ##  
+words/2023/words-Dec.md  
 She is a remarkably **adroit** and determined politician. -  
 Finally, the SU Committee **collated** the results and **drew up** a report. -  
 Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
