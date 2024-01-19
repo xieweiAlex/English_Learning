@@ -1,6 +1,8 @@
 
-charge-off . 
-8 ball.  
+Thailand: Man jailed for 50 years for defaming monarchy.  
+
+**charge-off** . 
+**8 ball**.  
 
 "vi" and "vt" are abbreviations for **intransitive** and **transitive** verbs, respectively.  
 "The UK's Digital Markets, Competition and Consumer Bill must put an end to this false posturing, which is essentially a recreation of Apple's fees.  
