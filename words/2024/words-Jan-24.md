@@ -1,4 +1,18 @@
 
+charge-off . 
+8 ball.  
+
+"vi" and "vt" are abbreviations for **intransitive** and **transitive** verbs, respectively.  
+"The UK's Digital Markets, Competition and Consumer Bill must put an end to this false posturing, which is essentially a recreation of Apple's fees.  
+
+
+Spotify has launched an outspoken attack on new transaction fees of up to 27% being levied by Apple in the US.  
+On Wednesday, Apple announced it would permit app developers to sell products in places other than its own store - but only if they still paid commission.  
+Spotify said that was "outrageous" and accused Apple of "stopping at nothing" to protect its profits.  
+Spotify has reacted with **fury**, saying the policy "**flies in the face**" of the US court's attempt to enable greater competition.  
+"Once again, Apple has demonstrated that they will stop at nothing to protect the profits they exact on the backs of developers and consumers under their app store monopoly," it said in a statement.  
+
+
 **well-meaning**
 **Detest**: It implies a strong feeling of aversion or **repugnance**, and it may be used when one finds something morally offensive or **abhorrent**.
 
