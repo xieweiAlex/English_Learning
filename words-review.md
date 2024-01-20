@@ -1,5 +1,7 @@
 ## words-Jan-24.md ##  
 words/2024/words-Jan-24.md  
+My dear friend Scott and his **intrepid** son. -  
+> If you play games where other people have the **aptitudes** and you don’t, you’re going to lose. -  
 Don't talk such **drivel**! -  
 U.N. officials **decried** the bombing and shelling and said they needed calm. -  
 For those of you who want to remain unenlightened and **mirthless**, do not, under any circumstances, read this selection. -  

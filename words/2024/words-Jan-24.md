@@ -1,29 +1,39 @@
 
+Correct your mistake the moment you realize it and don't try to **gloss over** it.  
+A **moth-eaten** phrase.  
 
+My eyes are probably **darting** around.  
 
+I figured, why eat when I was going to **puke it up** again?  
+Fidelity finally **edged out** BlackRock with 177 million of inflows compared to 145 million by BlackRock.  
+melting **ice cube**.  
 
-My dear friend Scott and his intrepid son.  
+Trump **edges out** Nikki Haley for Tim Scott’s endorsement.  
 
-**in fact**
+But is it the **spire** or is it an **antenna**?  
+**rote learning**.  
+**dysbiosis**.  
 
-Thailand: Man jailed for 50 years for defaming monarchy.  
+My dear friend Scott and his **intrepid** son. -  
+**in fact**  
 
-**charge-off** . 
+Thailand: Man jailed for 50 years for defaming **monarchy**.  
+
+**charge-off** .  
 **8 ball**.  
 
 "vi" and "vt" are abbreviations for **intransitive** and **transitive** verbs, respectively.  
 "The UK's Digital Markets, Competition and Consumer Bill must put an end to this false posturing, which is essentially a recreation of Apple's fees.  
 
 
-Spotify has launched an outspoken attack on new transaction fees of up to 27% being levied by Apple in the US.  
-On Wednesday, Apple announced it would permit app developers to sell products in places other than its own store - but only if they still paid commission.  
-Spotify said that was "outrageous" and accused Apple of "stopping at nothing" to protect its profits.  
+Spotify has launched an **outspoken** attack on new transaction fees of up to 27% being **levied** by Apple in the US.  
+On Wednesday, Apple announced it would **permit** app developers to sell products in places other than its own store - but **only if** they still **paid** commission.  
+Spotify said that was "outrageous" and accused Apple of "**stopping at nothing**" to protect its profits.  
 Spotify has reacted with **fury**, saying the policy "**flies in the face**" of the US court's attempt to enable greater competition.  
-"Once again, Apple has demonstrated that they will stop at nothing to protect the profits they exact on the backs of developers and consumers under their app store monopoly," it said in a statement.  
+"Once again, Apple has demonstrated that they will **stop at nothing** to protect the profits they **exact on** the backs of developers and consumers under their app store monopoly," it said in a statement.  
 
-
-**well-meaning**
-**Detest**: It implies a strong feeling of aversion or **repugnance**, and it may be used when one finds something morally offensive or **abhorrent**.
+**well-meaning**  
+**Detest**: It implies a strong feeling of aversion or **repugnance**, and it may be used when one finds something morally offensive or **abhorrent**.  
 
 ## Talk 2  
 **Dissecting** business management, he brilliantly describes psychological impacts that can damage or benefit a firm.  
@@ -34,20 +44,26 @@ The **notion** of a critical mass—that comes out of physics—is a very powerf
 It’s just been **dolled up** a little bit with fancy **lingo**.  
 Then, when you get into psychology, of course, it gets very much more complicated. But it’s an **ungodly** important subject if you’re going to have any worldly wisdom.  
 
-He also had a very interesting competitive strategy in the early days. He was like a prizefighter who wanted a great record so he could be in the finals and make a big TV hit. So what did he do? He went out and fought 42 palookas. Right? And the result was knockout, knockout, knockout—42 times.  
-But it just wasn’t as lean and mean and shrewd and effective as Sam Walton. And, in due time, all Sears’s advantages of scale were not enough to prevent it from losing heavily to Walmart and other, similar retailers.  
-He was thinking, “It’s a lousy business. We’re earning substandard returns and keeping it open just to be nice to the elderly workers. But we’re not going to put huge amounts of new capital into a lousy business.”  
-However, Berkshire Hathaway, by and large, does not invest in these people who are surfing on complicated technology. After all, we’re cranky and idiosyncratic, as you may have noticed.  
-efficient market theory . 
+He also had a very interesting competitive strategy in the early days. He was like a **prizefighter** who wanted a great record so he could be in the finals and make a big TV hit. So what did he do? He went out and fought 42 **palookas**. Right? And the result was knockout, knockout, knockout—42 times.  
+But it just wasn’t as **lean and mean** and **shrewd** and effective as Sam Walton. And, in due time, all Sears’s advantages of scale were not enough to prevent it from losing heavily to Walmart and other, similar retailers.  
+He was thinking, “It’s a lousy business. We’re earning **substandard** returns and keeping it open just to be nice to the elderly workers. But we’re not going to put huge amounts of new capital into a **lousy** business.”  
+However, Berkshire Hathaway, **by and large**, does not invest in these people who are **surfing** on complicated technology. **After all**, we’re **cranky** and **idiosyncratic**, as you may have noticed.  
+**efficient market theory**.  
 
-> If you play games where other people have the aptitudes and you don’t, you’re going to lose
+> If you play games where other people have the **aptitudes** and you don’t, you’re going to lose. -  
 
-The model I like—to sort of simplify the notion of what goes on in a market for common stocks—is the pari-mutuel system122 at the racetrack.  
+The model I like—to sort of simplify the notion of what goes on in a market for common stocks—is the **pari-mutuel** system122 at the **racetrack**.  
 
-But it is given to human beings who work hard at it—who look and sift the world for a mispriced bet—that they can occasionally find one.  
+But it is given to human beings who work hard at it—who look and **sift** the world for a mispriced bet—that they can occasionally find one.  
 
-They tried everything—moral suasion, threats, you name it.  
-We didn’t have any clients who could fire us at Berkshire Hathaway. So we didn’t have to be governed by any such construct. And we came to this notion of finding a mispriced bet and loading up when we were very confident that we were right. So we’re way less diversified. And I think our system is miles better.  
+They tried everything—moral **suasion**, threats, you name it.  
+
+> We didn’t have any clients who could fire us at Berkshire Hathaway. So we didn’t have to be governed by any such construct. And we came to this **notion** of finding a **mispriced** bet and **loading up** when we were very confident that we were right. So we’re way less diversified. And I think our system is miles better.  
+
+
+> Getting the incentive right is a very very important lesson.  
+
+He also had a concept that management would often **couch** the information very shrewdly to mislead. Therefore, it was very difficult. And that is still true, of course, human nature being what it is.  
 
 
 
