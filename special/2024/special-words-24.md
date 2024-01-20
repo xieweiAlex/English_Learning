@@ -1,4 +1,8 @@
 
+shrewd
+
+attainable
+
 **painstakingly**
 
 **adversarial**

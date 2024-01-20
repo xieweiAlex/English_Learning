@@ -1,4 +1,11 @@
 
+
+
+
+My dear friend Scott and his intrepid son.  
+
+**in fact**
+
 Thailand: Man jailed for 50 years for defaming monarchy.  
 
 **charge-off** . 
@@ -26,6 +33,23 @@ I don’t think it’s necessary for most people to be terribly **facile** in st
 The **notion** of a critical mass—that comes out of physics—is a very powerful model.  
 It’s just been **dolled up** a little bit with fancy **lingo**.  
 Then, when you get into psychology, of course, it gets very much more complicated. But it’s an **ungodly** important subject if you’re going to have any worldly wisdom.  
+
+He also had a very interesting competitive strategy in the early days. He was like a prizefighter who wanted a great record so he could be in the finals and make a big TV hit. So what did he do? He went out and fought 42 palookas. Right? And the result was knockout, knockout, knockout—42 times.  
+But it just wasn’t as lean and mean and shrewd and effective as Sam Walton. And, in due time, all Sears’s advantages of scale were not enough to prevent it from losing heavily to Walmart and other, similar retailers.  
+He was thinking, “It’s a lousy business. We’re earning substandard returns and keeping it open just to be nice to the elderly workers. But we’re not going to put huge amounts of new capital into a lousy business.”  
+However, Berkshire Hathaway, by and large, does not invest in these people who are surfing on complicated technology. After all, we’re cranky and idiosyncratic, as you may have noticed.  
+efficient market theory . 
+
+> If you play games where other people have the aptitudes and you don’t, you’re going to lose
+
+The model I like—to sort of simplify the notion of what goes on in a market for common stocks—is the pari-mutuel system122 at the racetrack.  
+
+But it is given to human beings who work hard at it—who look and sift the world for a mispriced bet—that they can occasionally find one.  
+
+They tried everything—moral suasion, threats, you name it.  
+We didn’t have any clients who could fire us at Berkshire Hathaway. So we didn’t have to be governed by any such construct. And we came to this notion of finding a mispriced bet and loading up when we were very confident that we were right. So we’re way less diversified. And I think our system is miles better.  
+
+
 
 His attendance record was **spotty**.  
 She was **rather fat**, and her **complexion** was **spotty**.  
