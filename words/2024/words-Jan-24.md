@@ -1,10 +1,12 @@
 
+DeSantis entered the 2024 campaign widely viewed as former President Trump’s most formidable opponent, but early **missteps** and strategic errors **hampered** his effort.  
+
 ## Week 3  
 
 **equinimity**.  
 **groundswell**.  
-Aspirin is a mild analgesic.  
-He made one mistake and his career came to an ignominious end.  
+Aspirin is a mild **analgesic**.  
+He made one mistake and his career came to an **ignominious** end.  
 
 **cognitive distortion**.  
 **all or nothing thinking**.  
@@ -26,7 +28,6 @@ For example, you can only be insulted if you accept the insult. Other options ar
 
 Correct your mistake the moment you realize it and don't try to **gloss over** it.  
 A **moth-eaten** phrase.  
-
 My eyes are probably **darting** around.  
 
 I figured, why eat when I was going to **puke it up** again?  
@@ -35,7 +36,7 @@ melting **ice cube**.
 
 Trump **edges out** Nikki Haley for Tim Scott’s endorsement.  
 
-But is it the **spire** or is it an **antenna**?  
+But is it the **spire** or is it an **antenna**? -  
 **rote learning**.  
 **dysbiosis**.  
 
@@ -48,8 +49,7 @@ Thailand: Man jailed for 50 years for defaming **monarchy**.
 **8 ball**.  
 
 "vi" and "vt" are abbreviations for **intransitive** and **transitive** verbs, respectively.  
-"The UK's Digital Markets, Competition and Consumer Bill must put an end to this false posturing, which is essentially a recreation of Apple's fees.  
-
+"The UK's Digital Markets, Competition and Consumer Bill must put an end to this **false posturing**, which is essentially a recreation of Apple's fees.  
 
 Spotify has launched an **outspoken** attack on new transaction fees of up to 27% being **levied** by Apple in the US.  
 On Wednesday, Apple announced it would **permit** app developers to sell products in places other than its own store - but **only if** they still **paid** commission.  

@@ -111,3 +111,21 @@ They tried everything—moral **suasion**, threats, you name it.
 > Getting the incentive right is a very very important lesson.  
 
 He also had a concept that management would often **couch** the information very shrewdly to mislead. Therefore, it was very difficult. And that is still true, of course, human nature being what it is.  
+
+
+### Talk 3 
+It can’t be emphasized too much that issues of morality are deeply **entwined** with worldly wisdom considerations involving psychology.  
+
+> It’s very, very important to create human systems that are hard to cheat. Otherwise, you’re ruining your civilization, because these big incentives will create incentive-caused bias and people will rationalize that bad behavior is okay  
+
+> The reason we’re not in high-tech businesses is that we have a special lack of aptitude in that area. And yes—a low-tech business can be plenty hard. Just try to open a restaurant and make it succeed.
+
+Disney is an amazing example of autocatalysis. They had all those movies in the can.  
+They owned the copyright. And just as Coke could **prosper** when refrigeration came, when the **videocassette** was invented, Disney didn't have to invent anything or do anything except take the thing out of the can and stick it on the **cassette**.  
+
+> On the other hand, in copying Jack Welch, I am trying to teach you something. When you don’t know and you don’t have any special competence, don’t be afraid to say so.  
+
+> But I’m always asked this question: “Spoon-feed me what you know.” And, of course, what they’re often saying is “Teach me how to get rich with soft white hands faster. And not only let me get rich faster, but teach me faster, too.”
+
+But it’s a **screaming** opportunity for somebody. I’d provide funds to support the writing of an appropriate book if I found someone with the wisdom and the will to do the job right.  
+
