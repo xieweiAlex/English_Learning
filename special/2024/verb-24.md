@@ -1,4 +1,6 @@
 
+**sift**
+
 **strip**
 
 **conceal** 
@@ -8,7 +10,6 @@
 **charge** 
 
 **perpetuate**
-
 
 ## Dec 
 

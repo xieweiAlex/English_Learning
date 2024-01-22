@@ -15,6 +15,8 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 [Special words](./special/2024/special-words-24.md) |
 [Special Verbs](./special/2024/verb-24.md) |
 
+[Poor Charlie's Almanac](./book/poor-charlie.md)
+
 [Jan Words](./words/2024/words-Jan-24.md) |
 
 ### 2023
