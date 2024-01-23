@@ -2,7 +2,7 @@
 ## Before Talk
 
 **winnow**.  
-Charlie **detests** placer mining, the process of sifting through piles of sand for specks of gold. -  
+Charlie **detests** placer mining, the process of sifting through piles of sand for specks of gold.   
 Charlie refers to a company’s competitive advantage as its moat: the virtual physical barrier it presents against **incursions**.  
 
 > While poor outcomes are **excusable** in the Munger–Buffett world—given the fact that some outcomes are outside of their control—**sloppy** preparation and decision-making are never excusable because they are controllable.  
@@ -32,11 +32,11 @@ As I walked home from the Bodleian Library each night, that nasty, **damp**, **p
 > It marks an **inflection point** in Bitcoin’s adoption. For the first time ever, millions of investors will now have access to Bitcoin in traditional brokerage accounts and large institutions like financial advisors, pension funds, and endowments will now be able to gain exposure to the asset.  
 
 
-Charlie is content to swim **imperturbably** against the tide of popular opinion. -  
+Charlie is content to swim **imperturbably** against the tide of popular opinion.   
 Most especially his appetite for hard work, but also his insatiable curiosity and patient **demeanor**.  
 Charlie’s approach to investing is quite different from the more **rudimentary** systems used by most investors.  
 The **unassailable** logic of Charlie’s ecosystem approach to investment analysis.  
-Other times the factors employed combine to create enormous “**lollapalooza**-level” results, good or bad. -  
+Other times the factors employed combine to create enormous “**lollapalooza**-level” results, good or bad.   
 It is this **signature approach**, backed by Charlie’s formidable intellect, temperament, and decades of relevant experience, that have made him the virtuoso of business pattern recognition so valued by Buffett.  
 His clarity is **hard-won**, the product of a lifetime of studying the patterns of human behavior, business systems, and a **myriad** of other scientific disciplines.  
 

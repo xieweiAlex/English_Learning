@@ -290,7 +290,7 @@ After **fumbling** with nvm to try and install the right Node version, I finally
 He was **scourge** of by the memory of his misdeeds.  
 The **scourge** of mass unemployment.  
 Inflation was the **scourge** of the 1970s.  
-chronic **renal** failure. -  
+chronic **renal** failure.   
 
 **In favor**, against, **abstention**.  
 **dogfish**  

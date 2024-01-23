@@ -66,7 +66,7 @@ But for those who want a **zippy**, responsive editing environment without **dro
 
 
 See them out there, **skulking** around?  
-She is a remarkably **adroit** and determined politician. -  
+She is a remarkably **adroit** and determined politician.   
 At any time I could run into rain, **sleet**, snow, or scorching heat.  
 **Flurry**.  
 **grantee**.  

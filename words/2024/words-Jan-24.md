@@ -1,4 +1,8 @@
 
+He could split countries into users, **bruisers** and losers.  
+Why car insurance in America is actually too cheap. -- Prices are rising, but most drivers still have **paltry** coverage.  
+The government imprisons a **dotty** fan of **Kim Jong Un**.  
+
 DeSantis entered the 2024 campaign widely viewed as former President Trump’s most formidable opponent, but early **missteps** and strategic errors **hampered** his effort.  
 
 ## Week 3  
@@ -101,7 +105,7 @@ Do not just **spout** marketing **spiel** or you will quickly lose followers. -
 Let's **clear the air** so to speak.  
 Quagmire just sort of **goes off on** Brian.  
 
-Tim could barely **conceal** his disappointment. -  
+Tim could barely **conceal** his disappointment.   
 Do Chinese Citizens **Conceal** Opposition to the CCP in Surveys?  
 
 > A confession: most of my bogs are imaginary. The world doesn’t stick me there; I stick me there. These are, paradoxically, the most difficult bogs to escape, because it requires realizing that my perception of reality is not reality, and a lot of the mind is dedicated to preventing that exact thought.  
@@ -154,7 +158,7 @@ The rocks **underfoot** are still soft.
 Throughout the book, Charlie reveals his intellect, wit, values, and no end of rhetorical **flair**.  
 Using **self-deprecation** and imagination to great effect, Charlie cheerfully compares himself to a counting horse, proposes “Glotz’s Sugared, Caffeinated Water” as a **marketing-bereft** label for Coca-Cola, and attests, “At least when I was young, I wasn't a total **klutz**." -  
 **Inversion**.  
-He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information. -  
+He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information.   
 **human foibles**.  
 Charlie has purposefully **sidestepped** the **limelight**, choosing relative anonymity instead.  
 Charlie’s formal education began at Dundee Elementary School, where he and his younger sisters, Mary and Carol, were **indoctrinated** with **ethical homilies**.  

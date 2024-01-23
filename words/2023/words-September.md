@@ -247,7 +247,7 @@ My emotions are **unbridled**.
 How many more dictators must be **wooed**, **appeased**, good God, given immense privileges before we learn?  
 I **blub** a lot.  
 via his **lackey**, **Mussolini**  
-Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**. -  
+Some might benefit, the powerful might be able to **parlay** good terms, preserve in their country **redoubts**.   
 
 **Halloumi**  
 Public services and many financial transactions are **hamstrung**.  
