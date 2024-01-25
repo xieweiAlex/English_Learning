@@ -152,4 +152,10 @@ This was logically **sound**. But if psychological ignorance is widespread, why 
 
 And this was not the **outer limit** of my teaching **folly**.  
 
+### Talk 5 
+Having ranted in the previous speech about all that is wrong in academia, Charlie **holds forth** here on the solutions.
+After months of imprisonment, he was condemned for **heresy**, strangled to death, and publicly **cremated**.  
+But Shaw **plainly** understates the problem in implying that a conscious, **self-interested** **malevolence** is the main culprit. -  
+
+Even in our youth, some of the best professors were horrified by bad effects from the **balkanization** of academia into **insular**, turf-protecting **enclaves**, wherein notions were maintained by leaps of faith plus exclusion of nonbelievers.  
 

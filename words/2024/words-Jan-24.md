@@ -1,6 +1,6 @@
 
 She wore shorts and a **halter** top.  
-now-discredited therapies.  
+**now-discredited** therapies.  
 
 
 **fragrant**. 
