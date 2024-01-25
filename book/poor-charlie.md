@@ -120,7 +120,7 @@ It can’t be emphasized too much that issues of morality are deeply **entwined*
 
 > The reason we’re not in high-tech businesses is that we have a special lack of aptitude in that area. And yes—a low-tech business can be plenty hard. Just try to open a restaurant and make it succeed.
 
-Disney is an amazing example of autocatalysis. They had all those movies in the can.  
+Disney is an amazing example of **autocatalysis**. They had all those movies in the can.  
 They owned the copyright. And just as Coke could **prosper** when refrigeration came, when the **videocassette** was invented, Disney didn't have to invent anything or do anything except take the thing out of the can and stick it on the **cassette**.  
 
 > On the other hand, in copying Jack Welch, I am trying to teach you something. When you don’t know and you don’t have any special competence, don’t be afraid to say so.  
@@ -128,4 +128,28 @@ They owned the copyright. And just as Coke could **prosper** when refrigeration 
 > But I’m always asked this question: “Spoon-feed me what you know.” And, of course, what they’re often saying is “Teach me how to get rich with soft white hands faster. And not only let me get rich faster, but teach me faster, too.”
 
 But it’s a **screaming** opportunity for somebody. I’d provide funds to support the writing of an appropriate book if I found someone with the wisdom and the will to do the job right.  
+
+
+## Talk 4 
+
+> You will also suffer from the reality **evoked** by the Shavian character who said, “In the last analysis, every profession is a conspiracy against the laity.  
+
+> The dollar, like the Roman drachma,214 will almost surely suffer monetary depreciation. Concurrently, real purchasing power of the average beverage consumer in the world will go way up. His proclivity to inexpensively improve his experience while ingesting water will go up considerably faster
+
+**pavlovian conditioning**.  
+We will make a big **hoopla** over our secrecy, which will enhance Pavlovian effects.  
+Eventually, food chemical engineering will advance so that our flavor can be copied with near **exactitude**.  
+And if I am right in these two ways, this would indicate that our civilization now keeps in place a great many educators who can’t satisfactorily explain Coca-Cola, even in retrospect, and even after watching it closely all their lives. This is not a satisfactory **state of affairs**.  
+
+> In short, academic psychology departments are immensely more important and useful than other academic departments think. And at the same time, the psychology departments are immensely worse than most of their inhabitants think.
+> Indeed, a problem of this sort may have given you your speaker today. But the size of this psychology department gap is preposterously large
+
+If, in many high places, a universal product as successful as Coca-Cola is not properly understood and explained, it can’t **bode** well for our competency in dealing with much else that is important.  
+
+If academia and business functioned with best practicable results, most **denizens** would be able to explain the success of the Coca-Cola Company through **parsimonious** use of basic concepts and problem-solving techniques. -  
+
+This was logically **sound**. But if psychological ignorance is widespread, why would most of my hearers recognize that my version of psychology was correct?
+
+And this was not the **outer limit** of my teaching **folly**.  
+
 

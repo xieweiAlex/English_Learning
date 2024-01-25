@@ -1,4 +1,6 @@
 
+**buttery**, **smarmy**
+
 **shrewd**
 
 **attainable**

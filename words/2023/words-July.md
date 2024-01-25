@@ -593,7 +593,6 @@ It truly **pains** this type to see **falsities** and **fallacies** go unchallen
 
 Don’t **despair**. Look at what’s working, look at what isn’t. Explore why it’s working, figure out how to get more consistent with it.  
 
-She wore shorts and a **halter** top.  
 My dream is to be a **dubbing**.  
 
 **machete**.  

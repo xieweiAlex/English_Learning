@@ -28,8 +28,8 @@ It would be nice if Bitcoiners saved their **vitriol** for the state and shitcoi
 words/2023/words-Dec.md  
 Finally, the SU Committee **collated** the results and **drew up** a report. -  
 Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
-No, for some reason, we think of an academic. We think of somebody **scrawny**. -  
-**retrench** expenditures. -  
+No, for some reason, we think of an academic. We think of somebody **scrawny**.   
+**retrench** expenditures.   
 **kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
 
 ## words-Nov.md ##  

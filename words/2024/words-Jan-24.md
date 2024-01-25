@@ -1,4 +1,31 @@
 
+She wore shorts and a **halter** top.  
+now-discredited therapies.  
+
+
+**fragrant**. 
+**Tyro**, **taro**.  
+**thread the needle**. -  
+**Arsenic** . 
+**ravenous**.  
+**abominable**.  
+He sat back and gave a loud **belch**.  
+**chimney**.  
+He took some **anodyne** to relieve the pain. -  
+Paula's stomach turned a **somersault**.   
+his car **somersaulted** into a ditch. -  
+**perpendicular**.  
+**pocketbook**, purse, wallet 
+He is a bit **long in the tooth** to be playing Tom Sawyer.  
+**hardball**, **softball**.  
+
+
+Let me **disabuse** you of that foolish idea. ??  
+crosscutting?? 
+
+**contact dermatitis**.  
+While **unsightly** and uncomfortable, most **boils** are not life-threatening and may open and drain on their own within two weeks.  
+
 He could split countries into users, **bruisers** and losers.  
 Why car insurance in America is actually too cheap. -- Prices are rising, but most drivers still have **paltry** coverage.  
 The government imprisons a **dotty** fan of **Kim Jong Un**.  
