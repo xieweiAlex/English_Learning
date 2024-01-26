@@ -159,3 +159,30 @@ But Shaw **plainly** understates the problem in implying that a conscious, **sel
 
 Even in our youth, some of the best professors were horrified by bad effects from the **balkanization** of academia into **insular**, turf-protecting **enclaves**, wherein notions were maintained by leaps of faith plus exclusion of nonbelievers.  
 
+one of whom kept explaining Berkshire Hathaway’s investing success by adding **standard deviations** of luck until, at six standard deviations, he encountered enough **derision** to force a change in explanation. -  
+business **periodicals**, like the Wall Street Journal, Forbes, Fortune . 
+
+> “There is an old two-part rule that often works wonders in business, science, and elsewhere: 1) Take a simple, basic idea and 2) take it very seriously.”
+
+I came to Harvard Law School very poorly educated, with **desultory** work habits and no college degree.  
+What I found, in my extended attempts to complete by informal means my stunted education, was that, plugging along with only ordinary will but with the fundamental organizing ethos as my guide, my ability to serve everything I loved was enhanced far beyond my **deserts**.  
+while everything I have said is **non-original** and has long been obvious to the point of **banality** to many sound and well-educated minds, all the evils I **decry** remain grossly **over-present** in the best of our soft-science educational domains . 
+
+To me, this ridiculous outcome implies that the soft-science departments tolerate **perverse incentives**.  
+
+> truth is hard to assimilate in any mind when opposed by interest.
+
+### Talk 6 
+In the talk, he attacks the accepted and practiced **orthodoxy** of his audience with sharp humor, though always without **malice**.  
+Charlie has a deep and **abiding** belief in philanthropy, as is demonstrated by his own generous giving, and he seeks here to save the **philanthropic** community from itself.  
+If Charlie can emerge from that state successfully, he seems to be saying, so can the **wayward** foundation managers in his audience.  
+
+There is one thing sure about all this complexity, including its touches of behavior lacking the full **punctilio** of honor. -
+easily reach 3 percent of foundation net worth per **annum**  
+
+> And people who are successfully selling something, as investment counselors do, make Swedish drivers sound like depressives. Virtually every investment expert’s public assessment is that he is above average, no matter what the evidence to the contrary.
+
+This leaves for extensive discussion only foundation choice 2, more imitation of the investment practices of Berkshire Hathaway in maintaining marketable equity portfolios with virtually zero **turnover** and with only a very few stocks chosen.  
+
+
+

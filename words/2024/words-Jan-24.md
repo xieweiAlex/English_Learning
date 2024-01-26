@@ -1,7 +1,9 @@
 
+
+Chinese youths have in recent years **appropriated** this word in its English meaning to express a desire to flee.  
+
 She wore shorts and a **halter** top.  
 **now-discredited** therapies.  
-
 
 **fragrant**. 
 **Tyro**, **taro**.  
@@ -21,7 +23,7 @@ He is a bit **long in the tooth** to be playing Tom Sawyer.
 
 
 Let me **disabuse** you of that foolish idea. ??  
-crosscutting?? 
+**crosscutting**?? 
 
 **contact dermatitis**.  
 While **unsightly** and uncomfortable, most **boils** are not life-threatening and may open and drain on their own within two weeks.  
