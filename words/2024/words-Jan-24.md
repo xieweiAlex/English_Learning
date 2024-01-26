@@ -1,4 +1,8 @@
 
+As such, they cannot track any movements. In short: it can be a game changer when it comes to your privacy  
+America and Iran step closer to the brink of war.  
+Why America’s controls on sales of AI tech to China are so leaky.  
+
 
 Chinese youths have in recent years **appropriated** this word in its English meaning to express a desire to flee.  
 
