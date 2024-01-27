@@ -1,8 +1,25 @@
 
-As such, they cannot track any movements. In short: it can be a game changer when it comes to your privacy  
-America and Iran step closer to the brink of war.  
-Why America’s controls on sales of AI tech to China are so leaky.  
+**disburse**.  
+**gypsum**.  
+**grungy**
+The construction company had to **disburse** a large sum of money to purchase **gypsum** for their latest project. However, due to the **grungy** appearance of the supplier's warehouse, they were hesitant to make the payment until they inspected the quality of the gypsum.
 
+It's a question of **discernment** and of choice.  
+There was a **dearth** of reliable information on the subject.  
+**rugged terrain**, **rugged individualism**.  
+
+**capacitate**  
+**discernment**, trenchant, perceptive, **astute**, shrewd 
+
+> Discernment refers to the ability to judge or understand things clearly and accurately.
+> Trenchant means sharp or incisive, often used to describe wit or criticism.
+> Perceptive means having a keen insight or understanding of things.
+> Astute refers to being clever, shrewd, and able to make good judgments.
+> Shrewd means having sharp powers of judgment and being able to make good decisions. It often implies being practical and having a good understanding of how to achieve one's goals.
+
+As such, they cannot track any movements. **In short**: it can be a game changer when it comes to your privacy.  
+America and Iran **step closer** to the **brink of war**.  
+Why America’s controls on sales of AI tech to China are so **leaky**.  
 
 Chinese youths have in recent years **appropriated** this word in its English meaning to express a desire to flee.  
 

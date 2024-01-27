@@ -184,5 +184,10 @@ easily reach 3 percent of foundation net worth per **annum**
 
 This leaves for extensive discussion only foundation choice 2, more imitation of the investment practices of Berkshire Hathaway in maintaining marketable equity portfolios with virtually zero **turnover** and with only a very few stocks chosen.  
 
+### Breakfast Meeting of the Philanthropy Roundtable
+
+> First, spending proclivity is influenced in an upward direction when stock prices go up, and in a downward direction when stock prices go down. Second, the proclivity to spend is terribly important in macroeconomics.
+
+
 
 
