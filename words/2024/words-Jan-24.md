@@ -1,4 +1,58 @@
 
+## Week 4
+
+**set in stone**.  
+**got it right too early**. 
+
+
+**Churros** (**Mexican fritters**) are very common at **fairs**.  
+
+She finds a **perverse pleasure** in upsetting her parents.  
+These **subsidies** are having **perverse effects**.  
+
+A compound sentence contains two or more **clauses**.  
+
+**friend or foe**, **nude or clothed**. 
+**titanic force**.  
+**tectonic plates** are shifting. 
+It's kinda **determined**.  
+Of course it's politics, it's filled with all sorts of, I mean the amount of ugliness display **beneath the surface**, it's **uninspiring**.  
+finding **no union set**.  
+They don't want radical change, they want **continuity**, I do, too.  
+
+> Power is vested in the people
+> It's a relief to think power all lie in the elite, and we can not do anything about it
+
+The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite. - 
+
+To **assuage** his wife's grief, he took her on a tour of Europe.  
+**skinny-dipping** 
+
+**litmus test**, **touchstone**.  
+
+When people hear philosophy, they think like a **tweed jacket** or an **old white guy in a toga** or whatever. 
+
+That's a quite **rap sheet**, prison Mike.  
+**drawstring** bag.  
+Brokers were financially incentivized to sell securities regardless of their **soundness**.  
+
+How can you be **utterly** and completely wrong?  
+
+AI holds **tantalizing** promise for the emerging world
+**Against the odds**, Notre Dame cathedral will reopen this year.  
+The ICJ delivers a **stinging** **rebuke** to Israel over the war in Gaza.  
+But as the court has not ordered a ceasefire, its ruling is largely **symbolic**.  
+
+Trillion-dollar Deficits are Keeping the Economy **Afloat**.  
+> you shouldn’t spend money you don’t have on things you don’t need.
+
+> In other words, as the government continues to spend to prop up the economy, it will take more and more debt-driven spending to achieve the same desired effect. It bears repeating – this is not sustainable.
+
+
+In the event you notice that there is **mold** or that the lemon is extremely **squishy**, there is no point in trying to **salvage** the lemon. Throw it out. The same goes for cut lemon.  
+Lemons contain nutrients that may help support your **cardiovascular** health and protect against kidney stones and **anemia**, among other benefits.  
+Additionally, **citrus fruits** may increase **gastric acid** production and cause heartburn in some people.  
+
 **disburse**.  
 **gypsum**.  
 **grungy**

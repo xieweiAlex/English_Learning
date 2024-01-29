@@ -142,6 +142,7 @@ Eventually, food chemical engineering will advance so that our flavor can be cop
 And if I am right in these two ways, this would indicate that our civilization now keeps in place a great many educators who can’t satisfactorily explain Coca-Cola, even in retrospect, and even after watching it closely all their lives. This is not a satisfactory **state of affairs**.  
 
 > In short, academic psychology departments are immensely more important and useful than other academic departments think. And at the same time, the psychology departments are immensely worse than most of their inhabitants think.
+
 > Indeed, a problem of this sort may have given you your speaker today. But the size of this psychology department gap is preposterously large
 
 If, in many high places, a universal product as successful as Coca-Cola is not properly understood and explained, it can’t **bode** well for our competency in dealing with much else that is important.  
@@ -184,9 +185,19 @@ easily reach 3 percent of foundation net worth per **annum**
 
 This leaves for extensive discussion only foundation choice 2, more imitation of the investment practices of Berkshire Hathaway in maintaining marketable equity portfolios with virtually zero **turnover** and with only a very few stocks chosen.  
 
-### Breakfast Meeting of the Philanthropy Roundtable
+### Talk 7 Breakfast Meeting of the Philanthropy Roundtable
 
 > First, spending proclivity is influenced in an upward direction when stock prices go up, and in a downward direction when stock prices go down. Second, the proclivity to spend is terribly important in macroeconomics.
+
+
+Then, asset values crashed, and the Japanese economy stalled out at a very suboptimal level.
+
+This Japanese experience is a disturbing example for everyone, and if something like it happened here, it would leave shrunken charitable foundations feeling clobbered by fate.
+
+But Galbraith did not push his insight on. He was content to stop with being a stimulating gadfly.  
+
+After all, the Scottish enthusiastically accepted the idea of preordained, unfixable infant damnation. But the rest of us don’t like Galbraith’s insight.  
+
 
 
 

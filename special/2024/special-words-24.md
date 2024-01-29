@@ -1,4 +1,16 @@
 
+**undershoot**
+
+**whatnot**
+
+**continuity**
+
+**paraphrase**
+
+**legit**
+
+**utterly**
+
 **buttery**, **smarmy**
 
 **shrewd**
