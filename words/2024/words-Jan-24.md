@@ -1,9 +1,31 @@
 
-## Week 4
+They have three very **amenable** kids.  
+He seemed most **amenable** to my idea.  
+
+The bridge **is liable to** collapse at any moment.  
+Children **are liable to** catch cold.  
+> "**labile**" means liable to change rapidly or unpredictably. It's often used to describe something that is unstable, fluctuating, or easily influenced by external factors.  
+
+> In psychology or psychiatry, it could describe mood swings or emotional instability. In biology or medicine, it might refer to cells or substances that are easily altered or affected by external stimuli.  
+
+The sofa would be less **obtrusive** in a paler color.  
+
+
+**crabby**, **crusty**, **cranky**, **edgy**  
+
+> Crabby: This word is used to describe someone who is easily annoyed or irritable. They may be in a bad mood or have a short temper.  
+
+> Crusty: This word can have a few different meanings. It can refer to something that is covered in a hard, dry layer, such as crusty bread. It can also be used to describe someone who is grumpy or unpleasant.  
+
+> Cranky: This word is similar to crabby, but it often implies a more persistent or long-lasting bad mood. Someone who is cranky may be easily annoyed or irritated for an extended period of time.  
+
+> Edgy: This word can have a few different meanings as well. It can refer to something that is sharp or rough, such as an edgy rock. It can also be used to describe someone who is tense, nervous, or on edge.  
+
+
+## Week 4  
 
 **set in stone**.  
-**got it right too early**. 
-
+**got it right too early**.  
 
 **Churros** (**Mexican fritters**) are very common at **fairs**.  
 
@@ -12,25 +34,25 @@ These **subsidies** are having **perverse effects**.
 
 A compound sentence contains two or more **clauses**.  
 
-**friend or foe**, **nude or clothed**. 
+**friend or foe**, **nude or clothed**.  
 **titanic force**.  
-**tectonic plates** are shifting. 
+**tectonic plates** are shifting.  
 It's kinda **determined**.  
 Of course it's politics, it's filled with all sorts of, I mean the amount of ugliness display **beneath the surface**, it's **uninspiring**.  
 finding **no union set**.  
 They don't want radical change, they want **continuity**, I do, too.  
 
-> Power is vested in the people
-> It's a relief to think power all lie in the elite, and we can not do anything about it
+> Power is vested in the people  
+> It's a relief to think power all lie in the elite, and we can not do anything about it  
 
-The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite. - 
+The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite. -  
 
 To **assuage** his wife's grief, he took her on a tour of Europe.  
-**skinny-dipping** 
+**skinny-dipping**  
 
 **litmus test**, **touchstone**.  
 
-When people hear philosophy, they think like a **tweed jacket** or an **old white guy in a toga** or whatever. 
+When people hear philosophy, they think like a **tweed jacket** or an **old white guy in a toga** or whatever.  
 
 That's a quite **rap sheet**, prison Mike.  
 **drawstring** bag.  
@@ -38,15 +60,15 @@ Brokers were financially incentivized to sell securities regardless of their **s
 
 How can you be **utterly** and completely wrong?  
 
-AI holds **tantalizing** promise for the emerging world
+AI holds **tantalizing** promise for the emerging world  
 **Against the odds**, Notre Dame cathedral will reopen this year.  
 The ICJ delivers a **stinging** **rebuke** to Israel over the war in Gaza.  
 But as the court has not ordered a ceasefire, its ruling is largely **symbolic**.  
 
 Trillion-dollar Deficits are Keeping the Economy **Afloat**.  
-> you shouldn’t spend money you don’t have on things you don’t need.
+> you shouldn’t spend money you don’t have on things you don’t need.  
 
-> In other words, as the government continues to spend to prop up the economy, it will take more and more debt-driven spending to achieve the same desired effect. It bears repeating – this is not sustainable.
+> In other words, as the government continues to spend to prop up the economy, it will take more and more debt-driven spending to achieve the same desired effect. It bears repeating – this is not sustainable.  
 
 
 In the event you notice that there is **mold** or that the lemon is extremely **squishy**, there is no point in trying to **salvage** the lemon. Throw it out. The same goes for cut lemon.  
@@ -55,21 +77,21 @@ Additionally, **citrus fruits** may increase **gastric acid** production and cau
 
 **disburse**.  
 **gypsum**.  
-**grungy**
-The construction company had to **disburse** a large sum of money to purchase **gypsum** for their latest project. However, due to the **grungy** appearance of the supplier's warehouse, they were hesitant to make the payment until they inspected the quality of the gypsum.
+**grungy**  
+The construction company had to **disburse** a large sum of money to purchase **gypsum** for their latest project. However, due to the **grungy** appearance of the supplier's warehouse, they were hesitant to make the payment until they inspected the quality of the gypsum.  
 
 It's a question of **discernment** and of choice.  
 There was a **dearth** of reliable information on the subject.  
 **rugged terrain**, **rugged individualism**.  
 
 **capacitate**  
-**discernment**, trenchant, perceptive, **astute**, shrewd 
+**discernment**, trenchant, perceptive, **astute**, shrewd  
 
-> Discernment refers to the ability to judge or understand things clearly and accurately.
-> Trenchant means sharp or incisive, often used to describe wit or criticism.
-> Perceptive means having a keen insight or understanding of things.
-> Astute refers to being clever, shrewd, and able to make good judgments.
-> Shrewd means having sharp powers of judgment and being able to make good decisions. It often implies being practical and having a good understanding of how to achieve one's goals.
+> Discernment refers to the ability to judge or understand things clearly and accurately.  
+> Trenchant means sharp or incisive, often used to describe wit or criticism.  
+> Perceptive means having a keen insight or understanding of things.  
+> Astute refers to being clever, shrewd, and able to make good judgments.  
+> Shrewd means having sharp powers of judgment and being able to make good decisions. It often implies being practical and having a good understanding of how to achieve one's goals.  
 
 As such, they cannot track any movements. **In short**: it can be a game changer when it comes to your privacy.  
 America and Iran **step closer** to the **brink of war**.  
@@ -80,25 +102,25 @@ Chinese youths have in recent years **appropriated** this word in its English me
 She wore shorts and a **halter** top.  
 **now-discredited** therapies.  
 
-**fragrant**. 
+**fragrant**.  
 **Tyro**, **taro**.  
 **thread the needle**. -  
-**Arsenic** . 
+**Arsenic** .  
 **ravenous**.  
 **abominable**.  
 He sat back and gave a loud **belch**.  
 **chimney**.  
 He took some **anodyne** to relieve the pain. -  
-Paula's stomach turned a **somersault**.   
+Paula's stomach turned a **somersault**.  
 his car **somersaulted** into a ditch. -  
 **perpendicular**.  
-**pocketbook**, purse, wallet 
+**pocketbook**, purse, wallet  
 He is a bit **long in the tooth** to be playing Tom Sawyer.  
 **hardball**, **softball**.  
 
 
 Let me **disabuse** you of that foolish idea. ??  
-**crosscutting**?? 
+**crosscutting**??  
 
 **contact dermatitis**.  
 While **unsightly** and uncomfortable, most **boils** are not life-threatening and may open and drain on their own within two weeks.  
@@ -209,7 +231,7 @@ Do not just **spout** marketing **spiel** or you will quickly lose followers. -
 Let's **clear the air** so to speak.  
 Quagmire just sort of **goes off on** Brian.  
 
-Tim could barely **conceal** his disappointment.   
+Tim could barely **conceal** his disappointment.  
 Do Chinese Citizens **Conceal** Opposition to the CCP in Surveys?  
 
 > A confession: most of my bogs are imaginary. The world doesn’t stick me there; I stick me there. These are, paradoxically, the most difficult bogs to escape, because it requires realizing that my perception of reality is not reality, and a lot of the mind is dedicated to preventing that exact thought.  
@@ -262,7 +284,7 @@ The rocks **underfoot** are still soft.
 Throughout the book, Charlie reveals his intellect, wit, values, and no end of rhetorical **flair**.  
 Using **self-deprecation** and imagination to great effect, Charlie cheerfully compares himself to a counting horse, proposes “Glotz’s Sugared, Caffeinated Water” as a **marketing-bereft** label for Coca-Cola, and attests, “At least when I was young, I wasn't a total **klutz**." -  
 **Inversion**.  
-He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information.   
+He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information.  
 **human foibles**.  
 Charlie has purposefully **sidestepped** the **limelight**, choosing relative anonymity instead.  
 Charlie’s formal education began at Dundee Elementary School, where he and his younger sisters, Mary and Carol, were **indoctrinated** with **ethical homilies**.  

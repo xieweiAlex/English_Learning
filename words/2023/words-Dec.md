@@ -241,7 +241,7 @@ We **old codgers** have our work cut out for us keeping spirits high at home.
 
 **Pitchforks** and **torches**  
 This is a **glider** that's falling, and you have to be able to make sure you start with enough **physiologic** **headroom** to make that work.  
-No, for some reason, we think of an academic. We think of somebody **scrawny**. -  
+No, for some reason, we think of an academic. We think of somebody **scrawny**.   
 Nero, for instance, demanded that enormous audiences celebrate his greatness. This was also the same emperor who **banished** a poet from Rome for being too talented, and thus a threat.  
 
 we should be routinely **peering ahead**, planning for the unexpected, running these war games–to **lessen** the strength of the **blow** before it lands.  
@@ -288,7 +288,7 @@ Nothing could **be further from truth**.
 
 **Asphalt** pavement/road.  
 **in disorder**.  
-**retrench** expenditures. -  
+**retrench** expenditures.   
 
 **kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
 
@@ -319,7 +319,6 @@ You're about to **detonate** a bomb in someone else's life.
 China supplies about one-third of US **graphite** imports, according to the US Geological Survey, and it’s the world’s leading graphite producer.  
 
 This one goes out to my fellow "**bah humbugs**".  
-**crabby**, **crusty**, **cranky**, **edgy**  
 
 How many people spend an enormous amount to keep up their estates, but then let their brain fall into **disrepair**.  
 

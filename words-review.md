@@ -7,9 +7,16 @@ Now that Headmaster Berrisford has selected one of the oldest and longest-servin
 How little **originality** there is in the common disasters of mankind: drunk driving deaths, reckless driving **maimings**, **incurable** **venereal** diseases. -  
 The other aspect of avoiding **vicarious wisdom** is the rule of not learning from the best work done before yours. -  
 > If you play games where other people have the **aptitudes** and you don’t, you’re going to lose. -  
+If academia and business functioned with best practicable results, most **denizens** would be able to explain the success of the Coca-Cola Company through **parsimonious** use of basic concepts and problem-solving techniques. -  
+But Shaw **plainly** understates the problem in implying that a conscious, **self-interested** **malevolence** is the main culprit. -  
+one of whom kept explaining Berkshire Hathaway’s investing success by adding **standard deviations** of luck until, at six standard deviations, he encountered enough **derision** to force a change in explanation. -  
 
 ## words-Jan-24.md ##  
 words/2024/words-Jan-24.md  
+The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite. -  
+**thread the needle**. -  
+He took some **anodyne** to relieve the pain. -  
+his car **somersaulted** into a ditch. -  
 But is it the **spire** or is it an **antenna**? -  
 My dear friend Scott and his **intrepid** son. -  
 Don't talk such **drivel**! -  
@@ -28,8 +35,6 @@ It would be nice if Bitcoiners saved their **vitriol** for the state and shitcoi
 words/2023/words-Dec.md  
 Finally, the SU Committee **collated** the results and **drew up** a report. -  
 Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
-No, for some reason, we think of an academic. We think of somebody **scrawny**.   
-**retrench** expenditures.   
 **kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
 
 ## words-Nov.md ##  
@@ -40,11 +45,9 @@ We launch into a story we've already told half a dozen times—likely on other d
 The clock **oscillates** at its own **endogenous**, or internal, period. -  
 We could build our own **jetties** and do it using **lorries**. -  
 We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
-She's the internet's **crustiest** kitten and, in the words of her owner, our fair "**icky** stinky queen." -  
 He was a great **brawny** **brute** of a man. -  
 Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  
 
 ## words-October.md ##  
 words/2023/words-October.md  
-The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
 Some INTJs are emotionally **labile** and constantly turning to others for support. -  

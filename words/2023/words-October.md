@@ -177,7 +177,7 @@ Te helps INTJs rationally **explicate** their intuitions, whether in math, scien
 Phase III INTJs **wise up to** the tricks and temptations of the inferior function, discovering more sustainable ways of integrating their functions.  
 Because of its **prescience** and depth of insight, Ni may at times seem to **border on** magical or **supernatural**.  
 This is consistent with Jung’s characterization of the Ni type as the dreamer or **seer**.  
-The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control. -  
+The ultimate goal of Te is to render things logically intelligible, making them more **amenable** to human manipulation, **prediction**, and control.   
 And because Ni comes first in INTJs’ function stack, Te is ultimately more of a **servant than a master**.  
 **Flesh out**.  
 **state of being**.  
