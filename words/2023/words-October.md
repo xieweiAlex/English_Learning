@@ -186,7 +186,7 @@ INTJs often feel that, regardless of how sound their arguments or the amount of 
 When this happens repeatedly, INTJs may become **dismayed** or **nihilistic**, concerned that humanity will forever remain blind to the truth.  
 
 They tend to be loyal and committed partners, as well as **unswervingly** devoted to the well-being of their children  
-Some INTJs are emotionally **labile** and constantly turning to others for support. -  
+Some INTJs are emotionally **labile** and constantly turning to others for support.   
 For quite some time, I was **perplexed** as to why so many INTJs took interest in personality typology.  
 **Namely**, similar to what we see in FP types, INTJs’ Fi compels them to understand who they are as unique individuals.  
 

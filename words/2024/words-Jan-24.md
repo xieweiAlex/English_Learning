@@ -1,4 +1,8 @@
 
+Augment.  
+
+**pamphlet**, **brochure**, **booklet**, **leaflet**.  
+
 They have three very **amenable** kids.  
 He seemed most **amenable** to my idea.  
 
@@ -221,7 +225,6 @@ As we reported recently, in contrast, Donald Trump is **mounting** a **formidabl
 **foul-mouthed**.  
 So, with an eye on securing the commercial future of The Economist, I invite you to send me your own original **couplets** or other **verse** (max five short lines) on the theme of what 2024 will bring.  
 
-**pamphlet**, **brochure**, **booklet**  
 
 
 ## Week 2  

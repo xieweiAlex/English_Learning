@@ -33,7 +33,6 @@ It would be nice if Bitcoiners saved their **vitriol** for the state and shitcoi
 
 ## words-Dec.md ##  
 words/2023/words-Dec.md  
-Finally, the SU Committee **collated** the results and **drew up** a report. -  
 Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
 **kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
 
@@ -47,7 +46,3 @@ We could build our own **jetties** and do it using **lorries**. -
 We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
 He was a great **brawny** **brute** of a man. -  
 Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  
-
-## words-October.md ##  
-words/2023/words-October.md  
-Some INTJs are emotionally **labile** and constantly turning to others for support. -  

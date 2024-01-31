@@ -95,7 +95,7 @@ This new holiday of yours is **scratching me right where I itch**.
 
 **crony capitalism**.  
 
-Finally, the SU Committee **collated** the results and **drew up** a report. -  
+Finally, the SU Committee **collated** the results and **drew up** a report.   
 
 **tag alone**: to follow another's lead especially in going from one place to another  
 
