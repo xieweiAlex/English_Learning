@@ -308,7 +308,7 @@ This conflict **spills over** into the regional and international communities, w
 
 She is sent to a nondescript office building where she is tasked with watching the hidden-camera feed of an author suspected of storing **contraband** goods.  
 They're encumbered with heavy guns, **artillery**. Some of them have trucks, even tanks, and all sorts of other equipment, the **detritus** of war.  
-We could build our own **jetties** and do it using **lorries**. -  
+We could build our own **jetties** and do it using **lorries**.   
 
 **all is lost**.  
 **bull in a china shop**.  
@@ -350,7 +350,7 @@ We are getting **palpably** close to efficiently provable general computation.
 He was **unabashed** by the **furore** his words provoked.   
 If those were the **accolades** collected over the course of an entire career, it’d be enough to put that writer up there with the all-time greats.  
 Meyer hit two **grand-slam** **home runs** with his first two at-bats.  
-We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
+We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt.   
 Marcus Aurelius waited **in the wings** for 23 years before putting on **imperial purple**.  
 
 **Neither** the **head office** **nor** the New York branch of ICBC itself were affected.  

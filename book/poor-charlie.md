@@ -22,7 +22,7 @@ The fact that my father shares many of these qualities, even if he’s not known
 He had told us often funny stories of people who either followed the group too blindly or **lashed out** too **reflexively**. “Crazy,” “**maladjusted**,” “pompous,” “self-satisfied”—we knew from his adjectives what he thought we should avoid.  
 
 In both instances, he appears blunt and **avuncular**—that inimitable Charlie—but at the card table, he uses **a lack of indirection** for **harmless ribbing**, and at the dinner table, he uses indirection  
-Even if he didn’t recognize himself in it, I figured he would enjoy the book’s Midwestern **milieu**, the immigrant striving of the Trillin family, and the humor. -  
+Even if he didn’t recognize himself in it, I figured he would enjoy the book’s Midwestern **milieu**, the immigrant striving of the Trillin family, and the humor.   
 He once said that he was **nonconformist** enough in his behavior and opinions that it made sense to chart a very straight course in **attire**.  
 His going along with normal social customs and his sense of humor, he said, were what allowed his otherwise sometimes **prickly** temperament to harmonize with other people.  
 
@@ -74,7 +74,7 @@ once the richest king in the world. Later, in **ignominious** captivity, as he p
 
 My second prescription for misery is to learn everything you possibly can from your own experience, minimizing what you learn **vicariously** from the good and bad experiences of others, living and dead. This prescription is a sure-shot producer of misery and second-rate achievement.  
 How little **originality** there is in the common disasters of mankind: drunk driving deaths, reckless driving **maimings**, **incurable** **venereal** diseases. -  
-The other aspect of avoiding **vicarious wisdom** is the rule of not learning from the best work done before yours. -  
+The other aspect of avoiding **vicarious wisdom** is the rule of not learning from the best work done before yours.   
 Because there is so much adversity out there, even for the lucky and wise, this will guarantee that, **in due course**, you will be permanently mired in misery.  
 If my experience is any guide, the rustic’s approach is to be avoided at all cost by someone **bent on** misery.  
 

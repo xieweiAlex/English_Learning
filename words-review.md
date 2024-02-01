@@ -1,11 +1,9 @@
 ## poor-charlie.md ##  
 book/poor-charlie.md  
 Rather, each must be considered as part of the complex whole or **gestalt** of the investment analysis process, in much the same way that an individual tile is **integral to** the **larger mosaic** in which it appears. -  
-Even if he didn’t recognize himself in it, I figured he would enjoy the book’s Midwestern **milieu**, the immigrant striving of the Trillin family, and the humor. -  
 For those of you who want to remain unenlightened and **mirthless**, do not, under any circumstances, read this selection. -  
 Now that Headmaster Berrisford has selected one of the oldest and longest-serving trustees to make a **commencement speech**, **it behooves** the speaker to address two questions in every mind. -  
 How little **originality** there is in the common disasters of mankind: drunk driving deaths, reckless driving **maimings**, **incurable** **venereal** diseases. -  
-The other aspect of avoiding **vicarious wisdom** is the rule of not learning from the best work done before yours. -  
 > If you play games where other people have the **aptitudes** and you don’t, you’re going to lose. -  
 If academia and business functioned with best practicable results, most **denizens** would be able to explain the success of the Coca-Cola Company through **parsimonious** use of basic concepts and problem-solving techniques. -  
 But Shaw **plainly** understates the problem in implying that a conscious, **self-interested** **malevolence** is the main culprit. -  
@@ -13,12 +11,11 @@ one of whom kept explaining Berkshire Hathaway’s investing success by adding *
 
 ## words-Jan-24.md ##  
 words/2024/words-Jan-24.md  
+Understanding and applying the principles ethically is cost-free and **deceptively** easy. -  
 The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite. -  
 **thread the needle**. -  
 He took some **anodyne** to relieve the pain. -  
 his car **somersaulted** into a ditch. -  
-But is it the **spire** or is it an **antenna**? -  
-My dear friend Scott and his **intrepid** son. -  
 Don't talk such **drivel**! -  
 U.N. officials **decried** the bombing and shelling and said they needed calm. -  
 Do not just **spout** marketing **spiel** or you will quickly lose followers. -  
@@ -42,7 +39,5 @@ The object is to **addle** and not to **elucidate**. -
 Outgoing British governments can **bequeath** a total mess or embed their preferences. -  
 We launch into a story we've already told half a dozen times—likely on other dates—and start **rattling off** our résumé. In these moments, we’re just **spewing out** information, not connecting with the other person. -  
 The clock **oscillates** at its own **endogenous**, or internal, period. -  
-We could build our own **jetties** and do it using **lorries**. -  
-We don’t pay enough attention to Seneca’s first exile–the ten years he spent **recuperating** from an illness in Egypt. -  
 He was a great **brawny** **brute** of a man. -  
 Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  

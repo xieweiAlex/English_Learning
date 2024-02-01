@@ -1,8 +1,9 @@
 
-Augment.  
+Dr. Cialdini is very **modest** as to the **reverberations** his work has had on the entire business and political world.  
+Understanding and applying the principles ethically is cost-free and **deceptively** easy. -  
 
+**Augment**.  
 **pamphlet**, **brochure**, **booklet**, **leaflet**.  
-
 They have three very **amenable** kids.  
 He seemed most **amenable** to my idea.  
 
@@ -170,11 +171,11 @@ melting **ice cube**.
 
 Trump **edges out** Nikki Haley for Tim Scott’s endorsement.  
 
-But is it the **spire** or is it an **antenna**? -  
+But is it the **spire** or is it an **antenna**?   
 **rote learning**.  
 **dysbiosis**.  
 
-My dear friend Scott and his **intrepid** son. -  
+My dear friend Scott and his **intrepid** son.   
 **in fact**  
 
 Thailand: Man jailed for 50 years for defaming **monarchy**.  
