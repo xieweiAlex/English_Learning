@@ -1,8 +1,33 @@
 
 ## Before Talk
 
+Charlie was just in a hurry, and the **customary pleasantries** of the classroom were of little concern to him.  
+
+His **adored** son, Teddy, was **terminally** ill with **leukemia**.  
+Charlie’s **affinity** for Benjamin Franklin’s expansive career in government, business, finance, and industry can be found in his many speeches and whenever he holds an audience, large or small.  
+
+Charlie admires that **trait** in his mentor and strives to **emulate** Franklin.  
+
+Throughout the book, Charlie reveals his intellect, wit, values, and no end of rhetorical **flair**.  
+Using **self-deprecation** and imagination to great effect, Charlie cheerfully compares himself to a counting horse, proposes “Glotz’s Sugared, Caffeinated Water” as a **marketing-bereft** label for Coca-Cola, and attests, “At least when I was young, I wasn't a total **klutz**." -  
+**Inversion**.  
+He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information.  
+**human foibles**.  
+Charlie has purposefully **sidestepped** the **limelight**, choosing relative anonymity instead.  
+Charlie’s formal education began at Dundee Elementary School, where he and his younger sisters, Mary and Carol, were **indoctrinated** with **ethical homilies**. -  
+
+Charlie’s teachers remember a smart kid who was also inclined to be a bit of a **wiseacre**.   
+Today, he can’t remember the first time he was exposed to the aphorisms of Ben Franklin, but they fueled an **ineffaceable** admiration for the **eclectic and eccentric** **statesman** and inventor. -  
+By the time he was 14, the **precocious** learner had also become one of the doctor’s best friends.  
+Even at an early age, Charlie showed a **sagacious** negotiating ability and usually gained a bigger **specimen** or one with unusual coloring.  
+One of his sisters remembered years later that the family had to **endure** the **incessant** squeaking of hungry hamsters until Charlie arrived home from school to feed them.  
+Kids played kick the can on warm summer evenings and went to Saturday **matinees** to see the latest **talkies**, such as **King Kong**, a favorite of 8-year-old Charlie.  
+**hobos**.  
+
+His lack of an undergraduate degree threatened to derail him, but a family friend, former Harvard Law School dean Roscoe Pound, **interceded** on Charlie’s behalf. -  
+
 **winnow**.  
-Charlie **detests** placer mining, the process of sifting through piles of sand for specks of gold.   
+Charlie **detests** **placer mining**, the process of sifting through **piles of sand** for **specks of gold**.   
 Charlie refers to a company’s competitive advantage as its moat: the virtual physical barrier it presents against **incursions**.  
 
 > While poor outcomes are **excusable** in the Munger–Buffett world—given the fact that some outcomes are outside of their control—**sloppy** preparation and decision-making are never excusable because they are controllable.  
@@ -98,7 +123,7 @@ He was thinking, “It’s a lousy business. We’re earning **substandard** ret
 However, Berkshire Hathaway, **by and large**, does not invest in these people who are **surfing** on complicated technology. **After all**, we’re **cranky** and **idiosyncratic**, as you may have noticed.  
 **efficient market theory**.  
 
-> If you play games where other people have the **aptitudes** and you don’t, you’re going to lose. -  
+> If you play games where other people have the **aptitudes** and you don’t, you’re going to lose.   
 
 The model I like—to sort of simplify the notion of what goes on in a market for common stocks—is the **pari-mutuel** system122 at the **racetrack**.  
 
@@ -147,7 +172,7 @@ And if I am right in these two ways, this would indicate that our civilization n
 
 If, in many high places, a universal product as successful as Coca-Cola is not properly understood and explained, it can’t **bode** well for our competency in dealing with much else that is important.  
 
-If academia and business functioned with best practicable results, most **denizens** would be able to explain the success of the Coca-Cola Company through **parsimonious** use of basic concepts and problem-solving techniques. -  
+If academia and business functioned with best practicable results, most **denizens** would be able to explain the success of the Coca-Cola Company through **parsimonious** use of basic concepts and problem-solving techniques.   
 
 This was logically **sound**. But if psychological ignorance is widespread, why would most of my hearers recognize that my version of psychology was correct?
 
@@ -156,7 +181,7 @@ And this was not the **outer limit** of my teaching **folly**.
 ### Talk 5 
 Having ranted in the previous speech about all that is wrong in academia, Charlie **holds forth** here on the solutions.
 After months of imprisonment, he was condemned for **heresy**, strangled to death, and publicly **cremated**.  
-But Shaw **plainly** understates the problem in implying that a conscious, **self-interested** **malevolence** is the main culprit. -  
+But Shaw **plainly** understates the problem in implying that a conscious, **self-interested** **malevolence** is the main culprit.   
 
 Even in our youth, some of the best professors were horrified by bad effects from the **balkanization** of academia into **insular**, turf-protecting **enclaves**, wherein notions were maintained by leaps of faith plus exclusion of nonbelievers.  
 
