@@ -1,4 +1,37 @@
 
+**botulism**.  
+**ulterior motive**.  
+**cordon**, **curfew**, **baton**.  
+Her **gown** was very French and very **chic**.  
+Unemployment and Social Frustration **Foment** Unrest. -  
+Needs change while policies **fossilize**.  
+
+
+The outcome **put me in mind** of a phone call I had received years earlier.  
+She was **giddy** with a curious piece of news. Something fascinating had just happened, and she thought, as a psychologist, I might be able to explain it.  
+**Turquoise** jewelry.  
+>  It is rare and valuable in finer grades and has been prized as a gem and ornamental stone for thousands of years owing to its unique hue. 
+
+
+Finally, the night before leaving on an out-of-town buying trip, she **scribbled** an **exasperated** note to her head saleswoman.  
+her **scrawled** message
+**cheep-cheep**.  
+**fixed-action pattern**.  
+
+> After all, in English, the word cheap doesn’t just mean inexpensive; it has also come to mean inferior. 
+
+Perhaps nowhere is this last point **driven home** more dramatically than in the life-and-death consequences of a phenomenon that airline-industry officials have labeled Captainitis.  
+**ethologist**.  
+Of course, we all also know these reviews can be **bogus**—either paid for by the seller or maliciously placed by the competition.  
+If you’re anxious about **coming across** as sincere, apparently you talk about yourself more.  
+He arranged things so that, compared to $10,000, a couple hundred bucks seemed like a pittance. That was an expensive laugh. It cost his airline an extra $300 per volunteer.  
+
+
+Immigrants **gravitate towards** larger cities because smaller towns lack the social networks that they need to **thrive**.  
+
+Japan will create the system to accept "digital nomads" who can work from anywhere they happen to be, **envisaging** that it will attract, among others, workers and owners of consulting companies abroad and YouTubers earning advertising fees from overseas companies.  
+
+
 Dr. Cialdini is very **modest** as to the **reverberations** his work has had on the entire business and political world.  
 Understanding and applying the principles ethically is cost-free and **deceptively** easy. -  
 

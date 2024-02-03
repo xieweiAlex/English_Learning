@@ -195,7 +195,6 @@ fit the stereotype
 straight-A student  
 destined  
 backstories  
-gravitate  
 savvy  
 betting on you.  
 baby steps  

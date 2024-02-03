@@ -6,6 +6,8 @@ Now that Headmaster Berrisford has selected one of the oldest and longest-servin
 How little **originality** there is in the common disasters of mankind: drunk driving deaths, reckless driving **maimings**, **incurable** **venereal** diseases. -  
 > If you play games where other people have the **aptitudes** and you don’t, you’re going to lose. -  
 If academia and business functioned with best practicable results, most **denizens** would be able to explain the success of the Coca-Cola Company through **parsimonious** use of basic concepts and problem-solving techniques. -  
+
+
 But Shaw **plainly** understates the problem in implying that a conscious, **self-interested** **malevolence** is the main culprit. -  
 one of whom kept explaining Berkshire Hathaway’s investing success by adding **standard deviations** of luck until, at six standard deviations, he encountered enough **derision** to force a change in explanation. -  
 
