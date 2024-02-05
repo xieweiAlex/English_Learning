@@ -2,28 +2,31 @@
 
 Expanding vocabulary for a non native-speaker is taxing and time-consuming. I try to jot down the **words or phrases** I encounter day to day with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight. If it can inspire someone else, that's even better 💖.  
 
-
-[Words Review](./words-review.md)
-
 <!-- sync.sh -->
 <!-- variable -->
 <!-- .LfBookmarks -->
 <!-- Readme -->
+
+### Word Review 
+[Words Review](./words-review.md)
+
+#### Book
+[Poor Charlie's Almanac](./book/poor-charlie.md) |
+[Influence](./book/influence.md)
+
 
 ### 2024 
 
 [Special words](./special/2024/special-words-24.md) |
 [Special Verbs](./special/2024/verb-24.md) |
 
-[Poor Charlie's Almanac](./book/poor-charlie.md)
-
 [Jan Words](./words/2024/words-Jan-24.md) |
+
 
 ### 2023
 [Dec Words](./words/2023/words-Dec.md) |
 [Nov Words](./words/2023/words-Nov.md) |
 [Oct Words](./words/2023/words-October.md) |
-
 [Sep Words](./words/2023/words-September.md) |
 [Aug Words](./words/2023/words-August.md) |
 [Jul Words](./words/2023/words-July.md) |
@@ -31,7 +34,6 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 [June Words](./words/2023/words-June.md) |
 [May Words](./words/2023/words-May.md) |
 [April Words](./words/2023/words-April.md) |
-
 [Mar Words](./words/2023/words-March.md) |
 [Feb Words](./words/2023/words-Feb.md) |
 [Jan Words](./words/2023/words-Jan.md) |

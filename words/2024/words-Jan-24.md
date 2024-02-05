@@ -1,4 +1,38 @@
 
+## Week 2 
+
+When the kombucha is tart and not too sweet (not yet vinegar) it is ready to consume. You can drink it as is.  
+
+**exogenous**, **endogenous**, extraneous  
+
+Mr Bukele is constitutionally barred from standing for a second term. Yet he is standing, having confected a Putinesque workaround to dodge term limits.  
+Many politicians in the region wonder if they should emulate him.  
+Leaders everywhere must decide, in tackling gangs, what is the right balance between respecting civil liberties and protecting the public. Mr Bukele has shown what can be done if one disregards the former in pursuit of the latter.  
+rounded up.  
+locked up without anything remotely resembling a trial.  
+H's even using crime as an execuse to gag the media.  
+Normal life has returned to bullet-pocked neighbourhoods.  
+So leaders who care about civil liberties must do the hard, patient work of figuring out how to fight crime without trampling on them.  
+A messianic leader who steadily accumulates more powers to “protect” the nation—should remember that this story seldom ends well.  
+
+When I published excerpts from the book online in 2020, including the prospect of some form of US civil war, it was considered kooky.  
+If President Biden (or the Democrat who will replace him if the strains of the job impact him) wins, he will pursue diametrically opposed policies.  
+Upward Trendline, downward Trendline.  
+
+
+
+Biden was expected to coast to victory in South Carolina, but the contest was a first test of his momentum when his name was on the ballot.  
+
+In a management setting, it means motivating and inspiring your team. It means providing support and tools to help them succeed.  
+
+
+America’s **shuttle diplomacy** to **wind down** the war in Gaza.  
+How to end the Middle East’s agony.  
+Europe’s grumpy farmers are a symptom of wider malaise - Farmers are not the only ones resisting modernity.  
+Rolls-Royce goes electric—**in style**.  
+
+BlockFi completed returning crypto from its Wallet Product, sending back all requested client assets in full in kind to nearly 130,000 clients, totaling over $500MM worth of crypto.1 Today, BlockFi is announcing the start of its next wave of distributions.  
+
 
 **flair**, **aptitude**, talent  
 
@@ -8,7 +42,6 @@
 Her **gown** was very French and very **chic**.  
 Unemployment and Social Frustration **Foment** Unrest. -  
 Needs change while policies **fossilize**.  
-
 
 The outcome **put me in mind** of a phone call I had received years earlier.  
 She was **giddy** with a curious piece of news. Something fascinating had just happened, and she thought, as a psychologist, I might be able to explain it.  
@@ -364,7 +397,7 @@ I **desiderate** the resources of a family.
 **prophet**, **prophesy**, **prophecy**  
 **apocalyptic**, **apocalypse**, **Armageddon**  
 
-Never before had I heard a **venerated** businessperson express such **trenchant** insights about investing, finance, and the world more broadly, and with such—to use a favored Munger phrase—**chutzpah**.  
+Never before had I heard a **venerated** businessperson express such **trenchant** insights about investing, finance, and the world more broadly, and with such—to use a favored Munger phrase—**chutzpah**. -  
 **numerical fluency**.  
 
 > His essays **extol** the virtues of free enterprise, yes, but also of doing business the right way, with integrity and **rigor**. Of taking your work very seriously, but never yourself.  
@@ -404,4 +437,6 @@ The essay was a meaningless **jumble** of ideas.
 
 Eating fewer calories can **ward off** ageing.  
 The secret ingredient of Blue Zones is … not so **cut-and-dried**.  
+
+Charlie has purposefully **sidestepped** the **limelight**, choosing relative anonymity instead.  
 
