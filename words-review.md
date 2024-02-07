@@ -12,6 +12,7 @@ one of whom kept explaining Berkshire Hathaway’s investing success by adding *
 
 ## words-Jan-24.md ##  
 words/2024/words-Jan-24.md  
+If President Biden (or the Democrat who will replace him if the strains of the job impact him) wins, he will pursue **diametrically** opposed policies. -  
 Unemployment and Social Frustration **Foment** Unrest. -  
 Understanding and applying the principles ethically is cost-free and **deceptively** easy. -  
 The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite. -  
@@ -23,6 +24,7 @@ Do not just **spout** marketing **spiel** or you will quickly lose followers. -
 By certain signs we may **presage** of heats and rains. -  
 Can anything stop Trump the **sequel**? He’d like you to think his chances of **strutting** back into the White House. -  
 The boy was **enthralled** by the stories of adventure. -  
+Never before had I heard a **venerated** businessperson express such **trenchant** insights about investing, finance, and the world more broadly, and with such—to use a favored Munger phrase—**chutzpah**. -  
 
 ## words-Dec.md ##  
 words/2023/words-Dec.md  

@@ -1,5 +1,5 @@
 
-## Week 2 
+## Week 2  
 
 > When the kombucha is tart and not too sweet (not yet vinegar) it is ready to consume. You can drink it as is.  
 
@@ -17,7 +17,7 @@ So leaders who care about civil liberties must do the hard, patient work of figu
 
 > A **messianic** leader who steadily accumulates more powers to “protect” the nation—should remember that this story **seldom** ends well.  
 
-**seldom** vs **rarely**
+**seldom** vs **rarely**  
 
 When I published **excerpts** from the book online in 2020, including the **prospect** of some form of US civil war, it was considered **kooky**.  
 If President Biden (or the Democrat who will replace him if the strains of the job impact him) wins, he will pursue **diametrically** opposed policies. -  
