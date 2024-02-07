@@ -1,5 +1,8 @@
 
-## Week 2  
+Abandon a standard when it is **demonstrably** harmful to productivity or user satisfaction. -  
+**Demon**: Debug Monitor 
+
+## Week 2 
 
 > When the kombucha is tart and not too sweet (not yet vinegar) it is ready to consume. You can drink it as is.  
 
