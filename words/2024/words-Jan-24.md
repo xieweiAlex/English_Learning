@@ -1,6 +1,20 @@
 
+repine??  
+flail??  
+
+**lack thereof**??
+
+Einstein had the **chutzpah** to discard long-established theory. -  
+Every **somber note** in Meditations is matched by **reveries** for the beauty of the natural world and gratitude for the gifts life has given him.  
+
 Abandon a standard when it is **demonstrably** harmful to productivity or user satisfaction. -  
 **Demon**: Debug Monitor 
+
+The **affliction** of the feeling **leaves me wanting more**.  
+
+Telegraphed her **derision** with a smirk.  
+my stories were **greeted** with **derision** and disbelief.  
+
 
 ## Week 2 
 
