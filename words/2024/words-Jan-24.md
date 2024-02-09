@@ -1,6 +1,8 @@
 
-**Fanning** the flames.  
+**exigency**, **contingency**.  
 
+**Fanning** the flames.  
+**rand and file** 
 
 repine??  
 flail??  
