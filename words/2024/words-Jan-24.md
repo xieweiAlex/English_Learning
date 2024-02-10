@@ -1,4 +1,9 @@
 
+hostess.  
+
+
+Sometimes I feel less like your wife than a **possession**. It's **demeaning**.  
+
 **exigency**, **contingency**.  
 
 **Fanning** the flames.  
