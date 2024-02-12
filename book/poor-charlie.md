@@ -24,7 +24,7 @@ One of his sisters remembered years later that the family had to **endure** the 
 Kids played kick the can on warm summer evenings and went to Saturday **matinees** to see the latest **talkies**, such as **King Kong**, a favorite of 8-year-old Charlie.  
 **hobos**.  
 
-His lack of an undergraduate degree threatened to derail him, but a family friend, former Harvard Law School dean Roscoe Pound, **interceded** on Charlie’s behalf. -  
+His lack of an undergraduate degree threatened to derail him, but a family friend, former Harvard Law School dean Roscoe Pound, **interceded** on Charlie’s behalf.   
 
 **winnow**.  
 Charlie **detests** **placer mining**, the process of sifting through **piles of sand** for **specks of gold**.   
@@ -34,7 +34,7 @@ Charlie refers to a company’s competitive advantage as its moat: the virtual p
 
 Such behavior implies uncertainty, and Charlie’s moves, few as they are, are **anything but uncertain**.  
 When this theme is **extrapolated** into investment selection, the preferred Munger business emerges: some thrive by outcompeting (à la Selfish Gene) and others by out-cooperating (à la Darwin’s Blind Spot).  
-Rather, each must be considered as part of the complex whole or **gestalt** of the investment analysis process, in much the same way that an individual tile is **integral to** the **larger mosaic** in which it appears. -  
+Rather, each must be considered as part of the complex whole or **gestalt** of the investment analysis process, in much the same way that an individual tile is **integral to** the **larger mosaic** in which it appears.   
 
 Avoid big mistakes; **shun** permanent capital loss.  
 
@@ -185,7 +185,7 @@ But Shaw **plainly** understates the problem in implying that a conscious, **sel
 
 Even in our youth, some of the best professors were horrified by bad effects from the **balkanization** of academia into **insular**, turf-protecting **enclaves**, wherein notions were maintained by leaps of faith plus exclusion of nonbelievers.  
 
-one of whom kept explaining Berkshire Hathaway’s investing success by adding **standard deviations** of luck until, at six standard deviations, he encountered enough **derision** to force a change in explanation. -  
+one of whom kept explaining Berkshire Hathaway’s investing success by adding **standard deviations** of luck until, at six standard deviations, he encountered enough **derision** to force a change in explanation.   
 business **periodicals**, like the Wall Street Journal, Forbes, Fortune . 
 
 > “There is an old two-part rule that often works wonders in business, science, and elsewhere: 1) Take a simple, basic idea and 2) take it very seriously.”

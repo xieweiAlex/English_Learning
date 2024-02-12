@@ -222,7 +222,7 @@ There is little evidence such services **move the needle** much for people who a
 The team behind Mint felt the **drudgery** of managing money just needed a Silicon Valley **makeover**.  
 An app that **scolds** you to keep your wallet in your pants is never going to be as exciting as trading stocks, buying concert tickets or scrolling social media, said Patzer, Mint’s founder.  
 
-The clock **oscillates** at its own **endogenous**, or internal, period. -  
+The clock **oscillates** at its own **endogenous**, or internal, period.   
 
 **current account surplus**.  
 **snuff out** inflation.  
@@ -383,7 +383,7 @@ The right to protest is fundamental—**as is** an independent police force.
 
 He was showing off, **as is** the way with **adolescent** boys.  
 **medallion**.  
-He was a great **brawny** **brute** of a man. -  
+He was a great **brawny** **brute** of a man.   
 
 **aquatic grass**.  
 If you haven’t tried wild rice yet, then you’re **in for a treat**.  

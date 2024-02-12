@@ -304,7 +304,7 @@ The speech—which would later become known as "This Is Water"—begins with a s
 Elon Musk continues to **goad** Apple (AAPL) by publishing the results of a poll in which he asked his 120M Twitter followers if the world's most-valuable company "should publish all censorship actions it has taken that affect its customers." The vote was **resoundingly** in the affirmative, with nearly 85% of the 2.2M respondents replying "Yes" to the query.  
 **Never one** to miss a chance to **savor** a win, Musk followed up by tweeting, "The people have spoken..."  
 The poll was the latest in a series of **pokes and prods** that Musk began making towards Apple over the weekend.  
-Musk's recent **mudslinging** is reminiscent of a fight once waged by Epic Games over Apple's steep App Store fees, or what some have described as an illegal monopoly over app distribution.  
+Musk's recent **mudslinging** is **reminiscent** of a fight once waged by Epic Games over Apple's steep App Store fees, or what some have described as an illegal monopoly over app distribution.  
 A **military buildup** is likely to be another **boon** for stocks like Lockheed Martin (NYSE:LMT).  
 
 On Monday, Chinese authorities flooded previous protest areas in Beijing, Shanghai and Hong Kong with police vans and security forces to **preempt** further demonstrations.  

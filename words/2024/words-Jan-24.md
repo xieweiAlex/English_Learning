@@ -1,24 +1,70 @@
 
-hostess.  
+## Week 2 
 
+**delectable**, **delicacy**.  
+
+Which brings us back to the **brouhaha** over the title of my last article.  
+I'm also a Christian and a lot of my work is explaining the **immorality** of the current monetary system. I'm also advancing the cause of Bitcoin through political lobbying efforts.  
+
+**around the clock**.  
+**unequivocal**.  
+
+> Transfat  
+> SaturedFat  
+repine??  
+flail??  
+
+**hawker food**.  
+She was **out of step** with her colleagues.  
+Musk's recent **mudslinging** is **reminiscent** of a fight once waged by Epic Games over Apple's steep App Store fees, or what some have described as an illegal monopoly over app distribution.  
+I believe this **treaty** will **pave the way** to peace in Europe.  
+market **gimmick**.  
+**David against Goliath**.  
+Investors, you might not like it, but you better have an **informed** dislike. Because you gonna get questions about this new asset class.  
+We've **come a long way** in a very short period of time.  
+Your **stature** and your credibility are adding to the movement, this global movement is gonna transform the world.  
+**cats out of the bag**.  
+> Disclosure regulator, not merit regulator.  
+
+The SEC was acting arbitrarily and **capricious**, in my opinion, they were discriminating against Bitcoin funds.  
+The winning of Grayscale lawsuit and the finally result of approval of Bitcoin ETFs has a **shot in the arm** for Senator Jill Brand and for me.  
+maybe it's okay, maybe it's not the **devil incarnate**.  
+**in the limelight**.  
+
+
+The Lord will rescue me from the hand of this **Philistine**.  
+**slingshot**.  
+David might have looked like a **wimp**, but he was actually really brave.  
+**sling**, **slung**.  
+
+
+Cathie **sets the stage** for what led to the **eventual** approval of the bitcoin ETF.  
+
+America is trying to **peg** Israel’s settlers **back**. - But their power in politics and on the ground shows no sign of **waning**.  
+The violence of “Power Slap” is part of its **allure**. - A **fringe** **combat sport** is pushing into the mainstream.  
+A property crisis and worsening deflation are **sapping** any positive sentiment.  
+China is **no stranger** to crashing markets, or to Xi Jinping’s attempts to **prop them up**.  
+We have published a report on **first-person view** drones, which have achieved **near-mythical** status on the **front lines** in Ukraine.  
+These mass-produced **hunter-killer** aircraft are already **tilting*the balance** between humans and technology in war.  
+Israel **scorns** America’s unprecedented peace plan.  
+
+
+**hostess**.  
+**hard-nosed** businessman.  
 
 Sometimes I feel less like your wife than a **possession**. It's **demeaning**.  
 
 **exigency**, **contingency**.  
 
 **Fanning** the flames.  
-**rand and file** 
-
-repine??  
-flail??  
-
-**lack thereof**??
+**rand and file**  
+**lack thereof**??  
 
 Einstein had the **chutzpah** to discard long-established theory. -  
 Every **somber note** in Meditations is matched by **reveries** for the beauty of the natural world and gratitude for the gifts life has given him.  
 
 Abandon a standard when it is **demonstrably** harmful to productivity or user satisfaction. -  
-**Demon**: Debug Monitor 
+**Demon**: Debug Monitor  
 
 The **affliction** of the feeling **leaves me wanting more**.  
 
@@ -26,7 +72,7 @@ Telegraphed her **derision** with a smirk.
 my stories were **greeted** with **derision** and disbelief.  
 
 
-## Week 2 
+## Week 1  
 
 > When the kombucha is tart and not too sweet (not yet vinegar) it is ready to consume. You can drink it as is.  
 
@@ -67,7 +113,7 @@ BlockFi completed returning crypto from its Wallet Product, sending back all req
 **ulterior motive**.  
 **cordon**, **curfew**, **baton**.  
 Her **gown** was very French and very **chic**.  
-Unemployment and Social Frustration **Foment** Unrest. -  
+Unemployment and Social Frustration **Foment** Unrest.   
 Needs change while policies **fossilize**.  
 
 The outcome **put me in mind** of a phone call I had received years earlier.  
@@ -97,7 +143,7 @@ Japan will create the system to accept "digital nomads" who can work from anywhe
 
 
 Dr. Cialdini is very **modest** as to the **reverberations** his work has had on the entire business and political world.  
-Understanding and applying the principles ethically is cost-free and **deceptively** easy. -  
+Understanding and applying the principles ethically is cost-free and **deceptively** easy.   
 
 **Augment**.  
 **pamphlet**, **brochure**, **booklet**, **leaflet**.  
@@ -387,7 +433,7 @@ Perhaps AI is a **busted flush**. Perhaps the revolution will just take time.
 ## Week 1  
 
 double, triple, **quadruple**.  
-The boy was **enthralled** by the stories of adventure. -  
+The boy was **enthralled** by the stories of adventure.   
 
 **Lining it** with foil can **constrict** the air flow and your food won't cook properly.  
 
