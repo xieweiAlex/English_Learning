@@ -1,4 +1,6 @@
 
+This is BY FAR the most **crisp** gym video I have ever seen.  
+
 ## Week 2 
 
 **delectable**, **delicacy**.  
