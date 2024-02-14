@@ -25,11 +25,8 @@ Never before had I heard a **venerated** businessperson express such **trenchant
 ## words-Dec.md ##  
 words/2023/words-Dec.md  
 Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
-**kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks.   
 
 ## words-Nov.md ##  
 words/2023/words-Nov.md  
-The object is to **addle** and not to **elucidate**.   
-Outgoing British governments can **bequeath** a total mess or embed their preferences.   
 We launch into a story we've already told half a dozen times—likely on other dates—and start **rattling off** our résumé. In these moments, we’re just **spewing out** information, not connecting with the other person. -  
 Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  

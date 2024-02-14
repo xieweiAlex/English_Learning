@@ -43,13 +43,13 @@ Munger **propounds** the 'Multiple Mental Models' approach to decision making. T
 
 **Stupendous**  
 Nobel **laureate**.  
-The object is to **addle** and not to **elucidate**. -  
+The object is to **addle** and not to **elucidate**.   
 
 The tech **luminary** was referring to OpenAI CEO Sam Altman, who he called a "genuine hero."  
 
 How to thrive in a **fractured** world.  
 Lessons from the ambitious **ascent** of the United Arab Emirates.  
-Outgoing British governments can **bequeath** a total mess or embed their preferences. -  
+Outgoing British governments can **bequeath** a total mess or embed their preferences.   
 Are we really set for **liftoff** in 2024? And if so, how should you invest?  
 
 

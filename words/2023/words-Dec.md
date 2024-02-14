@@ -290,7 +290,7 @@ Nothing could **be further from truth**.
 **in disorder**.  
 **retrench** expenditures.   
 
-**kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks. -  
+**kickstart** your networking journey with fellow Bitcoin enthusiasts over a **delectable** meat feast and drinks.   
 
 It **progressively** harder as you go.  
 

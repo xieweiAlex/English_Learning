@@ -1,8 +1,8 @@
 
+Learn at frantic speed.  
+
 He tried to exercise an undue influence upon his colleagues.  
-rivalry, animosity, hostility, adversarial 
-
-
+rivalry, animosity, hostility, adversarial  
 
 dwell on.  
 
@@ -11,9 +11,9 @@ reconnoitering.
 
 
 This is BY FAR the most **crisp** gym video I have ever seen.  
-I can’t promise you that I’ll outperform my 2023, but I can promise you my blood, sweat and tears and all the knowledge we can **muster** to help you make better investment decisions — it’s really that simple.
+I can’t promise you that I’ll outperform my 2023, but I can promise you my blood, sweat and tears and all the knowledge we can **muster** to help you make better investment decisions — it’s really that simple.  
 
-## Week 2 
+## Week 2  
 
 **delectable**, **delicacy**.  
 
@@ -127,7 +127,7 @@ BlockFi completed returning crypto from its Wallet Product, sending back all req
 **ulterior motive**.  
 **cordon**, **curfew**, **baton**.  
 Her **gown** was very French and very **chic**.  
-Unemployment and Social Frustration **Foment** Unrest.   
+Unemployment and Social Frustration **Foment** Unrest.  
 Needs change while policies **fossilize**.  
 
 The outcome **put me in mind** of a phone call I had received years earlier.  
@@ -157,7 +157,7 @@ Japan will create the system to accept "digital nomads" who can work from anywhe
 
 
 Dr. Cialdini is very **modest** as to the **reverberations** his work has had on the entire business and political world.  
-Understanding and applying the principles ethically is cost-free and **deceptively** easy.   
+Understanding and applying the principles ethically is cost-free and **deceptively** easy.  
 
 **Augment**.  
 **pamphlet**, **brochure**, **booklet**, **leaflet**.  
@@ -447,7 +447,7 @@ Perhaps AI is a **busted flush**. Perhaps the revolution will just take time.
 ## Week 1  
 
 double, triple, **quadruple**.  
-The boy was **enthralled** by the stories of adventure.   
+The boy was **enthralled** by the stories of adventure.  
 
 **Lining it** with foil can **constrict** the air flow and your food won't cook properly.  
 
