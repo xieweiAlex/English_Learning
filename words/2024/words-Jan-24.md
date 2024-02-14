@@ -1,5 +1,17 @@
 
+He tried to exercise an undue influence upon his colleagues.  
+rivalry, animosity, hostility, adversarial 
+
+
+
+dwell on.  
+
+**Recon**: short for **Reconnaissance**, a term for gathering preliminary information.  
+reconnoitering.  
+
+
 This is BY FAR the most **crisp** gym video I have ever seen.  
+I can’t promise you that I’ll outperform my 2023, but I can promise you my blood, sweat and tears and all the knowledge we can **muster** to help you make better investment decisions — it’s really that simple.
 
 ## Week 2 
 
