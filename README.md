@@ -21,6 +21,7 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 [Special Verbs](./special/2024/verb-24.md) |
 
 [Jan Words](./words/2024/words-Jan-24.md) |
+[Feb Words](./words/2024/words-Feb-24.md) |
 
 
 ### 2023
