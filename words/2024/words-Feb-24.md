@@ -1,6 +1,19 @@
 
-fudge casualty figures.  
+A gripping memoir of one woman’s self-discovery inside a top Wall Street firm, and an urgent indictment of privilege, extreme wealth, and work culture.  
+A luxury-laden world opens up for her, and Carrie learns that money can solve nearly everything.  
 
+Your brain is an **energy hog**.  
+
+**exorcist**  
+**parasocial**  
+**sonorous** 
+Barcelona is the **locus** of Spanish industry.  
+a **locust** sandstorm.  
+**condign** respect.  
+**disabuse** foolish prejudices.  
+
+
+**fudge** casualty figures.  
 
 **you might as well**. 
 Learn at **frantic** speed.  
