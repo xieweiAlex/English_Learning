@@ -1,28 +1,46 @@
 
-A gripping memoir of one woman’s self-discovery inside a top Wall Street firm, and an urgent indictment of privilege, extreme wealth, and work culture.  
-A luxury-laden world opens up for her, and Carrie learns that money can solve nearly everything.  
+The statist trend intensified greatly during the credit crunch.   
+Mr Trump, Viktor Orban and a motley crew of Western populists have demolished the old conservative orthodoxy, constructing in its place a statist, anti-migration, “anti-woke” ideology.   
+The alliance behind it may be incoherent, but that does not make these ideas harmless.  
+
+
+> Transfat  
+> SaturedFat  
+repine??  
+flail??  
+
+The growing **peril** of national conservatism.  
+
+A new answer to the biggest climate **conundrum**.  
+
+Navalny, 47, was **imprisoned** after exposing **rampant corruption** in Vladimir Putin's inner circle and forming the most effective political movement opposing the Russian leader.  
+
+I have **no qualms** about recommending the same approach to other doctors.  
+
+The **husk** is **ripped off** by powerful **pincers**.  
+**plier**, **clamps**, wrench.  
+**serenade**  
+
+A **gripping** memoir of one woman’s self-discovery inside a top Wall Street firm, and an urgent **indictment** of privilege, extreme wealth, and work culture.  
+A **luxury-laden** world opens up for her, and Carrie learns that money can solve nearly everything.  
 
 Your brain is an **energy hog**.  
-
 **exorcist**  
 **parasocial**  
-**sonorous** 
+**sonorous**  
 Barcelona is the **locus** of Spanish industry.  
 a **locust** sandstorm.  
 **condign** respect.  
 **disabuse** foolish prejudices.  
 
-
 **fudge** casualty figures.  
-
-**you might as well**. 
+**you might as well**.  
 Learn at **frantic** speed.  
 
 He tried to exercise an **undue** influence upon his colleagues.  
 **Rivalry**, animosity, hostility, adversarial  
 
 **dwell on**.  
-
 **Recon**: short for **Reconnaissance**, a term for gathering preliminary information.  
 **reconnoitering**.  
 
@@ -33,17 +51,11 @@ I can’t promise you that I’ll outperform my 2023, but I can promise you my b
 ## Week 2  
 
 **delectable**, **delicacy**.  
-
 Which brings us back to the **brouhaha** over the title of my last article.  
 I'm also a Christian and a lot of my work is explaining the **immorality** of the current monetary system. I'm also advancing the cause of Bitcoin through political lobbying efforts.  
 
 **around the clock**.  
 **unequivocal**.  
-
-> Transfat  
-> SaturedFat  
-repine??  
-flail??  
 
 **hawker food**.  
 She was **out of step** with her colleagues.  

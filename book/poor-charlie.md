@@ -9,7 +9,7 @@ Charlie’s **affinity** for Benjamin Franklin’s expansive career in governmen
 Charlie admires that **trait** in his mentor and strives to **emulate** Franklin.  
 
 Throughout the book, Charlie reveals his intellect, wit, values, and no end of rhetorical **flair**.  
-Using **self-deprecation** and imagination to great effect, Charlie cheerfully compares himself to a counting horse, proposes “Glotz’s Sugared, Caffeinated Water” as a **marketing-bereft** label for Coca-Cola, and attests, “At least when I was young, I wasn't a total **klutz**." -  
+Using **self-deprecation** and imagination to great effect, Charlie cheerfully compares himself to a counting horse, proposes “Glotz’s Sugared, Caffeinated Water” as a **marketing-bereft** label for Coca-Cola, and attests, “At least when I was young, I wasn't a total **klutz**."   
 **Inversion**.  
 He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information.  
 **human foibles**.  
@@ -89,7 +89,7 @@ Despite Charlie’s **self-effacing** protestations.
 For those of you who want to remain unenlightened and **mirthless**, do not, under any circumstances, read this selection. -  
 
 But whatever the topic, Charlie is **apt** to tell it like it is, which is exactly what he has done in over two decades of public speaking.  
-Now that Headmaster Berrisford has selected one of the oldest and longest-serving trustees to make a **commencement speech**, **it behooves** the speaker to address two questions in every mind. -  
+Now that Headmaster Berrisford has selected one of the oldest and longest-serving trustees to make a **commencement speech**, **it behooves** the speaker to address two questions in every mind.   
 
 Benjamin Disraeli,78 as he rose to become one of the greatest prime ministers, learned to give up **vengeance** as a motivation for action, but he did retain some **outlet** for resentment by putting the names of people who wronged him on pieces of paper in a drawer.  
 

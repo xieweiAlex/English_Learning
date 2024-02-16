@@ -229,7 +229,7 @@ I don't want to **boast**, but I can actually speak six languages.
 These ETF issuers will **viciously** compete with one another for capital because, in the ETF world, liquidity is king.  
 
 Does Golden Globe success **presage** an Oscar?  
-By certain signs we may **presage** of heats and rains. -  
+By certain signs we may **presage** of heats and rains.   
 The truth about Flight MH17 -- Investigating the crime that **presaged** the war in Ukraine  
 
 > If these unavoidable experience distress us, we become **playthings** of our environment.  
