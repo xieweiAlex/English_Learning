@@ -1,4 +1,8 @@
 
+Leaked emails from the organisers of the prestigious Hugo awards for science fiction and fantasy suggest several authors were excluded from shortlists last year after they were flagged for comments or works that could be viewed as sensitive in China.  
+The news sparked consternation in the science fiction community, with many fans and authors expressing concern that the awards had been tainted by censorship.   
+
+
 The statist trend intensified greatly during the credit crunch.   
 Mr Trump, Viktor Orban and a motley crew of Western populists have demolished the old conservative orthodoxy, constructing in its place a statist, anti-migration, “anti-woke” ideology.   
 The alliance behind it may be incoherent, but that does not make these ideas harmless.  
