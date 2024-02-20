@@ -99,7 +99,7 @@ Introduce yourself to people when you're **out and about**.
 **evaluative** vs **experimental**  
 He was bringing a **harried**, **sexless** mindset into dating and was then surprised when he felt no attraction to the other person.  
 This type of date **quells** any sexuality that might enter the equation. Even worse, dates that are structured like job interviews put us into “**press play**” mode.  
-We launch into a story we've already told half a dozen times—likely on other dates—and start **rattling off** our résumé. In these moments, we’re just **spewing out** information, not connecting with the other person. -  
+We launch into a story we've already told half a dozen times—likely on other dates—and start **rattling off** our résumé. In these moments, we’re just **spewing out** information, not connecting with the other person.   
 If you **sit through** a date trying to evaluate the other person and your own reaction, you’re not present. Your date can’t get a good sense of who you are, and you aren't present enough to experience the moment, **let alone** enjoy it.  
 
 **look over their shoulder**.  

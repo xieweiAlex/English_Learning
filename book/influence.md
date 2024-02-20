@@ -24,3 +24,64 @@ A potentially effective strategy for reducing the unwanted influence of liking o
 Upon recognizing that we like a requester **inordinately** well under the circumstances, we should **step back** from the interaction, mentally separate the requester from his or her offer, and make any compliance decision based solely on the **merits** of the offer.  
 
 
+## Chapter 6 - Authority
+
+A fourth group received an appeal that **incorporated** the principle of authority in the form of a letter from their CEO **extolling** the importance of the program to the bank as well as the value of the selected charities to society;
+
+Suppose while **leafing** through your local newspaper, you notice an ad for volunteers to take part in a “study of memory” being done in the psychology department of a nearby university.
+
+**clipboard**.  
+**electrode**.  
+**intercom**.  
+
+At the 75-, 90-, and 105-volt levels, the pain makes you **grunt** **audibly**.  
+
+At 120 volts, you **exclaim** into the intercom that the shocks are really starting to hurt.  
+He responds only with the next test question—and with the next **slashing** shock—when your **frenzied** answer is incorrect.  
+
+You can’t **hold down** the panic any longer, the shocks are so strong now they make you **writhe** and **shriek**.  
+The **ordeal** continues in this way until, finally, the power of the shocks **stuns** you into **near-paralysis**.  
+Stop. There can be no reason to continue this experiment, but he **proceeds** **relentlessly**, calling out the test questions, announcing the **horrid** shock levels (above 400 volts now), and pulling the levers.  
+
+the Learner, who repeatedly **cried out in agony** for mercy and release, was not a true **subject** but an actor who only pretended to be shocked.  
+
+**ordinary people**  
+The answer is **unsettling**.
+
+How many subjects would go **all the way** to the last (450-volt) shock. **Invariably**, the answers fell in the 1–2 percent range.
+> Female Teachers were just as likely to do so as were the males in Milgram’s initial study.
+
+What’s more, later on, a **battery** of personality scales showed these people to be quite normal psychologically, with not a hint of **psychosis** as a group.
+
+If he is right that his studies **implicate** us in their **grisly** findings, the unanswered question becomes an uncomfortably personal one, “What could make us do such things?”
+
+It has to do, he said, with a **deep-seated** **sense of duty** to authority.
+
+These conflicting **directives** reliably produced what may have been the project’s only humor: in **tragicomic** **befuddlement** and with eyes darting from one researcher to another, subjects would **beseech** the pair to agree on a single command to follow: “Wait, wait. Which is it going to be?
+When the researchers remained at **loggerheads**, the subjects tried frantically to determine the bigger boss.
+
+some form of **sadism** or neurotic aggressiveness.  
+
+There are **sobering** implications of this finding for those concerned about the ability of another form of authority—government—to extract frightening levels of obedience from **ordinary citizens**.
+
+After witnessing Milgram’s subjects **squirming** and sweating and suffering at their task, could anyone doubt the power of the force that held them there?  
+
+Because navy medical **corpsmen** at the scene refused to treat him or allow him to be taken to the hospital in their ambulance, **onlookers**—including Mr. Willson’s wife and son—were left to try to **staunch** the flow of blood for forty-five minutes until a private ambulance arrived.  
+
+They’re the **fall guys**.  
+Although the crew members shared Mr. Willson’s assessment of them as victims, they did not share his **magnanimity**.  
+
+
+Less **blatant** in its **connotation** than a uniform, but still effective, is another kind of attire that has traditionally indicated authority status in our culture: the **business suit**.
+
+> three-and-a-half times as many people swept into traffic behind the suited jaywalker.
+
+Are combined **deftly** by con artists in a fraud called the **bank examiner** scheme.
+
+The target of the **swindle** can be anyone, but elderly persons living alone are **preferred**.
+His white shirt is **starched**, **wingtip shoes** **glow** darkly, and suit is **classic**.
+
+What they are is a pair of **bunco artists** who have recognized the capacity of carefully counterfeited uniforms to **click** us into **mesmerized compliance** with “authority.”
+
+
+

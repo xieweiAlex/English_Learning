@@ -28,5 +28,4 @@ Artists and museums are still creating or collecting non-fungible tokens (nfts).
 
 ## words-Nov.md ##  
 words/2023/words-Nov.md  
-We launch into a story we've already told half a dozen times—likely on other dates—and start **rattling off** our résumé. In these moments, we’re just **spewing out** information, not connecting with the other person. -  
 Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  

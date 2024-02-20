@@ -1,11 +1,40 @@
 
-Leaked emails from the organisers of the prestigious Hugo awards for science fiction and fantasy suggest several authors were excluded from shortlists last year after they were flagged for comments or works that could be viewed as sensitive in China.  
-The news sparked consternation in the science fiction community, with many fans and authors expressing concern that the awards had been tainted by censorship.   
+## Week 3  
+
+his face **tapers** to a pointed chin.  
+Unlike other trees, it doesn't **taper** very much. It stays fat all the way up.  
+Bitcoin is a **life raft** for refugees, who no longer need to leave their savings behind when they flee their country.  
+
+clean as **whistle**.  
+Acts of generosity can **leave** some **men in blue** **wanting more**.  
+
+One of those shocking events came on Friday, with reports that Alexei Navalny, Russia’s most prominent opposition leader, had died in an Arctic **penal colony**.  
+The precise circumstances remain **murky**, but as we wrote, “Whatever ends up on his death certificate, he was killed by Vladimir Putin.”  
+Several other opposition figures are either dead or in prison. Mr Putin’s repressive **grip** seems tighter than ever.  
+
+She's **stringing you along** or leaving you with a little **glimmer** of hope that one day she'll be available to hang out with you.  
+**subtract**, **deduct**, minus, drop, cut, substitute  
 
 
-The statist trend intensified greatly during the credit crunch.   
-Mr Trump, Viktor Orban and a motley crew of Western populists have demolished the old conservative orthodoxy, constructing in its place a statist, anti-migration, “anti-woke” ideology.   
-The alliance behind it may be incoherent, but that does not make these ideas harmless.  
+Ads grab attention, spark interest, and, hopefully, make the sale somewhere **down the line**.  
+People feel the need to fill **empty space**.  
+Mission statements help us re-calibrate when we **stray off path**.  
+**path of least resistance**.  
+If your ego quickly gets hurt or your emotional state easily becomes **flustered** and defensive -- chances are you're not allocating well.  
+
+**barrack**  
+
+I’m so glad we addressed our feelings, and I’m **kicking myself** for not reaching out sooner.  
+Home Depot and Walmart **kick off** quarterly earnings reports for **a slew of** retailers next week, offering investors a crucial look at the financial health of US households.  
+**Whiplash**, all over the place.  
+**gripe**.  
+
+Leaked emails from the organizers of the prestigious Hugo awards for **science fiction and fantasy** suggest several authors were excluded from **shortlists** last year after they were flagged for comments or works that could be viewed as sensitive in China.  
+The news sparked **consternation** in the science fiction community, with many fans and authors expressing concern that the awards had been **tainted** by censorship.  
+
+The **statist** trend intensified greatly during the **credit crunch**.  
+Mr Trump, Viktor Orban and a **motley** crew of Western populists have **demolished** the old conservative **orthodoxy**, constructing in its place a **statist**, anti-migration, “anti-woke” ideology.  
+The alliance behind it may be **incoherent**, but that does not make these ideas harmless.  
 
 
 > Transfat  
