@@ -1,11 +1,18 @@
 
+stilt.  
+He was commended for saving a child's life.  
+wieldy, unwieldy.  
+
+
+Super Micro Computer Is Taking A Breath, The Run-Up Should Continue.  
+
 The torrid rays of the sun parched the soil.  
 rump.  
-
 
 **rand and file**  
 **lack thereof**??  
 
+> He's in high demand. 
 
 
 ## Week 3  
