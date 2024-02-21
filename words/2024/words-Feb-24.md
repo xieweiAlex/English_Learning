@@ -1,4 +1,13 @@
 
+The torrid rays of the sun parched the soil.  
+rump.  
+
+
+**rand and file**  
+**lack thereof**??  
+
+
+
 ## Week 3  
 
 his face **tapers** to a pointed chin.  
@@ -133,8 +142,6 @@ Sometimes I feel less like your wife than a **possession**. It's **demeaning**.
 **exigency**, **contingency**.  
 
 **Fanning** the flames.  
-**rand and file**  
-**lack thereof**??  
 
 Einstein had the **chutzpah** to discard long-established theory. -  
 Every **somber note** in Meditations is matched by **reveries** for the beauty of the natural world and gratitude for the gifts life has given him.  
