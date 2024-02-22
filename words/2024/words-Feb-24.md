@@ -1,4 +1,8 @@
 
+All those shiny, sexy things, it's veneer, a thin disguise for what's underneath, for real Korea.     
+A few blocks away, you'll be confronted with open air market, street vendor, and mom and pop shops selling...  
+
+
 John Gruber, co-creator of Markdown and the raconteur behind Daring Fireball, offers trenchant insights on tech.  
 British lives are getting dullerGood news for Britons, bad news for obituarists.  
 The usurpers from Girona are shaking up Spanish footballBut the underdog story is not as romantic as it looks  
