@@ -1,13 +1,20 @@
 
-stilt.  
-He was commended for saving a child's life.  
-wieldy, unwieldy.  
+John Gruber, co-creator of Markdown and the raconteur behind Daring Fireball, offers trenchant insights on tech.  
+British lives are getting dullerGood news for Britons, bad news for obituarists.  
+The usurpers from Girona are shaking up Spanish footballBut the underdog story is not as romantic as it looks  
+
+> France fanon assassination
 
 
-Super Micro Computer Is Taking A Breath, The Run-Up Should Continue.  
 
-The torrid rays of the sun parched the soil.  
-rump.  
+**stilt**.  
+He was **commended** for saving a child's life.  
+**wieldy**, **unwieldy**.  
+
+Super Micro Computer Is **Taking A Breath**, The Run-Up Should Continue.  
+
+The **torrid** **rays** of the sun **parched** the soil.  
+**rump**.  
 
 **rand and file**  
 **lack thereof**??  
