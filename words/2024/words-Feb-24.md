@@ -1,4 +1,12 @@
 
+tabloid, titbiz
+A biopsy is usually a minor surgical procedure.
+I’m particularly interested in our struggle to deploy these tools in ways that support instead of subvert the things we care about in both our personal and professional lives.  
+
+scatology. 
+bovine scatology.   
+
+
 
 All those shiny, sexy things, it's **veneer**, a thin disguise for what's underneath, for real Korea.     
 A few blocks away, you'll be confronted with **open air market**, **street vendor**, and mom and pop shops selling...  

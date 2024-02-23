@@ -85,3 +85,13 @@ What they are is a pair of **bunco artists** who have recognized the capacity of
 
 
 
+## Chaapter 7 - Commitment and Consistency 
+
+He had repented and wanted to move back in. When Sara told him her marriage plans, he begged her to change her mind;
+“There is no expedient to which a man will not resort to avoid the real labor of thinking.”
+
+After what appeared to have been an embarrassingly clear collapse of their presentation, the meeting had somehow turned into a success, generating inexplicably high levels of compliance from the audience. Although more than a bit puzzled, I chalked up the audience’s response to a failure to understand the logic of my colleague’s arguments. As it turned out, just the reverse was true.  
+
+I found that they had understood his comments quite well, in fact, all too well. It was precisely the cogency of his claims that drove them to sign up for the program on the spot.
+
+
