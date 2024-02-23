@@ -1,15 +1,13 @@
 
-All those shiny, sexy things, it's veneer, a thin disguise for what's underneath, for real Korea.     
-A few blocks away, you'll be confronted with open air market, street vendor, and mom and pop shops selling...  
 
+All those shiny, sexy things, it's **veneer**, a thin disguise for what's underneath, for real Korea.     
+A few blocks away, you'll be confronted with **open air market**, **street vendor**, and mom and pop shops selling...  
 
-John Gruber, co-creator of Markdown and the raconteur behind Daring Fireball, offers trenchant insights on tech.  
-British lives are getting dullerGood news for Britons, bad news for obituarists.  
-The usurpers from Girona are shaking up Spanish footballBut the underdog story is not as romantic as it looks  
+John Gruber, co-creator of Markdown and the **raconteur** behind Daring Fireball, offers **trenchant insights** on tech.  
+British lives are getting **duller**-Good news for **Britons**, bad news for **obituarists**.  
+The **usurpers** from Girona are **shaking up** Spanish football-But the underdog story is not as romantic as it looks.  
 
-> France fanon assassination
-
-
+> France Fanon assassination
 
 **stilt**.  
 He was **commended** for saving a child's life.  
@@ -20,11 +18,10 @@ Super Micro Computer Is **Taking A Breath**, The Run-Up Should Continue.
 The **torrid** **rays** of the sun **parched** the soil.  
 **rump**.  
 
-**rand and file**  
+**Rank and file**  
 **lack thereof**??  
 
 > He's in high demand. 
-
 
 ## Week 3  
 
@@ -42,18 +39,16 @@ Several other opposition figures are either dead or in prison. Mr Putin’s repr
 She's **stringing you along** or leaving you with a little **glimmer** of hope that one day she'll be available to hang out with you.  
 **subtract**, **deduct**, minus, drop, cut, substitute  
 
-
 Ads grab attention, spark interest, and, hopefully, make the sale somewhere **down the line**.  
 People feel the need to fill **empty space**.  
 Mission statements help us re-calibrate when we **stray off path**.  
 **path of least resistance**.  
 If your ego quickly gets hurt or your emotional state easily becomes **flustered** and defensive -- chances are you're not allocating well.  
-
 **barrack**  
 
 I’m so glad we addressed our feelings, and I’m **kicking myself** for not reaching out sooner.  
 Home Depot and Walmart **kick off** quarterly earnings reports for **a slew of** retailers next week, offering investors a crucial look at the financial health of US households.  
-**Whiplash**, all over the place.  
+**Whiplash**, **all over the place**.  
 **gripe**.  
 
 Leaked emails from the organizers of the prestigious Hugo awards for **science fiction and fantasy** suggest several authors were excluded from **shortlists** last year after they were flagged for comments or works that could be viewed as sensitive in China.  
