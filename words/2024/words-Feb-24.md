@@ -1,4 +1,9 @@
 
+Valley of disappointment.  
+half-assed way. 
+
+> Joan Didion, his steely, stoic wife, responded with something we can imagine Marcus Aurelius reminding himself of in Meditations: “You don’t get a choice.”
+
 tabloid, titbiz
 A biopsy is usually a minor surgical procedure.
 I’m particularly interested in our struggle to deploy these tools in ways that support instead of subvert the things we care about in both our personal and professional lives.  
