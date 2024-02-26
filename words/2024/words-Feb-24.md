@@ -1,26 +1,53 @@
 
-Valley of disappointment.  
-half-assed way. 
+The **flimsiest** of the cases is set to go first, and all face delays.  
 
-> Joan Didion, his steely, stoic wife, responded with something we can imagine Marcus Aurelius reminding himself of in Meditations: “You don’t get a choice.”
+But now that you control Berkshire, add to it wonderful businesses purchased at fair prices and give up buying fair businesses at wonderful prices. In other words, abandon everything you learned from your hero, Ben Graham. It works but only when practiced at small scale.” With much back-sliding I subsequently followed his instructions.
 
-tabloid, titbiz
-A biopsy is usually a minor surgical procedure.
-I’m particularly interested in our struggle to deploy these tools in ways that support instead of subvert the things we care about in both our personal and professional lives.  
+And if there is **backsliding**, there will be no deal.  
+This is not **countermarch** or **backslide**.  
 
-scatology. 
-bovine scatology.   
+Charlie never sought to take credit for his role as creator but instead let me take the bows and receive the **accolades**.  
+Even when he knew he was right, he gave me **the reins**, and when I **blundered** he never – never –reminded me of my mistake.  
 
+## Week 3  
 
+**Carvort**: It has a playful and energetic **connotation**, often used to describe lively or **boisterous** behavior, like **frolicking** or **romping** around. -  
 
-All those shiny, sexy things, it's **veneer**, a thin disguise for what's underneath, for real Korea.     
+The living room **adjoins** the dining room.  
+**grim reaper**.  
+Deflation is beginning to **take hold** in the clothing industry.  
+**squeal**, **squealer**.  
+There is a **teensy** **weensy** little problem though.  
+Because **you never know when your next meal will come along**. Free-market capitalism, meanwhile, **ensures** it always does come along, in whatever quantity your appetite desires.  
+
+Everyone knows deep down that **piling** on the kilos is life-shortening.  
+Why everyone should eat more ugly seafood--In praise of the **monstrous**, abundant and delicious **monkfish**  
+**Llama** and **alpaca** farmers have been badly hit by recurring water shortages.  
+**conjugal**, **conjugal-visit**.  
+
+I **absolve** you from all your sins.  
+My **bylaws** are a work of art.  
+
+**Valley of disappointment**.  
+**half-assed** way.  
+
+> Joan Didion, his **steely**, stoic wife, responded with something we can imagine Marcus Aurelius reminding himself of in Meditations: “**You don’t get a choice**.”  
+
+**tabloid**, **tidbit**,  
+A **biopsy** is usually a minor surgical procedure.  
+I’m particularly interested in our struggle to deploy these tools in ways that support instead of **subvert** the things we care about in both our personal and professional lives.  
+
+**scatology**.  
+**bovine scatology**.  
+
+All those shiny, sexy things, it's **veneer**, a thin disguise for what's underneath, for real Korea.  
 A few blocks away, you'll be confronted with **open air market**, **street vendor**, and mom and pop shops selling...  
 
 John Gruber, co-creator of Markdown and the **raconteur** behind Daring Fireball, offers **trenchant insights** on tech.  
 British lives are getting **duller**-Good news for **Britons**, bad news for **obituarists**.  
 The **usurpers** from Girona are **shaking up** Spanish football-But the underdog story is not as romantic as it looks.  
 
-> France Fanon assassination
+> France Fanon assassination  
 
 **stilt**.  
 He was **commended** for saving a child's life.  
@@ -34,7 +61,7 @@ The **torrid** **rays** of the sun **parched** the soil.
 **Rank and file**  
 **lack thereof**??  
 
-> He's in high demand. 
+> He's in high demand.  
 
 ## Week 3  
 
@@ -172,7 +199,7 @@ Sometimes I feel less like your wife than a **possession**. It's **demeaning**.
 Einstein had the **chutzpah** to discard long-established theory. -  
 Every **somber note** in Meditations is matched by **reveries** for the beauty of the natural world and gratitude for the gifts life has given him.  
 
-Abandon a standard when it is **demonstrably** harmful to productivity or user satisfaction. -  
+Abandon a standard when it is **demonstrably** harmful to productivity or user satisfaction.   
 **Demon**: Debug Monitor  
 
 The **affliction** of the feeling **leaves me wanting more**.  
@@ -280,11 +307,16 @@ The sofa would be less **obtrusive** in a paler color.
 
 
 ## Conversation  
+**path of least resistance**.  
 
 
 ## Interesting  
-
 Eating fewer calories can **ward off** ageing.  
-
 Charlie has purposefully **sidestepped** the **limelight**, choosing relative anonymity instead.  
+
+She's **stringing you along** or leaving you with a little **glimmer** of hope that one day she'll be available to hang out with you.  
+I’m so glad we addressed our feelings, and I’m **kicking myself** for not reaching out sooner.  
+Your brain is an **energy hog**.  
+**fudge** casualty figures.  
+
 

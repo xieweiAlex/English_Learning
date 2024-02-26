@@ -443,7 +443,7 @@ she was **in the thick of it**.
 
 She put the vase of flowers on the **window ledge**.  
 **photosynthesis**.  
-Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil. -  
+Another disadvantage of a houseplant can be **fungal spores** and bacteria that like to **cavort** in the potting soil.   
 unique **homeliness**.  
 
 There is real value in taking time to process and grieve and dance with **the morbidity of our mortality**, of creating a ritual that allows us to **come to terms** with this essential part of our existence.  

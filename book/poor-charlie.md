@@ -17,7 +17,7 @@ Charlie has purposefully **sidestepped** the **limelight**, choosing relative an
 Charlie’s formal education began at Dundee Elementary School, where he and his younger sisters, Mary and Carol, were **indoctrinated** with **ethical homilies**. -  
 
 Charlie’s teachers remember a smart kid who was also inclined to be a bit of a **wiseacre**.   
-Today, he can’t remember the first time he was exposed to the aphorisms of Ben Franklin, but they fueled an **ineffaceable** admiration for the **eclectic and eccentric** **statesman** and inventor. -  
+Today, he can’t remember the first time he was exposed to the aphorisms of Ben Franklin, but they fueled an **ineffaceable** admiration for the **eclectic and eccentric** **statesman** and inventor.   
 By the time he was 14, the **precocious** learner had also become one of the doctor’s best friends.  
 Even at an early age, Charlie showed a **sagacious** negotiating ability and usually gained a bigger **specimen** or one with unusual coloring.  
 One of his sisters remembered years later that the family had to **endure** the **incessant** squeaking of hungry hamsters until Charlie arrived home from school to feed them.  

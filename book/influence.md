@@ -95,3 +95,7 @@ After what appeared to have been an embarrassingly clear collapse of their prese
 I found that they had understood his comments quite well, in fact, all too well. It was precisely the cogency of his claims that drove them to sign up for the program on the spot.
 
 
+## Chapter 9 instant influence 
+Twenty minutes later, I was wheeling out of the store with the “prize” I had obtained in my cart.
+Now, suppose instead of providing honest information, Brad fabricated the scarcity-related conditions surrounding the TV.
+

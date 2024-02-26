@@ -89,7 +89,7 @@ He sat back and gave a loud **belch**.
 **chimney**.  
 He took some **anodyne** to relieve the pain. -  
 Paula's stomach turned a **somersault**.  
-his car **somersaulted** into a ditch. -  
+his car **somersaulted** into a ditch.   
 **perpendicular**.  
 **pocketbook**, purse, wallet  
 He is a bit **long in the tooth** to be playing Tom Sawyer.  
@@ -170,7 +170,7 @@ Spotify has reacted with **fury**, saying the policy "**flies in the face**" of 
 
 His attendance record was **spotty**.  
 She was **rather fat**, and her **complexion** was **spotty**.  
-Don't talk such **drivel**! -  
+Don't talk such **drivel**!   
 **imposture** .  
 Don't **make a mountain out of molehill**.  
 U.N. officials **decried** the bombing and shelling and said they needed calm. -  
