@@ -1,4 +1,7 @@
 
+
+superceze, replace, cover ?? 
+
 The **flimsiest** of the cases is set to go first, and all face delays.  
 
 But now that you control Berkshire, add to it wonderful businesses purchased at fair prices and give up buying fair businesses at wonderful prices. In other words, abandon everything you learned from your hero, Ben Graham. It works but only when practiced at small scale.” With much back-sliding I subsequently followed his instructions.
