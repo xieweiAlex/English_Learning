@@ -1,6 +1,14 @@
 
-come off the sidelines.  
+He shook his head despondently.  
+efficacious . 
+Aryan.  
+The overriding problem is the continuing deficit financing of the federal government.  
+Their overriding aim was to keep costs low.  
+Bumbler.  
 
+
+
+**come off the sidelines**.  
 
 superceze, replace, cover ?? 
 
