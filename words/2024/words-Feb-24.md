@@ -1,20 +1,19 @@
 
-He shook his head despondently.  
-efficacious . 
-Aryan.  
-The overriding problem is the continuing deficit financing of the federal government.  
-Their overriding aim was to keep costs low.  
-Bumbler.  
+**What’s more**, all derived child keys can also derive their own future generations of grandchild keys.  
 
-
+He shook his head **despondently**.  
+**efficacious** . 
+**Aryan**.  
+The **overriding** problem is the continuing deficit financing of the federal government.  
+Their **overriding** aim was to keep costs low.  
+**Bumbler**.  
 
 **come off the sidelines**.  
-
-superceze, replace, cover ?? 
+**Supersede**, replace
 
 The **flimsiest** of the cases is set to go first, and all face delays.  
 
-But now that you control Berkshire, add to it wonderful businesses purchased at fair prices and give up buying fair businesses at wonderful prices. In other words, abandon everything you learned from your hero, Ben Graham. It works but only when practiced at small scale.” With much back-sliding I subsequently followed his instructions.
+But now that you control Berkshire, add to it wonderful businesses purchased at fair prices and give up buying fair businesses at wonderful prices. In other words, abandon everything you learned from your hero, Ben Graham. It works but only when practiced at small scale.” With much **back-sliding** I subsequently followed his instructions.
 
 And if there is **backsliding**, there will be no deal.  
 This is not **countermarch** or **backslide**.  
@@ -308,7 +307,15 @@ Children **are liable to** catch cold.
 The sofa would be less **obtrusive** in a paler color.  
 
 
+## Conversation  
+**path of least resistance**.  
+
+
+## Interesting  
+
 **crabby**, **crusty**, **cranky**, **edgy**  
+**grumpy**
+
 
 > Crabby: This word is used to describe someone who is easily annoyed or irritable. They may be in a bad mood or have a short temper.  
 
@@ -319,11 +326,6 @@ The sofa would be less **obtrusive** in a paler color.
 > Edgy: This word can have a few different meanings as well. It can refer to something that is sharp or rough, such as an edgy rock. It can also be used to describe someone who is tense, nervous, or on edge.  
 
 
-## Conversation  
-**path of least resistance**.  
-
-
-## Interesting  
 Eating fewer calories can **ward off** ageing.  
 Charlie has purposefully **sidestepped** the **limelight**, choosing relative anonymity instead.  
 
@@ -331,5 +333,8 @@ She's **stringing you along** or leaving you with a little **glimmer** of hope t
 I’m so glad we addressed our feelings, and I’m **kicking myself** for not reaching out sooner.  
 Your brain is an **energy hog**.  
 **fudge** casualty figures.  
+
+Never before have the citizens of the world had a digital store of value accessible to them with a smartphone and internet connection that can protect their savings from debasement and confiscation.
+
 
 
