@@ -1,5 +1,16 @@
 
 
+The women swoon over him.  
+Rabies . 
+The boss browbeat me into taking on all this extra work.  
+turbid, muddy.  
+slice and dice.  
+cordon, French Cordon.  
+repeal . 
+
+
+
+
 **Pudgy** Penguins are heating up the formerly icy NFT market.
 
 **What’s more**, all derived child keys can also derive their own future generations of grandchild keys.  
