@@ -7,6 +7,7 @@ How little **originality** there is in the common disasters of mankind: drunk dr
 ## words-Feb-24.md ##  
 words/2024/words-Feb-24.md  
 **Carvort**: It has a playful and energetic **connotation**, often used to describe lively or **boisterous** behavior, like **frolicking** or **romping** around. -  
+**Llama** and **alpaca** farmers have been badly hit by recurring water shortages. -  
 Einstein had the **chutzpah** to discard long-established theory. -  
 If President Biden (or the Democrat who will replace him if the strains of the job impact him) wins, he will pursue **diametrically** opposed policies. -  
 

@@ -1,33 +1,58 @@
 
+Typhoid fever sneaks in when sanitation fails.  
 
-The women swoon over him.  
-Rabies . 
-The boss browbeat me into taking on all this extra work.  
-turbid, muddy.  
-slice and dice.  
-cordon, French Cordon.  
-repeal . 
+> Transfat  
+> SaturedFat  
+repine??  
+flail??  
+
+They can trace their **lineage** back to the 18th century.  
+
+**tumbleweed**.  
+**mannequin**.  
+I liked her way of **reassuring** you with a squeeze of the hand.  
+**Jaguars** are the most **aquatic** of all big cats.  
+
+To me, research is a relief, a **potent** **diversion**, an **enticement**, a passion that can make me forget everything else.  
+Now please don't **sully** the family name.  
+
+## Week 4  
+
+**Duffel bag**  
+> duffel bag is a large cylindrical bag made of cloth with a drawstring closure at the top, typically used for carrying clothing or equipment.  
+a **coarse** **woolen** cloth.  
+
+It has truly **leveled** the playing field in terms of the ability to learn.  
+When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price.  
+
+**reciprocate**  
+
+The women **swoon over** him.  
+**Rabies** .  
+The boss **browbeat** me into taking on all this extra work.  
+**turbid**, **muddy**.  
+**slice and dice**.  
+**cordon**, **French Cordon**.  
+**repeal**.  
 
 
-
-
-**Pudgy** Penguins are heating up the formerly icy NFT market.
+**Pudgy** Penguins are heating up the formerly icy NFT market.  
 
 **What’s more**, all derived child keys can also derive their own future generations of grandchild keys.  
 
 He shook his head **despondently**.  
-**efficacious** . 
+**efficacious** .  
 **Aryan**.  
 The **overriding** problem is the continuing deficit financing of the federal government.  
 Their **overriding** aim was to keep costs low.  
 **Bumbler**.  
 
 **come off the sidelines**.  
-**Supersede**, replace
+**Supersede**, replace  
 
 The **flimsiest** of the cases is set to go first, and all face delays.  
 
-But now that you control Berkshire, add to it wonderful businesses purchased at fair prices and give up buying fair businesses at wonderful prices. In other words, abandon everything you learned from your hero, Ben Graham. It works but only when practiced at small scale.” With much **back-sliding** I subsequently followed his instructions.
+But now that you control Berkshire, add to it wonderful businesses purchased at fair prices and give up buying fair businesses at wonderful prices. In other words, abandon everything you learned from your hero, Ben Graham. It works but only when practiced at small scale.” With much **back-sliding** I subsequently followed his instructions.  
 
 And if there is **backsliding**, there will be no deal.  
 This is not **countermarch** or **backslide**.  
@@ -125,10 +150,6 @@ Mr Trump, Viktor Orban and a **motley** crew of Western populists have **demolis
 The alliance behind it may be **incoherent**, but that does not make these ideas harmless.  
 
 
-> Transfat  
-> SaturedFat  
-repine??  
-flail??  
 
 The growing **peril** of national conservatism.  
 
@@ -225,7 +246,7 @@ Sometimes I feel less like your wife than a **possession**. It's **demeaning**.
 Einstein had the **chutzpah** to discard long-established theory. -  
 Every **somber note** in Meditations is matched by **reveries** for the beauty of the natural world and gratitude for the gifts life has given him.  
 
-Abandon a standard when it is **demonstrably** harmful to productivity or user satisfaction.   
+Abandon a standard when it is **demonstrably** harmful to productivity or user satisfaction.  
 **Demon**: Debug Monitor  
 
 The **affliction** of the feeling **leaves me wanting more**.  
@@ -324,12 +345,14 @@ The sofa would be less **obtrusive** in a paler color.
 ## Conversation  
 **path of least resistance**.  
 
+I try to **cut down** on sugar and carbs.  
+
+She left me **high and dry** just like she always did.  
 
 ## Interesting  
 
 **crabby**, **crusty**, **cranky**, **edgy**  
-**grumpy**
-
+**grumpy**  
 
 > Crabby: This word is used to describe someone who is easily annoyed or irritable. They may be in a bad mood or have a short temper.  
 
@@ -348,7 +371,10 @@ I’m so glad we addressed our feelings, and I’m **kicking myself** for not re
 Your brain is an **energy hog**.  
 **fudge** casualty figures.  
 
-Never before have the citizens of the world had a digital store of value accessible to them with a smartphone and internet connection that can protect their savings from debasement and confiscation.
+Never before have the citizens of the world had a digital store of value accessible to them with a smartphone and internet connection that can protect their savings from debasement and confiscation.  
+Anything that isn't a bug fix is **frowned upon**  
+
+Myria is making a comeback.  
 
 
 
