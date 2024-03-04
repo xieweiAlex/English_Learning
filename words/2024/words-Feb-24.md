@@ -1,4 +1,8 @@
 
+**Autocracies** are exporting autocracy to their **diasporas**.  
+Britain’s arts still **dazzle** the world. - But they are being diminished by a funding crisis
+
+
 Typhoid fever sneaks in when sanitation fails.  
 
 > Transfat  
