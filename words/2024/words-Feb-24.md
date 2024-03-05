@@ -1,4 +1,12 @@
 
+
+He found his brother in a **seedy**, roach-infested apartment.
+**pervade**.  
+**ignominious**, **magnanimous** 
+**virile**  
+The **sanctity** of marriage is once again under attack.
+**congenital** heart disease
+
 **Autocracies** are exporting autocracy to their **diasporas**.  
 Britain’s arts still **dazzle** the world. - But they are being diminished by a funding crisis
 
@@ -7,8 +15,11 @@ Typhoid fever sneaks in when sanitation fails.
 
 > Transfat  
 > SaturedFat  
-repine??  
-flail??  
+repine  
+
+The farmer used a **flail** to separate the grain from the chaff.  
+Lost in grief, she felt as if she were **flailing** in a sea of sorrow, unable to find solid ground.  
+The boxer's opponent **flailed** desperately in an attempt to avoid the barrage of punches.  
 
 They can trace their **lineage** back to the 18th century.  
 
