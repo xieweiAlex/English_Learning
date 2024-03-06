@@ -1,4 +1,6 @@
 
+Why you should **lose your temper** at work. - Sometimes. And without throwing anything.  
+Joe Biden is **exasperated** by Israel but will not stop its war. - Facing **mounting pressure** at home and abroad, the president bets on a hostage deal.  
 
 He found his brother in a **seedy**, roach-infested apartment.
 **pervade**.  
@@ -11,11 +13,12 @@ The **sanctity** of marriage is once again under attack.
 Britain’s arts still **dazzle** the world. - But they are being diminished by a funding crisis
 
 
-Typhoid fever sneaks in when sanitation fails.  
+**Typhoid** fever sneaks in when sanitation fails.  
 
 > Transfat  
 > SaturedFat  
-repine  
+
+**repine**  
 
 The farmer used a **flail** to separate the grain from the chaff.  
 Lost in grief, she felt as if she were **flailing** in a sea of sorrow, unable to find solid ground.  
@@ -361,8 +364,10 @@ The sofa would be less **obtrusive** in a paler color.
 **path of least resistance**.  
 
 I try to **cut down** on sugar and carbs.  
-
 She left me **high and dry** just like she always did.  
+
+I'm not gonna **run you over**.  
+
 
 ## Interesting  
 
@@ -386,10 +391,10 @@ I’m so glad we addressed our feelings, and I’m **kicking myself** for not re
 Your brain is an **energy hog**.  
 **fudge** casualty figures.  
 
-Never before have the citizens of the world had a digital store of value accessible to them with a smartphone and internet connection that can protect their savings from debasement and confiscation.  
+**Never before have the** citizens of the world had a digital store of value accessible to them with a smartphone and internet connection that can protect their savings from **debasement** and confiscation.  
 Anything that isn't a bug fix is **frowned upon**  
 
-Myria is making a comeback.  
+Myria is **making a comeback**.  
 
 
 
