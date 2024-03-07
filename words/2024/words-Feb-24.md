@@ -1,4 +1,7 @@
 
+Once a honey badger locks on its target, it doesn't back down. 
+
+
 Why you should **lose your temper** at work. - Sometimes. And without throwing anything.  
 Joe Biden is **exasperated** by Israel but will not stop its war. - Facing **mounting pressure** at home and abroad, the president bets on a hostage deal.  
 
