@@ -1,5 +1,7 @@
 
-Once a honey badger locks on its target, it doesn't back down. 
+
+the crowd **panicked** and **stampeded** for the exit.
+Once a honey badger **locks on** its target, it doesn't **back down**. 
 
 
 Why you should **lose your temper** at work. - Sometimes. And without throwing anything.  
@@ -370,6 +372,7 @@ I try to **cut down** on sugar and carbs.
 She left me **high and dry** just like she always did.  
 
 I'm not gonna **run you over**.  
+Once a honey badger **locks on** its target, it doesn't **back down**. 
 
 
 ## Interesting  
