@@ -1,4 +1,14 @@
 
+He finished his dessert and **patted** his **paunch**.  
+unceremoniously.  
+truant.  
+tilde.  
+contumacious.  
+shear stress.  
+But the Republicans who control the House of Representatives are dead set against any tax increases.  
+coalition, allegiance.  
+
+
 
 Nowruz, which means "new day", is an **ancestral** festivity marking the first day of spring and the renewal of nature, and it is also the beginning of the new year in the Iranian calendar.  
 It is celebrated on the **vernal** **equinox**, typically March 20th or 21st.   

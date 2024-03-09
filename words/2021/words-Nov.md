@@ -320,7 +320,6 @@ The committee will need time to **assimilate** this report.
 The room smelled of **mildew**.  
 **lacerate**  
 **facilities** and **amenities**  
-He finished his dessert and **patted** his **paunch**.  
 **faggot**  
 **Asparagus** is reputed to be an **aphrodisiac**.  
 **ancillary** facility/premises/building/service  
