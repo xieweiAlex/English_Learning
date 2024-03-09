@@ -1,8 +1,10 @@
 
 
+Nowruz, which means "new day", is an **ancestral** festivity marking the first day of spring and the renewal of nature, and it is also the beginning of the new year in the Iranian calendar.  
+It is celebrated on the **vernal** **equinox**, typically March 20th or 21st.   
+
 the crowd **panicked** and **stampeded** for the exit.
 Once a honey badger **locks on** its target, it doesn't **back down**. 
-
 
 Why you should **lose your temper** at work. - Sometimes. And without throwing anything.  
 Joe Biden is **exasperated** by Israel but will not stop its war. - Facing **mounting pressure** at home and abroad, the president bets on a hostage deal.  
@@ -16,7 +18,6 @@ The **sanctity** of marriage is once again under attack.
 
 **Autocracies** are exporting autocracy to their **diasporas**.  
 Britain’s arts still **dazzle** the world. - But they are being diminished by a funding crisis
-
 
 **Typhoid** fever sneaks in when sanitation fails.  
 
