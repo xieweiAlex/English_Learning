@@ -173,7 +173,7 @@ She was **rather fat**, and her **complexion** was **spotty**.
 Don't talk such **drivel**!   
 **imposture** .  
 Don't **make a mountain out of molehill**.  
-U.N. officials **decried** the bombing and shelling and said they needed calm. -  
+U.N. officials **decried** the bombing and shelling and said they needed calm.   
 **nonentity** .  
 financial **distress**.  
 She was obviously **in distress** after the attack.  
@@ -300,7 +300,7 @@ I **desiderate** the resources of a family.
 **prophet**, **prophesy**, **prophecy**  
 **apocalyptic**, **apocalypse**, **Armageddon**  
 
-Never before had I heard a **venerated** businessperson express such **trenchant** insights about investing, finance, and the world more broadly, and with such—to use a favored Munger phrase—**chutzpah**. -  
+Never before had I heard a **venerated** businessperson express such **trenchant** insights about investing, finance, and the world more broadly, and with such—to use a favored Munger phrase—**chutzpah**.   
 **numerical fluency**.  
 
 > His essays **extol** the virtues of free enterprise, yes, but also of doing business the right way, with integrity and **rigor**. Of taking your work very seriously, but never yourself.  

@@ -14,7 +14,7 @@ Using **self-deprecation** and imagination to great effect, Charlie cheerfully c
 He **regales** his audience with humorous anecdotes and poignant tales rather than with a blizzard of facts and figures. He well knows, and wisely exploits, the traditional role of the storyteller as a **purveyor** of complex and detailed information.  
 **human foibles**.  
 Charlie has purposefully **sidestepped** the **limelight**, choosing relative anonymity instead.  
-Charlie’s formal education began at Dundee Elementary School, where he and his younger sisters, Mary and Carol, were **indoctrinated** with **ethical homilies**. -  
+Charlie’s formal education began at Dundee Elementary School, where he and his younger sisters, Mary and Carol, were **indoctrinated** with **ethical homilies**.   
 
 Charlie’s teachers remember a smart kid who was also inclined to be a bit of a **wiseacre**.   
 Today, he can’t remember the first time he was exposed to the aphorisms of Ben Franklin, but they fueled an **ineffaceable** admiration for the **eclectic and eccentric** **statesman** and inventor.   

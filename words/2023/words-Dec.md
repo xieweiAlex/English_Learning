@@ -107,7 +107,7 @@ The Fed demanded that they provide **reams** of data and increase the amount of 
 One meeting turned **fiery** after a regulator trashed GE and the CEO pushed back.  
 
 
-Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image. -  
+Artists and museums are still creating or collecting non-fungible tokens (nfts). As are those looking to **flog** an image.   
 (I had a letter from a company trying to **flog** me insurance. )  
 In October the court **upheld** its ruling—in effect ordering the sec to **give way**.  
 **Given** the returns bitcoin has offered in the past, and its **correlations** with other assets, the result could be **a rush of cash** into bitcoin, as even **sensible** investors consider putting small slices of their pension pots or portfolios into crypto for diversification.  
