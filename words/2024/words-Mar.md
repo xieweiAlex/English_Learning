@@ -1,4 +1,12 @@
 
+## Week 2 
+
+> What's working for you that you'd be crazy to change? What's not working for you, and you'd be crazy not to change?" 
+
+He is **inordinately** proud of his wife's achievements.  
+fluster.  
+
+
 Prominent Democrats have increasingly softened their opposition to voter identification requirements in recent days, signaling a new openness to measures that activists have long vilified as an insidious method of keeping minorities from the ballot box.  
 
 Insurance companies **flogged** junk schemes to the poor or mentally disabled. -  
@@ -107,6 +115,7 @@ Even when he knew he was right, he gave me **the reins**, and when I **blundered
 
 ## Conversation  
 
+[Idiom](../../special/2024/idiom.md)
 
 
 ## Interesting  
