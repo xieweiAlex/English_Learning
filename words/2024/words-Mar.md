@@ -1,23 +1,30 @@
 
-## Week 2 
+attack the president over findings on his **mental acuity** and memory.  
 
-> What's working for you that you'd be crazy to change? What's not working for you, and you'd be crazy not to change?" 
+These trade negotiations are much more a **clash of cultures** than a simple trade agreement.  
+
+And of course, it was unfair that he was sent there—on **trumped up** charges no less—and it would have been lonely and sad to be so far from his family.  
+He’s saying, look people today are going to be remarkably dumb but I can’t let them **implicate** me in their ugliness. -  
+
+
+## Week 2  
+
+> What's working for you that you'd be crazy to change? What's not working for you, and you'd be crazy not to change?"  
 
 He is **inordinately** proud of his wife's achievements.  
-fluster.  
+**fluster**.  
 
-
-Prominent Democrats have increasingly softened their opposition to voter identification requirements in recent days, signaling a new openness to measures that activists have long vilified as an insidious method of keeping minorities from the ballot box.  
+Prominent Democrats have increasingly softened their **opposition** to voter identification requirements in recent days, signaling a new **openness** to measures that activists have long **vilified** as an insidious method of keeping minorities from the ballot box.  
 
 Insurance companies **flogged** junk schemes to the poor or mentally disabled. -  
 If this was a time of war, I would have you **flogged**.  
 We buy them **cheaply** and then **flog** them off at a profit.  
 
-**Ramadan** could see **respite** for Gaza, or widening violence.  
+**Ramadan** could see **respite** for Gaza, or **widening** violence.  
 **death toll**.  
-Some Labradors have a predisposition to obesity. -- A gene mutation slows the dogs’ metabolism and makes them constantly hungry.  
+Some Labradors have a **predisposition** to obesity. -- A gene mutation slows the dogs’ metabolism and makes them constantly hungry.  
 
-The landlords they bid off more than they can chew.  
+The landlords they **bid off more than they can chew**.  
 
 He finished his dessert and **patted** his **paunch**.  
 **unceremoniously**.  
@@ -115,8 +122,11 @@ Even when he knew he was right, he gave me **the reins**, and when I **blundered
 
 ## Conversation  
 
-[Idiom](../../special/2024/idiom.md)
+[Idiom](../../special/2024/idiom.md)  
 
 
 ## Interesting  
+
+For those of you who want to remain unenlightened and **mirthless**, do not, **under any circumstances**, read this selection.  
+
 

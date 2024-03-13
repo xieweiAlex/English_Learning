@@ -5,6 +5,7 @@ How little **originality** there is in the common disasters of mankind: drunk dr
 
 ## words-Mar.md ##  
 words/2024/words-Mar.md  
+He’s saying, look people today are going to be remarkably dumb but I can’t let them **implicate** me in their ugliness. -  
 Insurance companies **flogged** junk schemes to the poor or mentally disabled. -  
 
 ## words-Feb-24.md ##  
