@@ -1,4 +1,27 @@
 
+
+Gasp—the room would **lurch forward**. He’d snap shut the lighter short of putting flame to paper.
+
+**attribute to him**.  
+**pounding the table** 
+
+**loner**.  
+
+“The standard money advice is too **meek**, claiming that we all have different personal values and we need to follow our hearts.”
+
+> “There is a way to approach life so that when asked, “Your money or your life?” you say, “I’ll take both, thank you.”
+
+
+**extenuating** circumstances
+
+
+But, like most good-feeling things that we haven’t stopped to examine more closely, there are elements to this routine that are sneakily bad for us.   
+Even though it feels like laying motionless for as long as possible would be a restorative activity, we’re robbing ourselves of the one thing we really need before doing it all over again: recovery.  
+
+
+“Along with racism and sexism, our society has a hidden hierarchy based on what you do for money. That’s called jobism”
+
+
 attack the president over findings on his **mental acuity** and memory.  
 
 These trade negotiations are much more a **clash of cultures** than a simple trade agreement.  

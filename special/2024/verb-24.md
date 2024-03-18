@@ -1,4 +1,8 @@
 
+**plateau**
+
+**expansive**
+
 **reciprocate**
 
 **exert** 
