@@ -87,7 +87,7 @@ She wore shorts and a **halter** top.
 **abominable**.  
 He sat back and gave a loud **belch**.  
 **chimney**.  
-He took some **anodyne** to relieve the pain. -  
+He took some **anodyne** to relieve the pain.   
 Paula's stomach turned a **somersault**.  
 his car **somersaulted** into a ditch.   
 **perpendicular**.  
@@ -201,7 +201,7 @@ So, with an eye on securing the commercial future of The Economist, I invite you
 ## Week 2  
 
 
-Do not just **spout** marketing **spiel** or you will quickly lose followers. -  
+Do not just **spout** marketing **spiel** or you will quickly lose followers.   
 Let's **clear the air** so to speak.  
 Quagmire just sort of **goes off on** Brian.  
 

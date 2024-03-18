@@ -1,26 +1,29 @@
 
 
-Gasp—the room would **lurch forward**. He’d snap shut the lighter short of putting flame to paper.
+Her **contempt** for foreigners was obvious.  
+his **contempt** cut her **to the bone**.  
+He was committed to prison for **contempt of court**.  
+**A healthy contempt** for authority.  
+
+
+Gasp—the room would **lurch forward**. He’d snap shut the lighter short of putting flame to paper.  
 
 **attribute to him**.  
-**pounding the table** 
+**pounding the table**  
 
 **loner**.  
 
-“The standard money advice is too **meek**, claiming that we all have different personal values and we need to follow our hearts.”
+“The standard money advice is too **meek**, claiming that we all have different personal values and we need to follow our hearts.”  
 
-> “There is a way to approach life so that when asked, “Your money or your life?” you say, “I’ll take both, thank you.”
-
-
-**extenuating** circumstances
+> “There is a way to approach life so that when asked, “Your money or your life?” you say, “I’ll take both, thank you.”  
 
 
-But, like most good-feeling things that we haven’t stopped to examine more closely, there are elements to this routine that are sneakily bad for us.   
-Even though it feels like laying motionless for as long as possible would be a restorative activity, we’re robbing ourselves of the one thing we really need before doing it all over again: recovery.  
+**extenuating** circumstances  
 
+But, like most good-feeling things that we haven’t stopped to examine more closely, there are elements to this routine that are **sneakily** bad for us.  
+Even though it feels like laying motionless for as long as possible would be a **restorative** activity, we’re robbing ourselves of the one thing we really need before doing it all over again: recovery.  
 
-“Along with racism and sexism, our society has a hidden hierarchy based on what you do for money. That’s called jobism”
-
+> “Along with racism and sexism, our society has a hidden hierarchy based on what you do for money. That’s called jobism”  
 
 attack the president over findings on his **mental acuity** and memory.  
 
@@ -39,7 +42,7 @@ He is **inordinately** proud of his wife's achievements.
 
 Prominent Democrats have increasingly softened their **opposition** to voter identification requirements in recent days, signaling a new **openness** to measures that activists have long **vilified** as an insidious method of keeping minorities from the ballot box.  
 
-Insurance companies **flogged** junk schemes to the poor or mentally disabled. -  
+Insurance companies **flogged** junk schemes to the poor or mentally disabled.   
 If this was a time of war, I would have you **flogged**.  
 We buy them **cheaply** and then **flog** them off at a profit.  
 

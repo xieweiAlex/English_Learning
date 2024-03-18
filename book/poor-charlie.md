@@ -86,7 +86,7 @@ In a **vow** that students the world over may hope he **renounces**, Charlie del
 **The occasion** was the graduation of Philip Munger, the last of five Munger family sons to **matriculate** at this **prep school** (originally an all-boys institution and now the **coeducational** school called Harvard-Westlake).  
 
 Despite Charlie’s **self-effacing** protestations.  
-For those of you who want to remain unenlightened and **mirthless**, do not, under any circumstances, read this selection. -  
+For those of you who want to remain unenlightened and **mirthless**, do not, under any circumstances, read this selection.   
 
 But whatever the topic, Charlie is **apt** to tell it like it is, which is exactly what he has done in over two decades of public speaking.  
 Now that Headmaster Berrisford has selected one of the oldest and longest-serving trustees to make a **commencement speech**, **it behooves** the speaker to address two questions in every mind.   
@@ -98,7 +98,7 @@ Benjamin Disraeli,78 as he rose to become one of the greatest prime ministers, l
 once the richest king in the world. Later, in **ignominious** captivity, as he prepared to be burned alive, he said, “Well now do I remember the words of the historian Solon: ‘No man’s life should be accounted a happy one until it is over.’  (盖棺定论)  
 
 My second prescription for misery is to learn everything you possibly can from your own experience, minimizing what you learn **vicariously** from the good and bad experiences of others, living and dead. This prescription is a sure-shot producer of misery and second-rate achievement.  
-How little **originality** there is in the common disasters of mankind: drunk driving deaths, reckless driving **maimings**, **incurable** **venereal** diseases. -  
+How little **originality** there is in the common disasters of mankind: drunk driving deaths, reckless driving **maimings**, **incurable** **venereal** diseases.   
 The other aspect of avoiding **vicarious wisdom** is the rule of not learning from the best work done before yours.   
 Because there is so much adversity out there, even for the lucky and wise, this will guarantee that, **in due course**, you will be permanently mired in misery.  
 If my experience is any guide, the rustic’s approach is to be avoided at all cost by someone **bent on** misery.  
