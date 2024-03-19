@@ -1,4 +1,7 @@
 
+Without realising it, Britain has become a nation of immigrants. - Another surprise: it’s very good at assimilating people.  
+Relations between Japan and South Korea are blossoming.  
+
 
 Her **contempt** for foreigners was obvious.  
 his **contempt** cut her **to the bone**.  
