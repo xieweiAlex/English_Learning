@@ -1,9 +1,15 @@
 
-This practice is a holdover from typographers of the Victorian era.  
+I would never **condone** trying to wake up at 5am if it meant cutting your sleep short by two hours. -  
+
+You give me the **third degree** every time I leave the house.  
+If **nothing else**, Doug is a **hard-nosed** businessman.
+**misconstrue**  
 
 
-Without realising it, Britain has become a nation of immigrants. - Another surprise: it’s very good at assimilating people.  
-Relations between Japan and South Korea are blossoming.  
+This practice is a **holdover** from **typographers** of the **Victorian era**.  
+
+Without realising it, Britain has become a nation of immigrants. - Another surprise: it’s very good at **assimilating** people.  
+Relations between Japan and South Korea are **blossoming**.  
 
 
 Her **contempt** for foreigners was obvious.  
