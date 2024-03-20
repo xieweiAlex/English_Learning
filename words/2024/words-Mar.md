@@ -1,4 +1,7 @@
 
+This practice is a holdover from typographers of the Victorian era.  
+
+
 Without realising it, Britain has become a nation of immigrants. - Another surprise: it’s very good at assimilating people.  
 Relations between Japan and South Korea are blossoming.  
 
