@@ -1,4 +1,14 @@
 
+
+mortify.  
+Jello.  
+cremate  
+scathing, unscathed.  
+The asperity of the winter had everybody yearning for spring.  
+
+The Devil **tempted** Adam and Eve.  
+I was **tempted** to stay and hear this superb orchestra rehearse.  
+
 I would never **condone** trying to wake up at 5am if it meant cutting your sleep short by two hours. -  
 
 You give me the **third degree** every time I leave the house.  
