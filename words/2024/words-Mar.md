@@ -10,13 +10,24 @@ The asperity of the winter had everybody yearning for spring.
 
 The Devil **tempted** Adam and Eve.  
 I was **tempted** to stay and hear this superb orchestra rehearse.  
+The U.S. banned the last legal form of asbestos. The carcinogen is linked to more than 40,000 deaths per year in the U.S.  
+The budding flowers, the sprouting plants, the longer days, the warmer temperatures—these signs of rejuvenation remind us that change is afoot, and that the opportunity for growth and renewal accompanies each new season.  
+
+Ragdoll: it is best known for its docile and placid temperament and affectionate nature.
+
+>  Imagine your life as a book. What title would you give to the current chapter, and what is going to be the next?   jjjjjjjj
+
+
+If you **wince at** anything, no one is watching. Apply “no shame, no blame” and keep going. Gold star.  
+Keeping track **does wonders** for **quelling** the urge to splurge.  
+The FI course for him was more like **cataract surgery** than simply getting a new pair of glasses.  
+The American Dream—**on a Shoestring**.  
 
 I would never **condone** trying to wake up at 5am if it meant cutting your sleep short by two hours. -  
 
 You give me the **third degree** every time I leave the house.  
 If **nothing else**, Doug is a **hard-nosed** businessman.
 **misconstrue**  
-
 
 This practice is a **holdover** from **typographers** of the **Victorian era**.  
 
