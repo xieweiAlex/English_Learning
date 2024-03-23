@@ -1,8 +1,10 @@
 
+He felt no qualms about borrowing money from friends.  
+**cudgel**.  
 
-mortify.  
-Jello.  
-cremate  
+**mortify**.  
+**Jello**.  
+**cremate**  
 scathing, unscathed.  
 The asperity of the winter had everybody yearning for spring.  
 
@@ -32,9 +34,7 @@ Gasp—the room would **lurch forward**. He’d snap shut the lighter short of p
 
 **attribute to him**.  
 **pounding the table**  
-
 **loner**.  
-
 “The standard money advice is too **meek**, claiming that we all have different personal values and we need to follow our hearts.”  
 
 > “There is a way to approach life so that when asked, “Your money or your life?” you say, “I’ll take both, thank you.”  
@@ -172,9 +172,12 @@ Even when he knew he was right, he gave me **the reins**, and when I **blundered
 
 [Idiom](../../special/2024/idiom.md)  
 
+By the way, **progress is not a straight line**. 
+
 
 ## Interesting  
 
 For those of you who want to remain unenlightened and **mirthless**, do not, **under any circumstances**, read this selection.  
+Religion's like a drug. In small doses, it's **curative**.
 
 
