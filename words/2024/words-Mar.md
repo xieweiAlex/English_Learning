@@ -1,21 +1,49 @@
 
-He felt no qualms about borrowing money from friends.  
+
+## Week 3  
+
+Las Vegas-based miner CleanSpark has **bucked the downward trend**, with its share price seeing a 10% gain over the past month.  
+**It remains to be seen** if there will be a pre-halving correction in BTC prices similar to prior cycles, Flynn noted.  
+
+The word frugality used to **serve that function**, but by the middle of the twentieth century it seemed like a **quaint** notion of Depression-era grandparents. -  
+Our **bedrock** is frugality, and it’s **high time** we made friends again with the word—and the practice.  
+**humblebrag**.  
+
+But just because **conspicuous consumption** is a cross-cultural and evolutionary **aberration** of the human species doesn’t mean that you have to fall prey to it.  
+
+
+Why is shopping one of our favorite national **pastimes**?  
+You have **nothing to lose** by asking for a discount at any store—from your local hardware store to a clothing **emporium**. -  
+But I was **astute** enough to shut my mouth, open my wallet, and take advantage of a great bargain.  
+Unless you get **shooed away** because you are too early.  
+> The old saying “One man’s trash is another man’s treasure”  
+
+**Substitution** isn’t limitation. It’s **liberation**. It’s letting go of assumptions and habits, looking at the richness of reality, and picking from the **smorgasbord** of pleasures available **right under your nose**.  
+
+no one wants to start out his adult life with this huge burden **hanging over his head**.  
+They were paying $6 a month to insure some **heirloom jewelry** from Kathy’s grandmother.  
+Anyone who practices meditation knows that the **gray matter** between our ears, like a **frenetic monkey**, **churns out** a steady stream of unrelated thoughts at the rate of at least one a second.  
+
+
+It can cost people **dearly**.  
+
+He felt no **qualms** about borrowing money from friends.  
 **cudgel**.  
 
 **mortify**.  
 **Jello**.  
 **cremate**  
-scathing, unscathed.  
-The asperity of the winter had everybody yearning for spring.  
+**scathing**, **unscathed**.  
+The **asperity** of the winter had everybody yearning for spring.  
 
 The Devil **tempted** Adam and Eve.  
 I was **tempted** to stay and hear this superb orchestra rehearse.  
-The U.S. banned the last legal form of asbestos. The carcinogen is linked to more than 40,000 deaths per year in the U.S.  
-The budding flowers, the sprouting plants, the longer days, the warmer temperatures—these signs of rejuvenation remind us that change is afoot, and that the opportunity for growth and renewal accompanies each new season.  
+The U.S. banned the last legal form of **asbestos**. The **carcinogen** is linked to more than 40,000 deaths per year in the U.S.  
+The **budding flowers**, the **sprouting** plants, the longer days, the warmer temperatures—these signs of **rejuvenation** remind us that change is **afoot**, and that the opportunity for growth and renewal accompanies each new season.  
 
-Ragdoll: it is best known for its docile and placid temperament and affectionate nature.
+**Ragdoll**: it is best known for its **docile** and **placid** temperament and affectionate nature.  
 
->  Imagine your life as a book. What title would you give to the current chapter, and what is going to be the next?   jjjjjjjj
+>  Imagine your life as a book. What title would you give to the current chapter, and what is going to be the next?  
 
 
 If you **wince at** anything, no one is watching. Apply “no shame, no blame” and keep going. Gold star.  
@@ -26,7 +54,7 @@ The American Dream—**on a Shoestring**.
 I would never **condone** trying to wake up at 5am if it meant cutting your sleep short by two hours. -  
 
 You give me the **third degree** every time I leave the house.  
-If **nothing else**, Doug is a **hard-nosed** businessman.
+If **nothing else**, Doug is a **hard-nosed** businessman.  
 **misconstrue**  
 
 This practice is a **holdover** from **typographers** of the **Victorian era**.  
@@ -75,7 +103,7 @@ He is **inordinately** proud of his wife's achievements.
 
 Prominent Democrats have increasingly softened their **opposition** to voter identification requirements in recent days, signaling a new **openness** to measures that activists have long **vilified** as an insidious method of keeping minorities from the ballot box.  
 
-Insurance companies **flogged** junk schemes to the poor or mentally disabled.   
+Insurance companies **flogged** junk schemes to the poor or mentally disabled.  
 If this was a time of war, I would have you **flogged**.  
 We buy them **cheaply** and then **flog** them off at a profit.  
 
@@ -183,12 +211,16 @@ Even when he knew he was right, he gave me **the reins**, and when I **blundered
 
 [Idiom](../../special/2024/idiom.md)  
 
-By the way, **progress is not a straight line**. 
+By the way, **progress is not a straight line**.  
 
 
 ## Interesting  
 
 For those of you who want to remain unenlightened and **mirthless**, do not, **under any circumstances**, read this selection.  
-Religion's like a drug. In small doses, it's **curative**.
+Religion's like a drug. In small doses, it's **curative**.  
+
+The **budding flowers**, the **sprouting** plants, the longer days, the warmer temperatures—these signs of **rejuvenation** remind us that change is **afoot**, and that the opportunity for growth and renewal accompanies each new season.  
+
+**Ragdoll**: it is best known for its **docile** and **placid** temperament and affectionate nature.  
 
 

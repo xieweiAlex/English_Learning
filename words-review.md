@@ -1,5 +1,8 @@
 ## words-Mar.md ##  
 words/2024/words-Mar.md  
+The word frugality used to **serve that function**, but by the middle of the twentieth century it seemed like a **quaint** notion of Depression-era grandparents. -  
+You have **nothing to lose** by asking for a discount at any store—from your local hardware store to a clothing **emporium**. -  
+I would never **condone** trying to wake up at 5am if it meant cutting your sleep short by two hours. -  
 He’s saying, look people today are going to be remarkably dumb but I can’t let them **implicate** me in their ugliness. -  
 
 ## words-Feb-24.md ##  
