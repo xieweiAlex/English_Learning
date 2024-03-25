@@ -1,4 +1,13 @@
 
+> You can make time or make excuses  
+
+His reaction **struck me as odd**.  
+
+The 2020 Halving left an **indelible** mark on the Bitcoin mining sector, and the 2024 Halving will no doubt similarly effect significant changes.  
+The current bitcoin bull market and transaction fee activity from inscriptions and ordinals have **furnished** the opportunity for many miners to stay viable after the block subsidy drops to 3.125 BTC.  
+The largest digital market asset not only experiencing a **meteoric surge** this quarter but also actually reaching an all-time high before the halving for the first time in history.  
+Such a correction would not only align with historical patterns but also **serve as** a reset, shaking out short-term speculative interest and **setting the stage** for the next cycle of growth.  
+This expectation **hinges on** several factors, including the continued influence of ETFs on the market.  
 
 ## Week 3  
 
