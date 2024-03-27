@@ -13,4 +13,4 @@ If President Biden (or the Democrat who will replace him if the strains of the j
 ## words-Jan-24.md ##  
 words/2024/words-Jan-24.md  
 The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite. -  
-Can anything stop Trump the **sequel**? He’d like you to think his chances of **strutting** back into the White House. -  
+Can anything stop Trump the **sequel**? He’d like you to think his chances of **strutting** back into the White House.   

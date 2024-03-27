@@ -1,9 +1,17 @@
 
-A book by Steven Sloman and Philip Fernbach, two cognitive scientists, argues that humans evolved as part of a hive mind, benefiting from co-operation and community.  
-The brain is an immensely complex organ, which changes radically as it ages.  
-And if all this brainpower leaves you feeling a little deficient, know that being clever isn’t all it’s cracked up to be. 1843, our sister magazine, asked why so many bright sparks end up as miserable misfits.  
+The Federal Reserve sticks to its plans, despite an uncertain situation.  
+buy in trenches.  
 
 
+
+**make the cut**.  
+he is a reserved, almost **taciturn** man.  
+The room was **alight** with lamps.  
+the boy's face was **alight** with excitement.  
+
+A book by Steven Sloman and Philip Fernbach, two **cognitive scientists**, argues that humans evolved as part of a **hive mind**, benefiting from co-operation and community.  
+The brain is an **immensely** complex organ, which changes radically as it ages.  
+And if all this brainpower leaves you feeling a little **deficient**, know that being clever isn’t all it’s **cracked up** to be. 1843, our sister magazine, asked why so many **bright sparks** end up as miserable misfits.  
 
 > You can make time or make excuses  
 
@@ -238,4 +246,5 @@ The **budding flowers**, the **sprouting** plants, the longer days, the warmer t
 
 **Ragdoll**: it is best known for its **docile** and **placid** temperament and affectionate nature.  
 
+And if all this brainpower leaves you feeling a little **deficient**, know that being clever isn’t all it’s **cracked up** to be. 1843, our sister magazine, asked why so many **bright sparks** end up as miserable misfits.  
 
