@@ -1,8 +1,10 @@
 
-The Federal Reserve sticks to its plans, despite an uncertain situation.  
-buy in trenches.  
+EazyBot’s reputation is also **marred** by the way that it presents its solution. -  
 
+While writing this review, the main website went down multiple times, while the support section remained unavailable for hours without any **intimation**.  
 
+The Federal Reserve **sticks to** its plans, despite an uncertain situation.  
+buy **in trenches**.  
 
 **make the cut**.  
 he is a reserved, almost **taciturn** man.  
