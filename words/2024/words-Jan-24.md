@@ -256,7 +256,7 @@ The rocks **underfoot** are still soft.
 
 **Bell curve**, **top of the curve**.  
 
-Can anything stop Trump the **sequel**? He’d like you to think his chances of **strutting** back into the White House. -  
+Can anything stop Trump the **sequel**? He’d like you to think his chances of **strutting** back into the White House.   
 Perhaps AI is a **busted flush**. Perhaps the revolution will just take time.  
 
 ## Week 1  

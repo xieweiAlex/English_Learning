@@ -7,11 +7,11 @@
 
 **assure**, **reassure**, **reassuring**.   
 
-
+> The recent surge in the value of Bitcoin has been both exciting and nerve-wracking for investors. While some see it as a bedrock of the future of currency, others fear its crippling effects on traditional financial systems. However, reputable experts in the field assure us that Bitcoin is here to stay and its potential for growth is reassuring. Despite the volatility, the increasing adoption and recognition of Bitcoin by major companies and governments is reassuring for those who have invested in this digital currency. This reassurance is crucial in building trust and confidence in Bitcoin as a legitimate and reputable form of currency.
 
 ## Feb 
 
-**flustered**
+**flustered**, **flutter**
 
 **remedial**
 

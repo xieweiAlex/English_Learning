@@ -1,5 +1,9 @@
 ## words-Mar.md ##  
 words/2024/words-Mar.md  
+She’s a **glutton** for work.She stays late every evening. -  
+the remaining **petals** **fluttered** to the ground. -  
+The **fallacious** case for abolishing the rich. -  
+EazyBot’s reputation is also **marred** by the way that it presents its solution. -  
 The word frugality used to **serve that function**, but by the middle of the twentieth century it seemed like a **quaint** notion of Depression-era grandparents. -  
 You have **nothing to lose** by asking for a discount at any store—from your local hardware store to a clothing **emporium**. -  
 I would never **condone** trying to wake up at 5am if it meant cutting your sleep short by two hours. -  
@@ -13,4 +17,3 @@ If President Biden (or the Democrat who will replace him if the strains of the j
 ## words-Jan-24.md ##  
 words/2024/words-Jan-24.md  
 The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite. -  
-Can anything stop Trump the **sequel**? He’d like you to think his chances of **strutting** back into the White House.   

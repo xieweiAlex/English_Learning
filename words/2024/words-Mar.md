@@ -1,10 +1,12 @@
 
-## Week 4 
+the largest digital market asset not only experiencing a meteoric surge this quarter but also actually reaching an all-time high before the halving for time in history.  
+
+## Week 4  
 
 In 1960 the French reportedly each imbibed, on average, 116 litres of wine in a year.  
 
-**rigor**, **rigorous**
-**scrupulous** 
+**rigor**, **rigorous**  
+**scrupulous**  
 
 These results confirmed that **avian species** can develop preferences for **palatable** food through social learning.  
 This may be more politically **palatable** than lending dollars.  
@@ -21,11 +23,11 @@ the remaining **petals** **fluttered** to the ground. -
 **pamphlet**, **brochure**, **booklet**, **leaflet**.  
 This witness has committed **perjury** and no reliance can be placed on her evidence.  
 
-He's happy to **mooch around** the house all day.
+He's happy to **mooch around** the house all day.  
 Those are for potential buyers, you withered **old mooch**.  
 **bile duct**, **bile acid**.  
 **constable**.  
-The computer's entire **circuitry** was on a single board.
+The computer's entire **circuitry** was on a single board.  
 
 
 
