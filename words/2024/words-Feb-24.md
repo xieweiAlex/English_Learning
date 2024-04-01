@@ -269,7 +269,6 @@ Dr. Cialdini is very **modest** as to the **reverberations** his work has had on
 Understanding and applying the principles ethically is cost-free and **deceptively** easy.  
 
 **Augment**.  
-**pamphlet**, **brochure**, **booklet**, **leaflet**.  
 They have three very **amenable** kids.  
 He seemed most **amenable** to my idea.  
 

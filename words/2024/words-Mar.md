@@ -1,4 +1,47 @@
 
+## Week 4 
+
+In 1960 the French reportedly each imbibed, on average, 116 litres of wine in a year.  
+
+**rigor**, **rigorous**
+**scrupulous** 
+
+These results confirmed that **avian species** can develop preferences for **palatable** food through social learning.  
+This may be more politically **palatable** than lending dollars.  
+changed to make it more **palatable** to an American audience.  
+She’s a **glutton** for work.She stays late every evening. -  
+
+
+Honey badgers are **carnivores** that secure most of their food through active hunting, though individuals may **scavenge**.  
+
+Her sudden arrival caused quite a **flutter**.  
+The flag **fluttered** in the wind.  
+the remaining **petals** **fluttered** to the ground. -  
+
+**pamphlet**, **brochure**, **booklet**, **leaflet**.  
+This witness has committed **perjury** and no reliance can be placed on her evidence.  
+
+He's happy to **mooch around** the house all day.
+Those are for potential buyers, you withered **old mooch**.  
+**bile duct**, **bile acid**.  
+**constable**.  
+The computer's entire **circuitry** was on a single board.
+
+
+
+**Sloth** is the mother of poverty.  
+The **sloth** spends most of its time hanging upside down from the branches.  
+**fatso**.  
+**braise**.  
+There are various ways of cooking tofu such as cold, **braise**, stew, boil and so on.  
+A lovely vintage **newsreel** reported on the campaign.  
+
+
+The **fallacious** case for abolishing the rich. -  
+**cockney** accent.  
+**Ethologist**.  
+**sanctity**.  
+
 EazyBot’s reputation is also **marred** by the way that it presents its solution. -  
 
 While writing this review, the main website went down multiple times, while the support section remained unavailable for hours without any **intimation**.  
