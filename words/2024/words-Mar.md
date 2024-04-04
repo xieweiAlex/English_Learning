@@ -1,9 +1,14 @@
 
-the largest digital market asset not only experiencing a meteoric surge this quarter but also actually reaching an all-time high before the halving for time in history.  
+precedent, precedence.  
+It’s time to shed some of this baggage: if a command is going to be used primarily by humans, it should be designed for humans first.  
+
+
+
+The largest digital market asset not only experiencing a **meteoric** surge this quarter but also actually reaching an all-time high before the halving for time in history.  
 
 ## Week 4  
 
-In 1960 the French reportedly each imbibed, on average, 116 litres of wine in a year.  
+In 1960 the French reportedly each **imbibed**, on average, 116 litres of wine in a year.  
 
 **rigor**, **rigorous**  
 **scrupulous**  
