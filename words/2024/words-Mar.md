@@ -1,9 +1,30 @@
 
-precedent, precedence.  
-It’s time to shed some of this baggage: if a command is going to be used primarily by humans, it should be designed for humans first.  
+His tone was tinged with irony. 
+Her homecoming was tinged with sadness.
 
+they make a great show of pussyfooting through the greenery.  
+Many Americans think their legal system has gone haywire.  
+During the **flush times**, salespeople were **surly**, waiters **snobby**. -
+You **skimp** on travel expenses. -
+She was trying hard to disgorge a fish bone.
 
+I felt **dopey** and drowsy after the operation.  
 
+**Savant**, **maestro**  
+It was a period of rest and **recuperation**.
+**lop off**.  
+water **gushing** from a hydrant.  
+Young mothers are **gushing** over their babies.  
+the **celestial city**.  
+**life raft**.  
+**dysbiosis**, **symbiosis**, **homeostasis**  
+**corrigible**  
+The name Chanel became a **byword** for **elegance**.
+The "made in China" label is often a **byword** for "cheap".
+**sulfur** **dioxide**, carbon **dioxide**.  
+
+**precedent**, **precedence**.  
+It’s time to **shed** some of this baggage: if a command is going to be used primarily by humans, it should be designed for humans first.  
 The largest digital market asset not only experiencing a **meteoric** surge this quarter but also actually reaching an all-time high before the halving for time in history.  
 
 ## Week 4  
