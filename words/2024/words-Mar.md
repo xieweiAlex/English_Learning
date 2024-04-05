@@ -1,12 +1,21 @@
 
-His tone was tinged with irony. 
-Her homecoming was tinged with sadness.
+whereas southeast Dallas with swaths of preserved land stayed cooler throughout the day.  
+Among the strategies listed here, cracking an egg open, sniffing it, and checking for discoloration is the most conclusive method of determining freshness.  
+Some friends of mine swear by morning showers. They claim it helps them wake up and start the day feeling refreshed and ready to go.  
 
-they make a great show of pussyfooting through the greenery.  
-Many Americans think their legal system has gone haywire.  
+
+**At dawn**, the **crows** flew back to their lair.
+Keenv Reeves **reprises** his role in the **spinoff** movie.  
+**retrench** expenses.  
+
+His tone was **tinged** with irony. 
+Her homecoming was **tinged** with sadness.
+
+they make a great show of **pussyfooting** through the greenery.  
+Many Americans think their legal system has gone **haywire**.  
 During the **flush times**, salespeople were **surly**, waiters **snobby**. -
 You **skimp** on travel expenses. -
-She was trying hard to disgorge a fish bone.
+She was trying hard to **disgorge** a fish bone.
 
 I felt **dopey** and drowsy after the operation.  
 

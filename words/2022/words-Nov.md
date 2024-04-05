@@ -218,8 +218,6 @@ The two have also been long-time rivals, leading some to speculate that CZ may h
 
 To that end we decided to update the name to be more **in line with** the content.  
 
-Keenv Reeves **reprises** his role in the **spinoff** movie.  
-
 **Took the liberty** of **flagging** a few typos.  
 Which player is **flagging** and needs to be substituted?  
 
