@@ -22,7 +22,7 @@ They don't want radical change, they want **continuity**, I do, too.
 > Power is vested in the people  
 > It's a relief to think power all lie in the elite, and we can not do anything about it  
 
-The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite. -  
+The world would change around you in ways that would make you immune to the **blandishment** of the **power mongering** elite.   
 
 To **assuage** his wife's grief, he took her on a tour of Europe.  
 **skinny-dipping**  

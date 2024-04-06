@@ -1,32 +1,35 @@
 
+Young people today are **swimming against** an even stronger **current**.  
+There are broken things that need to be **made whole** again.  
+
 a **luscious**, vivid description.  
 a **luscious** and **fragrant** dessert wine.  
 **luscious** hair.  
 
-**subsequent**, **ensuing**, **preceding**
-**on par**, **subpar**, **suboptimal**
+**subsequent**, **ensuing**, **preceding**  
+**on par**, **subpar**, **suboptimal**  
 
-whereas southeast Dallas with swaths of preserved land stayed cooler throughout the day.  
-Among the strategies listed here, cracking an egg open, sniffing it, and checking for discoloration is the most conclusive method of determining freshness.  
-Some friends of mine swear by morning showers. They claim it helps them wake up and start the day feeling refreshed and ready to go.  
+whereas southeast Dallas with **swaths** of preserved land stayed cooler throughout the day.  
+Among the strategies listed here, cracking an egg open, **sniffing** it, and checking for discoloration is the most **conclusive method** of determining freshness.  
+Some friends of mine **swear by** morning showers. They claim it helps them wake up and start the day feeling refreshed and ready to go.  
 
-**At dawn**, the **crows** flew back to their **lair**.
+**At dawn**, the **crows** flew back to their **lair**.  
 Keenv Reeves **reprises** his role in the **spinoff** movie.  
 **retrench** expenses.  
 
-His tone was **tinged** with irony. 
-Her homecoming was **tinged** with sadness.
+His tone was **tinged** with irony.  
+Her homecoming was **tinged** with sadness.  
 
 they make a great show of **pussyfooting** through the greenery.  
 Many Americans think their legal system has gone **haywire**.  
-During the **flush times**, salespeople were **surly**, waiters **snobby**. -
-You **skimp** on travel expenses. -
-She was trying hard to **disgorge** a fish bone.
+During the **flush times**, salespeople were **surly**, waiters **snobby**. -  
+You **skimp** on travel expenses. -  
+She was trying hard to **disgorge** a fish bone.  
 
 I felt **dopey** and drowsy after the operation.  
 
 **Savant**, **maestro**  
-It was a period of rest and **recuperation**.
+It was a period of rest and **recuperation**.  
 **lop off**.  
 water **gushing** from a hydrant.  
 Young mothers are **gushing** over their babies.  
@@ -34,8 +37,8 @@ the **celestial city**.
 **life raft**.  
 **dysbiosis**, **symbiosis**, **homeostasis**  
 **corrigible**  
-The name Chanel became a **byword** for **elegance**.
-The "made in China" label is often a **byword** for "cheap".
+The name Chanel became a **byword** for **elegance**.  
+The "made in China" label is often a **byword** for "cheap".  
 **sulfur** **dioxide**, carbon **dioxide**.  
 
 **precedent**, **precedence**.  
@@ -116,7 +119,7 @@ This expectation **hinges on** several factors, including the continued influenc
 Las Vegas-based miner CleanSpark has **bucked the downward trend**, with its share price seeing a 10% gain over the past month.  
 **It remains to be seen** if there will be a pre-halving correction in BTC prices similar to prior cycles, Flynn noted.  
 
-The word frugality used to **serve that function**, but by the middle of the twentieth century it seemed like a **quaint** notion of Depression-era grandparents. -  
+The word frugality used to **serve that function**, but by the middle of the twentieth century it seemed like a **quaint** notion of Depression-era grandparents.   
 Our **bedrock** is frugality, and it’s **high time** we made friends again with the word—and the practice.  
 **humblebrag**.  
 
@@ -124,7 +127,7 @@ But just because **conspicuous consumption** is a cross-cultural and evolutionar
 
 
 Why is shopping one of our favorite national **pastimes**?  
-You have **nothing to lose** by asking for a discount at any store—from your local hardware store to a clothing **emporium**. -  
+You have **nothing to lose** by asking for a discount at any store—from your local hardware store to a clothing **emporium**.   
 But I was **astute** enough to shut my mouth, open my wallet, and take advantage of a great bargain.  
 Unless you get **shooed away** because you are too early.  
 > The old saying “One man’s trash is another man’s treasure”  
