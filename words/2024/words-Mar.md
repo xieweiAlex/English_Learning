@@ -1,10 +1,16 @@
 
+a **luscious**, vivid description.  
+a **luscious** and **fragrant** dessert wine.  
+**luscious** hair.  
+
+**subsequent**, **ensuing**, **preceding**
+**on par**, **subpar**, **suboptimal**
+
 whereas southeast Dallas with swaths of preserved land stayed cooler throughout the day.  
 Among the strategies listed here, cracking an egg open, sniffing it, and checking for discoloration is the most conclusive method of determining freshness.  
 Some friends of mine swear by morning showers. They claim it helps them wake up and start the day feeling refreshed and ready to go.  
 
-
-**At dawn**, the **crows** flew back to their lair.
+**At dawn**, the **crows** flew back to their **lair**.
 Keenv Reeves **reprises** his role in the **spinoff** movie.  
 **retrench** expenses.  
 
