@@ -1,7 +1,35 @@
 
+## Week 1 
+
+Think Tesla is in trouble? **Pity** even more its **wannabe** EV rivals.  
+Calling all **rebel** investors…
+Vladimir Putin’s **sham** re-election is notable only for the protests. - The outcome is **predetermined**, but some Russians honour Navalny’s call.  
+**Deposing** the King of Israel. -  America wants Binyamin Netanyahu out. But his exit is **fraught with** dangers
+
+Money Talks are **deceptively** simple, yet they can change your life.
+Since money is such a **charged** subject, we suggest using the following guidelines and tips to have deeper and possibly ongoing Money Talks. -  
+Unlike other investments, real estate **ties up** a lot of your wealth in one investment that is not very liquid;
+
+Each and every one of these soldiers has proved his **mettle**.
+
+**Whittling down** your expenses and piling up money isn't an end in itself; it’s a **by-product** of doing the steps.
+**primer**. 
+
+
+**outgoing**.  
+**get hitched**.  
+Xi Jinping, China’s president, **sneers** at “the so-called universal values of the West.  
+
+
+Now let's look at another **facet** of the problem.
+No wonder, as well, that millennials have revived interest in this book and the possibility of Financial Independence. They already have **multiple facets** to their lives—some that make money, some as hobbies, some as passions, some as **quirks**.
+If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -
+Perhaps because our jobs are so **laced into** every hour of our days, we take our leisure in unconscious and unsatisfying ways.  
+
+The **provenance** of Bitcoin is very important. -  
+They're all **indicia** indicators of digital property as opposed to security.  
 Young people today are **swimming against** an even stronger **current**.  
 There are broken things that need to be **made whole** again.  
-
 a **luscious**, vivid description.  
 a **luscious** and **fragrant** dessert wine.  
 **luscious** hair.  
