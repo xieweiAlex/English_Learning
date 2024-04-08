@@ -1,4 +1,17 @@
 
+If you **cultivate** the right community, the learnings are endless.  
+If I had the time and money to **dish out** like that, I probably would. 
+**youngsters**.  
+Spain is a **composite** of multifarious traditions and people. 
+English is a **composite** of many languages.  
+**composite material**.  
+reap the benefits.  
+
+> If you’re interested in treating or taking preventive measures for wrinkles, fine lines, pigmentation, scarring, and more, then your late 20s or early 30s is a great age to start with an over-the-counter retinol or even prescription-strength tretinoin.  
+
+
+
+
 ## Week 1 
 
 Think Tesla is in trouble? **Pity** even more its **wannabe** EV rivals.  
