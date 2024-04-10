@@ -1,6 +1,12 @@
 
+The city is **awash** with drugs.
+The world is **awash** in money.  
 
-this is a rather **steep statement**.  
+**cosmetic**, **cosmic**. 
+At the end of the interview I was **dazed** and exhausted.
+**in a daze**.  
+
+This is a rather **steep statement**.  
 
 If you **cultivate** the right community, the learnings are endless.  
 If I had the time and money to **dish out** like that, I probably would. 
