@@ -1,5 +1,28 @@
 
-The city is **awash** with drugs.
+We help small companies to **get off the ground**.
+Without more money, the movie is unlikely to **get off the ground**.  
+
+
+You were the **fussy snob** who was impossible to please.  
+**get off the ground**.  
+
+there is **ample** time for discussion.  
+her **ample** **bosom**.  
+
+she was too quick for him and **jinked** away every time.  
+The cat quickly **jinked** out of the way as the dog lunged at it.
+she was determined not to be **bludgeoned** into submission.  
+She had been **bludgeoned to death**.  
+Television and video games have bred a generation of **indolent** teens.  
+**helical curve**, **helical groove**.  
+**congenital** **anomaly**/**defect**.  
+Judging by the polls, such efforts are likely to **fall flat**.  
+
+
+Yes, **bludgeon** is a commonly used word. It is often used to describe a heavy, thick club-like weapon, but it can also be used as a verb meaning to strike or hit someone with a bludgeon or to force or coerce someone into doing something.
+
+
+The city is **awash** with drugs.  
 The world is **awash** in money.  
 
 **cosmetic**, **cosmic**. 
@@ -145,7 +168,7 @@ buy **in trenches**.
 
 **make the cut**.  
 he is a reserved, almost **taciturn** man.  
-The room was **alight** with lamps.  
+The room was **alight** with lamps. -   
 the boy's face was **alight** with excitement.  
 
 A book by Steven Sloman and Philip Fernbach, two **cognitive scientists**, argues that humans evolved as part of a **hive mind**, benefiting from co-operation and community.  
