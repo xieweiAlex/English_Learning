@@ -13,7 +13,7 @@ Because **you never know when your next meal will come along**. Free-market capi
 
 Everyone knows deep down that **piling** on the kilos is life-shortening.  
 Why everyone should eat more ugly seafood--In praise of the **monstrous**, abundant and delicious **monkfish**  
-**Llama** and **alpaca** farmers have been badly hit by recurring water shortages. -  
+**Llama** and **alpaca** farmers have been badly hit by recurring water shortages.   
 **conjugal**, **conjugal-visit**.  
 
 I **absolve** you from all your sins.  

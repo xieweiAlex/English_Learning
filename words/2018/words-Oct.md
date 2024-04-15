@@ -326,8 +326,6 @@ He looked **spruce** in his best clothes
 This **itinerary** leaves us plenty of **leeway**  
 There is little **leeway** if anything goes wrong  
 we're looking for three young fellows who've **mitched** from school  
-a **quibble** about the wording of a statement  
-The last time we **quibble** on this trip.  
 
 **Over-the-counter** medication  
 

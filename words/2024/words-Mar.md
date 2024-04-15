@@ -1,121 +1,4 @@
 
-We help small companies to **get off the ground**.
-Without more money, the movie is unlikely to **get off the ground**.  
-
-
-You were the **fussy snob** who was impossible to please.  
-**get off the ground**.  
-
-there is **ample** time for discussion.  
-her **ample** **bosom**.  
-
-she was too quick for him and **jinked** away every time.  
-The cat quickly **jinked** out of the way as the dog lunged at it.
-she was determined not to be **bludgeoned** into submission.  
-She had been **bludgeoned to death**.  
-Television and video games have bred a generation of **indolent** teens.  
-**helical curve**, **helical groove**.  
-**congenital** **anomaly**/**defect**.  
-Judging by the polls, such efforts are likely to **fall flat**.  
-
-
-Yes, **bludgeon** is a commonly used word. It is often used to describe a heavy, thick club-like weapon, but it can also be used as a verb meaning to strike or hit someone with a bludgeon or to force or coerce someone into doing something.
-
-
-The city is **awash** with drugs.  
-The world is **awash** in money.  
-
-**cosmetic**, **cosmic**. 
-At the end of the interview I was **dazed** and exhausted.
-**in a daze**.  
-
-This is a rather **steep statement**.  
-
-If you **cultivate** the right community, the learnings are endless.  
-If I had the time and money to **dish out** like that, I probably would. 
-**youngsters**.  
-Spain is a **composite** of multifarious traditions and people. 
-English is a **composite** of many languages.  
-**composite material**.  
-**reap the benefits**.  
-
-> If you’re interested in treating or taking preventive measures for wrinkles, fine lines, pigmentation, scarring, and more, then your late 20s or early 30s is a great age to start with an over-the-counter retinol or even prescription-strength tretinoin.  
-
-
-## Week 1 
-
-Think Tesla is in trouble? **Pity** even more its **wannabe** EV rivals.  
-Calling all **rebel** investors…
-Vladimir Putin’s **sham** re-election is notable only for the protests. - The outcome is **predetermined**, but some Russians honour Navalny’s call.  
-**Deposing** the King of Israel. -  America wants Binyamin Netanyahu out. But his exit is **fraught with** dangers
-
-Money Talks are **deceptively** simple, yet they can change your life.
-Since money is such a **charged** subject, we suggest using the following guidelines and tips to have deeper and possibly ongoing Money Talks. -  
-Unlike other investments, real estate **ties up** a lot of your wealth in one investment that is not very liquid;
-
-Each and every one of these soldiers has proved his **mettle**.
-
-**Whittling down** your expenses and piling up money isn't an end in itself; it’s a **by-product** of doing the steps.
-**primer**. 
-
-
-**outgoing**.  
-**get hitched**.  
-Xi Jinping, China’s president, **sneers** at “the so-called universal values of the West.  
-
-
-Now let's look at another **facet** of the problem.
-No wonder, as well, that millennials have revived interest in this book and the possibility of Financial Independence. They already have **multiple facets** to their lives—some that make money, some as hobbies, some as passions, some as **quirks**.
-If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -
-Perhaps because our jobs are so **laced into** every hour of our days, we take our leisure in unconscious and unsatisfying ways.  
-
-The **provenance** of Bitcoin is very important. -  
-They're all **indicia** indicators of digital property as opposed to security.  
-Young people today are **swimming against** an even stronger **current**.  
-There are broken things that need to be **made whole** again.  
-a **luscious**, vivid description.  
-a **luscious** and **fragrant** dessert wine.  
-**luscious** hair.  
-
-**subsequent**, **ensuing**, **preceding**  
-**on par**, **subpar**, **suboptimal**  
-
-whereas southeast Dallas with **swaths** of preserved land stayed cooler throughout the day.  
-Among the strategies listed here, cracking an egg open, **sniffing** it, and checking for discoloration is the most **conclusive method** of determining freshness.  
-Some friends of mine **swear by** morning showers. They claim it helps them wake up and start the day feeling refreshed and ready to go.  
-
-**At dawn**, the **crows** flew back to their **lair**.  
-Keenv Reeves **reprises** his role in the **spinoff** movie.  
-**retrench** expenses.  
-
-His tone was **tinged** with irony.  
-Her homecoming was **tinged** with sadness.  
-
-they make a great show of **pussyfooting** through the greenery.  
-Many Americans think their legal system has gone **haywire**.  
-During the **flush times**, salespeople were **surly**, waiters **snobby**. -  
-You **skimp** on travel expenses. -  
-She was trying hard to **disgorge** a fish bone.  
-
-I felt **dopey** and drowsy after the operation.  
-
-**Savant**, **maestro**  
-It was a period of rest and **recuperation**.  
-**lop off**.  
-water **gushing** from a hydrant.  
-Young mothers are **gushing** over their babies.  
-the **celestial city**.  
-**life raft**.  
-**dysbiosis**, **symbiosis**, **homeostasis**  
-**corrigible**  
-The name Chanel became a **byword** for **elegance**.  
-The "made in China" label is often a **byword** for "cheap".  
-**sulfur** **dioxide**, carbon **dioxide**.  
-
-**precedent**, **precedence**.  
-It’s time to **shed** some of this baggage: if a command is going to be used primarily by humans, it should be designed for humans first.  
-The largest digital market asset not only experiencing a **meteoric** surge this quarter but also actually reaching an all-time high before the halving for time in history.  
-
 ## Week 4  
 
 In 1960 the French reportedly each **imbibed**, on average, 116 litres of wine in a year.  
@@ -154,7 +37,7 @@ There are various ways of cooking tofu such as cold, **braise**, stew, boil and 
 A lovely vintage **newsreel** reported on the campaign.  
 
 
-The **fallacious** case for abolishing the rich. -  
+The **fallacious** case for abolishing the rich.   
 **cockney** accent.  
 **Ethologist**.  
 **sanctity**.  
@@ -168,7 +51,7 @@ buy **in trenches**.
 
 **make the cut**.  
 he is a reserved, almost **taciturn** man.  
-The room was **alight** with lamps. -   
+The room was **alight** with lamps. -  
 the boy's face was **alight** with excitement.  
 
 A book by Steven Sloman and Philip Fernbach, two **cognitive scientists**, argues that humans evolved as part of a **hive mind**, benefiting from co-operation and community.  
@@ -190,7 +73,7 @@ This expectation **hinges on** several factors, including the continued influenc
 Las Vegas-based miner CleanSpark has **bucked the downward trend**, with its share price seeing a 10% gain over the past month.  
 **It remains to be seen** if there will be a pre-halving correction in BTC prices similar to prior cycles, Flynn noted.  
 
-The word frugality used to **serve that function**, but by the middle of the twentieth century it seemed like a **quaint** notion of Depression-era grandparents.   
+The word frugality used to **serve that function**, but by the middle of the twentieth century it seemed like a **quaint** notion of Depression-era grandparents.  
 Our **bedrock** is frugality, and it’s **high time** we made friends again with the word—and the practice.  
 **humblebrag**.  
 
@@ -198,7 +81,7 @@ But just because **conspicuous consumption** is a cross-cultural and evolutionar
 
 
 Why is shopping one of our favorite national **pastimes**?  
-You have **nothing to lose** by asking for a discount at any store—from your local hardware store to a clothing **emporium**.   
+You have **nothing to lose** by asking for a discount at any store—from your local hardware store to a clothing **emporium**.  
 But I was **astute** enough to shut my mouth, open my wallet, and take advantage of a great bargain.  
 Unless you get **shooed away** because you are too early.  
 > The old saying “One man’s trash is another man’s treasure”  
@@ -276,7 +159,7 @@ attack the president over findings on his **mental acuity** and memory.
 These trade negotiations are much more a **clash of cultures** than a simple trade agreement.  
 
 And of course, it was unfair that he was sent there—on **trumped up** charges no less—and it would have been lonely and sad to be so far from his family.  
-He’s saying, look people today are going to be remarkably dumb but I can’t let them **implicate** me in their ugliness. -  
+He’s saying, look people today are going to be remarkably dumb but I can’t let them **implicate** me in their ugliness.   
 
 
 ## Week 2  
@@ -355,7 +238,6 @@ Now please don't **sully** the family name.
 a **coarse** **woolen** cloth.  
 
 It has truly **leveled** the playing field in terms of the ability to learn.  
-When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price.  
 
 **reciprocate**  
 
