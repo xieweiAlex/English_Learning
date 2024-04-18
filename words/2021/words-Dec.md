@@ -200,7 +200,6 @@ Let’s change the **rigged** tax code so The Person of the Year will actually p
 Their eyes were full of friendliness and **bonhomie**.  
 fish **fillet**  
 His brow **corrugated** with the effort of thinking.  
-Did anyone else have their car **rummaged** through last night?  
 We lived in a **palatial** house with maids.  
 I have had enough **obloquy** for one lifetime.  
 **Aesthete** can find the beauty in the daily life.  

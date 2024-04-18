@@ -1,12 +1,30 @@
 
-A stampede is possible anywhere.  
-botulism.  
-cudgel, baton, torch.   
-assume the reins of government.  
-Stones whet a sword, difficulties strengthen willpower. -  
-The name Chanel became a **byword** for **elegance**. -  
-The "made in China" label is often a **byword** for "cheap".  
+blowhole.  
+devour
+blemish 
+bland, blandish . 
 
+
+Did anyone else have their car **rummaged** through last night? -  
+A spitball hit the principal on his nose.  
+I'm just spitballing a few ideas.  
+
+
+
+providential.  
+flabbergast.  
+magnet, magnetic.  
+blithe, blithesome.  
+
+
+
+A **stampede** is possible anywhere.  
+**botulism**.  
+**cudgel**, **baton**, torch.   
+**assume** **the reins** of government.  
+Stones **whet** a sword, difficulties strengthen **willpower**. -  
+The name **Chanel** became a **byword** for **elegance**. -  
+The "made in China" label is often a **byword** for "cheap".  
 
 He cheated on all his wives. He bullied friends. He **talked behind their backs**.  
 I don’t get rashes anymore, I’m no longer scabbed up or bruised from constant scratching, and I’ve saved myself the anxiety over potentially dying from **anaphylaxis** one day.  
