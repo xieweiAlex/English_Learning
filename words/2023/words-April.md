@@ -1,4 +1,7 @@
 
+Last cycle was actually a stunted cycle, because the final leg never happened.  
+capture the mind share.  
+
 
 ## Week 4  
 
