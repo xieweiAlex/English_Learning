@@ -1,20 +1,21 @@
 
-blowhole.  
-devour
-blemish 
-bland, blandish . 
 
+Animal manure, green manure.  
+
+
+**blowhole**.  
+**devour**
+**blemish** 
+**bland**, **blandish** . 
 
 Did anyone else have their car **rummaged** through last night? -  
-A spitball hit the principal on his nose.  
-I'm just spitballing a few ideas.  
+A **spitball** hit the principal on his nose.  
+I'm just **spitballing** a few ideas.  
 
-
-
-providential.  
+**providential**.  
 flabbergast.  
-magnet, magnetic.  
-blithe, blithesome.  
+**magnet**, **magnetic**.  
+**blithe**, **blithesome**.  
 
 
 
