@@ -1,4 +1,8 @@
 
+Politicians like to pontificate about falling standards.   
+And also pontificate on what the future will hold for Bitcoin over the next four years.   
+
+It would be a remiss if we didn't .... 
 
 Animal manure, green manure.  
 
