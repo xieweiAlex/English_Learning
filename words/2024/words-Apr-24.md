@@ -1,4 +1,6 @@
 
+Who holds the purse strings in your house?  
+
 
 
 These **ironclad** details are **irrefutable** proof in black and white.  
@@ -14,7 +16,7 @@ the silence is **defeaning**.
 this is **sketchy**.  
 
 We actually **circumvented** the supplier and found something cheaper.  
-To my **utter amazement** she agreed.   
+To my **utter amazement** she agreed.  
 **delighted**.  
 **raw deal**.  
 **Bumper stick**.  
@@ -33,18 +35,18 @@ US **Customary** Units and Metric Units.
 **a team of butlers**.  
 
 
-Politicians like to **pontificate** about falling standards.   
-And also **pontificate** on what the **future will hold** for Bitcoin over the next four years.   
+Politicians like to **pontificate** about falling standards.  
+And also **pontificate** on what the **future will hold** for Bitcoin over the next four years.  
 
-It would be a **remiss** if we didn't .... 
+It would be a **remiss** if we didn't ....  
 
 Animal **manure**, **green manure**.  
 
 
 **blowhole**.  
-**devour**
-**blemish** 
-**bland**, **blandish** . 
+**devour**  
+**blemish**  
+**bland**, **blandish** .  
 
 Did anyone else have their car **rummaged** through last night? -  
 A **spitball** hit the principal on his nose.  
@@ -59,7 +61,7 @@ I'm just **spitballing** a few ideas.
 
 A **stampede** is possible anywhere.  
 **botulism**.  
-**cudgel**, **baton**, torch.   
+**cudgel**, **baton**, torch.  
 **assume** **the reins** of government.  
 Stones **whet** a sword, difficulties strengthen **willpower**. -  
 The name **Chanel** became a **byword** for **elegance**. -  
@@ -79,7 +81,7 @@ She was trying hard to **disgorge** a fish bone.
 the **combine** **disygorged** a steady stream of grain.  
 The Nile **disgorges** into the sea at Rashid.  
 **Ruble**, **Rupee**  
-He was involved in a **scuffle** with a photographer.   
+He was involved in a **scuffle** with a photographer.  
 What began as a minor **scuffle** turned into a full-scale riot. -  
 in a **tailspin**.  
 Do you have **spanner**, **pincer** and hammer? -  

@@ -1,5 +1,10 @@
 ## words-Apr-24.md ##  
 words/2024/words-Apr-24.md  
+Did anyone else have their car **rummaged** through last night? -  
+Stones **whet** a sword, difficulties strengthen **willpower**. -  
+The name **Chanel** became a **byword** for **elegance**. -  
+What began as a minor **scuffle** turned into a full-scale riot. -  
+Do you have **spanner**, **pincer** and hammer? -  
 When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price. -  
 Since money is such a **charged** subject, we suggest using the following guidelines and tips to have deeper and possibly ongoing Money Talks. -  
 If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -  
