@@ -1,10 +1,44 @@
 
-Politicians like to pontificate about falling standards.   
-And also pontificate on what the future will hold for Bitcoin over the next four years.   
 
-It would be a remiss if we didn't .... 
 
-Animal manure, green manure.  
+These **ironclad** details are **irrefutable** proof in black and white.  
+Some try to crush it but it's **ironclad**, withstanding weight thousands of times its own.  
+
+
+I don't want to be a **bulldoze** parent.  
+We got a **raw deal**  
+There will be **uprising**.  
+
+the silence is **defeaning**.  
+**talk the talk, walk the walk**.  
+this is **sketchy**.  
+
+We actually **circumvented** the supplier and found something cheaper.  
+To my **utter amazement** she agreed.   
+**delighted**.  
+**raw deal**.  
+**Bumper stick**.  
+
+
+He quickly **disabused** me of my fanciful notions.  
+I must **disabuse** you of your feelings of grandeur.  
+**lavishly**.  
+He had thick brown hair and **shaggy** brows.  
+
+
+These ungrateful **freerider** are not, let's be clear, vegetarians.  
+**stoner**.  
+
+US **Customary** Units and Metric Units.  
+**a team of butlers**.  
+
+
+Politicians like to **pontificate** about falling standards.   
+And also **pontificate** on what the **future will hold** for Bitcoin over the next four years.   
+
+It would be a **remiss** if we didn't .... 
+
+Animal **manure**, **green manure**.  
 
 
 **blowhole**.  
@@ -17,7 +51,7 @@ A **spitball** hit the principal on his nose.
 I'm just **spitballing** a few ideas.  
 
 **providential**.  
-flabbergast.  
+**flabbergast**.  
 **magnet**, **magnetic**.  
 **blithe**, **blithesome**.  
 
