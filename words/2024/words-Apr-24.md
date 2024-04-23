@@ -1,4 +1,6 @@
 
+She gave him her best winsome smile.
+
 Who holds the purse strings in your house?  
 
 
