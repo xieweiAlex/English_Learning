@@ -1,19 +1,30 @@
 
-She gave him her best winsome smile.
+She gave him her best **winsome** smile.
+Who holds the **purse strings** in your house?  
 
-Who holds the purse strings in your house?  
+**asphalt pavement**, **asphalt road**  
+**equator**.  
+**decrepit**, **dilapidated**  
 
+**scented candle**  
+
+It might be easier to simply stay where we are, **marinating** in our stuck.  
+her brother was **immured** in a lunatic asylum.  
+
+> When we care enough to solve our own problem, we’ll loosen the unloosenable constraints and embrace the new challenges to come.  
+
+**Spinoza**.  
+Who holds the **purse strings** in your house?  
 
 
 These **ironclad** details are **irrefutable** proof in black and white.  
 Some try to crush it but it's **ironclad**, withstanding weight thousands of times its own.  
 
-
 I don't want to be a **bulldoze** parent.  
 We got a **raw deal**  
 There will be **uprising**.  
 
-the silence is **defeaning**.  
+the silence is **deafening**.  
 **talk the talk, walk the walk**.  
 this is **sketchy**.  
 
@@ -28,22 +39,16 @@ He quickly **disabused** me of my fanciful notions.
 I must **disabuse** you of your feelings of grandeur.  
 **lavishly**.  
 He had thick brown hair and **shaggy** brows.  
-
-
 These ungrateful **freerider** are not, let's be clear, vegetarians.  
 **stoner**.  
 
 US **Customary** Units and Metric Units.  
 **a team of butlers**.  
 
-
 Politicians like to **pontificate** about falling standards.  
 And also **pontificate** on what the **future will hold** for Bitcoin over the next four years.  
-
 It would be a **remiss** if we didn't ....  
-
-Animal **manure**, **green manure**.  
-
+Animal **manure**, **green manure**. -  
 
 **blowhole**.  
 **devour**  
@@ -65,7 +70,7 @@ A **stampede** is possible anywhere.
 **botulism**.  
 **cudgel**, **baton**, torch.  
 **assume** **the reins** of government.  
-Stones **whet** a sword, difficulties strengthen **willpower**. -  
+Stones **whet** a sword, difficulties strengthen **willpower**.   
 The name **Chanel** became a **byword** for **elegance**. -  
 The "made in China" label is often a **byword** for "cheap".  
 
@@ -196,7 +201,7 @@ No wonder, as well, that millennials have revived interest in this book and the 
 If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -  
 Perhaps because our jobs are so **laced into** every hour of our days, we take our leisure in unconscious and unsatisfying ways.  
 
-The **provenance** of Bitcoin is very important. -  
+The **provenance** of Bitcoin is very important.   
 They're all **indicia** indicators of digital property as opposed to security.  
 Young people today are **swimming against** an even stronger **current**.  
 There are broken things that need to be **made whole** again.  
