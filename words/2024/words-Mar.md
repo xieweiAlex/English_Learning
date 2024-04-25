@@ -119,7 +119,7 @@ Keeping track **does wonders** for **quelling** the urge to splurge.
 The FI course for him was more like **cataract surgery** than simply getting a new pair of glasses.  
 The American Dream—**on a Shoestring**.  
 
-I would never **condone** trying to wake up at 5am if it meant cutting your sleep short by two hours. -  
+I would never **condone** trying to wake up at 5am if it meant cutting your sleep short by two hours.   
 
 You give me the **third degree** every time I leave the house.  
 If **nothing else**, Doug is a **hard-nosed** businessman.  

@@ -216,7 +216,7 @@ So leaders who care about civil liberties must do the hard, patient work of figu
 **seldom** vs **rarely**  
 
 When I published **excerpts** from the book online in 2020, including the **prospect** of some form of US civil war, it was considered **kooky**.  
-If President Biden (or the Democrat who will replace him if the strains of the job impact him) wins, he will pursue **diametrically** opposed policies. -  
+If President Biden (or the Democrat who will replace him if the strains of the job impact him) wins, he will pursue **diametrically** opposed policies.   
 **Upward Trendline**, **downward Trendline**.  
 
 Biden was expected to **coast to victory** in South Carolina, but the contest was a first test of his momentum when his name was on the ballot.  
