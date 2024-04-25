@@ -1,4 +1,11 @@
 
+They seem more withdrawn and checked out at work.  
+
+
+Pasture-raised  
+organic barley, organic fishmeal, calcium 
+
+
 If there's anything I can't stand it's an indecisive, wishy-washy customer.   
 
 
