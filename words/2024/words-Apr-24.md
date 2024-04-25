@@ -1,4 +1,7 @@
 
+If there's anything I can't stand it's an indecisive, wishy-washy customer.   
+
+
 She gave him her best **winsome** smile.
 Who holds the **purse strings** in your house?  
 
