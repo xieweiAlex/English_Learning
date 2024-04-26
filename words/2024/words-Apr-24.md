@@ -1,13 +1,17 @@
 
-They seem more withdrawn and checked out at work.  
+He pilfer from a cash register.
+We extort, we pilfer, we filch and sack.  
+heist.  
 
 
-Pasture-raised  
-organic barley, organic fishmeal, calcium 
 
+They seem more withdrawn and **checked out** at work.  
+Many of them live under **deplorable** conditions.
 
-If there's anything I can't stand it's an indecisive, wishy-washy customer.   
+**Pasture-raised**  
+organic **barley**, organic **fishmeal**, **calcium** 
 
+If there's anything I can't stand it's an **indecisive**, **wishy-washy** customer.   
 
 She gave him her best **winsome** smile.
 Who holds the **purse strings** in your house?  
