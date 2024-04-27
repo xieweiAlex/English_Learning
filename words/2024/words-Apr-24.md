@@ -1,12 +1,19 @@
 
-He pilfer from a cash register.
-We extort, we pilfer, we filch and sack.  
-heist.  
+He **feigned** indifference to criticism of his work. -  
+**sleeker**.  
+**barehanded**, **bareheaded**.  
+**succinct**, **concise**, **brief**, **descriptive** 
+**boom-and-bust**.  
+**incantation**.  
+**propitious**, **auspicious**. -  
 
-
+He **pilfer** from a cash register. -
+We **extort**, we **pilfer**, we **filch and sack**. -  
+**heist**.  
 
 They seem more withdrawn and **checked out** at work.  
 Many of them live under **deplorable** conditions.
+
 
 **Pasture-raised**  
 organic **barley**, organic **fishmeal**, **calcium** 
