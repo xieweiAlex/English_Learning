@@ -1,4 +1,36 @@
 
+For starters, I have to be honest here, this business was hokey as hell! I did my best to reserve judgment.  
+Her intention was to feel confident and bold by the end of the day, so she was starting off strong, volunteering herself to go first.  
+When the facilitator asked me to interact with him and describe my feelings, I burst out in a fit of crying, and I hunched over, hiding my face.  
+**maternal** **lineage**.  
+**roleplaying** your family members.  
+
+spout, spray **nuzzle**. 
+**mole man**.  
+
+
+I started to feel a **revulsion** against their decadent lifestyle.
+Some of them can **loiter** in the air for long periods.
+He was out of work and **living in squalor**.
+
+
+> A **Minsky moment** is the onset of a market collapse brought on by speculative activity that defines an unsustainable bullish period.  
+
+Minsky mostly wrote during a period when he thought economists were **lulled into** complacency by the relative stability of the mid-20th century. His work was meant to wake them from their **slumber**.  
+Hyman Minsky worked for much of his career **in relative obscurity**, but that would change when his work on economic crises became unfortunately relevant.  
+Minksy wasn't calling out specific individuals for **moral approbation**.  
+
+
+I let my guard down, and you **pulled the rug**.  
+I got **played for a sucker**.  
+I was **exploited**/**milked**.  
+> Quit while you're ahead.  
+
+Rather than **getting swept up** in the noise and narratives, we prefer to base our analysis of Bitcoin on what is actually happening **under the hood**.    
+
+
+You might even want to **decant** a **full-bodied** white if you feel it's tasting a bit **funky** or not showing at its best.  
+Both these facts could easily be perceived as evidence of women getting the **short straw**.  
 He **feigned** indifference to criticism of his work. -  
 **sleeker**.  
 **barehanded**, **bareheaded**.  
