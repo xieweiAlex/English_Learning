@@ -1,4 +1,17 @@
 
+The contour of the Atlantic coast of America is very irregular.  
+brain fog.  
+rebuke, scold.  
+a tent mauled by a hungry bear;  
+The novel was mauled by the New York critics.  
+
+atrophy, dystrophy.  
+transient, ephemeral, temporary.  
+an ignominious treaty   
+emancipate, emancipation.  
+
+
+
 **asleep at wheel**.  
 
 
