@@ -1,7 +1,14 @@
 
-For starters, I have to be honest here, this business was hokey as hell! I did my best to reserve judgment.  
-Her intention was to feel confident and bold by the end of the day, so she was starting off strong, volunteering herself to go first.  
-When the facilitator asked me to interact with him and describe my feelings, I burst out in a fit of crying, and I hunched over, hiding my face.  
+**asleep at wheel**.  
+
+
+**Kitchen ware**, **bronze ware**, **porcelain ware**.  
+**Parfait**.  
+Many Americans think their legal system has gone **haywire**.   
+
+For starters, I have to be honest here, this business was **hokey** as hell! I did my best to reserve judgment.  
+Her intention was to feel confident and bold by the end of the day, so she was **starting off** strong, volunteering herself to go first.  
+When the facilitator asked me to interact with him and describe my feelings, I **burst out** in **a fit of crying**, and I **hunched over**, hiding my face.  
 **maternal** **lineage**.  
 **roleplaying** your family members.  
 
