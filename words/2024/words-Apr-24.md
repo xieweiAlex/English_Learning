@@ -1,9 +1,14 @@
 
+**truffle** chocolate.  
+
+
+It’s the attempt, not the outcome that counts. It’s an intention, not a **disposition**.  
+
 The **contour** of the Atlantic coast of America is very irregular.  
 **brain fog**.  
 **rebuke**, **scold**.  
-a tent mauled by a hungry bear;  
-The novel was mauled by the New York critics.  
+a tent **mauled** by a hungry bear;  
+The novel was **mauled** by the New York critics.  
 
 **atrophy**, **dystrophy**.  
 **transient**, **ephemeral**, **temporary**.  
