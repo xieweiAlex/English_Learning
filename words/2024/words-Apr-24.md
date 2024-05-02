@@ -1,7 +1,11 @@
 
+What is the current state of play in the peace talks?  
+
+**choke point**
+gringo.  
+
+
 **truffle** chocolate.  
-
-
 It’s the attempt, not the outcome that counts. It’s an intention, not a **disposition**.  
 
 The **contour** of the Atlantic coast of America is very irregular.  
