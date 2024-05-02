@@ -1,3 +1,5 @@
+As he described his career options, he told me he could keep progressing at his company and become a partner or he could take a position at a client’s firm and “coast,” as he put it.
+
 
 What is the current state of play in the peace talks?  
 
