@@ -9,7 +9,7 @@ In 1960 the French reportedly each **imbibed**, on average, 116 litres of wine i
 These results confirmed that **avian species** can develop preferences for **palatable** food through social learning.  
 This may be more politically **palatable** than lending dollars.  
 changed to make it more **palatable** to an American audience.  
-She’s a **glutton** for work.She stays late every evening. -  
+She’s a **glutton** for work.She stays late every evening.   
 
 
 Honey badgers are **carnivores** that secure most of their food through active hunting, though individuals may **scavenge**.  
@@ -42,7 +42,7 @@ The **fallacious** case for abolishing the rich.
 **Ethologist**.  
 **sanctity**.  
 
-EazyBot’s reputation is also **marred** by the way that it presents its solution. -  
+EazyBot’s reputation is also **marred** by the way that it presents its solution.   
 
 While writing this review, the main website went down multiple times, while the support section remained unavailable for hours without any **intimation**.  
 

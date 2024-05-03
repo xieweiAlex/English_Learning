@@ -1,4 +1,19 @@
 
+
+**glib**
+1. The politician's glib responses to tough questions made it clear that he was not being sincere.
+2. The salesman's glib talk convinced me to buy the product, but I later regretted it.
+3. The comedian's glib jokes had the audience laughing throughout the entire show.
+4. The student's glib excuses for not completing the assignment were not accepted by the teacher.
+5. The CEO's glib promises of a better work environment were met with skepticism by the employees.
+6. The lawyer's glib arguments in court were able to sway the jury in his client's favor.
+7. The journalist's glib writing style made the article easy and enjoyable to read.
+8. The actress's glib response to the criticism of her performance showed her lack of concern.
+9. The politician's glib remarks about the current state of the economy were met with criticism from the opposition.
+10. The teacher's glib explanation of the complex topic left the students confused and frustrated.
+
+## April 
+
 **esoteric**
 
 **delineate**

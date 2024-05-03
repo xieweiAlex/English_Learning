@@ -1,12 +1,20 @@
-As he described his career options, he told me he could keep progressing at his company and become a partner or he could take a position at a client’s firm and “coast,” as he put it.
+
+McMillon started working in a Walmart warehouse in high school, and is today the CEO of the largest retailer in the world, and — pertinently to Stratechery — one of the largest and fastest-growing e-commerce businesses: last year Walmart passed $100 billion in global e-commerce sales.   
+
+I spent eight hours at the client’s office building an impressive spreadsheet, **drenched in sweat**, trying to handle the pain. I couldn't wait to get back to my hotel room.  
+**in good spirit**.  
+
+**relay**, **overlay**.  
+
+As he described his career options, he told me he could keep progressing at his company and become a partner or he could take a position at a client’s firm and “**coast**,” as he put it.  
+
+What is the current **state of play** in the peace talks?  
+
+**choke point**  
+**gringo**.  
 
 
-What is the current state of play in the peace talks?  
-
-**choke point**
-gringo.  
-
-
+## Week 4
 **truffle** chocolate.  
 It’s the attempt, not the outcome that counts. It’s an intention, not a **disposition**.  
 
@@ -18,14 +26,14 @@ The novel was **mauled** by the New York critics.
 
 **atrophy**, **dystrophy**.  
 **transient**, **ephemeral**, **temporary**.  
-an **ignominious** treaty   
+an **ignominious** treaty  
 **emancipate**, **emancipation**.  
 
 **asleep at wheel**.  
 
 **Kitchen ware**, **bronze ware**, **porcelain ware**.  
 **Parfait**.  
-Many Americans think their legal system has gone **haywire**.   
+Many Americans think their legal system has gone **haywire**.  
 
 For starters, I have to be honest here, this business was **hokey** as hell! I did my best to reserve judgment.  
 Her intention was to feel confident and bold by the end of the day, so she was **starting off** strong, volunteering herself to go first.  
@@ -33,13 +41,13 @@ When the facilitator asked me to interact with him and describe my feelings, I *
 **maternal** **lineage**.  
 **roleplaying** your family members.  
 
-spout, spray **nuzzle**. 
+spout, spray **nuzzle**.  
 **mole man**.  
 
 
-I started to feel a **revulsion** against their decadent lifestyle.
-Some of them can **loiter** in the air for long periods.
-He was out of work and **living in squalor**.
+I started to feel a **revulsion** against their decadent lifestyle.  
+Some of them can **loiter** in the air for long periods.  
+He was out of work and **living in squalor**.  
 
 
 > A **Minsky moment** is the onset of a market collapse brought on by speculative activity that defines an unsustainable bullish period.  
@@ -54,7 +62,7 @@ I got **played for a sucker**.
 I was **exploited**/**milked**.  
 > Quit while you're ahead.  
 
-Rather than **getting swept up** in the noise and narratives, we prefer to base our analysis of Bitcoin on what is actually happening **under the hood**.    
+Rather than **getting swept up** in the noise and narratives, we prefer to base our analysis of Bitcoin on what is actually happening **under the hood**.  
 
 
 You might even want to **decant** a **full-bodied** white if you feel it's tasting a bit **funky** or not showing at its best.  
@@ -62,25 +70,25 @@ Both these facts could easily be perceived as evidence of women getting the **sh
 He **feigned** indifference to criticism of his work. -  
 **sleeker**.  
 **barehanded**, **bareheaded**.  
-**succinct**, **concise**, **brief**, **descriptive** 
+**succinct**, **concise**, **brief**, **descriptive**  
 **boom-and-bust**.  
 **incantation**.  
 **propitious**, **auspicious**. -  
 
-He **pilfer** from a cash register. -
+He **pilfer** from a cash register. -  
 We **extort**, we **pilfer**, we **filch and sack**. -  
 **heist**.  
 
 They seem more withdrawn and **checked out** at work.  
-Many of them live under **deplorable** conditions.
+Many of them live under **deplorable** conditions.  
 
 
 **Pasture-raised**  
-organic **barley**, organic **fishmeal**, **calcium** 
+organic **barley**, organic **fishmeal**, **calcium**  
 
-If there's anything I can't stand it's an **indecisive**, **wishy-washy** customer.   
+If there's anything I can't stand it's an **indecisive**, **wishy-washy** customer.  
 
-She gave him her best **winsome** smile.
+She gave him her best **winsome** smile.  
 Who holds the **purse strings** in your house?  
 
 **asphalt pavement**, **asphalt road**  
@@ -151,7 +159,7 @@ A **stampede** is possible anywhere.
 **botulism**.  
 **cudgel**, **baton**, torch.  
 **assume** **the reins** of government.  
-Stones **whet** a sword, difficulties strengthen **willpower**.   
+Stones **whet** a sword, difficulties strengthen **willpower**.  
 The name **Chanel** became a **byword** for **elegance**. -  
 The "made in China" label is often a **byword** for "cheap".  
 
@@ -282,7 +290,7 @@ No wonder, as well, that millennials have revived interest in this book and the 
 If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -  
 Perhaps because our jobs are so **laced into** every hour of our days, we take our leisure in unconscious and unsatisfying ways.  
 
-The **provenance** of Bitcoin is very important.   
+The **provenance** of Bitcoin is very important.  
 They're all **indicia** indicators of digital property as opposed to security.  
 Young people today are **swimming against** an even stronger **current**.  
 There are broken things that need to be **made whole** again.  
@@ -307,7 +315,7 @@ Her homecoming was **tinged** with sadness.
 they make a great show of **pussyfooting** through the greenery.  
 Many Americans think their legal system has gone **haywire**.  
 During the **flush times**, salespeople were **surly**, waiters **snobby**. -  
-You **skimp** on travel expenses. -  
+You **skimp** on travel expenses.   
 
 I felt **dopey** and drowsy after the operation.  
 
