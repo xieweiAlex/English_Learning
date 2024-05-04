@@ -1,4 +1,16 @@
 
+
+halter-top dresses.  
+
+
+His abrasive wit and caustic comments were an interviewer's nightmare.  
+Today it's pretty desolate, barren and extremely hot.
+I'll just clean the muck off the windscreen.  
+I can't eat this muck!  
+**The Best of Both Worlds**.  
+
+**diffused**
+
 McMillon started working in a Walmart warehouse in high school, and is today the CEO of the largest retailer in the world, and — pertinently to Stratechery — one of the largest and fastest-growing e-commerce businesses: last year Walmart passed $100 billion in global e-commerce sales.   
 
 I spent eight hours at the client’s office building an impressive spreadsheet, **drenched in sweat**, trying to handle the pain. I couldn't wait to get back to my hotel room.  
