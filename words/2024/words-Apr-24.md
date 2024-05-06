@@ -1,21 +1,48 @@
 
 
-He speaks with a British accent, but that is just an affectation because he’s not British.  
-He made an affectation of indifference.  
-consonant.  
-panzer.  
+superimpose, superimposition, overlay, 
+
+Eschew any decisions.  
+He worshipped at the local mosque.
+The bank nixed our request for loan.  
+acre, acreage.  
 
 
 
 
-We had to stand in the snow every morning for roll call.  
-It never occurred to me that the way I dressed wasn’t quite “right.”  
-moral turpitude.  
-I feel very young and can easily pass off as a girl for a long, long time.  
-This myth has been passed off as fact in a number of news articles.  
-stuffy, drafty.  
+
+Your life is too short and too valuable to fritter away in work.  
+He was **direct**, “We want you to join our team, but we can only offer you $50,000 less than you make now.”   
+The low salary offer was a blessing in disguise.  
+
+> These questions inspired an idea: what if I paired making less with working less?
 
 
+
+
+the **pendulum** always swings.  
+**finicky**  
+
+
+black clouds that **portend** a storm.  
+historically gold flowing out of a country **portended** future currency devaluations, not gold flowing in.  
+That approach has led to a **plethora** of legal actions from the agency on a host of cryptocurrency platforms.  
+
+
+**rueful**
+
+He speaks with a British accent, but that is just an **affectation** because he’s not British. -  
+He made an **affectation** of indifference.  
+**consonant**.  
+**panzer**.  
+
+
+We had to stand in the snow every morning for **roll call**.  
+**It never occurred to me** that the way I dressed wasn't quite “right.”  
+**moral turpitude**.  
+I feel very young and can easily **pass off as** a girl for a long, long time.  
+This myth has been **passed off as** fact in a number of news articles.  
+**stuffy**, **drafty**.  
 
 
 **pass-through**.  
@@ -24,20 +51,17 @@ stuffy, drafty.
 
 ## Week 1  
 
-Last cycle was actually a stunted cycle, because the final leg never happened.  
-capture the mind share.  
-It wasn’t until my early 30s that I started to suspect something was amiss.  
-summon  
+Last cycle was actually a **stunted** cycle, because the final leg never happened.  
+capture the **mind share**.  
+It wasn’t until my early 30s that I started to suspect something was **amiss**.  
+**summon**  
+
+The root of empathy is " **pathos**" , a word from Ancient Greece.  
+**goblet**  
 
 
-The root of empathy is " pathos" , a word from Ancient Greece.  
-goblet  
-
-
-It is quite spacious and very drafty.  
-The room is terribly drafty with the window open.  
-
-
+It is quite **spacious** and very **drafty**.  
+The room is terribly **drafty** with the window open.  
 We don’t want to be the person who can never **sit still**.  
 You never felt **remorse**.  
 **in the weeds**.  
