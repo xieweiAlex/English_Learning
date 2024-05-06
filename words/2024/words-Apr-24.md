@@ -1,17 +1,78 @@
 
 
-halter-top dresses.  
+He speaks with a British accent, but that is just an affectation because he’s not British.  
+He made an affectation of indifference.  
+consonant.  
+panzer.  
 
 
-His abrasive wit and caustic comments were an interviewer's nightmare.  
-Today it's pretty desolate, barren and extremely hot.
-I'll just clean the muck off the windscreen.  
-I can't eat this muck!  
+
+
+We had to stand in the snow every morning for roll call.  
+It never occurred to me that the way I dressed wasn’t quite “right.”  
+moral turpitude.  
+I feel very young and can easily pass off as a girl for a long, long time.  
+This myth has been passed off as fact in a number of news articles.  
+stuffy, drafty.  
+
+
+
+
+**pass-through**.  
+**hog-wash**.  
+
+
+## Week 1  
+
+Last cycle was actually a stunted cycle, because the final leg never happened.  
+capture the mind share.  
+It wasn’t until my early 30s that I started to suspect something was amiss.  
+summon  
+
+
+The root of empathy is " pathos" , a word from Ancient Greece.  
+goblet  
+
+
+It is quite spacious and very drafty.  
+The room is terribly drafty with the window open.  
+
+
+We don’t want to be the person who can never **sit still**.  
+You never felt **remorse**.  
+**in the weeds**.  
+
+
+warp, **contort**, **distort**  
+**school of thought/economics**  
+**single unifying theory**  
+
+
+**trolley problem**.  
+**sweat shop**  
+**navel-gazing**: useless or excessive self-contemplation.  
+
+
+> The work of the philosopher, Seneca said, is finding the perfect balance of those two tendencies. It’s about working and relaxing, not working and work avoidance.  
+
+> the more things you try to do, the less adequately you do all of them, and the more vulnerable you make yourself to the consequences of mediocrity, inadequacy, and failure.  
+
+**firepit**, campfire, **bonfire**.  
+
+
+
+**halter-top** dresses.  
+
+
+His abrasive wit and **caustic comments** were an interviewer's nightmare.  
+Today it's pretty **desolate**, **barren** and extremely hot.  
+I'll just clean the **muck** off the **windscreen**.  
+I can't eat this **muck**!  
 **The Best of Both Worlds**.  
 
-**diffused**
+**diffused**  
 
-McMillon started working in a Walmart warehouse in high school, and is today the CEO of the largest retailer in the world, and — pertinently to Stratechery — one of the largest and fastest-growing e-commerce businesses: last year Walmart passed $100 billion in global e-commerce sales.   
+McMillon started working in a Walmart warehouse in high school, and is today the CEO of the largest retailer in the world, and — **pertinently** to Stratechery — one of the largest and fastest-growing e-commerce businesses: last year Walmart passed $100 billion in global e-commerce sales.  
 
 I spent eight hours at the client’s office building an impressive spreadsheet, **drenched in sweat**, trying to handle the pain. I couldn't wait to get back to my hotel room.  
 **in good spirit**.  
@@ -26,7 +87,7 @@ What is the current **state of play** in the peace talks?
 **gringo**.  
 
 
-## Week 4
+## Week 4  
 **truffle** chocolate.  
 It’s the attempt, not the outcome that counts. It’s an intention, not a **disposition**.  
 
@@ -327,7 +388,7 @@ Her homecoming was **tinged** with sadness.
 they make a great show of **pussyfooting** through the greenery.  
 Many Americans think their legal system has gone **haywire**.  
 During the **flush times**, salespeople were **surly**, waiters **snobby**. -  
-You **skimp** on travel expenses.   
+You **skimp** on travel expenses.  
 
 I felt **dopey** and drowsy after the operation.  
 

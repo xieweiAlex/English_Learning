@@ -1,5 +1,9 @@
 ## words-Apr-24.md ##  
 words/2024/words-Apr-24.md  
+He **feigned** indifference to criticism of his work. -  
+**propitious**, **auspicious**. -  
+He **pilfer** from a cash register. -  
+We **extort**, we **pilfer**, we **filch and sack**. -  
 Animal **manure**, **green manure**. -  
 Did anyone else have their car **rummaged** through last night? -  
 The name **Chanel** became a **byword** for **elegance**. -  
