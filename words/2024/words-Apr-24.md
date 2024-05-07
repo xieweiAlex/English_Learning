@@ -1,4 +1,14 @@
 
+Several of the asylum seekers now face deportation.
+
+You have unrivaled insight into the financial health of the US consumer.  
+rosy picture.  
+rose-colored.  
+don't get lulled into a false sense of security.  
+
+
+In Hollywood's pagan pantheon, Marilyn Monroe is the Goddess of Love.
+**Concoct**.  
 
 superimpose, superimposition, overlay, 
 
@@ -6,8 +16,6 @@ Eschew any decisions.
 He worshipped at the local mosque.
 The bank nixed our request for loan.  
 acre, acreage.  
-
-
 
 
 
