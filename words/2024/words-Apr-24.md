@@ -1,27 +1,30 @@
 
-Several of the asylum seekers now face deportation.
+fireweed.  
+The long war of attrition exhausted the strength of both countries.  
+He still finds time for romance by cooking candlelit dinners for his girlfriend.
+As if a candlelit dinner wasn't romantic enough.  
+At night these streets are brilliant with a pearly radiance of electricity.  
 
-You have unrivaled insight into the financial health of the US consumer.  
-rosy picture.  
-rose-colored.  
-don't get lulled into a false sense of security.  
+Several of the asylum seekers now face **deportation**.
+
+You have **unrivaled** insight into the financial health of the US consumer.  
+**rosy picture**, **rose-colored**.  
+don't get **lulled into** a false sense of security.  
 
 
-In Hollywood's pagan pantheon, Marilyn Monroe is the Goddess of Love.
+In Hollywood's **pagan** **pantheon**, Marilyn Monroe is the Goddess of Love.
 **Concoct**.  
 
-superimpose, superimposition, overlay, 
-
-Eschew any decisions.  
-He worshipped at the local mosque.
-The bank nixed our request for loan.  
-acre, acreage.  
-
+**superimpose**, **superimposition**, **overlay**, 
+**Eschew** any decisions.  
+He **worshipped** at the local **mosque**.
+The bank **nixed** our request for loan.  
+**acre**, **acreage**.  
 
 
-Your life is too short and too valuable to fritter away in work.  
+Your life is too short and too valuable to **fritter away** in work.  
 He was **direct**, “We want you to join our team, but we can only offer you $50,000 less than you make now.”   
-The low salary offer was a blessing in disguise.  
+The low salary offer was a **blessing in disguise**.  
 
 > These questions inspired an idea: what if I paired making less with working less?
 
@@ -119,7 +122,7 @@ What is the current **state of play** in the peace talks?
 **gringo**.  
 
 
-## Week 4  
+## Week 3,4  
 **truffle** chocolate.  
 It’s the attempt, not the outcome that counts. It’s an intention, not a **disposition**.  
 

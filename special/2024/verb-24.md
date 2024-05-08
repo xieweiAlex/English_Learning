@@ -1,4 +1,11 @@
 
+
+**tie** 
+
+**alter** 
+
+## April 
+
 **deliberate**
 
 **equate**
