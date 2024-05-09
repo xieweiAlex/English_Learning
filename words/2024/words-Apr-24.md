@@ -1,9 +1,40 @@
 
-fireweed.  
-The long war of attrition exhausted the strength of both countries.  
+spur of the moment.  
+He was seriously maimed in the war.  
+Many subsidies undeservedly survived the **cull**. -  
+cashmere  
+I was reluctant to embroil myself in his problems.  
+If you disregard the doctor's orders, a relapse will follow.  
+prosaic??  
+wooden crate.  
+
+
+
+circumstantial evidence 
+
+I emote to them, in ways that you wouldn't hear me do it elsewhere, they emote back.  
+after the fact.  
+decision fatigue.  
+
+**hunter-gather**  
+drip: **intravenous drip**.  
+**lagger**  
+**lager**  
+**harrowing**.  
+Kopman **is right to be** concerned. 
+
+
+**Had I pick** the that 'tile', I would've won already. 
+**Should you have** any question, doen't hesitate to shoot me a message. 
+
+
+**illusion of choice**.  
+
+**fireweed**.  
+The long **war of attrition** exhausted the strength of both countries.  
 He still finds time for romance by cooking candlelit dinners for his girlfriend.
-As if a candlelit dinner wasn't romantic enough.  
-At night these streets are brilliant with a pearly radiance of electricity.  
+**As if** a **candlelit** dinner wasn't romantic enough.  
+At night these streets are brilliant with a **pearly** **radiance** of electricity.  
 
 Several of the asylum seekers now face **deportation**.
 
