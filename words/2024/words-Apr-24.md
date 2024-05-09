@@ -1,65 +1,71 @@
 
-spur of the moment.  
+Japan Inc is no longer in thrall to America. - As the home of capitalism turns protectionist, Japan is opening up.  
+
+
+America, Israel and Hamas are trapped in a dangerous impasse.  
+The six rules of fire drills.  
+Why are embassies supposed to be inviolable?  
+How one California beach town became Gavin Newsom’s nemesis.  
+In a dog-eat-dog world, competition is fierce.  
+
+
+
+**spur of the moment**.  
 He was seriously maimed in the war.  
 Many subsidies undeservedly survived the **cull**. -  
 cashmere  
 I was reluctant to embroil myself in his problems.  
 If you disregard the doctor's orders, a relapse will follow.  
 prosaic??  
-wooden crate.  
+wooden **crate**.  
 
+**circumstantial evidence**  
 
-
-circumstantial evidence 
-
-I emote to them, in ways that you wouldn't hear me do it elsewhere, they emote back.  
-after the fact.  
-decision fatigue.  
+I **emote** to them, in ways that you wouldn't hear me do it elsewhere, they **emote** back.  
+**after the fact**.  
+**decision fatigue**.  
 
 **hunter-gather**  
-drip: **intravenous drip**.  
+**drip**: **intravenous drip**.  
 **lagger**  
 **lager**  
 **harrowing**.  
-Kopman **is right to be** concerned. 
+Kopman **is right to be** concerned.  
 
 
-**Had I pick** the that 'tile', I would've won already. 
-**Should you have** any question, doen't hesitate to shoot me a message. 
-
+**Had I pick** the that 'tile', I would've won already.  
+**Should you have** any question, don't hesitate to shoot me a message.  
 
 **illusion of choice**.  
 
 **fireweed**.  
 The long **war of attrition** exhausted the strength of both countries.  
-He still finds time for romance by cooking candlelit dinners for his girlfriend.
+He still finds time for romance by cooking **candlelit dinners** for his girlfriend.  
 **As if** a **candlelit** dinner wasn't romantic enough.  
 At night these streets are brilliant with a **pearly** **radiance** of electricity.  
 
-Several of the asylum seekers now face **deportation**.
+Several of the asylum seekers now face **deportation**.  
 
 You have **unrivaled** insight into the financial health of the US consumer.  
 **rosy picture**, **rose-colored**.  
 don't get **lulled into** a false sense of security.  
 
 
-In Hollywood's **pagan** **pantheon**, Marilyn Monroe is the Goddess of Love.
+In Hollywood's **pagan** **pantheon**, Marilyn Monroe is the Goddess of Love.  
 **Concoct**.  
 
-**superimpose**, **superimposition**, **overlay**, 
+**superimpose**, **superimposition**, **overlay**,  
 **Eschew** any decisions.  
-He **worshipped** at the local **mosque**.
+He **worshipped** at the local **mosque**.  
 The bank **nixed** our request for loan.  
 **acre**, **acreage**.  
 
 
 Your life is too short and too valuable to **fritter away** in work.  
-He was **direct**, “We want you to join our team, but we can only offer you $50,000 less than you make now.”   
+He was **direct**, “We want you to join our team, but we can only offer you $50,000 less than you make now.”  
 The low salary offer was a **blessing in disguise**.  
 
-> These questions inspired an idea: what if I paired making less with working less?
-
-
+> These questions inspired an idea: what if I paired making less with working less?  
 
 
 the **pendulum** always swings.  
@@ -71,7 +77,7 @@ historically gold flowing out of a country **portended** future currency devalua
 That approach has led to a **plethora** of legal actions from the agency on a host of cryptocurrency platforms.  
 
 
-**rueful**
+**rueful**  
 
 He speaks with a British accent, but that is just an **affectation** because he’s not British. -  
 He made an **affectation** of indifference.  
@@ -283,7 +289,7 @@ Animal **manure**, **green manure**. -
 **blemish**  
 **bland**, **blandish** .  
 
-Did anyone else have their car **rummaged** through last night? -  
+Did anyone else have their car **rummaged** through last night?   
 A **spitball** hit the principal on his nose.  
 I'm just **spitballing** a few ideas.  
 
@@ -410,7 +416,7 @@ Vladimir Putin’s **sham** re-election is notable only for the protests. - The 
 **Deposing** the King of Israel. -  America wants Binyamin Netanyahu out. But his exit is **fraught with** dangers  
 
 Money Talks are **deceptively** simple, yet they can change your life.  
-Since money is such a **charged** subject, we suggest using the following guidelines and tips to have deeper and possibly ongoing Money Talks. -  
+Since money is such a **charged** subject, we suggest using the following guidelines and tips to have deeper and possibly ongoing Money Talks.   
 Unlike other investments, real estate **ties up** a lot of your wealth in one investment that is not very liquid;  
 
 Each and every one of these soldiers has proved his **mettle**.  

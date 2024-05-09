@@ -51,7 +51,7 @@ buy **in trenches**.
 
 **make the cut**.  
 he is a reserved, almost **taciturn** man.  
-The room was **alight** with lamps. -  
+The room was **alight** with lamps.   
 the boy's face was **alight** with excitement.  
 
 A book by Steven Sloman and Philip Fernbach, two **cognitive scientists**, argues that humans evolved as part of a **hive mind**, benefiting from co-operation and community.  
