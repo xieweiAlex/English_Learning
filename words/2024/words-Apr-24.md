@@ -1,35 +1,34 @@
 
 
-Congenital heart disease.  
+He was **enchanted** by the idea.  
+**enchanting music**.  
 
-
+We **scrapped** the idea since it feels like at that point we’d be picking favorites.  
+**Congenital** heart disease.  
 
 Most are anterior nosebleeds and can often be treated at home. These usually occur suddenly and don’t last long.  
 A posterior nosebleed can be more serious  
 
-nasal, sinus, nostril, 
+**nasal**, **sinus**, **nostril** 
+Parliament is seen as a **rubber stamp** for decisions made elsewhere.  
+
+Japan Inc is no longer **in thrall to** America. - As the home of capitalism turns protectionist, Japan is opening up.  
 
 
-Parliament is seen as a rubber stamp for decisions made elsewhere.  
-
-Japan Inc is no longer in thrall to America. - As the home of capitalism turns protectionist, Japan is opening up.  
-
-
-America, Israel and Hamas are trapped in a dangerous impasse.  
-The six rules of fire drills.  
-Why are embassies supposed to be inviolable?  
-How one California beach town became Gavin Newsom’s nemesis.  
-In a dog-eat-dog world, competition is fierce.  
-
+America, Israel and Hamas are trapped in a dangerous **impasse**. -  
+The six rules of **fire drills**.  
+Why are **embassies** supposed to be inviolable? -  
+How one California beach town became Gavin Newsom’s **nemesis**. -  
+In a **dog-eat-dog** world, competition is fierce.  
 
 
 **spur of the moment**.  
-He was seriously maimed in the war.  
+He was seriously **maimed** in the war.  
 Many subsidies undeservedly survived the **cull**. -  
-cashmere  
-I was reluctant to embroil myself in his problems.  
-If you disregard the doctor's orders, a relapse will follow.  
-prosaic??  
+**cashmere**  
+I was reluctant to **embroil** myself in his problems.  
+If you disregard the doctor's orders, a **relapse** will follow.  
+**prosaic**??  
 wooden **crate**.  
 
 **circumstantial evidence**  

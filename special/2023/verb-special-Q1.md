@@ -178,8 +178,6 @@ cut, **crush**, **grind**
 
 **nab**  
 
-**scrap**  
-
 **derail**
 
 **buoy**
