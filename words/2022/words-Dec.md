@@ -12,7 +12,6 @@ He **brimmed** a glass of beer and offered it to me.
 His eyes **brimmed** with tears.  
 The glass was full **to the brim**.  
 
-He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**.   
 He was a man of **stupendous** **stamina** and energy.  
 **gradient**  
 

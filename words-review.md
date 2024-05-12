@@ -1,5 +1,13 @@
 ## words-Apr-24.md ##  
 words/2024/words-Apr-24.md  
+I sounded like a **ditzy** blonde! -  
+newly rich consumers eager to **flaunt** their prosperity. -  
+Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**. -  
+He **beguiled** me into signing this contract.  -  
+He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
+America, Israel and Hamas are trapped in a dangerous **impasse**. -  
+Why are **embassies** supposed to be inviolable? -  
+How one California beach town became Gavin Newsom’s **nemesis**. -  
 Many subsidies undeservedly survived the **cull**. -  
 He speaks with a British accent, but that is just an **affectation** because he’s not British. -  
 He **feigned** indifference to criticism of his work. -  
@@ -8,9 +16,7 @@ He **pilfer** from a cash register. -
 We **extort**, we **pilfer**, we **filch and sack**. -  
 Animal **manure**, **green manure**. -  
 The name **Chanel** became a **byword** for **elegance**. -  
-What began as a minor **scuffle** turned into a full-scale riot. -  
 Do you have **spanner**, **pincer** and hammer? -  
-When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price. -  
 If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -  
 During the **flush times**, salespeople were **surly**, waiters **snobby**. -  
 

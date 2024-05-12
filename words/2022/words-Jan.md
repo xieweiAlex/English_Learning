@@ -216,7 +216,6 @@ The more **taste buds** you have, the more likely you are to **detest** **hoppy*
 
 **intestinal** tract  
 **intestine**  
-He **beguiled** me into signing this contract.  
 **fitful** bursts of energy.  
 a few hours' **fitful** sleep.  
 financial **tsunami**  

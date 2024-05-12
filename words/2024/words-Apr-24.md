@@ -1,15 +1,77 @@
 
+## Week 2  
 
+I sounded like a **ditzy** blonde! -  
+
+**Dasttardly**.  
+**Tarzan**  
+**buster**.  
+**polyglot**, **polygon**.  
+newly rich consumers eager to **flaunt** their prosperity. -  
+**tight ship**.  
+the **vertex** of an arch.  
+a **pompous** ass who pretends he knows everything.  
+At any time I could run into rain, **sleet**, snow, or **scorching heat**.  
+**facetious**.  
+**promiscuous**.  
+**Life is always breaking fetter**.  
+**pommel horse**, hobbyhorse.  
+**Despicable Me**.  
+Remember that this is **caustic**; use gloves or a spoon.  
+His abrasive wit and **caustic comments** were an interviewer's nightmare.  
+The **electorate** had grown **disenchanted** with politics.  
+As philosophy and science gradually broke away from theology, a new **Christian piety** developed.  
+Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**. -  
+
+He **beguiled** me into signing this contract.  -  
+He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
+
+Huge **chimneys** belched forth smoke and grime.  
+
+> Breaking your workouts into shorter bouts may be just as effective as engaging in longer exercise sessions, Fredericson added.  
+
+And you’d be able to say, ok, I am solid for this amount of money **down the track**.  
+if you had a contract that said the cattle is worth $100 in the year’s time, but the actual market price is only $70.00, then that farmer is **in the clear** by $30.00.  
+I know from personal experience how family members and friends **fell out over** their **opposing views** of the Brexit referendum.  
+have cost Britain **dearly**.  
+We’re of course referring to the University of Michigan reports, and frankly they **stunk**.  
+
+
+Don't **make a mountain out of molehill**.  
+**Athens** was the **cradle** of philosophy.  
+Paul's father built a **wooden cradle** -- a traditional bed for a baby.  
+
+Goldbach Conjecture**.**  
+We can only **conjecture** about what was in the killer's mind.  
+**prosaic**: It means dull, ordinary, or lacking excitement, and it's often used to describe something that is **mundane** or lacking in imagination.  
+**scalpel**.  
+
+Beneath his **brash exterior**, he's still a little boy inside.  
+On stage she seems hard, **brash** and **uncompromising**.  
+
+Some high protein foods, like nuts and **legumes**, contain fiber.  
+Excessive pressure can lead to **perforation** of the **stomach wall**.  
+**Citrus fruits** grow on **flowering trees** and shrubs. They are characterized by a **leathery rind** and **white pith** that **encases** **juicy segments**.  
+The **flavonoids** in citrus fruits may help **ward off** **neurodegenerative** diseases, such as Alzheimer’s and Parkinson’s, which result from the **breakdown** of cells in the nervous system.  
+Eating lots of citrus fruits or juices could increase the risk of **cavities**. That’s because the acid in citrus fruits erodes **tooth enamel**.  
+Second, when your body takes in large amounts of **fructose** (the type of sugar in fruit juice), it is quickly absorbed into your bloodstream and delivered to your liver.  
+If you find the taste of water to be **bland** or boring, **jazz it up** with a few limes.  
+Drinking lime water improves digestion. Limes are **acidic** and they help saliva break down food for better digestion. Additionally, **flavonoids** in limes stimulate **secretion** of **digestive juices**.  
+If you experience constipation, the acidity of limes can clear the **excretory system** and stimulate bowel activity.  
+
+
+I've never seen a U-haul attached to a **hearse**.  
+There are a lot of **anticipatory** behavior about Bitcoin halving.  
 He was **enchanted** by the idea.  
 **enchanting music**.  
 
 We **scrapped** the idea since it feels like at that point we’d be picking favorites.  
 **Congenital** heart disease.  
 
-Most are anterior nosebleeds and can often be treated at home. These usually occur suddenly and don’t last long.  
-A posterior nosebleed can be more serious  
+Most are **anterior** nosebleeds and can often be treated at home. These usually occur suddenly and don’t last long.  
+A **posterior** nosebleed can be more serious.  
 
-**nasal**, **sinus**, **nostril** 
+**nasal**, **sinus**, **nostril**  
 Parliament is seen as a **rubber stamp** for decisions made elsewhere.  
 
 Japan Inc is no longer **in thrall to** America. - As the home of capitalism turns protectionist, Japan is opening up.  
@@ -301,7 +363,7 @@ Animal **manure**, **green manure**. -
 **blemish**  
 **bland**, **blandish** .  
 
-Did anyone else have their car **rummaged** through last night?   
+Did anyone else have their car **rummaged** through last night?  
 A **spitball** hit the principal on his nose.  
 I'm just **spitballing** a few ideas.  
 
@@ -335,7 +397,7 @@ the **combine** **disygorged** a steady stream of grain.
 The Nile **disgorges** into the sea at Rashid.  
 **Ruble**, **Rupee**  
 He was involved in a **scuffle** with a photographer.  
-What began as a minor **scuffle** turned into a full-scale riot. -  
+What began as a minor **scuffle** turned into a full-scale riot.   
 in a **tailspin**.  
 Do you have **spanner**, **pincer** and hammer? -  
 **plier**.  
@@ -361,7 +423,7 @@ Most people would **recoil** at the sight of the snake.
 An **anathema** to the founders  
 He is **hawking** his goods everywhere.  
 
-When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price. -  
+When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price.   
 a **quibble** about the wording of a statement  
 The last time we **quibble** on this trip.  
 **tater**, **tater tots**.  
@@ -428,7 +490,7 @@ Vladimir Putin’s **sham** re-election is notable only for the protests. - The 
 **Deposing** the King of Israel. -  America wants Binyamin Netanyahu out. But his exit is **fraught with** dangers  
 
 Money Talks are **deceptively** simple, yet they can change your life.  
-Since money is such a **charged** subject, we suggest using the following guidelines and tips to have deeper and possibly ongoing Money Talks.   
+Since money is such a **charged** subject, we suggest using the following guidelines and tips to have deeper and possibly ongoing Money Talks.  
 Unlike other investments, real estate **ties up** a lot of your wealth in one investment that is not very liquid;  
 
 Each and every one of these soldiers has proved his **mettle**.  
