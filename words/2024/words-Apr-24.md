@@ -1,5 +1,13 @@
 
+> Effortless input, efficient retrieval.
+
+
 ## Week 2  
+> While this makes a moist, flavorful burger with a soft texture, it's mostly saturated fat, a substance that **wreaks havoc** on the digestive system.
+
+
+In recent months short videos have been popping up online which play to their feelings of superiority and continue a tradition of using foreigners to **aggrandise** China.  
+The videos, posted on social media, have drawn hundreds of thousands of views. Some are used to hawk products or simply to glorify China.  
 
 I sounded like a **ditzy** blonde! -  
 
