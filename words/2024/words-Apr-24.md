@@ -1,4 +1,26 @@
 
+solidly committed to their fulltime job.  
+Seth Godin.  
+tim.blog/2017/05/15/fear-setting  
+preemptive defensiveness.  
+
+
+
+And yet, in the pages of Meditations, we find him chiding himself over his dedication to these hobbies.  
+
+
+Another way to open up nasal passages is to dab mentholated salve under the nose, according to the Central News Agency.  
+Calamari fritti.  
+He reached down the atlas from the top shelf.  
+spherical.  
+infidel.  
+He had a aquiline nose and deep-set brown eyes.
+
+
+rubber and glue argument.  
+play rubber and glue.  
+
+
 > Effortless input, efficient retrieval.
 
 
