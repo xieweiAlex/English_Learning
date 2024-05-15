@@ -1,17 +1,19 @@
 
+Such **salutary effect** on health.  
+
+
 The more people that own their home, the more the society becomes **sclerotic**.  
 America's success has made it **sclerotic**.  
 **sclerotic**, **sclerosis**  
 
-a compromise that eviscerated the proposed bill.  
-Democrats say the petition will eviscerate state government.  
-penal code/law/colony.  
-penalize.  
+a compromise that **eviscerated** the proposed bill.  
+Democrats say the petition will **eviscerate** state government. -  
+**penal** code/law/colony.  
+**penalize**.  
 
 
-solidly committed to their fulltime job.  
+**solidly** committed to their fulltime job.  
 Seth Godin.  
-tim.blog/2017/05/15/fear-setting  
 preemptive defensiveness.  
 
 **gone are the days**...  
