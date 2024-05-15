@@ -1,24 +1,34 @@
 
+The more people that own their home, the more the society becomes **sclerotic**.  
+America's success has made it **sclerotic**.  
+**sclerotic**, **sclerosis**  
+
+a compromise that eviscerated the proposed bill.  
+Democrats say the petition will eviscerate state government.  
+penal code/law/colony.  
+penalize.  
+
+
 solidly committed to their fulltime job.  
 Seth Godin.  
 tim.blog/2017/05/15/fear-setting  
 preemptive defensiveness.  
 
+**gone are the days**...  
+**chippy comments**.  
 
 
-And yet, in the pages of Meditations, we find him chiding himself over his dedication to these hobbies.  
+And yet, in the pages of Meditations, we find him **chiding** himself over his dedication to these hobbies.  
+Another way to open up nasal passages is to dab mentholated **salve** under the nose, according to the Central News Agency.  
+**Calamari fritti**.  
+He reached down the **atlas** from the top shelf.  
+**spherical**.  
+**infidel**.  
+He had a **aquiline nose** and **deep-set** brown eyes.
 
 
-Another way to open up nasal passages is to dab mentholated salve under the nose, according to the Central News Agency.  
-Calamari fritti.  
-He reached down the atlas from the top shelf.  
-spherical.  
-infidel.  
-He had a aquiline nose and deep-set brown eyes.
-
-
-rubber and glue argument.  
-play rubber and glue.  
+**rubber and glue** argument.  
+play **rubber and glue**.  
 
 
 > Effortless input, efficient retrieval.
@@ -29,8 +39,8 @@ play rubber and glue.
 
 
 In recent months short videos have been popping up online which play to their feelings of superiority and continue a tradition of using foreigners to **aggrandise** China.  
-The videos, posted on social media, have drawn hundreds of thousands of views. Some are used to hawk products or simply to glorify China.  
-
+The videos, posted on social media, have drawn hundreds of thousands of views. Some are used to **hawk products** or simply to glorify China.  
+**hawkers** 
 I sounded like a **ditzy** blonde! -  
 
 **Dasttardly**.  

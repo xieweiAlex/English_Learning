@@ -192,8 +192,6 @@ He is **reputed** to be the best heart surgeon in the country
 Amazon basically **turned commerce on its head**, and **turned deliver on its head**.  
 technology could be about to **turn that on its head**  
 Owning a home does **confer** real benefits, if you're married, you have kids.  
-The more people that own their home, the more the society becomes **sclerotic**.  
-America's success has made it **sclerotic**.  
 For those reasons, the stock became **au courant** to own, as many traders considered it only a "stay-at-home" stock  
 Even Warren Buffett once **fell prey to** his frugal nature, initially intending to invest billions of dollars in Walmart(NYSE: WMT) stock but then stopping when his buying pushed the share price just pennies above the level he'd arbitrarily chosen as what he wanted to pay  
 venture capitalists are **shelling** out cash like they just got a stimulus check  

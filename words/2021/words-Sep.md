@@ -18,7 +18,6 @@ They say somebody **slit** her throat.
 Don't **wrangle** with others over trifles.  
 **penniless**  
 **noblesse**  
-**sclerotic**, **sclerosis**  
 The presidential contest is **nip and tuck**.  
 **Capital punishment** is a highly **emotive** issue.  
 It was **muggy** and **overcast**.  
