@@ -1,6 +1,22 @@
 
-Such **salutary effect** on health.  
+Pssst! Want to read something about rumour and innuendo? - Gossip in the workplace.  
 
+
+Penny, nickle, dime.  
+Do you feel like a stunted tree?  
+China is churning out solar panels—and upsetting sand markets.  
+How much political fallout will result from student protests over Gaza that have erupted on so many campuses in America?  
+
+
+A lasting reminder to Bitcoin, not crypto. 
+
+Her case falls within the ambit of moral law.
+leviathan.  
+instigate.  
+I had veal cutlets for supper.  
+Beef, pork, lamb, venison, and boar are examples of red meat. Chicken, turkey, and other meats from fowl (birds) are white meat because these are white after being cooked.  
+
+Such **salutary effect** on health.  
 
 The more people that own their home, the more the society becomes **sclerotic**.  
 America's success has made it **sclerotic**.  
