@@ -1,33 +1,41 @@
 
-turf war.  
+
+Senate sends sweeping foreign aid package to Biden's desk.  
+We have mooted a rather different way to use such assets to support Ukraine.  
+California is gripped by economic problems, with no easy fix. 
+
+The stomach **revolts** at such food.  
+the country was a **hotbed** of **revolt** and **dissension**.   
+
+With a **caddie** walking behind him carrying his **clubs**. -  
+Why Do Most Indian Men Have a **Protruding** Potbelly?  
+**gorilla**, **chimpanzee**.  
+
+**turf war**.  
+I was a little **miffed** about that.  
+
+a **beaming** smile.  
+the torch **beam** dimmed **perceptibly**.  
+**beaming** a distress signal into space.  
+the **supporting beams** were **rotten**.  
+**catapult**.  
+Everything's **topsy-turvy** in my life at the moment.  
+
+We're **off to a great start** of the year.  
+**Pssst**! Want to read something about rumour and **innuendo**? - Gossip in the workplace.  
+
+**Penny**, **nickle**, **dime**.  
+Do you feel like a **stunted tree**?  
+China is **churning out** solar panels—and upsetting sand markets.  
+How much political **fallout** will result from student protests over Gaza that have **erupted** on so many campuses in America?  
 
 
-a beaming smile.  
-the torch beam dimmed perceptibly.  
-beaming a distress signal into space.  
-the supporting beams were rotten.  
-catapult . 
-Everything's topsy-turvy in my life at the moment.  
+A **lasting reminder** to Bitcoin, not crypto.  
 
-
-
-We're off to a great start of the year.  
-
-Pssst! Want to read something about rumour and innuendo? - Gossip in the workplace.  
-
-
-Penny, nickle, dime.  
-Do you feel like a stunted tree?  
-China is churning out solar panels—and upsetting sand markets.  
-How much political fallout will result from student protests over Gaza that have erupted on so many campuses in America?  
-
-
-A lasting reminder to Bitcoin, not crypto. 
-
-Her case falls within the ambit of moral law.
-leviathan.  
-instigate.  
-I had veal cutlets for supper.  
+Her case falls within the ambit of moral law.  
+**leviathan**.  
+**instigate**.  
+I had veal **cutlets** for supper.  
 Beef, pork, lamb, venison, and boar are examples of red meat. Chicken, turkey, and other meats from fowl (birds) are white meat because these are white after being cooked.  
 
 Such **salutary effect** on health.  
@@ -42,37 +50,35 @@ Democrats say the petition will **eviscerate** state government. -
 **penalize**.  
 
 
-**solidly** committed to their fulltime job.  
-Seth Godin.  
-preemptive defensiveness.  
+**solidly committed** to their fulltime job.  
+> Seth Godin.  
+
+**preemptive defensiveness**.  
 
 **gone are the days**...  
 **chippy comments**.  
-
-
 And yet, in the pages of Meditations, we find him **chiding** himself over his dedication to these hobbies.  
 Another way to open up nasal passages is to dab mentholated **salve** under the nose, according to the Central News Agency.  
 **Calamari fritti**.  
 He reached down the **atlas** from the top shelf.  
 **spherical**.  
 **infidel**.  
-He had a **aquiline nose** and **deep-set** brown eyes.
-
+He had a **aquiline nose** and **deep-set** brown eyes. -  
 
 **rubber and glue** argument.  
 play **rubber and glue**.  
 
 
-> Effortless input, efficient retrieval.
+> Effortless input, efficient retrieval.  
 
 
 ## Week 2  
-> While this makes a moist, flavorful burger with a soft texture, it's mostly saturated fat, a substance that **wreaks havoc** on the digestive system.
+> While this makes a moist, flavorful burger with a soft texture, it's mostly saturated fat, a substance that **wreaks havoc** on the digestive system.  
 
 
 In recent months short videos have been popping up online which play to their feelings of superiority and continue a tradition of using foreigners to **aggrandise** China.  
 The videos, posted on social media, have drawn hundreds of thousands of views. Some are used to **hawk products** or simply to glorify China.  
-**hawkers** 
+**hawkers**  
 I sounded like a **ditzy** blonde! -  
 
 **Dasttardly**.  
@@ -151,14 +157,14 @@ Japan Inc is no longer **in thrall to** America. - As the home of capitalism tur
 
 America, Israel and Hamas are trapped in a dangerous **impasse**. -  
 The six rules of **fire drills**.  
-Why are **embassies** supposed to be inviolable? -  
+Why are **embassies** supposed to be **inviolable**?   
 How one California beach town became Gavin Newsom’s **nemesis**. -  
 In a **dog-eat-dog** world, competition is fierce.  
 
 
 **spur of the moment**.  
 He was seriously **maimed** in the war.  
-Many subsidies undeservedly survived the **cull**. -  
+Many subsidies undeservedly survived the **cull**.   
 **cashmere**  
 I was reluctant to **embroil** myself in his problems.  
 If you disregard the doctor's orders, a **relapse** will follow.  
@@ -225,7 +231,7 @@ That approach has led to a **plethora** of legal actions from the agency on a ho
 
 **rueful**  
 
-He speaks with a British accent, but that is just an **affectation** because he’s not British. -  
+He speaks with a British accent, but that is just an **affectation** because he’s not British.   
 He made an **affectation** of indifference.  
 **consonant**.  
 **panzer**.  
@@ -428,7 +434,7 @@ US **Customary** Units and Metric Units.
 Politicians like to **pontificate** about falling standards.  
 And also **pontificate** on what the **future will hold** for Bitcoin over the next four years.  
 It would be a **remiss** if we didn't ....  
-Animal **manure**, **green manure**. -  
+Animal **manure**, **green manure**.   
 
 **blowhole**.  
 **devour**  
@@ -469,7 +475,7 @@ the **combine** **disygorged** a steady stream of grain.
 The Nile **disgorges** into the sea at Rashid.  
 **Ruble**, **Rupee**  
 He was involved in a **scuffle** with a photographer.  
-What began as a minor **scuffle** turned into a full-scale riot.   
+What began as a minor **scuffle** turned into a full-scale riot.  
 in a **tailspin**.  
 Do you have **spanner**, **pincer** and hammer? -  
 **plier**.  
@@ -495,7 +501,7 @@ Most people would **recoil** at the sight of the snake.
 An **anathema** to the founders  
 He is **hawking** his goods everywhere.  
 
-When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price.   
+When Team David finds a stock with great **mojo**, they don’t **quibble over** a couple of dollars in the price.  
 a **quibble** about the wording of a statement  
 The last time we **quibble** on this trip.  
 **tater**, **tater tots**.  
@@ -605,7 +611,7 @@ Her homecoming was **tinged** with sadness.
 
 they make a great show of **pussyfooting** through the greenery.  
 Many Americans think their legal system has gone **haywire**.  
-During the **flush times**, salespeople were **surly**, waiters **snobby**. -  
+During the **flush times**, salespeople were **surly**, waiters **snobby**.   
 You **skimp** on travel expenses.  
 
 I felt **dopey** and drowsy after the operation.  
