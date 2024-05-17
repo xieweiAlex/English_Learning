@@ -1,4 +1,18 @@
 
+turf war.  
+
+
+a beaming smile.  
+the torch beam dimmed perceptibly.  
+beaming a distress signal into space.  
+the supporting beams were rotten.  
+catapult . 
+Everything's topsy-turvy in my life at the moment.  
+
+
+
+We're off to a great start of the year.  
+
 Pssst! Want to read something about rumour and innuendo? - Gossip in the workplace.  
 
 
