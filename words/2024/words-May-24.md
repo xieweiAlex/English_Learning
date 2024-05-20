@@ -1,12 +1,36 @@
 
-scratch pad.  
-cajole.  
-hovel.  
+## Week 3, 2024-05-20
+
+A short walk will limber up the legs.
+
+**duffel bag**.  
+
+And that demand has spun out of control.  
+hoodwink.  
+jailer.  
+
+Events will also be usable in the filtering language, to specify non-contiguous periods of time.  
+make headway.  
+Put oneself in somebody's shoes.   
 
 
-Senate sends sweeping foreign aid package to Biden's desk.  
-We have mooted a rather different way to use such assets to support Ukraine.  
-California is gripped by economic problems, with no easy fix. 
+Shape: Lemons are **oval-shaped**, while limes are round.  
+Color: Lemons are **bright yellow**, while limes are **bright green**
+In terms of flavor, these two **citrus fruits** are similar. They’re both **tart**, and eating either fruit by itself is likely to result in the same **puckered** facial expression. -  
+The first place with a **runaway success** is lime presser.  
+
+Simply put, I was a **curmudgeon** at work, increasingly cynical about the intentions of leaders, not learning anything beyond the latest office gossip.
+
+The Xi-Putin partnership is not a **marriage of convenience**. - It is one of vital, long-term necessity
+**scratch pad**.  
+**cajole**.  
+**hovel**.  
+**killjoy**.  
+**recuperation**.  
+
+Senate sends **sweeping** foreign aid package to Biden's desk. -  
+We have **mooted** a rather different way to use such assets to support Ukraine.  
+California is **gripped** by economic problems, with no easy fix. - 
 
 The stomach **revolts** at such food.  
 the country was a **hotbed** of **revolt** and **dissension**.   
@@ -36,11 +60,11 @@ How much political **fallout** will result from student protests over Gaza that 
 
 A **lasting reminder** to Bitcoin, not crypto.  
 
-Her case falls within the ambit of moral law.  
+Her case falls within the **ambit** of **moral law**. -  
 **leviathan**.  
 **instigate**.  
 I had veal **cutlets** for supper.  
-Beef, pork, lamb, venison, and boar are examples of red meat. Chicken, turkey, and other meats from fowl (birds) are white meat because these are white after being cooked.  
+Beef, pork, lamb, **venison**, and boar are examples of red meat. Chicken, turkey, and other meats from fowl (birds) are white meat because these are white after being cooked.  
 
 Such **salutary effect** on health.  
 
