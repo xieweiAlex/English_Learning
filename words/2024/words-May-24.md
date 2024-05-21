@@ -1,4 +1,9 @@
 
+
+He was in the **doldrums** for the whole winter.  
+**throes**.  
+a little **mule** inside of me.  
+
 ## Week 3, 2024-05-20
 
 A short walk will limber up the legs.
