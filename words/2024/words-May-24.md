@@ -1,4 +1,7 @@
 
+The stormy weather could include heavy rainfall, large hail and damaging winds. Flash flooding may also happen in some low-lying areas.  
+
+
 As I've continued to create, share and connect people, I’ve **tapped into** a hidden form of motivation, one that is invisible to others.  
 I've **softened my stance**.  
 He gave an **ostentatious** yawn. -  
