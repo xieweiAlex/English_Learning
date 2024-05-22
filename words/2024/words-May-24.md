@@ -1,4 +1,15 @@
 
+As I've continued to create, share and connect people, I’ve **tapped into** a hidden form of motivation, one that is invisible to others.  
+I've **softened my stance**.  
+He gave an **ostentatious** yawn. -  
+**peafowl**, peacock.  
+The good weather helped to make the occasion a **resounding success**.  
+**neurodegenerative**.  
+He won't **budge** an inch on the issue.  
+The window refused to **budge**.  
+
+> Identity crisis.  
+
 
 He was in the **doldrums** for the whole winter.  
 **throes**.  
@@ -6,17 +17,17 @@ a little **mule** inside of me.
 
 ## Week 3, 2024-05-20
 
-A short walk will limber up the legs.
+A short walk will **limber up** the legs.
 
 **duffel bag**.  
 
-And that demand has spun out of control.  
-hoodwink.  
-jailer.  
+And that demand has **spun out of control**.  
+**hoodwink**.  
+**jailer**.  
 
 Events will also be usable in the filtering language, to specify non-contiguous periods of time.  
-make headway.  
-Put oneself in somebody's shoes.   
+**make headway**.  
+**Put oneself in somebody's shoes**.   
 
 
 Shape: Lemons are **oval-shaped**, while limes are round.  
