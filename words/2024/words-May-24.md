@@ -1,12 +1,26 @@
 
-My unease quickly morphed into a desire to escape.  
+I came through all those perils unscathed.  
+The movement is in peril of dying.  
+It is always perilous to neglect our national defense.  
+Together, these developments point to a perilous period ahead.   
 
 
-is prosaic a commonly used word? 
-??Yes, prosaic is a commonly used word. It means dull, ordinary, or lacking in imagination.
 
-tradwives, tradfi. 
+China’s version of **levelling up** is not going well. - Will its vast **hinterland** ever catch up with its wealthy coast?  
+
+Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
+I had no conscious intention to quit right then, but I couldn’t **muster up** a single ounce of energy to tell him otherwise. -  
+In those final months, I was in a **liminal space** between two worlds. I had decided to **take a leap** to a different path but had not yet changed direction.  
+I struggled to process how I was feeling, **held captive** by **accumulated** frustration and anxiety.  
+During the first few months of self-employment, I read an article that **jolted** my reality. Titled, “If work dominated your every moment, would life be worth living?”
+
+My unease quickly **morphed into** a desire to escape.  
+The presentation was **rather prosaic**, with no innovative ideas. -  
+> Yes, prosaic is a commonly used word. It means dull, ordinary, or lacking in imagination.
+
+**tradwives**, **tradfi**. 
 **camellia**.  
+
 **sling-back**.  
 > Build strong levees, don't try to predict hurricanes.  
 
