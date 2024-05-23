@@ -1,11 +1,38 @@
 
-The stormy weather could include heavy rainfall, large hail and damaging winds. Flash flooding may also happen in some low-lying areas.  
+My unease quickly morphed into a desire to escape.  
 
+
+is prosaic a commonly used word? 
+??Yes, prosaic is a commonly used word. It means dull, ordinary, or lacking in imagination.
+
+tradwives, tradfi. 
+**camellia**.  
+**sling-back**.  
+> Build strong levees, don't try to predict hurricanes.  
+
+He was **snuffed out** by the Mafia.  
+a breeze **snuffed out** the candle.  
+**snuff bottle**.  
+**mosque**.  
+**active wear**, **sweatsuit**.  
+flight vehicle **propulsion** system.  
+**even-keeled**, **leveled**.  
+
+**neurotically**.  
+Bollywood **movie buff**.  
+**nervous system**, 
+**parasympathetic** system: responsible for stimulation of "rest-and-digest" or "feed and breed" activities that occur when the body is at rest, especially after eating.  
+
+Evelyn is entertaining company, with **droll** and **sardonic** observations on nearly everything. 
+
+**lift and shift** 
+
+The stormy weather could include heavy rainfall, large hail and damaging winds. Flash flooding may also happen in some **low-lying** areas.  
 
 As I've continued to create, share and connect people, I’ve **tapped into** a hidden form of motivation, one that is invisible to others.  
 I've **softened my stance**.  
 He gave an **ostentatious** yawn. -  
-**peafowl**, peacock.  
+**peafowl**, **peahen**, peacock.  
 The good weather helped to make the occasion a **resounding success**.  
 **neurodegenerative**.  
 He won't **budge** an inch on the issue.  
@@ -13,6 +40,7 @@ The window refused to **budge**.
 
 > Identity crisis.  
 
+His **whereabouts** are a close secret.  
 
 He was in the **doldrums** for the whole winter.  
 **throes**.  
@@ -28,7 +56,7 @@ And that demand has **spun out of control**.
 **hoodwink**.  
 **jailer**.  
 
-Events will also be usable in the filtering language, to specify non-contiguous periods of time.  
+Events will also be usable in the filtering language, to specify non-**contiguous** periods of time.  
 **make headway**.  
 **Put oneself in somebody's shoes**.   
 
