@@ -1,4 +1,7 @@
 
+modern composite materials, Nasdaq composite.    
+English is a composite of many languages.  
+
 I came through all those perils unscathed.  
 The movement is in peril of dying.  
 It is always perilous to neglect our national defense.  
