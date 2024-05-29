@@ -1,5 +1,11 @@
 ## words-May-24.md ##  
 words/2024/words-May-24.md  
+The book's happy ending seemed **contrived**. -  
+My baby slept safe from harm in her **white wicker bassinet**. -  
+Most of its better buildings **predate** his rule. -  
+It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -  
+The **barbed** wire had **lacerated** her arm. -  
+The paper gave all the **lurid details** of the murder. -  
 The **grafter** was constantly **haunted** by fear of discovery. -  
 They remained **impoverished** despite some **meager** economic investments from the US and Europe. -  
 **Uprisings**, civil wars, and **border tussles** were common throughout the next 100+ years, though at least not on the scale of the massive civil wars **chronically** breaking out to the north in Mexico. -  
@@ -34,8 +40,4 @@ If you’ve worked at only one company for most of your career, it takes **oomph
 
 ## words-Mar.md ##  
 words/2024/words-Mar.md  
-The **barbed** wire had **lacerated** her arm. -  
-The paper gave all the **lurid details** of the murder. -  
-Most of its better buildings **predate** his rule. -  
-It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -  
 the remaining **petals** **fluttered** to the ground. -  

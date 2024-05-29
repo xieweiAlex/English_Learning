@@ -16,14 +16,14 @@ The **fire brigade** was called out twice last night.
 The book's happy ending seemed **contrived**. -  
 We had roasted **pheasant** for dinner.  
 
-My baby slept safe from harm in her **white wicker bassinet**. -   
+My baby slept safe from harm in her **white wicker bassinet**. -  
 
-Most of its better buildings **predate** his rule. -   
+Most of its better buildings **predate** his rule. -  
 India's special relationship with gold **predates** Covid-19, of course.  
 
 You have Google with **gazillions** of dollars at their disposal.  
 He used a hammer and chisel to **chip away at the wall**.  
-It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -   
+It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -  
 
 
 The **barbed** wire had **lacerated** her arm. -  
