@@ -97,7 +97,6 @@ He **dabbled** in the Dark Arts himself in his youth ...
 You're a good **newscaster**.  
 The plants **transpire** to **give off** more water **vapor**.  
 You look great in the **mink** coat.  
-The **barbed** wire had **lacerated** her arm.  
 **marmot**  
 Don't **squabble** over **trifles**.  
 Ginny was **irrepressibly** rebellious.  

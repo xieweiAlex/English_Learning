@@ -1,5 +1,5 @@
 
-## Week 4  
+## Week 4
 
 In 1960 the French reportedly each **imbibed**, on average, 116 litres of wine in a year.  
 

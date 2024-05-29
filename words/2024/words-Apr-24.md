@@ -1,5 +1,6 @@
 
 ## Week 3,4  
+
 **truffle** chocolate.  
 It’s the attempt, not the outcome that counts. It’s an intention, not a **disposition**.  
 

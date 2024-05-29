@@ -1,16 +1,87 @@
+**fall victim to**.  
 
-They condemned the deal as a craven surrender.  
+
+Completely disregarding his own self-interest, Regulus recommended that the Roman Senate reject the peace offer. Since Carthage was weak—why else would they send him as leverage?—Rome, Regulus insisted, should **press on** and win the war.  
+It’s never been easier to spout off this argument or that one.  
+
+
+Everyone knows friends or family members who won’t speak to one another because of long-held grudges.  
+All healthy human babies and young children display curiosity, suggesting this is an innate human trait.  
+
+To desecrate a holy spring is considered profanity.  
+If there's anything I can't stand it's an indecisive, wishy-washy customer.  
+What has he done to deserve that **termagant**?  
+The **fire brigade** was called out twice last night.  
+**prizefighter**.  
+The book's happy ending seemed **contrived**. -  
+We had roasted **pheasant** for dinner.  
+
+My baby slept safe from harm in her **white wicker bassinet**. -   
+
+Most of its better buildings **predate** his rule. -   
+India's special relationship with gold **predates** Covid-19, of course.  
+
+You have Google with **gazillions** of dollars at their disposal.  
+He used a hammer and chisel to **chip away at the wall**.  
+It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -   
+
+
+The **barbed** wire had **lacerated** her arm. -  
+She was terribly **lacerated**—I may say, without exaggeration, literally flayed.  
+This **white-knuckle** **improvisation** was evident across Wall Street, too.  
+**indentured servitude**.  
+
+
+The paper gave all the **lurid details** of the murder. -  
+
+## Week 4 2024-05-26  
+
+$1,000 is a mere trifle to her.  
+This chair is a trifle rocky.  
+faced plywood.  
+tarry material/oil  
+parch.  
+
+
+
+**graft new customs onto old**.  
+bone/skin **graft**.  
+The **grafter** was constantly **haunted** by fear of discovery. -  
+
+
+Most worms **cocoon** in winter.  
+Doctors **cocooned** the patient in blankets.  
+To improve your relationship with work, I believe it is necessary to disconnect. Unfortunately, a typical one or two-week vacation isn't going to **cut it**.  
+
+**malleable**  
+**breakneck speed**.  
+
+flower **receptacle**.  
+**showboat**.  
+**centipede**.  
+**tummy**.  
+
+Maybe Peter doesn't take life seriously. He always seems to be **happy-go-lucky**.  
+
+**Long Johns** for women were first used to create a slimmer look.  
+El Salvador’s seemingly **miraculous** **turnaround** has been largely **attributed to** the efforts of President Nayib Bukele.  
+The country has been under **quasi-martial law** since 2022 and about 1.7% of the population is in prison.  
+They remained **impoverished** despite some **meager** economic investments from the US and Europe. -  
+The governments **lurched** between corrupt democracies and corrupt authoritarian dictatorships, usually with the backing of the local Catholic Church.  
+**Uprisings**, civil wars, and **border tussles** were common throughout the next 100+ years, though at least not on the scale of the massive civil wars **chronically** breaking out to the north in Mexico. -  
+The one eventual exception to the chaos was Costa Rica, which became a peaceful and fairly prosperous democracy after some impressive **statecraft** in the 1940s.  
+
+
+They **condemned** the deal as a **craven** surrender.  
 **Faecal**.  
 
+modern **composite** materials, Nasdaq composite.  
+English is a **composite** of many languages.  
 
-modern composite materials, Nasdaq composite.    
-English is a composite of many languages.  
-
-I came through all those perils unscathed.  
-The movement is in peril of dying.  
-It is always perilous to neglect our national defense.  
-Together, these developments point to a perilous period ahead.   
-
+I came through all those **perils** **unscathed**.  
+The movement is **in peril of** dying.  
+It is always **perilous** to neglect our national defense.  
+Together, these developments point to a **perilous period** ahead.  
 
 
 China’s version of **levelling up** is not going well. - Will its vast **hinterland** ever catch up with its wealthy coast?  
@@ -19,13 +90,13 @@ Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the i
 I had no conscious intention to quit right then, but I couldn’t **muster up** a single ounce of energy to tell him otherwise. -  
 In those final months, I was in a **liminal space** between two worlds. I had decided to **take a leap** to a different path but had not yet changed direction.  
 I struggled to process how I was feeling, **held captive** by **accumulated** frustration and anxiety.  
-During the first few months of self-employment, I read an article that **jolted** my reality. Titled, “If work dominated your every moment, would life be worth living?”
+During the first few months of self-employment, I read an article that **jolted** my reality. Titled, “If work dominated your every moment, would life be worth living?”  
 
 My unease quickly **morphed into** a desire to escape.  
 The presentation was **rather prosaic**, with no innovative ideas. -  
-> Yes, prosaic is a commonly used word. It means dull, ordinary, or lacking in imagination.
+> Yes, prosaic is a commonly used word. It means dull, ordinary, or lacking in imagination.  
 
-**tradwives**, **tradfi**. 
+**tradwives**, **tradfi**.  
 **camellia**.  
 
 **sling-back**.  
@@ -41,12 +112,12 @@ flight vehicle **propulsion** system.
 
 **neurotically**.  
 Bollywood **movie buff**.  
-**nervous system**, 
+**nervous system**,  
 **parasympathetic** system: responsible for stimulation of "rest-and-digest" or "feed and breed" activities that occur when the body is at rest, especially after eating.  
 
-Evelyn is entertaining company, with **droll** and **sardonic** observations on nearly everything. 
+Evelyn is entertaining company, with **droll** and **sardonic** observations on nearly everything.  
 
-**lift and shift** 
+**lift and shift**  
 
 The stormy weather could include heavy rainfall, large hail and damaging winds. Flash flooding may also happen in some **low-lying** areas.  
 
@@ -67,9 +138,9 @@ He was in the **doldrums** for the whole winter.
 **throes**.  
 a little **mule** inside of me.  
 
-## Week 3, 2024-05-20
+## Week 3, 2024-05-20  
 
-A short walk will **limber up** the legs.
+A short walk will **limber up** the legs.  
 
 **duffel bag**.  
 
@@ -79,17 +150,17 @@ And that demand has **spun out of control**.
 
 Events will also be usable in the filtering language, to specify non-**contiguous** periods of time.  
 **make headway**.  
-**Put oneself in somebody's shoes**.   
+**Put oneself in somebody's shoes**.  
 
 
 Shape: Lemons are **oval-shaped**, while limes are round.  
-Color: Lemons are **bright yellow**, while limes are **bright green**
+Color: Lemons are **bright yellow**, while limes are **bright green**  
 In terms of flavor, these two **citrus fruits** are similar. They’re both **tart**, and eating either fruit by itself is likely to result in the same **puckered** facial expression. -  
 The first place with a **runaway success** is lime presser.  
 
-Simply put, I was a **curmudgeon** at work, increasingly cynical about the intentions of leaders, not learning anything beyond the latest office gossip.
+Simply put, I was a **curmudgeon** at work, increasingly cynical about the intentions of leaders, not learning anything beyond the latest office gossip.  
 
-The Xi-Putin partnership is not a **marriage of convenience**. - It is one of vital, long-term necessity
+The Xi-Putin partnership is not a **marriage of convenience**. - It is one of vital, long-term necessity  
 **scratch pad**.  
 **cajole**.  
 **hovel**.  
@@ -98,10 +169,10 @@ The Xi-Putin partnership is not a **marriage of convenience**. - It is one of vi
 
 Senate sends **sweeping** foreign aid package to Biden's desk. -  
 We have **mooted** a rather different way to use such assets to support Ukraine.  
-California is **gripped** by economic problems, with no easy fix. - 
+California is **gripped** by economic problems, with no easy fix. -  
 
 The stomach **revolts** at such food.  
-the country was a **hotbed** of **revolt** and **dissension**.   
+the country was a **hotbed** of **revolt** and **dissension**.  
 
 With a **caddie** walking behind him carrying his **clubs**. -  
 Why Do Most Indian Men Have a **Protruding** Potbelly?  
@@ -253,14 +324,14 @@ Japan Inc is no longer **in thrall to** America. - As the home of capitalism tur
 
 America, Israel and Hamas are trapped in a dangerous **impasse**. -  
 The six rules of **fire drills**.  
-Why are **embassies** supposed to be **inviolable**?   
+Why are **embassies** supposed to be **inviolable**?  
 How one California beach town became Gavin Newsom’s **nemesis**. -  
 In a **dog-eat-dog** world, competition is fierce.  
 
 
 **spur of the moment**.  
 He was seriously **maimed** in the war.  
-Many subsidies undeservedly survived the **cull**.   
+Many subsidies undeservedly survived the **cull**.  
 **cashmere**  
 I was reluctant to **embroil** myself in his problems.  
 If you disregard the doctor's orders, a **relapse** will follow.  
@@ -327,7 +398,7 @@ That approach has led to a **plethora** of legal actions from the agency on a ho
 
 **rueful**  
 
-He speaks with a British accent, but that is just an **affectation** because he’s not British.   
+He speaks with a British accent, but that is just an **affectation** because he’s not British.  
 He made an **affectation** of indifference.  
 **consonant**.  
 **panzer**.  
