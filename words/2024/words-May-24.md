@@ -1,15 +1,29 @@
+
+
+Broom.  
+consonant.  
+cajole.  
+
+
+Senate sends sweeping foreign aid package to Biden's desk.  
+
+Some mass media tend to please people of **plebeian** tastes. -
+We ought to use the pluperfect and say wakened, but woke is better and was always used by Peter.  
+This young man had all the inclination to be a profligate of the first water. -  
+
+
 **fall victim to**.  
 
-
 Completely disregarding his own self-interest, Regulus recommended that the Roman Senate reject the peace offer. Since Carthage was weak—why else would they send him as leverage?—Rome, Regulus insisted, should **press on** and win the war.  
-It’s never been easier to spout off this argument or that one.  
+It’s never been easier to **spout off** this argument or that one.  
+
+Everyone knows friends or family members who won’t speak to one another because of **long-held grudges**. -  
+> All healthy human babies and young children display curiosity, **suggesting** this is an **innate human trait**.  
+
+To **desecrate** a **holy spring** is considered **profanity**.  
+If there's anything I can't stand it's an **indecisive**, **wishy-washy** customer.  
 
 
-Everyone knows friends or family members who won’t speak to one another because of long-held grudges.  
-All healthy human babies and young children display curiosity, suggesting this is an innate human trait.  
-
-To desecrate a holy spring is considered profanity.  
-If there's anything I can't stand it's an indecisive, wishy-washy customer.  
 What has he done to deserve that **termagant**?  
 The **fire brigade** was called out twice last night.  
 **prizefighter**.  
@@ -37,12 +51,10 @@ The paper gave all the **lurid details** of the murder. -
 ## Week 4 2024-05-26  
 
 $1,000 is a mere trifle to her.  
-This chair is a trifle rocky.  
-faced plywood.  
-tarry material/oil  
-parch.  
-
-
+This chair is a **trifle** rocky.  
+faced **plywood**.  
+**tarry** material/oil  
+**parch**.  
 
 **graft new customs onto old**.  
 bone/skin **graft**.  
