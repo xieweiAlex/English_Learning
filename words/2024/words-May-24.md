@@ -1,16 +1,30 @@
 
+How China uses Russia as a **wrecking ball**. - China **stands back**, as Russia threatens to paralyse the UN Security Council
 
-Broom.  
-consonant.  
-cajole.  
+**Stand back**, **stand down**, **stand by**. 
+
+He says. “I get on with my life, but I get **teary** when I think about them.” Losing contact with children is like **bereavement**, he says, but with the painful tug of hope that they might one day be reconciled.  
+Though people **tend not to** talk about it much, **familial** **estrangement** seems to be widespread in America.  
+The relationship most commonly **severed** is that between parent and adult child, and in most cases it is the child who wields the knife.
+Peter **reckons** that if he and his younger son, who live hundreds of miles apart, still lived in the same city they would have **patched things up** by now.  
+Just as I wouldn't take at **face value** a parent’s **depiction** of their parenting as flawless, I wouldn't assume an adult child’s claim that a parent is ‘toxic’ should be accepted **without further inquiry**”  
+
+But the system, built when there were only a handful of state-controlled telecoms companies, has become **woefully** **inadequate** for the mobile age, leaving dangerous vulnerabilities at the heart of international phone networks.  
+One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense. -  
 
 
-Senate sends sweeping foreign aid package to Biden's desk.  
+**sulfur**.  
+**cuttlefish**.  
+
+**Broom**.  
+**consonant**.  
+**cajole**.  
+
+Senate sends **sweeping** foreign aid package to Biden's desk.  
 
 Some mass media tend to please people of **plebeian** tastes. -
-We ought to use the pluperfect and say wakened, but woke is better and was always used by Peter.  
-This young man had all the inclination to be a profligate of the first water. -  
-
+We ought to use the **pluperfect** and say wakened, but woke is better and was always used by Peter.  
+This young man had all the **inclination** to be a **profligate** of the first water. -  
 
 **fall victim to**.  
 
