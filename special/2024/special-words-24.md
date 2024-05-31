@@ -1,5 +1,7 @@
 
 
+**remarkably**
+
 **glib**
 1. The politician's glib responses to tough questions made it clear that he was not being sincere.
 2. The salesman's glib talk convinced me to buy the product, but I later regretted it.
