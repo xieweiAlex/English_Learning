@@ -1,4 +1,7 @@
 
+**mortal enemy**.  
+Americans are **fretting over** their body odour.  
+
 El Salvador has a relatively **homogeneous** climate, with **pronounced** **rainy and dry seasons** and moderate temperatures.  
 
 How China uses Russia as a **wrecking ball**. - China **stands back**, as Russia threatens to paralyse the UN Security Council
