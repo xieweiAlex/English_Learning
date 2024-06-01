@@ -1,4 +1,15 @@
 
+insouciant.  
+bronchitis.  
+Spending on health is growing inexorably.  
+**stomach ulcer**, **oral ulcer** . 
+
+
+Process and Index selective attributes in a columnar database while keeping raw data in object store.  
+
+
+> more or less
+
 **mortal enemy**.  
 Americans are **fretting over** their body odour.  
 
