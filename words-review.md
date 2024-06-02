@@ -1,5 +1,17 @@
 ## words-May-24.md ##  
 words/2024/words-May-24.md  
+A **rasp** is a tool used for shaping wood or other material. -  
+The **cusp** of a **crescent**. -  
+His sense of humour allowed him to face adversaries with **equanimity**. -  
+The rise and fall of empires is an **ineluctable** part of history. -  
+What does all this **portend** for the near future?  -  
+Chai tea contains **tannins**, which are naturally occurring **compounds** found in many types of tea. Tannins can cause **discoloration** of the teeth, especially with regular consumption. -  
+This is more like it! Real food—not that **canned muck**. -  
+**tubal ligation**. -  
+One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense. -  
+Some mass media tend to please people of **plebeian** tastes. -  
+This young man had all the **inclination** to be a **profligate** of the first water. -  
+Everyone knows friends or family members who won’t speak to one another because of **long-held grudges**. -  
 The book's happy ending seemed **contrived**. -  
 My baby slept safe from harm in her **white wicker bassinet**. -  
 Most of its better buildings **predate** his rule. -  
@@ -10,19 +22,12 @@ The **grafter** was constantly **haunted** by fear of discovery. -
 They remained **impoverished** despite some **meager** economic investments from the US and Europe. -  
 **Uprisings**, civil wars, and **border tussles** were common throughout the next 100+ years, though at least not on the scale of the massive civil wars **chronically** breaking out to the north in Mexico. -  
 Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
-I had no conscious intention to quit right then, but I couldn’t **muster up** a single ounce of energy to tell him otherwise. -  
 The presentation was **rather prosaic**, with no innovative ideas. -  
 He gave an **ostentatious** yawn. -  
-In terms of flavor, these two **citrus fruits** are similar. They’re both **tart**, and eating either fruit by itself is likely to result in the same **puckered** facial expression. -  
 Senate sends **sweeping** foreign aid package to Biden's desk. -  
-California is **gripped** by economic problems, with no easy fix. -  
-With a **caddie** walking behind him carrying his **clubs**. -  
 Her case falls within the **ambit** of **moral law**. -  
-Democrats say the petition will **eviscerate** state government. -  
 He had a **aquiline nose** and **deep-set** brown eyes. -  
-I sounded like a **ditzy** blonde! -  
 newly rich consumers eager to **flaunt** their prosperity. -  
-Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**. -  
 He **beguiled** me into signing this contract.  -  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
 America, Israel and Hamas are trapped in a dangerous **impasse**. -  

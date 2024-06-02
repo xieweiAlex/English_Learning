@@ -1,27 +1,63 @@
 
-insouciant.  
-bronchitis.  
-Spending on health is growing inexorably.  
-**stomach ulcer**, **oral ulcer** . 
+## Week 1 2024-06-02  
+
+A **rasp** is a tool used for shaping wood or other material. -  
+The tang is **joined** to a handle, usually made of plastic or wood. The bar has **sharp teeth**. Rasps generally cut more coarsely than files.  
+He wanted to **rasp** the surface smooth.  
+Please, ” Kate begs me in her **rasping**, **sore throat voice**.  
+
+The **cusp** of a **crescent**. -  
+His sense of humour allowed him to face adversaries with **equanimity**. -  
+
+The rise and fall of empires is an **ineluctable** part of history. -  
+Given the poor weather conditions, the cancellation of the outdoor event was **inevitable**.  
+What does all this **portend** for the near future?  -  
+
+The **cavalry** must immediately **replenish** the new horse.  
+a **portly** belly, a **portly** figure.  
+**heterosexual**, **homosexual**.  
+
+Chai tea contains **tannins**, which are naturally occurring **compounds** found in many types of tea. Tannins can cause **discoloration** of the teeth, especially with regular consumption. -  
+
+The prisoner obtained a **commutation** of his sentence from death to life imprisonment.  
+I had my purse and **commutation** ticket stolen while I was sleeping in the train.  
+This is more like it! Real food—not that **canned muck**. -  
+**tubal ligation**. -  
+**trifles**.  
+**lollipop**.  
+Two kids can play on a **seesaw**.  
+For six months the war **seesawed**.  
+Oil platform workers are often called **roughnecks**. In Texas, many **roughnecks** have lost their jobs because of the drop in oil prices.  
+The **cello** is lower than the violin.  
 
 
-Process and Index selective attributes in a columnar database while keeping raw data in object store.  
+> What are you often silently complaining about in your head and who is the person you need to actually discuss your frustrations with?  
+> People can't react to your thoughts, only your actions. Time spent complaining to yourself is often better spent selling someone else on a new way of doing things.  
 
 
-> more or less
+> So Marcus is doing something that’s beautiful, but sometimes beautiful things have a practical value, you know. The beauty of the Meditations makes it more evocative and more memorable, and therefore, more therapeutic.  
+
+**insouciant**.  
+**bronchitis**.  
+Spending on health is growing **inexorably**.  
+**stomach ulcer**, **oral ulcer** .  
+
+Process and Index selective attributes in a **columnar** database while keeping raw data in object store.  
+
+> more or less  
 
 **mortal enemy**.  
 Americans are **fretting over** their body odour.  
 
 El Salvador has a relatively **homogeneous** climate, with **pronounced** **rainy and dry seasons** and moderate temperatures.  
 
-How China uses Russia as a **wrecking ball**. - China **stands back**, as Russia threatens to paralyse the UN Security Council
+How China uses Russia as a **wrecking ball**. - China **stands back**, as Russia threatens to paralyse the UN Security Council  
 
-**Stand back**, **stand down**, **stand by**. 
+**Stand back**, **stand down**, **stand by**.  
 
 He says. “I get on with my life, but I get **teary** when I think about them.” Losing contact with children is like **bereavement**, he says, but with the painful tug of hope that they might one day be reconciled.  
 Though people **tend not to** talk about it much, **familial** **estrangement** seems to be widespread in America.  
-The relationship most commonly **severed** is that between parent and adult child, and in most cases it is the child who wields the knife.
+The relationship most commonly **severed** is that between parent and adult child, and in most cases it is the child who wields the knife.  
 Peter **reckons** that if he and his younger son, who live hundreds of miles apart, still lived in the same city they would have **patched things up** by now.  
 Just as I wouldn't take at **face value** a parent’s **depiction** of their parenting as flawless, I wouldn't assume an adult child’s claim that a parent is ‘toxic’ should be accepted **without further inquiry**”  
 
@@ -38,7 +74,7 @@ One reason is that filtering is technically complicated and can easily go wrong 
 
 Senate sends **sweeping** foreign aid package to Biden's desk.  
 
-Some mass media tend to please people of **plebeian** tastes. -
+Some mass media tend to please people of **plebeian** tastes. -  
 We ought to use the **pluperfect** and say wakened, but woke is better and was always used by Peter.  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
 
@@ -129,7 +165,7 @@ Together, these developments point to a **perilous period** ahead.
 China’s version of **levelling up** is not going well. - Will its vast **hinterland** ever catch up with its wealthy coast?  
 
 Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
-I had no conscious intention to quit right then, but I couldn’t **muster up** a single ounce of energy to tell him otherwise. -  
+I had no conscious intention to quit right then, but I couldn’t **muster up** a single ounce of energy to tell him otherwise.   
 In those final months, I was in a **liminal space** between two worlds. I had decided to **take a leap** to a different path but had not yet changed direction.  
 I struggled to process how I was feeling, **held captive** by **accumulated** frustration and anxiety.  
 During the first few months of self-employment, I read an article that **jolted** my reality. Titled, “If work dominated your every moment, would life be worth living?”  
@@ -197,7 +233,7 @@ Events will also be usable in the filtering language, to specify non-**contiguou
 
 Shape: Lemons are **oval-shaped**, while limes are round.  
 Color: Lemons are **bright yellow**, while limes are **bright green**  
-In terms of flavor, these two **citrus fruits** are similar. They’re both **tart**, and eating either fruit by itself is likely to result in the same **puckered** facial expression. -  
+In terms of flavor, these two **citrus fruits** are similar. They’re both **tart**, and eating either fruit by itself is likely to result in the same **puckered** facial expression.  
 The first place with a **runaway success** is lime presser.  
 
 Simply put, I was a **curmudgeon** at work, increasingly cynical about the intentions of leaders, not learning anything beyond the latest office gossip.  
@@ -211,12 +247,12 @@ The Xi-Putin partnership is not a **marriage of convenience**. - It is one of vi
 
 Senate sends **sweeping** foreign aid package to Biden's desk. -  
 We have **mooted** a rather different way to use such assets to support Ukraine.  
-California is **gripped** by economic problems, with no easy fix. -  
+California is **gripped** by economic problems, with no easy fix.   
 
 The stomach **revolts** at such food.  
 the country was a **hotbed** of **revolt** and **dissension**.  
 
-With a **caddie** walking behind him carrying his **clubs**. -  
+With a **caddie** walking behind him carrying his **clubs**.   
 Why Do Most Indian Men Have a **Protruding** Potbelly?  
 **gorilla**, **chimpanzee**.  
 
@@ -254,7 +290,7 @@ America's success has made it **sclerotic**.
 **sclerotic**, **sclerosis**  
 
 a compromise that **eviscerated** the proposed bill.  
-Democrats say the petition will **eviscerate** state government. -  
+Democrats say the petition will **eviscerate** state government.   
 **penal** code/law/colony.  
 **penalize**.  
 
@@ -288,7 +324,7 @@ play **rubber and glue**.
 In recent months short videos have been popping up online which play to their feelings of superiority and continue a tradition of using foreigners to **aggrandise** China.  
 The videos, posted on social media, have drawn hundreds of thousands of views. Some are used to **hawk products** or simply to glorify China.  
 **hawkers**  
-I sounded like a **ditzy** blonde! -  
+I sounded like a **ditzy** blonde!  
 
 **Dasttardly**.  
 **Tarzan**  
@@ -308,7 +344,7 @@ Remember that this is **caustic**; use gloves or a spoon.
 His abrasive wit and **caustic comments** were an interviewer's nightmare.  
 The **electorate** had grown **disenchanted** with politics.  
 As philosophy and science gradually broke away from theology, a new **Christian piety** developed.  
-Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**. -  
+Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**.   
 
 He **beguiled** me into signing this contract.  -  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
