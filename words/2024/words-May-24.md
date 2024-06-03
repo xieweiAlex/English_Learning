@@ -1,4 +1,8 @@
 
+
+She was trying hard to disgorge a fish bone.  
+
+
 ## Week 1 2024-06-02  
 
 A **rasp** is a tool used for shaping wood or other material. -  
