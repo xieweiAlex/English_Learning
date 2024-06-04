@@ -1,6 +1,5 @@
 
-
-She was trying hard to disgorge a fish bone.  
+She was trying hard to **disgorge** a fish bone.  
 
 
 ## Week 1 2024-06-02  
@@ -38,8 +37,7 @@ The **cello** is lower than the violin.
 > What are you often silently complaining about in your head and who is the person you need to actually discuss your frustrations with?  
 > People can't react to your thoughts, only your actions. Time spent complaining to yourself is often better spent selling someone else on a new way of doing things.  
 
-
-> So Marcus is doing something that’s beautiful, but sometimes beautiful things have a practical value, you know. The beauty of the Meditations makes it more evocative and more memorable, and therefore, more therapeutic.  
+> So Marcus is doing something that’s beautiful, but sometimes beautiful things have a practical value, you know. The beauty of the Meditations makes it more **evocative** and more memorable, and therefore, more therapeutic.  
 
 **insouciant**.  
 **bronchitis**.  
