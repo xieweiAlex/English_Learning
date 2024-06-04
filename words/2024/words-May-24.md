@@ -1,6 +1,8 @@
 
 She was trying hard to **disgorge** a fish bone.  
 
+She was trying hard to disgorge a fish bone.  
+Whole grain bread in in the supermarket is not whole grain, because the grains have been pulverized to smithereens.  
 
 ## Week 1 2024-06-02  
 
