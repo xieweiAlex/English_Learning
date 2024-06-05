@@ -1,8 +1,30 @@
 
+nervous system.  
+horrid, lurid.  
+
+
+knuckhead, jughead, bonehead, meathead, egghead
+hothead, crackhead, crackhead
+hammerhead, copperhead, 
+warhead, beachhead, trailhead, dead ahead   
+
+
+
+rouchnecks.  
+
+**crapper** ?? 
+Come, come, come. You must be **famished**.  
+
+The beautiful and **dolorous** memory. -  
+> bang for the buck.  
+
+There is an **acrid tone** to your **remarks**. -  
+**acrid**: harsh or **corrosive in tone**. -  
+Many highly **corrosive substances** are used in the nuclear industry.  
+
 She was trying hard to **disgorge** a fish bone.  
 
-She was trying hard to disgorge a fish bone.  
-Whole grain bread in in the supermarket is not whole grain, because the grains have been pulverized to smithereens.  
+Whole grain bread in in the supermarket is not whole grain, because the grains have been **pulverized** to **smithereens**.  
 
 ## Week 1 2024-06-02  
 
@@ -32,7 +54,7 @@ This is more like it! Real food—not that **canned muck**. -
 **lollipop**.  
 Two kids can play on a **seesaw**.  
 For six months the war **seesawed**.  
-Oil platform workers are often called **roughnecks**. In Texas, many **roughnecks** have lost their jobs because of the drop in oil prices.  
+Oil platform workers are often called **roughnecks**. In Texas, many **roughnecks** have lost their jobs because of the drop in oil prices. -  
 The **cello** is lower than the violin.  
 
 
