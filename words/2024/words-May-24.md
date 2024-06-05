@@ -1,16 +1,16 @@
 
-nervous system.  
-horrid, lurid.  
+He’s accused of swindling more than $1 billion from investors in a complex fraud scheme that **netted** him luxuries including a $26 million New Jersey mansion and a $37 million yacht.
+
+**nervous system**.  
+**horrid**, **lurid**.  
+
+**knuckhead**, **jughead**, **bonehead**, **meathead**, 
+**hothead**, **crackhead**, **egghead**
+**hammerhead**, **copperhead**, 
+**warhead**, **beachhead**, **trailhead**, **dead ahead**  
 
 
-knuckhead, jughead, bonehead, meathead, egghead
-hothead, crackhead, crackhead
-hammerhead, copperhead, 
-warhead, beachhead, trailhead, dead ahead   
-
-
-
-rouchnecks.  
+**rouchnecks**.  
 
 **crapper** ?? 
 Come, come, come. You must be **famished**.  
