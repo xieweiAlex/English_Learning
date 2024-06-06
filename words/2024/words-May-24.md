@@ -1,4 +1,12 @@
 
+Yuval Noah Harari on how to prevent a new age of imperialism.  
+Biden’s border order: impractical policy, pragmatic politics.  
+
+**abolition**.  
+**isophoric**  
+**pureed**.  
+**pocketbook**.  
+
 He’s accused of swindling more than $1 billion from investors in a complex fraud scheme that **netted** him luxuries including a $26 million New Jersey mansion and a $37 million yacht.
 
 **nervous system**.  
