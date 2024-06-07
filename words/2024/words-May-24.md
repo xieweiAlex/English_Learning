@@ -1,18 +1,52 @@
 
-Yuval Noah Harari on how to prevent a new age of imperialism.  
-Biden’s border order: impractical policy, pragmatic politics.  
+
+They are **timeless** for a reason. It’s because they’re true, because they work.  
+The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, **handily** beating analysts' forecasts.
+
+> How have you been? How is it going, means asking what did you do, what’s happening?
+
+> The people I deal with today will be meddling, ungrateful, arrogant, dishonest, jealous, and surly. They are like this because they can’t tell good from evil.
+
+
+At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
+**second base**.  
+The **gull** held the fish in its **beak**.  
+**repartee**.  
+
+
+
+**Hangul**.  
+**madeleine**
+**Adriatic**.  
+**morocco** 
+
+**dust settle**.  
+**hand to mouth** 
+**Isolated incident**.  
+**Marginal utility**.  
+**move the needle**  
+**take a dip**.  
+**lo and behold**.  
+
+
+
+Yuval Noah Harari on how to prevent a new age of **imperialism**.  
+Biden’s border order: **impractical policy**, **pragmatic politics**.  
 
 **abolition**.  
 **isophoric**  
 **pureed**.  
 **pocketbook**.  
 
-He’s accused of swindling more than $1 billion from investors in a complex fraud scheme that **netted** him luxuries including a $26 million New Jersey mansion and a $37 million yacht.
+He’s accused of **swindling** more than $1 billion from investors in a complex fraud scheme that **netted** him luxuries including a $26 million New Jersey mansion and a $37 million yacht.
 
 **nervous system**.  
 **horrid**, **lurid**.  
 
-**knuckhead**, **jughead**, **bonehead**, **meathead**, 
+Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin.  
+
+
+**knuckhead**, **jughead**, **bonehead**, **meathead**, **loggerhead**
 **hothead**, **crackhead**, **egghead**
 **hammerhead**, **copperhead**, 
 **warhead**, **beachhead**, **trailhead**, **dead ahead**  
