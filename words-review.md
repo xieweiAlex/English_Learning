@@ -1,13 +1,17 @@
 ## words-May-24.md ##  
 words/2024/words-May-24.md  
+At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
+The beautiful and **dolorous** memory. -  
+There is an **acrid tone** to your **remarks**. -  
+**acrid**: harsh or **corrosive in tone**. -  
 A **rasp** is a tool used for shaping wood or other material. -  
 The **cusp** of a **crescent**. -  
 His sense of humour allowed him to face adversaries with **equanimity**. -  
 The rise and fall of empires is an **ineluctable** part of history. -  
 What does all this **portend** for the near future?  -  
-Chai tea contains **tannins**, which are naturally occurring **compounds** found in many types of tea. Tannins can cause **discoloration** of the teeth, especially with regular consumption.   
 This is more like it! Real food—not that **canned muck**. -  
 **tubal ligation**. -  
+Oil platform workers are often called **roughnecks**. In Texas, many **roughnecks** have lost their jobs because of the drop in oil prices. -  
 One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense. -  
 Some mass media tend to please people of **plebeian** tastes. -  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
@@ -24,7 +28,7 @@ They remained **impoverished** despite some **meager** economic investments from
 Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
 The presentation was **rather prosaic**, with no innovative ideas. -  
 He gave an **ostentatious** yawn. -  
-Senate sends **sweeping** foreign aid package to Biden's desk.  
+Senate sends **sweeping** foreign aid package to Biden's desk. -  
 Her case falls within the **ambit** of **moral law**. -  
 He had a **aquiline nose** and **deep-set** brown eyes. -  
 newly rich consumers eager to **flaunt** their prosperity. -  
@@ -36,11 +40,9 @@ How one California beach town became Gavin Newsom’s **nemesis**. -
 ## words-Apr-24.md ##  
 words/2024/words-Apr-24.md  
 He **feigned** indifference to criticism of his work. -  
-**propitious**, **auspicious**.   
 He **pilfer** from a cash register. -  
 We **extort**, we **pilfer**, we **filch and sack**. -  
 The name **Chanel** became a **byword** for **elegance**. -  
-Do you have **spanner**, **pincer** and hammer?   
 If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -  
 
 ## words-Mar.md ##  

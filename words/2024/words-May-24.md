@@ -1,11 +1,13 @@
 
+presto.  
+Don't misdirect your frustration.  
 
 They are **timeless** for a reason. It’s because they’re true, because they work.  
-The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, **handily** beating analysts' forecasts.
+The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, **handily** beating analysts' forecasts.  
 
-> How have you been? How is it going, means asking what did you do, what’s happening?
+> How have you been? How is it going, means asking what did you do, what’s happening?  
 
-> The people I deal with today will be meddling, ungrateful, arrogant, dishonest, jealous, and surly. They are like this because they can’t tell good from evil.
+> The people I deal with today will be meddling, ungrateful, arrogant, dishonest, jealous, and surly. They are like this because they can’t tell good from evil.  
 
 
 At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
@@ -16,12 +18,12 @@ The **gull** held the fish in its **beak**.
 
 
 **Hangul**.  
-**madeleine**
+**madeleine**  
 **Adriatic**.  
-**morocco** 
+**morocco**  
 
 **dust settle**.  
-**hand to mouth** 
+**hand to mouth**  
 **Isolated incident**.  
 **Marginal utility**.  
 **move the needle**  
@@ -38,7 +40,7 @@ Biden’s border order: **impractical policy**, **pragmatic politics**.
 **pureed**.  
 **pocketbook**.  
 
-He’s accused of **swindling** more than $1 billion from investors in a complex fraud scheme that **netted** him luxuries including a $26 million New Jersey mansion and a $37 million yacht.
+He’s accused of **swindling** more than $1 billion from investors in a complex fraud scheme that **netted** him luxuries including a $26 million New Jersey mansion and a $37 million yacht.  
 
 **nervous system**.  
 **horrid**, **lurid**.  
@@ -46,15 +48,15 @@ He’s accused of **swindling** more than $1 billion from investors in a complex
 Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin.  
 
 
-**knuckhead**, **jughead**, **bonehead**, **meathead**, **loggerhead**
-**hothead**, **crackhead**, **egghead**
-**hammerhead**, **copperhead**, 
+**knuckhead**, **jughead**, **bonehead**, **meathead**, **loggerhead**  
+**hothead**, **crackhead**, **egghead**  
+**hammerhead**, **copperhead**,  
 **warhead**, **beachhead**, **trailhead**, **dead ahead**  
 
 
 **rouchnecks**.  
 
-**crapper** ?? 
+**crapper** ??  
 Come, come, come. You must be **famished**.  
 
 The beautiful and **dolorous** memory. -  
@@ -86,7 +88,7 @@ The **cavalry** must immediately **replenish** the new horse.
 a **portly** belly, a **portly** figure.  
 **heterosexual**, **homosexual**.  
 
-Chai tea contains **tannins**, which are naturally occurring **compounds** found in many types of tea. Tannins can cause **discoloration** of the teeth, especially with regular consumption. -  
+Chai tea contains **tannins**, which are naturally occurring **compounds** found in many types of tea. Tannins can cause **discoloration** of the teeth, especially with regular consumption.   
 
 The prisoner obtained a **commutation** of his sentence from death to life imprisonment.  
 I had my purse and **commutation** ticket stolen while I was sleeping in the train.  
@@ -233,7 +235,7 @@ Together, these developments point to a **perilous period** ahead.
 China’s version of **levelling up** is not going well. - Will its vast **hinterland** ever catch up with its wealthy coast?  
 
 Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
-I had no conscious intention to quit right then, but I couldn’t **muster up** a single ounce of energy to tell him otherwise.   
+I had no conscious intention to quit right then, but I couldn’t **muster up** a single ounce of energy to tell him otherwise.  
 In those final months, I was in a **liminal space** between two worlds. I had decided to **take a leap** to a different path but had not yet changed direction.  
 I struggled to process how I was feeling, **held captive** by **accumulated** frustration and anxiety.  
 During the first few months of self-employment, I read an article that **jolted** my reality. Titled, “If work dominated your every moment, would life be worth living?”  
@@ -315,12 +317,12 @@ The Xi-Putin partnership is not a **marriage of convenience**. - It is one of vi
 
 Senate sends **sweeping** foreign aid package to Biden's desk. -  
 We have **mooted** a rather different way to use such assets to support Ukraine.  
-California is **gripped** by economic problems, with no easy fix.   
+California is **gripped** by economic problems, with no easy fix.  
 
 The stomach **revolts** at such food.  
 the country was a **hotbed** of **revolt** and **dissension**.  
 
-With a **caddie** walking behind him carrying his **clubs**.   
+With a **caddie** walking behind him carrying his **clubs**.  
 Why Do Most Indian Men Have a **Protruding** Potbelly?  
 **gorilla**, **chimpanzee**.  
 
@@ -358,7 +360,7 @@ America's success has made it **sclerotic**.
 **sclerotic**, **sclerosis**  
 
 a compromise that **eviscerated** the proposed bill.  
-Democrats say the petition will **eviscerate** state government.   
+Democrats say the petition will **eviscerate** state government.  
 **penal** code/law/colony.  
 **penalize**.  
 
@@ -412,7 +414,7 @@ Remember that this is **caustic**; use gloves or a spoon.
 His abrasive wit and **caustic comments** were an interviewer's nightmare.  
 The **electorate** had grown **disenchanted** with politics.  
 As philosophy and science gradually broke away from theology, a new **Christian piety** developed.  
-Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**.   
+Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**.  
 
 He **beguiled** me into signing this contract.  -  
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  

@@ -59,7 +59,7 @@ He **feigned** indifference to criticism of his work. -
 **succinct**, **concise**, **brief**, **descriptive**  
 **boom-and-bust**.  
 **incantation**.  
-**propitious**, **auspicious**. -  
+**propitious**, **auspicious**.   
 
 He **pilfer** from a cash register. -  
 We **extort**, we **pilfer**, we **filch and sack**. -  
@@ -166,7 +166,7 @@ The Nile **disgorges** into the sea at Rashid.
 He was involved in a **scuffle** with a photographer.  
 What began as a minor **scuffle** turned into a full-scale riot.  
 in a **tailspin**.  
-Do you have **spanner**, **pincer** and hammer? -  
+Do you have **spanner**, **pincer** and hammer?   
 **plier**.  
 **nasal**, **nostril**, **sinus**  
 **nasal cavity**  
