@@ -1,9 +1,89 @@
 
-presto.  
-Don't misdirect your frustration.  
-his assessment seems **cogent**. -    
+## Week 2 2024-06-08  
 
-rubbles, gravels, cobbles.  
+You made your choice when you **chased me away**!  
+**shoo**  
+**refit**, **retrofit**.  
+The ship has **undergone** a complete **refit**.  
+**Herpes** virus.  
+The owner was so **irate** he almost threw me out of the place.  
+The government is changing the rules for claiming **dole**. -  
+
+**kennel**, **colonel**.  
+His **irreverence** for authority marks him out as a **troublemaker**.  
+It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate. -  
+He ate every savoury **morsel** of a **delectable** stew at the dinner.  
+These are wonderfully **succulent** peaches.  
+**leaf succulent**.  
+**kabab**.  
+**finger painting**.  
+He lives in a great, big, **desolate** old house **in the country** and no one goes near him. -  
+
+she's a real **ball buster** for me.  
+I **got my eye on you**, **buster**.  
+
+If you get into any **dodgy** situations, call me. -  
+A **dodgy** second-hand car salesman.  
+**visual impairment**, **hearing impairment**.  
+
+
+**Carrollton**.  
+His promise during the campaign to try to bring the war to an end was a political **masterstroke**.  
+**Nuclear proliferation** has returned to centre stage in international affairs.  
+The **plaintiff** can now more clearly show **culpability**. -  
+The play was considered an **affront** to public morals.  -  
+**Camellia**.  
+
+Low-level **current**, **tingling** sensation throughout their back.  
+
+
+> To Pieper, leisure was above work. It was “a condition of the soul,” and the “disposition of receptive understanding, of contemplative beholding, and immersion – in the real.”57  
+
+**Rat race**.  
+**rump state**.  
+The rump of the party does in fact still have considerable assets.  
+**Didactic**: It's often used in academic or intellectual contexts to describe something that is intended to teach or instruct, especially in a moral or ethical sense.  
+
+**teeny-weeny share**.  
+Over the years, its reputation has **ebbed and flowed**.  
+**staying power**.  
+
+**circuit breaker**.  
+
+**concoct** a **splendid** meal.  
+a **splendid** field of poppies.  
+Inflation was the **scourge** of the 1970s. -  
+You hear talk about American business being **flabby**. -  
+
+**mass market**  
+**masses**.  
+
+
+Know the pacing and **inflection** you want to use in speech.  
+Love really need courage to face the **tattle** and **prate**.  
+
+**varmint**.  
+
+**Linguists** may not like to rank languages, but **laypeople** are interested in such things.  
+Are some languages better than others? To ask a linguist such a question **is akin to** **blaspheming** to a **priest**. -  
+
+
+**manically** focus on monetary policy.  
+Another **can of worms**.  
+
+
+**presto**.  
+Don't **misdirect** your frustration.  
+his assessment seems **cogent**. -  
+
+**rubbles**, **gravels**, **cobbles**.  
+> Rubbles, gravels, and cobbles are all types of small, loose materials that are commonly found on the ground. However, there are some differences between these words:  
+
+> 1. Rubbles: Rubbles refer to small pieces of broken or crumbled stones, bricks, or other building materials. They are usually irregular in shape and can vary in size. Rubbles are often the result of demolition or destruction of buildings.  
+
+> 2. Gravels: Gravels are small, rounded stones that are usually between 2-64 mm in diameter. They are formed naturally through erosion and weathering of larger rocks. Gravels are commonly used in construction, landscaping, and road building.  
+
+> 3. Cobbles: Cobbles are larger than gravels, typically between 64-256 mm in diameter. They are also formed naturally through erosion and weathering, but they are more rounded and smoother than gravels. Cobbles are often used for decorative purposes in gardens and pathways.  
 
 
 They are **timeless** for a reason. It’s because they’re true, because they work.  
@@ -33,8 +113,6 @@ The **gull** held the fish in its **beak**.
 **move the needle**  
 **take a dip**.  
 **lo and behold**.  
-
-
 
 Yuval Noah Harari on how to prevent a new age of **imperialism**.  
 Biden’s border order: **impractical policy**, **pragmatic politics**.  
@@ -92,7 +170,7 @@ The **cavalry** must immediately **replenish** the new horse.
 a **portly** belly, a **portly** figure.  
 **heterosexual**, **homosexual**.  
 
-Chai tea contains **tannins**, which are naturally occurring **compounds** found in many types of tea. Tannins can cause **discoloration** of the teeth, especially with regular consumption.   
+Chai tea contains **tannins**, which are naturally occurring **compounds** found in many types of tea. Tannins can cause **discoloration** of the teeth, especially with regular consumption.  
 
 The prisoner obtained a **commutation** of his sentence from death to life imprisonment.  
 I had my purse and **commutation** ticket stolen while I was sleeping in the train.  

@@ -1,5 +1,15 @@
 ## words-May-24.md ##  
 words/2024/words-May-24.md  
+The government is changing the rules for claiming **dole**. -  
+It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate. -  
+He lives in a great, big, **desolate** old house **in the country** and no one goes near him. -  
+If you get into any **dodgy** situations, call me. -  
+The **plaintiff** can now more clearly show **culpability**. -  
+The play was considered an **affront** to public morals.  -  
+Inflation was the **scourge** of the 1970s. -  
+You hear talk about American business being **flabby**. -  
+Are some languages better than others? To ask a linguist such a question **is akin to** **blaspheming** to a **priest**. -  
+his assessment seems **cogent**. -  
 At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
 The beautiful and **dolorous** memory. -  
 There is an **acrid tone** to your **remarks**. -  
