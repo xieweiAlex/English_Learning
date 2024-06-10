@@ -1,5 +1,32 @@
 
+
+The minister preaches a sermon now and then.  
+molecular.  
+The kimono is the traditional costume of Japanese women.  
+
+
 ## Week 2 2024-06-08  
+
+Caution: Speaking the truth may result in sudden and **involuntary** expulsion. Only take on this challenge if you are willing to not **sugarcoat** everything at the risk being **thrown out** on your truth-telling behind! 😄
+
+The dream of freedom becomes so **palpable** and so powerful that they can's choose not to.  
+
+daybreak, dawn, sunrise, twilight 
+nightfall, dusk, sunset, 
+
+she **rummaged** in her capacious handbag.  
+He had a good **rummage** inside the sofa.  
+**amibt** of moral law.  
+**purview**. 
+**modulate**.  
+**food pantry**.  
+It would be **perverse** to stop this healthy trend.   
+This kind of reasoning is deeply **perverse**.  
+**regimen**.  
+**inflexion point**. 
+**inflection**.  
+The bricks are left in the **kiln** to bake.  
+
 
 You made your choice when you **chased me away**!  
 **shoo**  
@@ -41,7 +68,7 @@ Low-level **current**, **tingling** sensation throughout their back.
 
 **Rat race**.  
 **rump state**.  
-The rump of the party does in fact still have considerable assets.  
+The **rump** of the party does in fact still have considerable assets.  
 **Didactic**: It's often used in academic or intellectual contexts to describe something that is intended to teach or instruct, especially in a moral or ethical sense.  
 
 **teeny-weeny share**.  
