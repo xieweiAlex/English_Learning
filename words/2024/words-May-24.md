@@ -1,4 +1,9 @@
 
+old hand, light hand 
+**sleight of hand**
+
+rowdy.  
+rascal.  
 
 The minister preaches a sermon now and then.  
 molecular.  
