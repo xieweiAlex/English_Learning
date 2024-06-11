@@ -146,7 +146,7 @@ A **stampede** is possible anywhere.
 **cudgel**, **baton**, torch.  
 **assume** **the reins** of government.  
 Stones **whet** a sword, difficulties strengthen **willpower**.  
-The name **Chanel** became a **byword** for **elegance**. -  
+The name **Chanel** became a **byword** for **elegance**.   
 The "made in China" label is often a **byword** for "cheap".  
 
 He cheated on all his wives. He bullied friends. He **talked behind their backs**.  

@@ -16,7 +16,7 @@ Honey badgers are **carnivores** that secure most of their food through active h
 
 Her sudden arrival caused quite a **flutter**.  
 The flag **fluttered** in the wind.  
-the remaining **petals** **fluttered** to the ground. -  
+the remaining **petals** **fluttered** to the ground.   
 
 **pamphlet**, **brochure**, **booklet**, **leaflet**.  
 This witness has committed **perjury** and no reliance can be placed on her evidence.  

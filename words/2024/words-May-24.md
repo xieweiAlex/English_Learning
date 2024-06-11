@@ -1,34 +1,51 @@
 
-old hand, light hand 
-**sleight of hand**
+she was hypnotized by the mellow tone of his voice.  
+The years have mellowed him.  
 
-rowdy.  
-rascal.  
 
-The minister preaches a sermon now and then.  
-molecular.  
-The kimono is the traditional costume of Japanese women.  
+Remote work is faltering—Slack and Zoom might be to blame.  
+
+He was resolute in carrying out his plan.  
+The Egyptians offered resolute resistance to the aggressors.  
+
+**dull ache**  
+
+It’s obnoxious. The way they lie and cheat and meddle. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate.  
+
+
+Since it is very cold at the top, **coverall** is required.  
+The experience was something he had tried to **expunge** from his memory. -  
+
+**old hand**, **light hand**  
+**sleight of hand**  
+
+**rowdy**.  
+**rascal**.  
+
+The minister preaches a **sermon** now and then.  
+**molecular**.  
+The **kimono** is the traditional costume of Japanese women.  
 
 
 ## Week 2 2024-06-08  
 
-Caution: Speaking the truth may result in sudden and **involuntary** expulsion. Only take on this challenge if you are willing to not **sugarcoat** everything at the risk being **thrown out** on your truth-telling behind! 😄
+Caution: Speaking the truth may result in sudden and **involuntary** expulsion. Only take on this challenge if you are willing to not **sugarcoat** everything at the risk being **thrown out** on your truth-telling behind! 😄  
 
 The dream of freedom becomes so **palpable** and so powerful that they can's choose not to.  
 
-daybreak, dawn, sunrise, twilight 
-nightfall, dusk, sunset, 
+**daybreak**, **dawn**, **sunrise**  
+**nightfall**, dusk, sunset, **twilight**  
 
 she **rummaged** in her capacious handbag.  
 He had a good **rummage** inside the sofa.  
 **amibt** of moral law.  
-**purview**. 
+**purview**.  
 **modulate**.  
 **food pantry**.  
-It would be **perverse** to stop this healthy trend.   
+It would be **perverse** to stop this healthy trend.  
 This kind of reasoning is deeply **perverse**.  
 **regimen**.  
-**inflexion point**. 
+**inflexion point**.  
 **inflection**.  
 The bricks are left in the **kiln** to bake.  
 
@@ -194,7 +211,7 @@ Please, ” Kate begs me in her **rasping**, **sore throat voice**.
 The **cusp** of a **crescent**. -  
 His sense of humour allowed him to face adversaries with **equanimity**. -  
 
-The rise and fall of empires is an **ineluctable** part of history. -  
+The rise and fall of empires is an **ineluctable** part of history.   
 Given the poor weather conditions, the cancellation of the outdoor event was **inevitable**.  
 What does all this **portend** for the near future?  -  
 
@@ -212,7 +229,7 @@ This is more like it! Real food—not that **canned muck**. -
 **lollipop**.  
 Two kids can play on a **seesaw**.  
 For six months the war **seesawed**.  
-Oil platform workers are often called **roughnecks**. In Texas, many **roughnecks** have lost their jobs because of the drop in oil prices. -  
+Oil platform workers are often called **roughnecks**. In Texas, many **roughnecks** have lost their jobs because of the drop in oil prices.   
 The **cello** is lower than the violin.  
 
 
@@ -290,7 +307,7 @@ He used a hammer and chisel to **chip away at the wall**.
 It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -  
 
 
-The **barbed** wire had **lacerated** her arm. -  
+The **barbed** wire had **lacerated** her arm.   
 She was terribly **lacerated**—I may say, without exaggeration, literally flayed.  
 This **white-knuckle** **improvisation** was evident across Wall Street, too.  
 **indentured servitude**.  
@@ -531,7 +548,7 @@ As philosophy and science gradually broke away from theology, a new **Christian 
 Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**.  
 
 He **beguiled** me into signing this contract.  -  
-He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**. -  
+He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**.   
 
 Huge **chimneys** belched forth smoke and grime.  
 
@@ -584,7 +601,7 @@ Parliament is seen as a **rubber stamp** for decisions made elsewhere.
 Japan Inc is no longer **in thrall to** America. - As the home of capitalism turns protectionist, Japan is opening up.  
 
 
-America, Israel and Hamas are trapped in a dangerous **impasse**. -  
+America, Israel and Hamas are trapped in a dangerous **impasse**.   
 The six rules of **fire drills**.  
 Why are **embassies** supposed to be **inviolable**?  
 How one California beach town became Gavin Newsom’s **nemesis**. -  

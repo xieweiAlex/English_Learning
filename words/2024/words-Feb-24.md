@@ -17,7 +17,7 @@ Why everyone should eat more ugly seafood--In praise of the **monstrous**, abund
 **conjugal**, **conjugal-visit**.  
 
 I **absolve** you from all your sins.  
-My **bylaws** are a work of art.  
+My **bylaws** are a **work of art**.  
 
 **Valley of disappointment**.  
 **half-assed** way.  
