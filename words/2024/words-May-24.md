@@ -1,4 +1,15 @@
 
+
+Why you should lose your temper at work.  
+Macron’s legacy—and credibility—are on the line.  
+Macron wants a snap election to get him out of a deep hole.  
+
+
+
+The war for AI talent is heating up. - Big tech firms scramble to fill gaps as brain drain sets in
+
+
+
 she was hypnotized by the mellow tone of his voice.  
 The years have mellowed him.  
 
