@@ -1,28 +1,35 @@
 
-
-Why you should lose your temper at work.  
-Macron’s legacy—and credibility—are on the line.  
-Macron wants a snap election to get him out of a deep hole.  
-
-
-
-The war for AI talent is heating up. - Big tech firms scramble to fill gaps as brain drain sets in
-
+He aims his bile at religion, drugs, and politics.  
+bile duct/acid  
+protease inhibitor  
+turd.  
+she changed from a carefree girl into a woman.  
+testimonial, testimony.  
+roll call.  
 
 
-she was hypnotized by the mellow tone of his voice.  
-The years have mellowed him.  
+fender bender.  
+standstill, halt, impasses, stalemate.  
 
 
-Remote work is faltering—Slack and Zoom might be to blame.  
+Why you should **lose your temper** at work.  
 
-He was resolute in carrying out his plan.  
-The Egyptians offered resolute resistance to the aggressors.  
+Macron’s legacy—and credibility—are **on the line**.  
+Macron wants a **snap** election to get him out of **a deep hole**.  
+
+The war for AI talent is heating up. - Big tech firms **scramble to** fill gaps as **brain drain** **sets in**.  
+
+she was **hypnotized** by the **mellow tone** of his voice. -  
+The years have **mellowed** him.  
+
+Remote work is **faltering**—Slack and Zoom might be to blame.  
+
+He was **resolute** in carrying out his plan.  
+The Egyptians offered **resolute** resistance to the aggressors.  
 
 **dull ache**  
 
-It’s obnoxious. The way they lie and cheat and meddle. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate.  
-
+It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate. -  
 
 Since it is very cold at the top, **coverall** is required.  
 The experience was something he had tried to **expunge** from his memory. -  
@@ -45,7 +52,7 @@ Caution: Speaking the truth may result in sudden and **involuntary** expulsion. 
 The dream of freedom becomes so **palpable** and so powerful that they can's choose not to.  
 
 **daybreak**, **dawn**, **sunrise**  
-**nightfall**, dusk, sunset, **twilight**  
+**nightfall**, dusk, sunset, sundown, **twilight**  
 
 she **rummaged** in her capacious handbag.  
 He had a good **rummage** inside the sofa.  
@@ -222,7 +229,7 @@ Please, ” Kate begs me in her **rasping**, **sore throat voice**.
 The **cusp** of a **crescent**. -  
 His sense of humour allowed him to face adversaries with **equanimity**. -  
 
-The rise and fall of empires is an **ineluctable** part of history.   
+The rise and fall of empires is an **ineluctable** part of history.  
 Given the poor weather conditions, the cancellation of the outdoor event was **inevitable**.  
 What does all this **portend** for the near future?  -  
 
@@ -240,7 +247,7 @@ This is more like it! Real food—not that **canned muck**. -
 **lollipop**.  
 Two kids can play on a **seesaw**.  
 For six months the war **seesawed**.  
-Oil platform workers are often called **roughnecks**. In Texas, many **roughnecks** have lost their jobs because of the drop in oil prices.   
+Oil platform workers are often called **roughnecks**. In Texas, many **roughnecks** have lost their jobs because of the drop in oil prices.  
 The **cello** is lower than the violin.  
 
 
@@ -310,7 +317,7 @@ We had roasted **pheasant** for dinner.
 
 My baby slept safe from harm in her **white wicker bassinet**. -  
 
-Most of its better buildings **predate** his rule. -  
+Most of its better buildings **predate** his rule.   
 India's special relationship with gold **predates** Covid-19, of course.  
 
 You have Google with **gazillions** of dollars at their disposal.  
@@ -318,13 +325,13 @@ He used a hammer and chisel to **chip away at the wall**.
 It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -  
 
 
-The **barbed** wire had **lacerated** her arm.   
+The **barbed** wire had **lacerated** her arm.  
 She was terribly **lacerated**—I may say, without exaggeration, literally flayed.  
 This **white-knuckle** **improvisation** was evident across Wall Street, too.  
 **indentured servitude**.  
 
 
-The paper gave all the **lurid details** of the murder. -  
+The paper gave all the **lurid details** of the murder.   
 
 ## Week 4 2024-05-26  
 
@@ -358,7 +365,7 @@ El Salvador’s seemingly **miraculous** **turnaround** has been largely **attri
 The country has been under **quasi-martial law** since 2022 and about 1.7% of the population is in prison.  
 They remained **impoverished** despite some **meager** economic investments from the US and Europe. -  
 The governments **lurched** between corrupt democracies and corrupt authoritarian dictatorships, usually with the backing of the local Catholic Church.  
-**Uprisings**, civil wars, and **border tussles** were common throughout the next 100+ years, though at least not on the scale of the massive civil wars **chronically** breaking out to the north in Mexico. -  
+**Uprisings**, civil wars, and **border tussles** were common throughout the next 100+ years, though at least not on the scale of the massive civil wars **chronically** breaking out to the north in Mexico.   
 The one eventual exception to the chaos was Costa Rica, which became a peaceful and fairly prosperous democracy after some impressive **statecraft** in the 1940s.  
 
 
@@ -489,7 +496,7 @@ How much political **fallout** will result from student protests over Gaza that 
 
 A **lasting reminder** to Bitcoin, not crypto.  
 
-Her case falls within the **ambit** of **moral law**. -  
+Her case falls within the **ambit** of **moral law**.   
 **leviathan**.  
 **instigate**.  
 I had veal **cutlets** for supper.  
@@ -559,7 +566,7 @@ As philosophy and science gradually broke away from theology, a new **Christian 
 Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**.  
 
 He **beguiled** me into signing this contract.  -  
-He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**.   
+He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**.  
 
 Huge **chimneys** belched forth smoke and grime.  
 
@@ -612,7 +619,7 @@ Parliament is seen as a **rubber stamp** for decisions made elsewhere.
 Japan Inc is no longer **in thrall to** America. - As the home of capitalism turns protectionist, Japan is opening up.  
 
 
-America, Israel and Hamas are trapped in a dangerous **impasse**.   
+America, Israel and Hamas are trapped in a dangerous **impasse**.  
 The six rules of **fire drills**.  
 Why are **embassies** supposed to be **inviolable**?  
 How one California beach town became Gavin Newsom’s **nemesis**. -  
