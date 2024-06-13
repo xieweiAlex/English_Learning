@@ -1,4 +1,8 @@
 
+**centered**
+
+**coy**
+
 **cornerstone**, **bedrock**  
 **capstone**, 
 

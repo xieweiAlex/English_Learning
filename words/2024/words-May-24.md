@@ -1,16 +1,17 @@
 
-He aims his bile at religion, drugs, and politics.  
-bile duct/acid  
-protease inhibitor  
-turd.  
-she changed from a carefree girl into a woman.  
-testimonial, testimony.  
-roll call.  
+**read between the lines**.  
+**coyly**. 
+**off the grid**.  
 
-
-fender bender.  
-standstill, halt, impasses, stalemate.  
-
+He aims his **bile** at religion, drugs, and politics.  
+**bile duct/acid**  
+**protease** inhibitor  
+**turd**.  
+she changed from a **carefree** girl into a woman.  
+**testimonial**, **testimony**.  
+**roll call**.  
+**fender bender**.  
+**standstill**, halt, impasses, **stalemate**.  
 
 Why you should **lose your temper** at work.  
 
