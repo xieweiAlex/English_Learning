@@ -1,4 +1,9 @@
 
+Suffering animals should be humanely euthanized on the farm.  
+Politicians around him grew rich, but Truman’s clothing business failed. He was punctilious about paying back every penny he owed.  
+losing myself in a captivating book.  
+
+
 **read between the lines**.  
 **coyly**. 
 **off the grid**.  
