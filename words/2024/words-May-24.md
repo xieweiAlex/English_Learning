@@ -1,6 +1,10 @@
 
-For many years the West has looked askance at the science coming out of China.  
-They were seen as imitators and intellectual-property thieves, rather than as innovators.  
+**orderly manner**. 
+**vicious** cycle.  
+**muddy** the information environment.  
+
+For many years the West has looked **askance** at the science coming out of China. -  
+They were seen as **imitators** and intellectual-property thieves, **rather than** as innovators.   
 
 China’s vehicle exports **quintupled** during the pandemic, and last year it reported 5M shipments.  
 European banks are making **heady** profits in Russia.  

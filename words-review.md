@@ -19,7 +19,7 @@ The **cusp** of a **crescent**. -
 His sense of humour allowed him to face adversaries with **equanimity**. -  
 What does all this **portend** for the near future?  -  
 This is more like it! Real food—not that **canned muck**. -  
-**tubal ligation**. -  
+**tubal ligation**.   
 One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense. -  
 Some mass media tend to please people of **plebeian** tastes. -  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
@@ -32,7 +32,7 @@ They remained **impoverished** despite some **meager** economic investments from
 Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
 The presentation was **rather prosaic**, with no innovative ideas. -  
 He gave an **ostentatious** yawn. -  
-He had a **aquiline nose** and **deep-set** brown eyes. -  
+He had a **aquiline nose** and **deep-set** brown eyes.   
 newly rich consumers eager to **flaunt** their prosperity. -  
 He **beguiled** me into signing this contract.  -  
 How one California beach town became Gavin Newsom’s **nemesis**. -  
