@@ -1,5 +1,17 @@
 ## words-May-24.md ##  
 words/2024/words-May-24.md  
+Dorothy had climbed onto the **ledge** outside his window. -  
+The law is often **tardy** in reacting to changing attitudes. -  
+The artist exploring the new is **liable to** **derision** and hostility. -  
+She accepted the criticism with **magnanimity**. -  
+He did not **instigate** the coup or even know of it beforehand. -  
+all the waiters were **suave** and **deferential**. -  
+For many years the West has looked **askance** at the science coming out of China. -  
+Suffering animals should be **humanely** **euthanized** on the farm. -  
+Politicians around him grew rich, but Truman’s clothing business failed. He was **punctilious** about paying back every penny he owed. -  
+she was **hypnotized** by the **mellow tone** of his voice. -  
+It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate. -  
+The experience was something he had tried to **expunge** from his memory. -  
 The government is changing the rules for claiming **dole**. -  
 It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate. -  
 He lives in a great, big, **desolate** old house **in the country** and no one goes near him. -  
@@ -19,7 +31,6 @@ The **cusp** of a **crescent**. -
 His sense of humour allowed him to face adversaries with **equanimity**. -  
 What does all this **portend** for the near future?  -  
 This is more like it! Real food—not that **canned muck**. -  
-**tubal ligation**.   
 One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense. -  
 Some mass media tend to please people of **plebeian** tastes. -  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
@@ -32,7 +43,7 @@ They remained **impoverished** despite some **meager** economic investments from
 Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
 The presentation was **rather prosaic**, with no innovative ideas. -  
 He gave an **ostentatious** yawn. -  
-He had a **aquiline nose** and **deep-set** brown eyes.   
+Senate sends **sweeping** foreign aid package to Biden's desk. -  
 newly rich consumers eager to **flaunt** their prosperity. -  
 He **beguiled** me into signing this contract.  -  
 How one California beach town became Gavin Newsom’s **nemesis**. -  

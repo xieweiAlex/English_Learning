@@ -1,10 +1,86 @@
 
-**orderly manner**. 
+**Canvassing** the blockchain… Trump has embraced crypto, both as a fundraising tool and as a constituency.  
+
+
+## Week 3 2024-06-16  
+**long-winded**.  
+**zing**.  
+
+
+Money **spawns** all sorts of wrongdoing, from cheating on income tax returns to killing parents for inheritances.  
+**dumb shit**  
+**Taiwan strait**.  
+**strait-laced**, **straight-laced**  
+Dorothy had climbed onto the **ledge** outside his window. -  
+The law is often **tardy** in reacting to changing attitudes. -  
+The artist exploring the new is **liable to** **derision** and hostility. -  
+**seagoing**.  
+She accepted the criticism with **magnanimity**. -  
+Elinor would not **vouchsafe** any answer.  
+
+I was numbed by the **enormity** of the responsibility.  
+the **enormity** of his intellect.  
+
+**Thwack**??  
+Their quarterly meetings were **anodyne affairs**.  
+He took some **anodyne** to relieve the pain.  
+
+I know this is an **imposition**. But please hear me out.  
+I'd like to stay if it's not too much of an **imposition**.  
+The rules of the game are an **arbitrary imposition** of difficulty.  
+**inexorably**.  
+**gobi deserts**.  
+**congenial surroundings**.  
+He did not **instigate** the coup or even know of it beforehand. -  
+
+
+**trade up**.  
+
+All I see is a bunch of statisticians analyzing people with **chariots**, and bows and arrows.  
+We show up with **explosives** and **aircraft**.  
+they try to **back test** their models and figure out  
+
+
+> As a **corollary** of this, the top 10% of Americans have 48% of the income, 71% of the wealth, and pay 76%, of the taxes, while the bottom 50% have 10% of the income, 1.5% of the wealth, and receive more money than they pay in taxes.  
+While we need a lot more empathy, logic, and **civility**, it looks like we will have more selfishness, emotion, and **discord**. If that doesn't improve, both the rich and the poor should feel threatened.  
+
+Waking up at night, tossing and turning, sweating **profusely**.  
+it was all **downhill from there**.  
+**trapeze**: a swing used by circus acrobats.  
+**dereliction of duty**.  
+Moving almost 20 times in 10 years meant I had to decide what I wanted to **keep or chuck**.  
+
+Granted **autonomy** to a national minority.  
+Tesla currently is in discussions to license its FSD software to one **automaker**.  
+While potentially a **monumental event** for Tesla, based on traditional automotive design to production timelines,  
+
+
+Judge Bradley **recused** himself from your case.  
+She's beautiful, **vivacious**, and charming.  
+His intellectual **eminence** carries with it corresponding moral responsibilities.  
+**lewd comments**.  
+That gravity and **levity** are somehow **at odds**.  
+In times of painful injustice, play brings the **levity** we need to be able to breathe.  
+**silica gel**.  
+
+all the waiters were **suave** and **deferential**. -  
+He is a **suave**, cool, and cultured man.  
+In conversation, he was **suave and urbane**.  
+**temptress**.  
+The **crock** is filled with wine.  
+he **crocked** a shoulder in the test against South Africa.  
+You could go on record- - I signed an **affidavit**.  
+a man of **facile** and **shallow intellect**.  
+a **facile** slogan **devised** by politicians.  
+They entered the shop, which was a curious **ramshackle** building.  
+
+
+**orderly manner**.  
 **vicious** cycle.  
 **muddy** the information environment.  
 
 For many years the West has looked **askance** at the science coming out of China. -  
-They were seen as **imitators** and intellectual-property thieves, **rather than** as innovators.   
+They were seen as **imitators** and intellectual-property thieves, **rather than** as innovators.  
 
 China’s vehicle exports **quintupled** during the pandemic, and last year it reported 5M shipments.  
 European banks are making **heady** profits in Russia.  
@@ -17,7 +93,7 @@ Politicians around him grew rich, but Truman’s clothing business failed. He wa
 losing myself in a **captivating** book.  
 
 **read between the lines**.  
-**coyly**. 
+**coyly**.  
 **off the grid**.  
 
 He aims his **bile** at religion, drugs, and politics.  
@@ -51,7 +127,6 @@ It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they co
 
 Since it is very cold at the top, **coverall** is required.  
 The experience was something he had tried to **expunge** from his memory. -  
-
 **old hand**, **light hand**  
 **sleight of hand**  
 
@@ -260,7 +335,7 @@ Chai tea contains **tannins**, which are naturally occurring **compounds** found
 The prisoner obtained a **commutation** of his sentence from death to life imprisonment.  
 I had my purse and **commutation** ticket stolen while I was sleeping in the train.  
 This is more like it! Real food—not that **canned muck**. -  
-**tubal ligation**. -  
+**tubal ligation**.  
 **trifles**.  
 **lollipop**.  
 Two kids can play on a **seesaw**.  
@@ -335,7 +410,7 @@ We had roasted **pheasant** for dinner.
 
 My baby slept safe from harm in her **white wicker bassinet**. -  
 
-Most of its better buildings **predate** his rule.   
+Most of its better buildings **predate** his rule.  
 India's special relationship with gold **predates** Covid-19, of course.  
 
 You have Google with **gazillions** of dollars at their disposal.  
@@ -349,7 +424,7 @@ This **white-knuckle** **improvisation** was evident across Wall Street, too.
 **indentured servitude**.  
 
 
-The paper gave all the **lurid details** of the murder.   
+The paper gave all the **lurid details** of the murder.  
 
 ## Week 4 2024-05-26  
 
@@ -383,7 +458,7 @@ El Salvador’s seemingly **miraculous** **turnaround** has been largely **attri
 The country has been under **quasi-martial law** since 2022 and about 1.7% of the population is in prison.  
 They remained **impoverished** despite some **meager** economic investments from the US and Europe. -  
 The governments **lurched** between corrupt democracies and corrupt authoritarian dictatorships, usually with the backing of the local Catholic Church.  
-**Uprisings**, civil wars, and **border tussles** were common throughout the next 100+ years, though at least not on the scale of the massive civil wars **chronically** breaking out to the north in Mexico.   
+**Uprisings**, civil wars, and **border tussles** were common throughout the next 100+ years, though at least not on the scale of the massive civil wars **chronically** breaking out to the north in Mexico.  
 The one eventual exception to the chaos was Costa Rica, which became a peaceful and fairly prosperous democracy after some impressive **statecraft** in the 1940s.  
 
 
@@ -514,7 +589,7 @@ How much political **fallout** will result from student protests over Gaza that 
 
 A **lasting reminder** to Bitcoin, not crypto.  
 
-Her case falls within the **ambit** of **moral law**.   
+Her case falls within the **ambit** of **moral law**.  
 **leviathan**.  
 **instigate**.  
 I had veal **cutlets** for supper.  
@@ -545,7 +620,7 @@ Another way to open up nasal passages is to dab mentholated **salve** under the 
 He reached down the **atlas** from the top shelf.  
 **spherical**.  
 **infidel**.  
-He had a **aquiline nose** and **deep-set** brown eyes. -  
+He had a **aquiline nose** and **deep-set** brown eyes.  
 
 **rubber and glue** argument.  
 play **rubber and glue**.  
