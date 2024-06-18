@@ -1,4 +1,11 @@
 
+But the **corollary** of better performance is higher pay. -  
+??
+
+Do you have the patience to wait till your mud settles and the water is clear? Can you remain unmoving till the right action arises by itself?  
+
+
+China’s giant solar industry is in turmoil - Overcapacity has caused prices—and profits—to tumble.   
 **Canvassing** the blockchain… Trump has embraced crypto, both as a fundraising tool and as a constituency.  
 
 
