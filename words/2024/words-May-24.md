@@ -1,11 +1,23 @@
 
+hydrogen peroxide.  
+
+cudgel, baton.  
+Do we need to upskill?
+grotesque facial distortions.  
+a lifestyle of grotesque luxury.  
+
+
+
+Many in mainstream science and medicine look at all this slightly **askance**.  
+He looked at her **askance**, and said nothing. -  
+
 But the **corollary** of better performance is higher pay. -  
 ??
 
-Do you have the patience to wait till your mud settles and the water is clear? Can you remain unmoving till the right action arises by itself?  
+Do you have the patience to wait till your mud settles and the water is clear? Can you remain **unmoving** till the right action arises by itself?  
 
 
-China’s giant solar industry is in turmoil - Overcapacity has caused prices—and profits—to tumble.   
+China’s giant solar industry is **in turmoil** - Overcapacity has caused prices—and profits—to **tumble**.   
 **Canvassing** the blockchain… Trump has embraced crypto, both as a fundraising tool and as a constituency.  
 
 
@@ -294,8 +306,7 @@ He’s accused of **swindling** more than $1 billion from investors in a complex
 **nervous system**.  
 **horrid**, **lurid**.  
 
-Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin.  
-
+Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin. -  
 
 **knuckhead**, **jughead**, **bonehead**, **meathead**, **loggerhead**  
 **hothead**, **crackhead**, **egghead**  
@@ -576,7 +587,7 @@ Why Do Most Indian Men Have a **Protruding** Potbelly?
 **gorilla**, **chimpanzee**.  
 
 **turf war**.  
-I was a little **miffed** about that.  
+I was a little **miffed** about that. -  
 
 a **beaming** smile.  
 the torch **beam** dimmed **perceptibly**.  
