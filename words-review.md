@@ -1,5 +1,7 @@
-## words-May-24.md ##  
-words/2024/words-May-24.md  
+## words-Jun-24.md ##  
+words/2024/words-Jun-24.md  
+He looked at her **askance**, and said nothing. -  
+But the **corollary** of better performance is higher pay. -  
 Dorothy had climbed onto the **ledge** outside his window. -  
 The law is often **tardy** in reacting to changing attitudes. -  
 The artist exploring the new is **liable to** **derision** and hostility. -  
@@ -23,6 +25,7 @@ You hear talk about American business being **flabby**. -
 Are some languages better than others? To ask a linguist such a question **is akin to** **blaspheming** to a **priest**. -  
 his assessment seems **cogent**. -  
 At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
+Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin. -  
 The beautiful and **dolorous** memory. -  
 There is an **acrid tone** to your **remarks**. -  
 **acrid**: harsh or **corrosive in tone**. -  
@@ -38,12 +41,16 @@ Everyone knows friends or family members who won’t speak to one another becaus
 The book's happy ending seemed **contrived**. -  
 My baby slept safe from harm in her **white wicker bassinet**. -  
 It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -  
+
+## words-May-24.md ##  
+words/2024/words-May-24.md  
 The **grafter** was constantly **haunted** by fear of discovery. -  
 They remained **impoverished** despite some **meager** economic investments from the US and Europe. -  
 Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
 The presentation was **rather prosaic**, with no innovative ideas. -  
 He gave an **ostentatious** yawn. -  
 Senate sends **sweeping** foreign aid package to Biden's desk. -  
+I was a little **miffed** about that. -  
 newly rich consumers eager to **flaunt** their prosperity. -  
 He **beguiled** me into signing this contract.  -  
 How one California beach town became Gavin Newsom’s **nemesis**. -  
