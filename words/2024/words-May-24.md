@@ -1,18 +1,23 @@
 
-hydrogen peroxide.  
+Launch us into the stratosphere.  
 
-cudgel, baton.  
-Do we need to upskill?
-grotesque facial distortions.  
-a lifestyle of grotesque luxury.  
+**stench**, **stink** 
+**pungent**, **tangy**
 
 
+**testimony**, **testimonial** . 
+
+**hydrogen peroxide**.  
+
+**cudgel**, **baton**.  
+Do we need to **upskill**?
+**grotesque** facial distortions.  
+a lifestyle of **grotesque** luxury.  
 
 Many in mainstream science and medicine look at all this slightly **askance**.  
 He looked at her **askance**, and said nothing. -  
 
 But the **corollary** of better performance is higher pay. -  
-??
 
 Do you have the patience to wait till your mud settles and the water is clear? Can you remain **unmoving** till the right action arises by itself?  
 
@@ -120,7 +125,6 @@ He aims his **bile** at religion, drugs, and politics.
 **protease** inhibitor  
 **turd**.  
 she changed from a **carefree** girl into a woman.  
-**testimonial**, **testimony**.  
 **roll call**.  
 **fender bender**.  
 **standstill**, halt, impasses, **stalemate**.  
