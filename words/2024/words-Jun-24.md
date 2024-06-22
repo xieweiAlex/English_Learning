@@ -1,4 +1,10 @@
 
+This repo is intended for recording all data pertaining to the Code Assistant track in the DX GenAI project.  
+
+exemplar, exemplary.  
+Mountain scenery is superb.  
+scenery, scenic.  
+
 An energy-rich future is within reach.  
 Lululemon’s US growth sours as athleisure rivals like Alo and Vuori make strides.  
 
@@ -11,10 +17,7 @@ pester, pesky.
 
 **stench**, **stink**  
 **pungent**, **tangy**  
-
-
 **testimony**, **testimonial** .  
-
 **hydrogen peroxide**.  
 
 **cudgel**, **baton**.  
