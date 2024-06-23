@@ -1,12 +1,19 @@
 ## words-Jun-24.md ##  
 words/2024/words-Jun-24.md  
+Her fellow teachers greeted her proposal with **scorn**. -  
+The weak countries were **agape and aghast**. -  
+**Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
+Heavy industry pollutes our rivers with **noxious** chemicals. -  
+**vile**: morally **reprehensible**. -  
+Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**. -  
+Everything is **hearsay** until the Thai government releases the details. -  
+**Launch** us into the **stratosphere**. -  
 He looked at her **askance**, and said nothing. -  
 But the **corollary** of better performance is higher pay. -  
 Dorothy had climbed onto the **ledge** outside his window. -  
 The law is often **tardy** in reacting to changing attitudes. -  
 The artist exploring the new is **liable to** **derision** and hostility. -  
 She accepted the criticism with **magnanimity**. -  
-He did not **instigate** the coup or even know of it beforehand. -  
 all the waiters were **suave** and **deferential**. -  
 For many years the West has looked **askance** at the science coming out of China. -  
 Suffering animals should be **humanely** **euthanized** on the farm. -  
@@ -14,7 +21,6 @@ Politicians around him grew rich, but Truman’s clothing business failed. He wa
 she was **hypnotized** by the **mellow tone** of his voice. -  
 It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate. -  
 The experience was something he had tried to **expunge** from his memory. -  
-The government is changing the rules for claiming **dole**. -  
 It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate. -  
 He lives in a great, big, **desolate** old house **in the country** and no one goes near him. -  
 If you get into any **dodgy** situations, call me. -  
@@ -31,25 +37,20 @@ There is an **acrid tone** to your **remarks**. -
 **acrid**: harsh or **corrosive in tone**. -  
 A **rasp** is a tool used for shaping wood or other material. -  
 The **cusp** of a **crescent**. -  
-His sense of humour allowed him to face adversaries with **equanimity**. -  
 What does all this **portend** for the near future?  -  
 This is more like it! Real food—not that **canned muck**. -  
 One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense. -  
 Some mass media tend to please people of **plebeian** tastes. -  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
-Everyone knows friends or family members who won’t speak to one another because of **long-held grudges**. -  
 The book's happy ending seemed **contrived**. -  
 My baby slept safe from harm in her **white wicker bassinet**. -  
-It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -  
 
 ## words-May-24.md ##  
 words/2024/words-May-24.md  
 The **grafter** was constantly **haunted** by fear of discovery. -  
-They remained **impoverished** despite some **meager** economic investments from the US and Europe. -  
 Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
 The presentation was **rather prosaic**, with no innovative ideas. -  
 He gave an **ostentatious** yawn. -  
-Senate sends **sweeping** foreign aid package to Biden's desk. -  
 I was a little **miffed** about that. -  
 newly rich consumers eager to **flaunt** their prosperity. -  
 He **beguiled** me into signing this contract.  -  
@@ -57,7 +58,6 @@ How one California beach town became Gavin Newsom’s **nemesis**. -
 
 ## words-Apr-24.md ##  
 words/2024/words-Apr-24.md  
-He **feigned** indifference to criticism of his work. -  
 He **pilfer** from a cash register. -  
 We **extort**, we **pilfer**, we **filch and sack**. -  
 If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -  

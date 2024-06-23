@@ -1,23 +1,81 @@
 
-This repo is intended for recording all data pertaining to the Code Assistant track in the DX GenAI project.  
 
-exemplar, exemplary.  
-Mountain scenery is superb.  
-scenery, scenic.  
+## Week 4  
 
-An energy-rich future is within reach.  
-Lululemon’s US growth sours as athleisure rivals like Alo and Vuori make strides.  
+> Get in the habit of normalizing unhappiness. When you feel unhappy, take a brief moment to remind yourself that it’s normal and okay to feel unhappy sometimes.  
 
-Juneteenth commemorates the day when enslaved Black people in Galveston, Texas, learned they were free 2½ years after the passing of the Emancipation Proclamation.  
-Everything is hearsay until the Thai government releases the details.  
+If something doesn’t work for you, stop beating yourself up. Find a different way to achieve the goal.  
+Musonius Rufus said many of our problems are a result of ‘following wretched habits.’ In this “fight against habit,” Epictetus would say, “try the opposite!”  
+But as the expression goes, there are many ways to skin a cat. In life, just hoping we will magically change is a dead end.  
+
+
+He also says the US needs to be cautious with its **words and deeds**.  
+But we have to remember that beautiful language **pales in comparison to** beautiful acts.  
+Marcus Aurelius said that what mattered was that we did the right thing, whether we were tired or hungry, cold or well-rested, **despised** or loved. But the reality shows us how hard this actually is.  
+
+**Comity**: an atmosphere of social harmony.  
+
+
+**harmonious**.  
+Her fellow teachers greeted her proposal with **scorn**. -  
+He was **scornful** of such 'female' activities as cooking.  
+
+They learned to **rappel** down a cliff.  
+
+
+He stood **aghast** at the sight of so much blood.  
+Look at Jesus' mouth, just **agape** in **speechless anguish**.  
+The weak countries were **agape and aghast**. -  
+
+**nuts and bolts**.  
+Tears **welled up** in Anni's eyes.  
+A mixture of gratitude and shame **welled up** in Harry.  
+
+
+**shellfish**, clam, clamshell, **scallop**.  
+**Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
+
+**vengeful**, **vengeance**, revenge, vendetta.  
+
+**malevolent**, **malice**, **devious**, **sinister**, **nefarious**, **menacing**, **nefarious**.  
+**unnerving**, **eerie**, unsettling.  
+**deleterious**, **detrimental**, **insidious**, **noxious**, **virulent**.  
+
+**egregious**  
+**benevolent**.  
+
+**fanatics**, **frenetics**.  
+
+**flagellation**: beating with a whip or **strap** or rope as a form of punishment  
+
+Petty crime is having a **deleterious** effect on community life.  
+Heavy industry pollutes our rivers with **noxious** chemicals. -  
+I become completely **self-absorbed** and I'm sort of a vicious, cruel, **vile** person.  
+a vicious, **vile** and **soulless** attack.  
+**vile**: morally **reprehensible**. -  
+Paul is a tedious, **self-absorbed** **jackass** who neglects his girlfriend.  
+
+This repo is intended for recording all data **pertaining to** the Code Assistant track in the DX GenAI project.  
+
+**exemplar**, **exemplary**.  
+Mountain **scenery** is superb.  
+**scenery**, **scenic**.  
+
+An energy-rich future is **within reach**.  
+Lululemon’s US growth sours as athleisure rivals like Alo and Vuori **make strides**.  
+
+Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**. -  
+Everything is **hearsay** until the Thai government releases the details. -  
 
 **Marginal propensity** to consume.  
-Launch us into the stratosphere.  
-pester, pesky.  
+**Launch** us into the **stratosphere**. -  
+**pester**, **pesky**.  
 
 **stench**, **stink**  
 **pungent**, **tangy**  
 **testimony**, **testimonial** .  
+**testament**.  
+
 **hydrogen peroxide**.  
 
 **cudgel**, **baton**.  
@@ -67,7 +125,7 @@ The rules of the game are an **arbitrary imposition** of difficulty.
 **inexorably**.  
 **gobi deserts**.  
 **congenial surroundings**.  
-He did not **instigate** the coup or even know of it beforehand. -  
+He did not **instigate** the coup or even know of it beforehand.   
 
 
 **trade up**.  
@@ -202,7 +260,7 @@ You made your choice when you **chased me away**!
 The ship has **undergone** a complete **refit**.  
 **Herpes** virus.  
 The owner was so **irate** he almost threw me out of the place.  
-The government is changing the rules for claiming **dole**. -  
+The government is changing the rules for claiming **dole**.   
 
 **kennel**, **colonel**.  
 His **irreverence** for authority marks him out as a **troublemaker**.  
@@ -354,7 +412,7 @@ He wanted to **rasp** the surface smooth.
 Please, ” Kate begs me in her **rasping**, **sore throat voice**.  
 
 The **cusp** of a **crescent**. -  
-His sense of humour allowed him to face adversaries with **equanimity**. -  
+His sense of humour allowed him to face adversaries with **equanimity**.   
 
 The rise and fall of empires is an **ineluctable** part of history.  
 Given the poor weather conditions, the cancellation of the outdoor event was **inevitable**.  
@@ -429,7 +487,7 @@ This young man had all the **inclination** to be a **profligate** of the first w
 Completely disregarding his own self-interest, Regulus recommended that the Roman Senate reject the peace offer. Since Carthage was weak—why else would they send him as leverage?—Rome, Regulus insisted, should **press on** and win the war.  
 It’s never been easier to **spout off** this argument or that one.  
 
-Everyone knows friends or family members who won’t speak to one another because of **long-held grudges**. -  
+Everyone knows friends or family members who won’t speak to one another because of **long-held grudges**.   
 > All healthy human babies and young children display curiosity, **suggesting** this is an **innate human trait**.  
 
 To **desecrate** a **holy spring** is considered **profanity**.  
@@ -449,7 +507,7 @@ India's special relationship with gold **predates** Covid-19, of course.
 
 You have Google with **gazillions** of dollars at their disposal.  
 He used a hammer and chisel to **chip away at the wall**.  
-It's very hard for a competiter to **dislodge** them, they're obviously very expensive. -  
+It's very hard for a competiter to **dislodge** them, they're obviously very expensive.   
 
 
 The **barbed** wire had **lacerated** her arm.  

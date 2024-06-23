@@ -53,7 +53,7 @@ Rather than **getting swept up** in the noise and narratives, we prefer to base 
 
 You might even want to **decant** a **full-bodied** white if you feel it's tasting a bit **funky** or not showing at its best.  
 Both these facts could easily be perceived as evidence of women getting the **short straw**.  
-He **feigned** indifference to criticism of his work. -  
+He **feigned** indifference to criticism of his work.   
 **sleeker**.  
 **barehanded**, **bareheaded**.  
 **succinct**, **concise**, **brief**, **descriptive**  

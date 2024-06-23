@@ -29,7 +29,7 @@ Maybe Peter doesn't take life seriously. He always seems to be **happy-go-lucky*
 **Long Johns** for women were first used to create a slimmer look.  
 El Salvador’s seemingly **miraculous** **turnaround** has been largely **attributed to** the efforts of President Nayib Bukele.  
 The country has been under **quasi-martial law** since 2022 and about 1.7% of the population is in prison.  
-They remained **impoverished** despite some **meager** economic investments from the US and Europe. -  
+They remained **impoverished** despite some **meager** economic investments from the US and Europe.   
 The governments **lurched** between corrupt democracies and corrupt authoritarian dictatorships, usually with the backing of the local Catholic Church.  
 **Uprisings**, civil wars, and **border tussles** were common throughout the next 100+ years, though at least not on the scale of the massive civil wars **chronically** breaking out to the north in Mexico.  
 The one eventual exception to the chaos was Costa Rica, which became a peaceful and fairly prosperous democracy after some impressive **statecraft** in the 1940s.  
@@ -130,7 +130,7 @@ The Xi-Putin partnership is not a **marriage of convenience**. - It is one of vi
 **killjoy**.  
 **recuperation**.  
 
-Senate sends **sweeping** foreign aid package to Biden's desk. -  
+Senate sends **sweeping** foreign aid package to Biden's desk.   
 We have **mooted** a rather different way to use such assets to support Ukraine.  
 California is **gripped** by economic problems, with no easy fix.  
 
