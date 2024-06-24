@@ -1,12 +1,46 @@
 
+a wretched idle layabout.  
+the wretched conditions of the slums.  
+
+
+I was totally **zoned out** the entire time.  
+Older people should not **skimp on** food or heating.  
+He was **blithely** unaware of the trouble he'd caused.   
+He drove with **blithe** disregard for the rules of the road. -  
+**untoward** jokes and racial remarks.  
+At least we've confirmed that they were up to something **untoward**.  
+carp, carper.  
+That's a load of baloney.  
+Rarely, if ever, does he sidestep a question. -  
+aquiculture, aquaculture.  
+
 
 ## Week 4  
 
+broach.  
+ignoble  
+plunder  
+tarmac.  
+A coral reef is built by the **accretion** of tiny, identical organisms.  
+**dilettante**.  
+I give myself treats and justify them to **salve** my **conscience**. -
+ornate.  
+The **momentary** relief was followed by worse suffering.  
+He was so **mulish** that my **admonitions** just **flowed over** him. -  
+For each title there is a brief **synopsis** of the book.  
+Musicians blast their **brassy jazz** from street corners.  
+This **antiseptic** is for external use only.  
+She **gargle** with an **antiseptic** mouthwash.  
+
+Miner and Exchange Reserves Hit New Lows as Bitcoin **Flounders**. 
+a **scheming**, manipulative little beast.  
+They were **scheming** to rob the bank.  
+
 > Get in the habit of normalizing unhappiness. When you feel unhappy, take a brief moment to remind yourself that it’s normal and okay to feel unhappy sometimes.  
 
-If something doesn’t work for you, stop beating yourself up. Find a different way to achieve the goal.  
-Musonius Rufus said many of our problems are a result of ‘following wretched habits.’ In this “fight against habit,” Epictetus would say, “try the opposite!”  
-But as the expression goes, there are many ways to skin a cat. In life, just hoping we will magically change is a dead end.  
+If something doesn’t work for you, stop **beating yourself up**. Find a different way to achieve the goal.  
+Musonius Rufus said many of our problems are a result of ‘following **wretched habits**.’ In this “fight against habit,” Epictetus would say, “try the opposite!” -    
+But as the expression goes, there are many ways to **skin a cat**. In life, just hoping we will magically change is a dead end.  
 
 
 He also says the US needs to be cautious with its **words and deeds**.  
@@ -388,7 +422,7 @@ Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin
 **warhead**, **beachhead**, **trailhead**, **dead ahead**  
 
 
-**rouchnecks**.  
+**roughneck**.  
 
 **crapper** ??  
 Come, come, come. You must be **famished**.  
