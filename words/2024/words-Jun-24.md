@@ -1,4 +1,14 @@
 
+Airdrops Should Give Way To A Better Token Distribution Method.  
+If you haven’t, we asked the RV bot for the funniest things he blurted out last time…  
+84% of last year’s US car sales were traditional gas guzzlers, their lowest-ever share of sales as the avenue gets more electric.  
+
+It's like a savings account with a crummy rate of returns, and when you die, they keep you money.  
+
+A fancy restaurant might also have snooty waiters.  
+
+
+
 a wretched idle layabout.  
 the wretched conditions of the slums.  
 
@@ -9,22 +19,23 @@ He was **blithely** unaware of the trouble he'd caused.
 He drove with **blithe** disregard for the rules of the road. -  
 **untoward** jokes and racial remarks.  
 At least we've confirmed that they were up to something **untoward**.  
-carp, carper.  
-That's a load of baloney.  
-Rarely, if ever, does he sidestep a question. -  
-aquiculture, aquaculture.  
+**carp**, **carper**.  
+That's **a load of baloney**. -   
+
+**Rarely, if ever**, does he **sidestep** a question. -  
+**aquiculture**, **aquaculture**.  
 
 
 ## Week 4  
 
-broach.  
-ignoble  
-plunder  
-tarmac.  
+**broach**.  
+**ignoble**. -    
+**plunder**  
+**tarmac**.  
 A coral reef is built by the **accretion** of tiny, identical organisms.  
 **dilettante**.  
 I give myself treats and justify them to **salve** my **conscience**. -
-ornate.  
+**ornate**. -   
 The **momentary** relief was followed by worse suffering.  
 He was so **mulish** that my **admonitions** just **flowed over** him. -  
 For each title there is a brief **synopsis** of the book.  
