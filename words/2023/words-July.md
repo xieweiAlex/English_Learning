@@ -582,7 +582,6 @@ Do you still **standby** this number?
 
 Scientists were startled by the sheer **desolation** of Mars.  
 
-**Requiem** of bank loans.  
 
 > **Undeterred** in challenging **spurious** or poorly framed arguments, they can be formidable debaters. It truly **pains** this type to see **falsities** and **fallacies** go unchallenged.  
 

@@ -1,17 +1,20 @@
 
-Airdrops Should Give Way To A Better Token Distribution Method.  
-If you haven’t, we asked the RV bot for the funniest things he blurted out last time…  
-84% of last year’s US car sales were traditional gas guzzlers, their lowest-ever share of sales as the avenue gets more electric.  
-
-It's like a savings account with a crummy rate of returns, and when you die, they keep you money.  
-
-A fancy restaurant might also have snooty waiters.  
+That would be Nirvana… but for all the talk of AI, at this point, there are no signs of productivity picking up.  
+the market may discount the Fed’s hawkish stance, leading to rallies — but there will be bumps along the way.  
 
 
+**Requiem** of bank loans.  
+They're a bunch of doddery old fools, and they were scared.  
 
-a wretched idle layabout.  
-the wretched conditions of the slums.  
+Airdrops Should **Give Way To** A Better Token Distribution Method.  
+If you haven’t, we asked the RV bot for the funniest things he **blurted** out last time…  
+84% of last year’s US car sales were traditional **gas guzzlers**, their lowest-ever share of sales as the avenue gets more electric.  
 
+It's like a savings account with a **crummy** rate of returns, and when you die, they keep you money.  
+A fancy restaurant might also have **snooty** waiters. -  
+
+a **wretched** idle layabout.  
+the **wretched** conditions of the slums.  
 
 I was totally **zoned out** the entire time.  
 Older people should not **skimp on** food or heating.  
