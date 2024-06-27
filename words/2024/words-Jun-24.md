@@ -1,5 +1,19 @@
 
 
+coquette.  
+intercede.  
+overtone.  
+The word has a pejorative overtone.   
+I thought you must be a humbug all along, from the conceited way you talked.   
+polemic, polemist.  
+truant.  
+sabre.  
+cremate, crematory.  
+
+Wikileaks has **kicked the hornet's nest**, and the swarm is headed towards us.  
+
+
+
 Tonight she **glitters** again in my space. -  
 **vulva**.  
 Most **mindless** **hooligans** are fueled by alcohol. -  
