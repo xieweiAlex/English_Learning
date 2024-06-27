@@ -35,10 +35,10 @@ Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin
 The beautiful and **dolorous** memory. -  
 There is an **acrid tone** to your **remarks**. -  
 **acrid**: harsh or **corrosive in tone**. -  
-A **rasp** is a tool used for shaping wood or other material. -  
+A **rasp** is a tool used for shaping wood or other material.   
 The **cusp** of a **crescent**. -  
 What does all this **portend** for the near future?  -  
-This is more like it! Real food—not that **canned muck**. -  
+This is more like it! Real food—not that **canned muck**.   
 One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense. -  
 Some mass media tend to please people of **plebeian** tastes. -  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
@@ -50,14 +50,14 @@ words/2024/words-May-24.md
 The **grafter** was constantly **haunted** by fear of discovery. -  
 Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
 The presentation was **rather prosaic**, with no innovative ideas. -  
-He gave an **ostentatious** yawn. -  
+He gave an **ostentatious** yawn.   
 I was a little **miffed** about that. -  
 newly rich consumers eager to **flaunt** their prosperity. -  
-He **beguiled** me into signing this contract.  -  
+He **beguiled** me into signing this contract.    
 How one California beach town became Gavin Newsom’s **nemesis**. -  
 
 ## words-Apr-24.md ##  
 words/2024/words-Apr-24.md  
-He **pilfer** from a cash register. -  
+He **pilfer** from a cash register.   
 We **extort**, we **pilfer**, we **filch and sack**. -  
 If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -  
