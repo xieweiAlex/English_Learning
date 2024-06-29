@@ -1,6 +1,26 @@
 
-How is your story coming along?   
-Haley's coming along really well, Mrs. Dunphy.  
+I can **attest** to the absolute truth of his story.  
+
+Bombs were exploding **all around** the city.   
+The wine list is **well-rounded** and **modestly priced**.   
+
+
+**ethology**, **zoology**.  
+**impedient**, **impede**, **impediment**.  
+**preface**, **foreword**, **prologue**, **preamble**.  
+**turnstile**.  
+
+**air your dirty laundry** in public.  
+Unfortunately for Patrick he wouldn't get away **scot-free** this time.  
+He was **affable** at one moment, **choleric** the next. -  
+**cuddly**.  
+**sewer**, **sewerage**.  
+**Amalgam**.  
+His elegance is a living **reproach** to our **slovenly** habits. -  
+
+**Mental anguish** and trauma.
+How is your story **coming along**?   
+Haley's **coming along** really well, Mrs. Dunphy.  
 I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -   
 
 **coquette**.  
