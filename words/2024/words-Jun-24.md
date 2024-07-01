@@ -1,9 +1,79 @@
 
-I can **attest** to the absolute truth of his story.  
+Before Joe Biden’s wretched showing in last night’s presidential debate, the most pressing question about November’s election was whether Mr Biden could beat Donald Trump. Now it’s whether he should run at all. - We think not.   
+But the only person who can take the president’s name off the ticket is Mr Biden himself.  
+Joe Biden should now give way to an alternative candidate.  
+Why big oil is wading into lithium. - What black gold and the white metal have in common
 
+
+## Week 5
+
+Let me disabuse you of that foolish idea.
+mortician.  
+
+She has a **palate** for wine.  
+Too much sweet food **cloys** the **palate**.  
+Here is a dish that will revive **jaded palates**.  
+She has a **discerning** **palate**.  
+
+
+**Profligate behavior** by government.  
+
+That having been said, I take all economic forecasting with **a grain of salt**. -   
+It is a tricky time for Christianity. Many Catholics are **vexed** because Pope Francis has modernised the church’s attitude towards blessings for same-sex couples. -  
+You are an **omnipotent**, **omniscient** deity.  
+Besides increasing resentments, **decadent spending** (as distinct from saving and investing) reduces productivity.  
+**Out of disorder and discontent** come leaders who have strong personalities, are anti-elitist, and claim to fight for the common man. They are called **populists**.  
+This dynamic is **impeding** free speech since people are afraid to speak up because of how they will be attacked in both traditional and social media by distortions that are meant to bring them down. -  
+
+**federalist democracies**.  
+Civil wars inevitably happen, so rather than assuming “it won’t happen here,” which most people in most countries assume after **an extended period** of not having them, it is better to **be wary of** them and look for the **markers** to indicate how close one is.  
+changed everything by **reinstating** the powers of a modernizing emperor.  
+How Civil Wars and Revolutions **Transpire**.  
+As previously mentioned, during the civil war/revolution stage of the cycle the governments in power almost always had an **acute shortage of money**, credit, and buying power.  
+
+Wim Hof has an official app which feels like a **money grab**.  
+
+There is a lot of **tectonic crosscurrents** going on.  
+
+
+Today “quant funds” hold nearly a third of the capital on Wall Street, yet few approach RenTech’s **stratospheric returns**.   
+The origin of the term "**crapper**" is often mistakenly **attributed to** Thomas Crapper, a plumber who popularized the flush toilet in the 19th century, although the term **predates** him.  
+
+**God forbid** you **sleep with a wet hair**, you don't wake up.   
+
+You know, you’re **not half bad** after all. I’ll be seeing you again soon.  
+This is only one of a **chorus** of such comments. Comments like these **beg questions** such....  
+it's better for them to **bide their time** while they are pushing their hard left agenda **behind the scenes**.  
+The Classic **Toxic Mix**.  
+But when the **haves** realize that they will be taxed to pay for debt service and to reduce the deficits, they **typically** leave, causing the **hollowing-out** process.  
+who appear **rich and decadent** to the **have-nots**.  
+
+**Babenberg dynasty**.  
+**dysbiosis**, **symbiosis**.  
+**mongrel**, **mutt**.  
+
+**decry**.  
+**pejorative**, **derogatory**, **disparaging**.  
+**coast**
+
+**Restless idleness**.  
+**perennially true**.  
+it actually **yields results**.  
+A **Machiavellian plot** was suspected.  -  
+You don't have to be **Machiavellian** when it comes to things like that, but a little strategy **goes a long way**.    
+It **encompasses** everything you want, and realizing those goals and those things that are the most important to you in life.  -  
+> People wear masks.  
+
+
+> It is truly **baffling** to think that these governments, which are **drowning in debt** and running massive **fiscal deficits**, are selling off a scarce asset for fiat that they themselves can print out of thin air.  
+
+I often **rock myself** or **fiddle with my hands** to feel better.
+I get **temper tantrums**, where others cannot reach me.
+I am often **beset** by **feelings of sadness**.  
+
+I can **attest** to the absolute truth of his story.  
 Bombs were exploding **all around** the city.   
 The wine list is **well-rounded** and **modestly priced**.   
-
 
 **ethology**, **zoology**.  
 **impedient**, **impede**, **impediment**.  
@@ -30,7 +100,8 @@ The word has a **pejorative** overtone.
 **polemic**, **polemist**.  
 **truant**.  
 **sabre**.  
-**cremate**, **crematory**.  
+**cremate**, **crematory**, **incinerate**.    
+
 
 Wikileaks has **kicked the hornet's nest**, and the swarm is headed towards us.  
 
