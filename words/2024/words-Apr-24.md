@@ -61,7 +61,7 @@ He **feigned** indifference to criticism of his work.
 **incantation**.  
 **propitious**, **auspicious**.   
 
-He **pilfer** from a cash register. -  
+He **pilfer** from a cash register.   
 We **extort**, we **pilfer**, we **filch and sack**. -  
 **heist**.  
 

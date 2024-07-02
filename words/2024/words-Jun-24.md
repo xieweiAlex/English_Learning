@@ -1,14 +1,15 @@
 
-Before Joe Biden’s wretched showing in last night’s presidential debate, the most pressing question about November’s election was whether Mr Biden could beat Donald Trump. Now it’s whether he should run at all. - We think not.   
+
+Before Joe Biden’s wretched showing in last night’s presidential debate, the most pressing question about November’s election was whether Mr Biden could beat Donald Trump. Now it’s whether he should run at all. - We think not.  
 But the only person who can take the president’s name off the ticket is Mr Biden himself.  
 Joe Biden should now give way to an alternative candidate.  
-Why big oil is wading into lithium. - What black gold and the white metal have in common
+Why big oil is wading into lithium. - What black gold and the white metal have in common  
 
 
-## Week 5
+## Week 5  
 
-Let me disabuse you of that foolish idea.
-mortician.  
+Let me **disabuse** you of that foolish idea.  
+**mortician**.  
 
 She has a **palate** for wine.  
 Too much sweet food **cloys** the **palate**.  
@@ -18,7 +19,7 @@ She has a **discerning** **palate**.
 
 **Profligate behavior** by government.  
 
-That having been said, I take all economic forecasting with **a grain of salt**. -   
+That having been said, I take all economic forecasting with **a grain of salt**. -  
 It is a tricky time for Christianity. Many Catholics are **vexed** because Pope Francis has modernised the church’s attitude towards blessings for same-sex couples. -  
 You are an **omnipotent**, **omniscient** deity.  
 Besides increasing resentments, **decadent spending** (as distinct from saving and investing) reduces productivity.  
@@ -36,10 +37,10 @@ Wim Hof has an official app which feels like a **money grab**.
 There is a lot of **tectonic crosscurrents** going on.  
 
 
-Today “quant funds” hold nearly a third of the capital on Wall Street, yet few approach RenTech’s **stratospheric returns**.   
+Today “quant funds” hold nearly a third of the capital on Wall Street, yet few approach RenTech’s **stratospheric returns**.  
 The origin of the term "**crapper**" is often mistakenly **attributed to** Thomas Crapper, a plumber who popularized the flush toilet in the 19th century, although the term **predates** him.  
 
-**God forbid** you **sleep with a wet hair**, you don't wake up.   
+**God forbid** you **sleep with a wet hair**, you don't wake up.  
 
 You know, you’re **not half bad** after all. I’ll be seeing you again soon.  
 This is only one of a **chorus** of such comments. Comments like these **beg questions** such....  
@@ -54,26 +55,26 @@ who appear **rich and decadent** to the **have-nots**.
 
 **decry**.  
 **pejorative**, **derogatory**, **disparaging**.  
-**coast**
+**coast**  
 
 **Restless idleness**.  
 **perennially true**.  
 it actually **yields results**.  
 A **Machiavellian plot** was suspected.  -  
-You don't have to be **Machiavellian** when it comes to things like that, but a little strategy **goes a long way**.    
+You don't have to be **Machiavellian** when it comes to things like that, but a little strategy **goes a long way**.  
 It **encompasses** everything you want, and realizing those goals and those things that are the most important to you in life.  -  
 > People wear masks.  
 
 
 > It is truly **baffling** to think that these governments, which are **drowning in debt** and running massive **fiscal deficits**, are selling off a scarce asset for fiat that they themselves can print out of thin air.  
 
-I often **rock myself** or **fiddle with my hands** to feel better.
-I get **temper tantrums**, where others cannot reach me.
+I often **rock myself** or **fiddle with my hands** to feel better.  
+I get **temper tantrums**, where others cannot reach me.  
 I am often **beset** by **feelings of sadness**.  
 
 I can **attest** to the absolute truth of his story.  
-Bombs were exploding **all around** the city.   
-The wine list is **well-rounded** and **modestly priced**.   
+Bombs were exploding **all around** the city.  
+The wine list is **well-rounded** and **modestly priced**.  
 
 **ethology**, **zoology**.  
 **impedient**, **impede**, **impediment**.  
@@ -88,19 +89,19 @@ He was **affable** at one moment, **choleric** the next. -
 **Amalgam**.  
 His elegance is a living **reproach** to our **slovenly** habits. -  
 
-**Mental anguish** and trauma.
-How is your story **coming along**?   
+**Mental anguish** and trauma.  
+How is your story **coming along**?  
 Haley's **coming along** really well, Mrs. Dunphy.  
-I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -   
+I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -  
 
 **coquette**.  
 **intercede**.  
 **overtone**.  
-The word has a **pejorative** overtone.   
+The word has a **pejorative** overtone.  
 **polemic**, **polemist**.  
 **truant**.  
 **sabre**.  
-**cremate**, **crematory**, **incinerate**.    
+**cremate**, **crematory**, **incinerate**.  
 
 
 Wikileaks has **kicked the hornet's nest**, and the swarm is headed towards us.  
@@ -111,7 +112,7 @@ Most **mindless** **hooligans** are fueled by alcohol. -
 **undulation**, **gyration**.  
 **banal**, **banality**.  
 **Parable**: any of the stories told by Jesus to convey his religious message.  
-The **minister** preached a **sermon** on **the parable of** the lost sheep.   
+The **minister** preached a **sermon** on **the parable of** the lost sheep.  
 
 
 That would be **Nirvana**… but for all the talk of AI, at this point, there are no signs of productivity **picking up**.  
@@ -134,12 +135,12 @@ the **wretched** conditions of the slums.
 
 I was totally **zoned out** the entire time.  
 Older people should not **skimp on** food or heating.  
-He was **blithely** unaware of the trouble he'd caused.   
+He was **blithely** unaware of the trouble he'd caused.  
 He drove with **blithe** disregard for the rules of the road. -  
 **untoward** jokes and racial remarks.  
 At least we've confirmed that they were up to something **untoward**.  
 **carp**, **carper**.  
-That's **a load of baloney**. -   
+That's **a load of baloney**. -  
 
 **Rarely, if ever**, does he **sidestep** a question. -  
 **aquiculture**, **aquaculture**.  
@@ -148,13 +149,13 @@ That's **a load of baloney**. -
 ## Week 4  
 
 **broach**.  
-**ignoble**. -    
+**ignoble**. -  
 **plunder**  
 **tarmac**.  
 A coral reef is built by the **accretion** of tiny, identical organisms.  
 **dilettante**.  
-I give myself treats and justify them to **salve** my **conscience**. -
-**ornate**. -   
+I give myself treats and justify them to **salve** my **conscience**. -  
+**ornate**. -  
 The **momentary** relief was followed by worse suffering.  
 He was so **mulish** that my **admonitions** just **flowed over** him. -  
 For each title there is a brief **synopsis** of the book.  
@@ -162,14 +163,14 @@ Musicians blast their **brassy jazz** from street corners.
 This **antiseptic** is for external use only.  
 She **gargle** with an **antiseptic** mouthwash.  
 
-Miner and Exchange Reserves Hit New Lows as Bitcoin **Flounders**. 
+Miner and Exchange Reserves Hit New Lows as Bitcoin **Flounders**.  
 a **scheming**, manipulative little beast.  
 They were **scheming** to rob the bank.  
 
 > Get in the habit of normalizing unhappiness. When you feel unhappy, take a brief moment to remind yourself that it’s normal and okay to feel unhappy sometimes.  
 
 If something doesn’t work for you, stop **beating yourself up**. Find a different way to achieve the goal.  
-Musonius Rufus said many of our problems are a result of ‘following **wretched habits**.’ In this “fight against habit,” Epictetus would say, “try the opposite!” -    
+Musonius Rufus said many of our problems are a result of ‘following **wretched habits**.’ In this “fight against habit,” Epictetus would say, “try the opposite!” -  
 But as the expression goes, there are many ways to **skin a cat**. In life, just hoping we will magically change is a dead end.  
 
 
@@ -229,7 +230,7 @@ An energy-rich future is **within reach**.
 Lululemon’s US growth sours as athleisure rivals like Alo and Vuori **make strides**.  
 
 Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**. -  
-Everything is **hearsay** until the Thai government releases the details. -  
+Everything is **hearsay** until the Thai government releases the details.   
 
 **Marginal propensity** to consume.  
 **Launch** us into the **stratosphere**. -  
@@ -289,7 +290,7 @@ The rules of the game are an **arbitrary imposition** of difficulty.
 **inexorably**.  
 **gobi deserts**.  
 **congenial surroundings**.  
-He did not **instigate** the coup or even know of it beforehand.   
+He did not **instigate** the coup or even know of it beforehand.  
 
 
 **trade up**.  
@@ -347,7 +348,7 @@ Markets celebrated the two bills’ passing, after protesters took to the street
 Louisiana could soon start **castrating** child-rapists.  
 
 Suffering animals should be **humanely** **euthanized** on the farm. -  
-Politicians around him grew rich, but Truman’s clothing business failed. He was **punctilious** about paying back every penny he owed. -  
+Politicians around him grew rich, but Truman’s clothing business failed. He was **punctilious** about paying back every penny he owed.   
 losing myself in a **captivating** book.  
 
 **read between the lines**.  
@@ -424,7 +425,7 @@ You made your choice when you **chased me away**!
 The ship has **undergone** a complete **refit**.  
 **Herpes** virus.  
 The owner was so **irate** he almost threw me out of the place.  
-The government is changing the rules for claiming **dole**.   
+The government is changing the rules for claiming **dole**.  
 
 **kennel**, **colonel**.  
 His **irreverence** for authority marks him out as a **troublemaker**.  
@@ -434,12 +435,12 @@ These are wonderfully **succulent** peaches.
 **leaf succulent**.  
 **kabab**.  
 **finger painting**.  
-He lives in a great, big, **desolate** old house **in the country** and no one goes near him. -  
+He lives in a great, big, **desolate** old house **in the country** and no one goes near him.   
 
 she's a real **ball buster** for me.  
 I **got my eye on you**, **buster**.  
 
-If you get into any **dodgy** situations, call me. -  
+If you get into any **dodgy** situations, call me.   
 A **dodgy** second-hand car salesman.  
 **visual impairment**, **hearing impairment**.  
 
@@ -544,7 +545,7 @@ He’s accused of **swindling** more than $1 billion from investors in a complex
 **nervous system**.  
 **horrid**, **lurid**.  
 
-Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin. -  
+Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin.   
 
 **knuckhead**, **jughead**, **bonehead**, **meathead**, **loggerhead**  
 **hothead**, **crackhead**, **egghead**  
@@ -557,7 +558,7 @@ Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin
 **crapper** ??  
 Come, come, come. You must be **famished**.  
 
-The beautiful and **dolorous** memory. -  
+The beautiful and **dolorous** memory.   
 > bang for the buck.  
 
 There is an **acrid tone** to your **remarks**. -  
@@ -570,13 +571,13 @@ Whole grain bread in in the supermarket is not whole grain, because the grains h
 
 ## Week 1 2024-06-02  
 
-A **rasp** is a tool used for shaping wood or other material. -  
+A **rasp** is a tool used for shaping wood or other material.   
 The tang is **joined** to a handle, usually made of plastic or wood. The bar has **sharp teeth**. Rasps generally cut more coarsely than files.  
 He wanted to **rasp** the surface smooth.  
 Please, ” Kate begs me in her **rasping**, **sore throat voice**.  
 
 The **cusp** of a **crescent**. -  
-His sense of humour allowed him to face adversaries with **equanimity**.   
+His sense of humour allowed him to face adversaries with **equanimity**.  
 
 The rise and fall of empires is an **ineluctable** part of history.  
 Given the poor weather conditions, the cancellation of the outdoor event was **inevitable**.  
@@ -590,7 +591,7 @@ Chai tea contains **tannins**, which are naturally occurring **compounds** found
 
 The prisoner obtained a **commutation** of his sentence from death to life imprisonment.  
 I had my purse and **commutation** ticket stolen while I was sleeping in the train.  
-This is more like it! Real food—not that **canned muck**. -  
+This is more like it! Real food—not that **canned muck**.   
 **tubal ligation**.  
 **trifles**.  
 **lollipop**.  
@@ -630,7 +631,7 @@ Peter **reckons** that if he and his younger son, who live hundreds of miles apa
 Just as I wouldn't take at **face value** a parent’s **depiction** of their parenting as flawless, I wouldn't assume an adult child’s claim that a parent is ‘toxic’ should be accepted **without further inquiry**”  
 
 But the system, built when there were only a handful of state-controlled telecoms companies, has become **woefully** **inadequate** for the mobile age, leaving dangerous vulnerabilities at the heart of international phone networks.  
-One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense. -  
+One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense.   
 
 
 **sulfur**.  
@@ -651,7 +652,7 @@ This young man had all the **inclination** to be a **profligate** of the first w
 Completely disregarding his own self-interest, Regulus recommended that the Roman Senate reject the peace offer. Since Carthage was weak—why else would they send him as leverage?—Rome, Regulus insisted, should **press on** and win the war.  
 It’s never been easier to **spout off** this argument or that one.  
 
-Everyone knows friends or family members who won’t speak to one another because of **long-held grudges**.   
+Everyone knows friends or family members who won’t speak to one another because of **long-held grudges**.  
 > All healthy human babies and young children display curiosity, **suggesting** this is an **innate human trait**.  
 
 To **desecrate** a **holy spring** is considered **profanity**.  
@@ -664,14 +665,14 @@ The **fire brigade** was called out twice last night.
 The book's happy ending seemed **contrived**. -  
 We had roasted **pheasant** for dinner.  
 
-My baby slept safe from harm in her **white wicker bassinet**. -  
+My baby slept safe from harm in her **white wicker bassinet**.   
 
 Most of its better buildings **predate** his rule.  
 India's special relationship with gold **predates** Covid-19, of course.  
 
 You have Google with **gazillions** of dollars at their disposal.  
 He used a hammer and chisel to **chip away at the wall**.  
-It's very hard for a competiter to **dislodge** them, they're obviously very expensive.   
+It's very hard for a competiter to **dislodge** them, they're obviously very expensive.  
 
 
 The **barbed** wire had **lacerated** her arm.  

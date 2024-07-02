@@ -56,7 +56,7 @@ I struggled to process how I was feeling, **held captive** by **accumulated** fr
 During the first few months of self-employment, I read an article that **jolted** my reality. Titled, “If work dominated your every moment, would life be worth living?”  
 
 My unease quickly **morphed into** a desire to escape.  
-The presentation was **rather prosaic**, with no innovative ideas. -  
+The presentation was **rather prosaic**, with no innovative ideas.   
 > Yes, prosaic is a commonly used word. It means dull, ordinary, or lacking in imagination.  
 
 **tradwives**, **tradfi**.  
@@ -86,7 +86,7 @@ The stormy weather could include heavy rainfall, large hail and damaging winds. 
 
 As I've continued to create, share and connect people, I’ve **tapped into** a hidden form of motivation, one that is invisible to others.  
 I've **softened my stance**.  
-He gave an **ostentatious** yawn. -  
+He gave an **ostentatious** yawn.   
 **peafowl**, **peahen**, peacock.  
 The good weather helped to make the occasion a **resounding success**.  
 **neurodegenerative**.  
@@ -215,7 +215,7 @@ I sounded like a **ditzy** blonde!
 **Tarzan**  
 **buster**.  
 **polyglot**, **polygon**.  
-newly rich consumers eager to **flaunt** their prosperity. -  
+newly rich consumers eager to **flaunt** their prosperity.   
 **tight ship**.  
 the **vertex** of an arch.  
 a **pompous** ass who pretends he knows everything.  
@@ -231,7 +231,7 @@ The **electorate** had grown **disenchanted** with politics.
 As philosophy and science gradually broke away from theology, a new **Christian piety** developed.  
 Christina was **brought up** as a **pious Anglican**, so most of her poems focus on love and **devotion**.  
 
-He **beguiled** me into signing this contract.  -  
+He **beguiled** me into signing this contract.    
 He didn't just insult and shout at his co-workers, but was proud of his **guile** and **vagary**.  
 
 Huge **chimneys** belched forth smoke and grime.  
