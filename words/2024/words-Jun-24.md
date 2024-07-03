@@ -1,4 +1,18 @@
 
+stern warning.  
+
+The onus is on employers to follow health and safety laws.   
+In my fever I had a long consistent delirium.   
+
+
+Many of Biden's most trusted aides believe the debate was just one bad night and expect it to **blow over**.   
+Rudy Giuliani was disbarred in New York over his efforts to overturn the 2020 election.  
+In contemporary usage, calling someone a "Grinch" means that the person is being miserly or is trying to spoil the fun or happiness of others, especially around the Christmas season.  
+In fact, some salads are smothered in high calorie dressings, which may make the salads even higher in calories than other items on the menu.  
+
+People probably thought Marcus Aurelius was a bit of a downer.   
+McRae’s observation is undoubtedly macabre. But there is also something beautiful, even reassuring about it. “The earth is mostly just a boneyard,” he says, completing his rumination. “But pretty in sunlight.”
+
 
 **Tremor**.  
 **aesthete**, **aesthetic**, **connoisseur**.  
