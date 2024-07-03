@@ -1,4 +1,10 @@
 
+bobby, bubby, booby.  
+The Middle Path here is to straddle between Samsara and nirvana.   
+heresy, heretics, heretical, blasphemy, 
+blasphemous and heretical talk.  
+
+
 stern warning.  
 
 The onus is on employers to follow health and safety laws.   
