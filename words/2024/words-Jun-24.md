@@ -1,9 +1,28 @@
 
 
-Before Joe Biden’s wretched showing in last night’s presidential debate, the most pressing question about November’s election was whether Mr Biden could beat Donald Trump. Now it’s whether he should run at all. - We think not.  
-But the only person who can take the president’s name off the ticket is Mr Biden himself.  
-Joe Biden should now give way to an alternative candidate.  
-Why big oil is wading into lithium. - What black gold and the white metal have in common  
+**Tremor**.  
+**aesthete**, **aesthetic**, **connoisseur**.  
+**fudge**, **flub**.  
+He would **immolate** himself for their noble cause. -  
+He knew it was a strategy with a high risk of **self-immolation**.  
+
+**bogus** vs fake  
+
+**inept**, **adept**, **versed**.   
+astute, shrewd, deft, savvy.  
+we have **canonized** freedom of speech as an absolute value **overriding** all others.
+
+**providence**, **providential**, **salvation**.  
+The dogs come and **devour** the bacon.  
+**carp**, **cavil**?? 
+**on the same wavelength**.  
+The **outlying** villages were formally **annexed** by the town last year.  
+
+
+Before Joe Biden’s **wretched** showing in last night’s presidential debate, the most **pressing question** about November’s election was whether Mr Biden could beat Donald Trump. Now it’s whether he should run at all. - **We think not**.  
+But the only person who can take the president’s name **off the ticket** is Mr Biden himself.  
+Joe Biden should now **give way** to an alternative candidate.  
+Why **big oil** is **wading into** lithium. - What **black gold and the white metal** have in common.  
 
 
 ## Week 5  
