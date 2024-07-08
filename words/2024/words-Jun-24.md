@@ -1,18 +1,29 @@
 
-I feel like I’ve told everyone within earshot at this point, but in case you haven’t heard... 
 
-Jealousy is a primal emotion.   
-he preys on people's primal fears.  
-the sea is the primal source of all living things on earth.  
-phony baloney.  
+**slovenly**.  
+**portly**.  
+**coffers**.  
+**circumcision**.  
+
+**antiquate**, **antiquity**, **ancient**, **antique**   
+**archaic**.  
+**obsolete**.  
+
+## Week 1
+
+I feel like I've told everyone within earshot at this point, but in case you haven’t heard...  
+And there's so much subtext behind all of it.
+
+Jealousy is a **primal** emotion. -   
+he preys on people's **primal fears**.  
+The sea is the **primal source** of all living things on earth.  
+**phony baloney**.  
 
 > “The Magic of Thinking Big”
 
-
-
 > When you factor in commissions, title fees, closing costs, and credits, you’re often left with less than you expected. And even if you *perfectly* time the real estate market, just look at the previous tops of the market over the last 20 years and where we are now. 
 
-He **parried** the unwelcome question very skilfully.  
+He **parried** the unwelcome question very **skilfully**.  
 **Pare down** your E-mail inbox.   
 **bedlam**.  
 
@@ -21,14 +32,13 @@ He **parried** the unwelcome question very skilfully.
 
 
 He's **setting up** this **patsy** to **take the fall**. -  
-They walked silently over the dewy grass.  
-I like to putter around in the garden.   
-You're too intelligent to fall for his flattery.   
-She started employing jazz players to execute more open, discursive forms.  
-on/off grid.  
-Often, both groups also live in ethnic enclaves.  
-This brings us to normative vs informational conformity.  
-
+They walked silently over the **dewy grass**.  
+I like to **putter around** in the garden. -   
+You're too intelligent to fall for his **flattery**.   
+She started employing jazz players to execute more open, **discursive** forms.  
+**on/off grid**.  
+Often, both groups also live in **ethnic enclaves**. -  
+This brings us to **normative** vs **informational conformity**.  
 
 
 > https://nymag.com/intelligencer/article/andrew-huberman-podcast-stanford-joe-rogan.html
@@ -38,15 +48,15 @@ This brings us to normative vs informational conformity.
 
 Today, Andrew Huberman is a **stiff**, **jacked** 48-year-old associate professor of neurology and **ophthalmology** at the Stanford University School of Medicine.  
 His podcast is **revelatory** largely because it does not condescend, which has not been the way of public-health information in our time.   
-He does not give the impression of someone diluting science to universally applicable sound bites for the slobbering masses.  
-I do have to choke back a little bit here.   
-The brain is a machine that needs tending. Our cells will benefit from the careful management of stress.  
-The subtext was always the same: We may live in chaos, but there are mechanisms of control.  
-She was dewy and strong and in her mid-40s, though she looked a decade younger, with two small kids from a previous relationship.  
-He was courtly and a bit formal, as he would later be on the podcast.  
-They cared immoderately about what went into their bodies.  
-He was devoted to his bullmastiff, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to dote on the dog, she says, and he liked to be doted on by Sarah.  
-“He in some ways disappeared,” says David Spiegel, a Stanford psychiatrist who calls Andrew “prodigiously smart” and “intensely engaging.”  
+He does not give the impression of someone **diluting** science to universally applicable **sound bites** for the **slobbering** masses.  
+I do have to **choke back** a little bit here.   
+The brain is a machine that needs **tending**. Our cells will benefit from the careful management of stress.  
+The **subtext** was always the same: We may live in chaos, but there are mechanisms of control.  
+She was **dewy** and strong and in her mid-40s, though she looked a decade younger, with two small kids from a previous relationship.  
+He was **courtly** and a bit formal, as he would later be on the podcast.  
+They cared **immoderately** about what went into their bodies.  
+He was **devoted** to his **bullmastiff**, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah. -  
+“He **in some ways** disappeared,” says David Spiegel, a Stanford psychiatrist who calls Andrew “**prodigiously smart**” and “intensely engaging.”  
 He **puttered** around Huberman’s place, buying a juice, walking through the neighborhood, waiting for him to return.   
 The relationship struck Sarah’s friends **as odd**.   
 he actually enjoys the opportunity to **pull the rug out** from under you.   
