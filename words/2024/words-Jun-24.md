@@ -1,24 +1,138 @@
 
-bobby, bubby, booby.  
-The Middle Path here is to straddle between Samsara and nirvana.   
-heresy, heretics, heretical, blasphemy, 
-blasphemous and heretical talk.  
+I feel like I’ve told everyone within earshot at this point, but in case you haven’t heard... 
+
+Jealousy is a primal emotion.   
+he preys on people's primal fears.  
+the sea is the primal source of all living things on earth.  
+phony baloney.  
+
+> “The Magic of Thinking Big”
 
 
-stern warning.  
 
-The onus is on employers to follow health and safety laws.   
-In my fever I had a long consistent delirium.   
+> When you factor in commissions, title fees, closing costs, and credits, you’re often left with less than you expected. And even if you *perfectly* time the real estate market, just look at the previous tops of the market over the last 20 years and where we are now. 
+
+He **parried** the unwelcome question very skilfully.  
+**Pare down** your E-mail inbox.   
+**bedlam**.  
+
+**baseline**
+**turncoat** 
 
 
-Many of Biden's most trusted aides believe the debate was just one bad night and expect it to **blow over**.   
-Rudy Giuliani was disbarred in New York over his efforts to overturn the 2020 election.  
-In contemporary usage, calling someone a "Grinch" means that the person is being miserly or is trying to spoil the fun or happiness of others, especially around the Christmas season.  
-In fact, some salads are smothered in high calorie dressings, which may make the salads even higher in calories than other items on the menu.  
+He's **setting up** this **patsy** to **take the fall**. -  
+They walked silently over the dewy grass.  
+I like to putter around in the garden.   
+You're too intelligent to fall for his flattery.   
+She started employing jazz players to execute more open, discursive forms.  
+on/off grid.  
+Often, both groups also live in ethnic enclaves.  
+This brings us to normative vs informational conformity.  
 
-People probably thought Marcus Aurelius was a bit of a downer.   
-McRae’s observation is undoubtedly macabre. But there is also something beautiful, even reassuring about it. “The earth is mostly just a boneyard,” he says, completing his rumination. “But pretty in sunlight.”
 
+
+> https://nymag.com/intelligencer/article/andrew-huberman-podcast-stanford-joe-rogan.html
+
+> “I love mechanism,” says Huberman; our feelings are integral to the apparatus. There are Huberman Husbands (men who optimize), a phenomenon not to be confused with #DaddyHuberman (used by women on TikTok in the man’s thrall).
+
+
+Today, Andrew Huberman is a **stiff**, **jacked** 48-year-old associate professor of neurology and **ophthalmology** at the Stanford University School of Medicine.  
+His podcast is **revelatory** largely because it does not condescend, which has not been the way of public-health information in our time.   
+He does not give the impression of someone diluting science to universally applicable sound bites for the slobbering masses.  
+I do have to choke back a little bit here.   
+The brain is a machine that needs tending. Our cells will benefit from the careful management of stress.  
+The subtext was always the same: We may live in chaos, but there are mechanisms of control.  
+She was dewy and strong and in her mid-40s, though she looked a decade younger, with two small kids from a previous relationship.  
+He was courtly and a bit formal, as he would later be on the podcast.  
+They cared immoderately about what went into their bodies.  
+He was devoted to his bullmastiff, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to dote on the dog, she says, and he liked to be doted on by Sarah.  
+“He in some ways disappeared,” says David Spiegel, a Stanford psychiatrist who calls Andrew “prodigiously smart” and “intensely engaging.”  
+He **puttered** around Huberman’s place, buying a juice, walking through the neighborhood, waiting for him to return.   
+The relationship struck Sarah’s friends **as odd**.   
+he actually enjoys the opportunity to **pull the rug out** from under you.   
+“I’d like to emphasize that this podcast,” he would say every episode, with his particular combination of formality and discursiveness, “is separate from my teaching and research roles at Stanford. It is, however, part of my desire and effort to bring zero-cost-to-consumer information about science and science-related tools to the general public.”  
+he brought people back to their **corporeal** selves.  
+Sarah began the first of several rounds of **IVF**.  
+According to Sarah, Andrew’s rage intensified with **cohabitation**.  
+Sarah was, in fact, changing. She felt herself getting smaller, constantly **appeasing**
+denies that he said being with her was like **bobbing for apples** **in feces**.  
+The first three rounds of **IVF** did not produce healthy **embryos**.   
+His **detractors** note that Huberman **extrapolates** wildly from limited animal studies, posits certainty where there is **ambiguity**, and stumbles when he **veers too far** from his narrow realm of study, but even they will tend to admit that the podcast is an **expansive**, free (or, as he puts it, “zero-cost”) **compendium** of human knowledge.   
+**gathering dust**.  
+It was in August 2022 that Sarah noticed she and Andrew could not go out without being **thronged** by people.    
+I’m back **on grid** tomorrow and would love to see you this weekend.  
+Eve is an **ethereally** beautiful actress, the kind of woman from whom it is hard to **look away**.  
+Where Sarah exudes a **winsome** chaotic energy, Eve is **intimidatingly** collected.  
+
+
+Each of the five was **assertive** and successful and educated and **sharp-witted**;  
+**In the aggregate**, Andrew’s **therapeutic** language took on a **sinister** edge.  
+says Wendy Zukerman in her bright **Aussie** accent, “a **wayward** childhood.  
+It was a wealthy place, the kind of setting where the word **au pair** comes up frequently. -  
+that seems like an example of somebody who has a, well, strong **aggressive drive** … and when disappointed, you know, **lashes back** or is passive.  
+
+> There’s some way in which the person doesn’t feel good enough no matter what this person has achieved. So then there is a sense of the need and the right to overcontrol.  
+
+This conversation extends for an extraordinary nine minutes, both men **egging each other on**, diagnosis after diagnosis, salient, perhaps, for reasons other than those the two identify.  
+
+2x is just a **launching pad** to 10x.  
+**horse and buggy**.  
+
+**intimation**.  
+**OPEC**.  
+**Admittedly**
+A **haughty** British **aristocrat**.  
+
+Finally, the notion of the "thought leader being inspirational at TED" hasn't **aged** well. It's seen as self-congratulatory, **formulaic** and ultimately vapid. -    
+
+**butthead**.  
+**chunksters**.  
+
+**Cosmic**, **comic**, **cosmetic**.  
+every **blade of grass**.  
+
+> There is a hidden cost to everything you own. Things don’t just cost you monetarily. They cost you mentally, too.  
+
+> The things we own, as the writer Chuck Palahniuk put in Fight Club, end up owning us. Because now we have to use it, we have to get our money’s worth out of that, we have to decide where to put it, how to take care of it, how to insure it. Some part of you is constantly carrying these and other subconscious mental burdens.  
+
+
+“If you can’t stop prizing a lot of other things,” Marcus wrote, “you’ll never be free—free, independent, **imperturbable**.  
+It can be the **wheel-barrow** that has a flat tire sitting out in the backyard.  
+
+Hopeful successes on the battlefield repeatedly followed by **dispiriting defeats**. The uncertainty of victory, **shrouded** in the certainty of death and misery and suffering for what could be years…  
+Serve with red onion, sliced grapefruit and **balsamic vinegar**.  
+
+
+She has a **penchant** for champagne. -  
+**shelf life**.  
+
+Link two of them together, and you've got a **disaccharide**, lactose, **maltose**, or **sucrose**. -  
+Table sugar, **sucrose**, is made up of one molecule of glucose and one molecule of fructose.  
+
+
+**might as well**.  
+
+**gainful employment**.  
+
+**bobby**, **bubby**, booby.  
+The Middle Path here is to **straddle** between **Samsara** and **nirvana**.  
+**heresy**, **heretics**, **heretical**, **blasphemy**,  
+**blasphemous** and **heretical talk**.  
+
+
+**stern warning**.  
+
+The **onus** is on employers to follow health and safety laws.  
+In my fever I had a long consistent **delirium**. -  
+
+
+Many of Biden's most trusted aides believe the debate was just one bad night and expect it to **blow over**.  
+Rudy Giuliani was **disbarred** in New York over his efforts to overturn the 2020 election.  
+In **contemporary** usage, calling someone a "**Grinch**" means that the person is being **miserly** or is trying to spoil the fun or happiness of others, especially around the Christmas season.  
+In fact, some salads are **smothered** in high calorie dressings, which may make the salads even higher in calories than other items on the menu.  
+
+People probably thought Marcus Aurelius was a bit of a **downer**.  
+McRae’s observation is undoubtedly **macabre**. But there is also something beautiful, even **reassuring** about it. “The earth is mostly just a **boneyard**,” he says, completing his **rumination**. “But pretty in sunlight.”  
 
 **Tremor**.  
 **aesthete**, **aesthetic**, **connoisseur**.  
@@ -28,13 +142,13 @@ He knew it was a strategy with a high risk of **self-immolation**.
 
 **bogus** vs fake  
 
-**inept**, **adept**, **versed**.   
-astute, shrewd, deft, savvy.  
-we have **canonized** freedom of speech as an absolute value **overriding** all others.
+**inept**, **adept**, **versed**.  
+**astute**, **shrewd**, **deft**, **savvy**.  
+we have **canonized** freedom of speech as an absolute value **overriding** all others.  
 
 **providence**, **providential**, **salvation**.  
 The dogs come and **devour** the bacon.  
-**carp**, **cavil**?? 
+**carp**, **cavil**??  
 **on the same wavelength**.  
 The **outlying** villages were formally **annexed** by the town last year.  
 
@@ -229,7 +343,7 @@ They learned to **rappel** down a cliff.
 
 He stood **aghast** at the sight of so much blood.  
 Look at Jesus' mouth, just **agape** in **speechless anguish**.  
-The weak countries were **agape and aghast**. -  
+The weak countries were **agape and aghast**.   
 
 **nuts and bolts**.  
 Tears **welled up** in Anni's eyes.  
@@ -253,7 +367,7 @@ A mixture of gratitude and shame **welled up** in Harry.
 **flagellation**: beating with a whip or **strap** or rope as a form of punishment  
 
 Petty crime is having a **deleterious** effect on community life.  
-Heavy industry pollutes our rivers with **noxious** chemicals. -  
+Heavy industry pollutes our rivers with **noxious** chemicals.   
 I become completely **self-absorbed** and I'm sort of a vicious, cruel, **vile** person.  
 a vicious, **vile** and **soulless** attack.  
 **vile**: morally **reprehensible**. -  
@@ -269,7 +383,7 @@ An energy-rich future is **within reach**.
 Lululemon’s US growth sours as athleisure rivals like Alo and Vuori **make strides**.  
 
 Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**. -  
-Everything is **hearsay** until the Thai government releases the details.   
+Everything is **hearsay** until the Thai government releases the details.  
 
 **Marginal propensity** to consume.  
 **Launch** us into the **stratosphere**. -  
@@ -290,7 +404,7 @@ a lifestyle of **grotesque** luxury.
 Many in mainstream science and medicine look at all this slightly **askance**.  
 He looked at her **askance**, and said nothing. -  
 
-But the **corollary** of better performance is higher pay. -  
+But the **corollary** of better performance is higher pay.   
 
 Do you have the patience to wait till your mud settles and the water is clear? Can you remain **unmoving** till the right action arises by itself?  
 
@@ -387,7 +501,7 @@ Markets celebrated the two bills’ passing, after protesters took to the street
 Louisiana could soon start **castrating** child-rapists.  
 
 Suffering animals should be **humanely** **euthanized** on the farm. -  
-Politicians around him grew rich, but Truman’s clothing business failed. He was **punctilious** about paying back every penny he owed.   
+Politicians around him grew rich, but Truman’s clothing business failed. He was **punctilious** about paying back every penny he owed.  
 losing myself in a **captivating** book.  
 
 **read between the lines**.  
@@ -420,7 +534,7 @@ The Egyptians offered **resolute** resistance to the aggressors.
 
 **dull ache**  
 
-It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate. -  
+It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate.   
 
 Since it is very cold at the top, **coverall** is required.  
 The experience was something he had tried to **expunge** from his memory. -  
@@ -474,12 +588,12 @@ These are wonderfully **succulent** peaches.
 **leaf succulent**.  
 **kabab**.  
 **finger painting**.  
-He lives in a great, big, **desolate** old house **in the country** and no one goes near him.   
+He lives in a great, big, **desolate** old house **in the country** and no one goes near him.  
 
 she's a real **ball buster** for me.  
 I **got my eye on you**, **buster**.  
 
-If you get into any **dodgy** situations, call me.   
+If you get into any **dodgy** situations, call me.  
 A **dodgy** second-hand car salesman.  
 **visual impairment**, **hearing impairment**.  
 
@@ -584,7 +698,7 @@ He’s accused of **swindling** more than $1 billion from investors in a complex
 **nervous system**.  
 **horrid**, **lurid**.  
 
-Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin.   
+Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin.  
 
 **knuckhead**, **jughead**, **bonehead**, **meathead**, **loggerhead**  
 **hothead**, **crackhead**, **egghead**  
@@ -597,7 +711,7 @@ Poles and Ukrainians are **at loggerheads**, that's good news for Vladimir Putin
 **crapper** ??  
 Come, come, come. You must be **famished**.  
 
-The beautiful and **dolorous** memory.   
+The beautiful and **dolorous** memory.  
 > bang for the buck.  
 
 There is an **acrid tone** to your **remarks**. -  
@@ -610,7 +724,7 @@ Whole grain bread in in the supermarket is not whole grain, because the grains h
 
 ## Week 1 2024-06-02  
 
-A **rasp** is a tool used for shaping wood or other material.   
+A **rasp** is a tool used for shaping wood or other material.  
 The tang is **joined** to a handle, usually made of plastic or wood. The bar has **sharp teeth**. Rasps generally cut more coarsely than files.  
 He wanted to **rasp** the surface smooth.  
 Please, ” Kate begs me in her **rasping**, **sore throat voice**.  
@@ -630,7 +744,7 @@ Chai tea contains **tannins**, which are naturally occurring **compounds** found
 
 The prisoner obtained a **commutation** of his sentence from death to life imprisonment.  
 I had my purse and **commutation** ticket stolen while I was sleeping in the train.  
-This is more like it! Real food—not that **canned muck**.   
+This is more like it! Real food—not that **canned muck**.  
 **tubal ligation**.  
 **trifles**.  
 **lollipop**.  
@@ -670,7 +784,7 @@ Peter **reckons** that if he and his younger son, who live hundreds of miles apa
 Just as I wouldn't take at **face value** a parent’s **depiction** of their parenting as flawless, I wouldn't assume an adult child’s claim that a parent is ‘toxic’ should be accepted **without further inquiry**”  
 
 But the system, built when there were only a handful of state-controlled telecoms companies, has become **woefully** **inadequate** for the mobile age, leaving dangerous vulnerabilities at the heart of international phone networks.  
-One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense.   
+One reason is that filtering is technically complicated and can easily go wrong if important commands are blocked. Another is that firms have **balked at** the expense.  
 
 
 **sulfur**.  
@@ -682,7 +796,7 @@ One reason is that filtering is technically complicated and can easily go wrong 
 
 Senate sends **sweeping** foreign aid package to Biden's desk.  
 
-Some mass media tend to please people of **plebeian** tastes. -  
+Some mass media tend to please people of **plebeian** tastes.   
 We ought to use the **pluperfect** and say wakened, but woke is better and was always used by Peter.  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
 
@@ -704,7 +818,7 @@ The **fire brigade** was called out twice last night.
 The book's happy ending seemed **contrived**. -  
 We had roasted **pheasant** for dinner.  
 
-My baby slept safe from harm in her **white wicker bassinet**.   
+My baby slept safe from harm in her **white wicker bassinet**.  
 
 Most of its better buildings **predate** his rule.  
 India's special relationship with gold **predates** Covid-19, of course.  

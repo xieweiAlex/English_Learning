@@ -21,14 +21,11 @@ I give myself treats and justify them to **salve** my **conscience**. -
 He was so **mulish** that my **admonitions** just **flowed over** him. -  
 Musonius Rufus said many of our problems are a result of ‘following **wretched habits**.’ In this “fight against habit,” Epictetus would say, “try the opposite!” -  
 Her fellow teachers greeted her proposal with **scorn**. -  
-The weak countries were **agape and aghast**. -  
 **Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
-Heavy industry pollutes our rivers with **noxious** chemicals. -  
 **vile**: morally **reprehensible**. -  
 Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**. -  
 **Launch** us into the **stratosphere**. -  
 He looked at her **askance**, and said nothing. -  
-But the **corollary** of better performance is higher pay. -  
 Dorothy had climbed onto the **ledge** outside his window. -  
 The law is often **tardy** in reacting to changing attitudes. -  
 The artist exploring the new is **liable to** **derision** and hostility. -  
@@ -37,7 +34,6 @@ all the waiters were **suave** and **deferential**. -
 For many years the West has looked **askance** at the science coming out of China. -  
 Suffering animals should be **humanely** **euthanized** on the farm. -  
 she was **hypnotized** by the **mellow tone** of his voice. -  
-It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate. -  
 The experience was something he had tried to **expunge** from his memory. -  
 It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate. -  
 The **plaintiff** can now more clearly show **culpability**. -  
@@ -51,14 +47,11 @@ There is an **acrid tone** to your **remarks**. -
 **acrid**: harsh or **corrosive in tone**. -  
 The **cusp** of a **crescent**. -  
 What does all this **portend** for the near future?  -  
-Some mass media tend to please people of **plebeian** tastes. -  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
 The book's happy ending seemed **contrived**. -  
 
 ## words-May-24.md ##  
 words/2024/words-May-24.md  
-The **grafter** was constantly **haunted** by fear of discovery. -  
-Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
 I was a little **miffed** about that. -  
 How one California beach town became Gavin Newsom’s **nemesis**. -  
 

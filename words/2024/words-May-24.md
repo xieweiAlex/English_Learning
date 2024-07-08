@@ -9,7 +9,7 @@ faced **plywood**.
 
 **graft new customs onto old**.  
 bone/skin **graft**.  
-The **grafter** was constantly **haunted** by fear of discovery. -  
+The **grafter** was constantly **haunted** by fear of discovery.   
 
 
 Most worms **cocoon** in winter.  
@@ -49,7 +49,7 @@ Together, these developments point to a **perilous period** ahead.
 
 China’s version of **levelling up** is not going well. - Will its vast **hinterland** ever catch up with its wealthy coast?  
 
-Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip. -  
+Simply put, I was a **curmudgeon** at work, increasingly **cynical** about the intentions of leaders, not learning anything beyond the latest office gossip.   
 I had no conscious intention to quit right then, but I couldn’t **muster up** a single ounce of energy to tell him otherwise.  
 In those final months, I was in a **liminal space** between two worlds. I had decided to **take a leap** to a different path but had not yet changed direction.  
 I struggled to process how I was feeling, **held captive** by **accumulated** frustration and anxiety.  
