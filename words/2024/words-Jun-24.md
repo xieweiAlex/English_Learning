@@ -1,4 +1,7 @@
 
+One of the demonstrators, a young woman, sat forlorn on the sidewalk. 
+forlorn hope.  
+
 
 **slovenly**.  
 **portly**.  
