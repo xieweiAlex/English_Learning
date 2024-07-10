@@ -1,17 +1,24 @@
 
-exorcise, exorcist.  
 
-The cold weather put a damper on our plans.  
-Nothing seems to dampen his perpetual enthusiasm.  
-clench one's teeth; clenched my fists in anger.  
-Her hands clenched involuntarily.  
-gaudy.  
-Yet Amazon still retains one big advantage: its vast online book emporium.  
-camellia.  
-coagulate.  
-inflexion point.  
-verisimilar.  
-she was in a jovial mood.  
+Do not treat them **flippantly**. -  
+that **amateurs** can afford to be **flippant**, professionals have to be much more disciplined. -  
+She wasn’t telling her friend to be dishonest, but she was telling him to be **considerate and circumspect** when he opened his mouth.  
+A citizen can **pop off** on Twitter, a journalist has to **keep their opinions to themselves** (if they want to retain their credibility).  
+A **grunt** can complain and whine, a leader cannot. 
+
+**exorcise**, **exorcist**.  
+
+The cold weather put a **damper** on our plans.  
+Nothing seems to **dampen** his perpetual enthusiasm.  
+**clench one's teeth**; **clenched** my fists in anger.  
+Her hands **clenched** **involuntarily**.  
+**gaudy**.  
+Yet Amazon still retains one big advantage: its vast online book **emporium**.  
+**camellia**.  
+**coagulate**.  
+**inflexion point**.  
+**verisimilar**.  
+she was in a **jovial** mood. -  
 
 
 One of the demonstrators, a young woman, sat **forlorn** on the **sidewalk**.  
