@@ -1,58 +1,76 @@
 
-One of the demonstrators, a young woman, sat forlorn on the sidewalk. 
-forlorn hope.  
+exorcise, exorcist.  
 
+The cold weather put a damper on our plans.  
+Nothing seems to dampen his perpetual enthusiasm.  
+clench one's teeth; clenched my fists in anger.  
+Her hands clenched involuntarily.  
+gaudy.  
+Yet Amazon still retains one big advantage: its vast online book emporium.  
+camellia.  
+coagulate.  
+inflexion point.  
+verisimilar.  
+she was in a jovial mood.  
+
+
+One of the demonstrators, a young woman, sat **forlorn** on the **sidewalk**.  
+**forlorn hope**.  
+
+Shampoo contains **cleansing agents** — basically, **detergents** — that clean **impurities** off your hair.  
+Restaurant chains are feeling **compelled** to put the "value" back into the value meal after years of price hikes have **hampered** sales, and McDonald's is under particularly **acute pressure**.  
+Hunter was accused of illegally purchasing and possessing a firearm in October 2018 while using a **narcotic**. -  
 
 **slovenly**.  
 **portly**.  
 **coffers**.  
 **circumcision**.  
 
-**antiquate**, **antiquity**, **ancient**, **antique**   
+**antiquate**, **antiquity**, **ancient**, **antique**  
 **archaic**.  
 **obsolete**.  
 
-## Week 1
+## Week 1  
 
-I feel like I've told everyone within earshot at this point, but in case you haven’t heard...  
-And there's so much subtext behind all of it.
+I feel like I've told everyone **within earshot** at this point, but in case you haven’t heard...  
+And there's so much **subtext** behind all of it.  
 
-Jealousy is a **primal** emotion. -   
+Jealousy is a **primal** emotion. -  
 he preys on people's **primal fears**.  
 The sea is the **primal source** of all living things on earth.  
 **phony baloney**.  
 
-> “The Magic of Thinking Big”
+> “The Magic of Thinking Big”  
 
-> When you factor in commissions, title fees, closing costs, and credits, you’re often left with less than you expected. And even if you *perfectly* time the real estate market, just look at the previous tops of the market over the last 20 years and where we are now. 
+> When you factor in commissions, title fees, closing costs, and credits, you’re often left with less than you expected. And even if you *perfectly* time the real estate market, just look at the previous tops of the market over the last 20 years and where we are now.  
 
 He **parried** the unwelcome question very **skilfully**.  
-**Pare down** your E-mail inbox.   
+**Pare down** your E-mail inbox.  
 **bedlam**.  
 
-**baseline**
-**turncoat** 
+**baseline**  
+**turncoat**  
 
 
 He's **setting up** this **patsy** to **take the fall**. -  
 They walked silently over the **dewy grass**.  
-I like to **putter around** in the garden. -   
-You're too intelligent to fall for his **flattery**.   
+I like to **putter around** in the garden. -  
+You're too intelligent to fall for his **flattery**.  
 She started employing jazz players to execute more open, **discursive** forms.  
 **on/off grid**.  
 Often, both groups also live in **ethnic enclaves**. -  
 This brings us to **normative** vs **informational conformity**.  
 
 
-> https://nymag.com/intelligencer/article/andrew-huberman-podcast-stanford-joe-rogan.html
+> https://nymag.com/intelligencer/article/andrew-huberman-podcast-stanford-joe-rogan.html  
 
-> “I love mechanism,” says Huberman; our feelings are integral to the apparatus. There are Huberman Husbands (men who optimize), a phenomenon not to be confused with #DaddyHuberman (used by women on TikTok in the man’s thrall).
+> “I love mechanism,” says Huberman; our feelings are integral to the apparatus. There are Huberman Husbands (men who optimize), a phenomenon not to be confused with #DaddyHuberman (used by women on TikTok in the man’s thrall).  
 
 
 Today, Andrew Huberman is a **stiff**, **jacked** 48-year-old associate professor of neurology and **ophthalmology** at the Stanford University School of Medicine.  
-His podcast is **revelatory** largely because it does not condescend, which has not been the way of public-health information in our time.   
+His podcast is **revelatory** largely because it does not condescend, which has not been the way of public-health information in our time.  
 He does not give the impression of someone **diluting** science to universally applicable **sound bites** for the **slobbering** masses.  
-I do have to **choke back** a little bit here.   
+I do have to **choke back** a little bit here.  
 The brain is a machine that needs **tending**. Our cells will benefit from the careful management of stress.  
 The **subtext** was always the same: We may live in chaos, but there are mechanisms of control.  
 She was **dewy** and strong and in her mid-40s, though she looked a decade younger, with two small kids from a previous relationship.  
@@ -60,19 +78,19 @@ He was **courtly** and a bit formal, as he would later be on the podcast.
 They cared **immoderately** about what went into their bodies.  
 He was **devoted** to his **bullmastiff**, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah. -  
 “He **in some ways** disappeared,” says David Spiegel, a Stanford psychiatrist who calls Andrew “**prodigiously smart**” and “intensely engaging.”  
-He **puttered** around Huberman’s place, buying a juice, walking through the neighborhood, waiting for him to return.   
-The relationship struck Sarah’s friends **as odd**.   
-he actually enjoys the opportunity to **pull the rug out** from under you.   
+He **puttered** around Huberman’s place, buying a juice, walking through the neighborhood, waiting for him to return.  
+The relationship struck Sarah’s friends **as odd**.  
+he actually enjoys the opportunity to **pull the rug out** from under you.  
 “I’d like to emphasize that this podcast,” he would say every episode, with his particular combination of formality and discursiveness, “is separate from my teaching and research roles at Stanford. It is, however, part of my desire and effort to bring zero-cost-to-consumer information about science and science-related tools to the general public.”  
 he brought people back to their **corporeal** selves.  
 Sarah began the first of several rounds of **IVF**.  
 According to Sarah, Andrew’s rage intensified with **cohabitation**.  
-Sarah was, in fact, changing. She felt herself getting smaller, constantly **appeasing**
+Sarah was, in fact, changing. She felt herself getting smaller, constantly **appeasing**  
 denies that he said being with her was like **bobbing for apples** **in feces**.  
-The first three rounds of **IVF** did not produce healthy **embryos**.   
-His **detractors** note that Huberman **extrapolates** wildly from limited animal studies, posits certainty where there is **ambiguity**, and stumbles when he **veers too far** from his narrow realm of study, but even they will tend to admit that the podcast is an **expansive**, free (or, as he puts it, “zero-cost”) **compendium** of human knowledge.   
+The first three rounds of **IVF** did not produce healthy **embryos**.  
+His **detractors** note that Huberman **extrapolates** wildly from limited animal studies, posits certainty where there is **ambiguity**, and stumbles when he **veers too far** from his narrow realm of study, but even they will tend to admit that the podcast is an **expansive**, free (or, as he puts it, “zero-cost”) **compendium** of human knowledge.  
 **gathering dust**.  
-It was in August 2022 that Sarah noticed she and Andrew could not go out without being **thronged** by people.    
+It was in August 2022 that Sarah noticed she and Andrew could not go out without being **thronged** by people.  
 I’m back **on grid** tomorrow and would love to see you this weekend.  
 Eve is an **ethereally** beautiful actress, the kind of woman from whom it is hard to **look away**.  
 Where Sarah exudes a **winsome** chaotic energy, Eve is **intimidatingly** collected.  
@@ -93,10 +111,10 @@ This conversation extends for an extraordinary nine minutes, both men **egging e
 
 **intimation**.  
 **OPEC**.  
-**Admittedly**
+**Admittedly**  
 A **haughty** British **aristocrat**.  
 
-Finally, the notion of the "thought leader being inspirational at TED" hasn't **aged** well. It's seen as self-congratulatory, **formulaic** and ultimately vapid. -    
+Finally, the notion of the "thought leader being inspirational at TED" hasn't **aged** well. It's seen as self-congratulatory, **formulaic** and ultimately vapid. -  
 
 **butthead**.  
 **chunksters**.  
@@ -190,7 +208,7 @@ It is a tricky time for Christianity. Many Catholics are **vexed** because Pope 
 You are an **omnipotent**, **omniscient** deity.  
 Besides increasing resentments, **decadent spending** (as distinct from saving and investing) reduces productivity.  
 **Out of disorder and discontent** come leaders who have strong personalities, are anti-elitist, and claim to fight for the common man. They are called **populists**.  
-This dynamic is **impeding** free speech since people are afraid to speak up because of how they will be attacked in both traditional and social media by distortions that are meant to bring them down. -  
+This dynamic is **impeding** free speech since people are afraid to speak up because of how they will be attacked in both traditional and social media by distortions that are meant to bring them down.   
 
 **federalist democracies**.  
 Civil wars inevitably happen, so rather than assuming “it won’t happen here,” which most people in most countries assume after **an extended period** of not having them, it is better to **be wary of** them and look for the **markers** to indicate how close one is.  
@@ -336,7 +354,7 @@ They were **scheming** to rob the bank.
 > Get in the habit of normalizing unhappiness. When you feel unhappy, take a brief moment to remind yourself that it’s normal and okay to feel unhappy sometimes.  
 
 If something doesn’t work for you, stop **beating yourself up**. Find a different way to achieve the goal.  
-Musonius Rufus said many of our problems are a result of ‘following **wretched habits**.’ In this “fight against habit,” Epictetus would say, “try the opposite!” -  
+Musonius Rufus said many of our problems are a result of ‘following **wretched habits**.’ In this “fight against habit,” Epictetus would say, “try the opposite!”   
 But as the expression goes, there are many ways to **skin a cat**. In life, just hoping we will magically change is a dead end.  
 
 
@@ -356,7 +374,7 @@ They learned to **rappel** down a cliff.
 
 He stood **aghast** at the sight of so much blood.  
 Look at Jesus' mouth, just **agape** in **speechless anguish**.  
-The weak countries were **agape and aghast**.   
+The weak countries were **agape and aghast**.  
 
 **nuts and bolts**.  
 Tears **welled up** in Anni's eyes.  
@@ -380,7 +398,7 @@ A mixture of gratitude and shame **welled up** in Harry.
 **flagellation**: beating with a whip or **strap** or rope as a form of punishment  
 
 Petty crime is having a **deleterious** effect on community life.  
-Heavy industry pollutes our rivers with **noxious** chemicals.   
+Heavy industry pollutes our rivers with **noxious** chemicals.  
 I become completely **self-absorbed** and I'm sort of a vicious, cruel, **vile** person.  
 a vicious, **vile** and **soulless** attack.  
 **vile**: morally **reprehensible**. -  
@@ -399,7 +417,7 @@ Juneteenth **commemorates** the day when **enslaved** Black people in Galveston,
 Everything is **hearsay** until the Thai government releases the details.  
 
 **Marginal propensity** to consume.  
-**Launch** us into the **stratosphere**. -  
+**Launch** us into the **stratosphere**.   
 **pester**, **pesky**.  
 
 **stench**, **stink**  
@@ -417,7 +435,7 @@ a lifestyle of **grotesque** luxury.
 Many in mainstream science and medicine look at all this slightly **askance**.  
 He looked at her **askance**, and said nothing. -  
 
-But the **corollary** of better performance is higher pay.   
+But the **corollary** of better performance is higher pay.  
 
 Do you have the patience to wait till your mud settles and the water is clear? Can you remain **unmoving** till the right action arises by itself?  
 
@@ -547,7 +565,7 @@ The Egyptians offered **resolute** resistance to the aggressors.
 
 **dull ache**  
 
-It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate.   
+It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate.  
 
 Since it is very cold at the top, **coverall** is required.  
 The experience was something he had tried to **expunge** from his memory. -  
@@ -595,7 +613,7 @@ The government is changing the rules for claiming **dole**.
 
 **kennel**, **colonel**.  
 His **irreverence** for authority marks him out as a **troublemaker**.  
-It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate. -  
+It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate.   
 He ate every savoury **morsel** of a **delectable** stew at the dinner.  
 These are wonderfully **succulent** peaches.  
 **leaf succulent**.  
@@ -614,7 +632,7 @@ A **dodgy** second-hand car salesman.
 **Carrollton**.  
 His promise during the campaign to try to bring the war to an end was a political **masterstroke**.  
 **Nuclear proliferation** has returned to centre stage in international affairs.  
-The **plaintiff** can now more clearly show **culpability**. -  
+The **plaintiff** can now more clearly show **culpability**.   
 The play was considered an **affront** to public morals.  -  
 **Camellia**.  
 
@@ -637,7 +655,7 @@ Over the years, its reputation has **ebbed and flowed**.
 **concoct** a **splendid** meal.  
 a **splendid** field of poppies.  
 Inflation was the **scourge** of the 1970s. -  
-You hear talk about American business being **flabby**. -  
+You hear talk about American business being **flabby**.   
 
 **mass market**  
 **masses**.  
@@ -649,7 +667,7 @@ Love really need courage to face the **tattle** and **prate**.
 **varmint**.  
 
 **Linguists** may not like to rank languages, but **laypeople** are interested in such things.  
-Are some languages better than others? To ask a linguist such a question **is akin to** **blaspheming** to a **priest**. -  
+Are some languages better than others? To ask a linguist such a question **is akin to** **blaspheming** to a **priest**.   
 
 
 **manically** focus on monetary policy.  
@@ -809,7 +827,7 @@ One reason is that filtering is technically complicated and can easily go wrong 
 
 Senate sends **sweeping** foreign aid package to Biden's desk.  
 
-Some mass media tend to please people of **plebeian** tastes.   
+Some mass media tend to please people of **plebeian** tastes.  
 We ought to use the **pluperfect** and say wakened, but woke is better and was always used by Peter.  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
 

@@ -142,7 +142,7 @@ Why Do Most Indian Men Have a **Protruding** Potbelly?
 **gorilla**, **chimpanzee**.  
 
 **turf war**.  
-I was a little **miffed** about that. -  
+I was a little **miffed** about that.   
 
 a **beaming** smile.  
 the torch **beam** dimmed **perceptibly**.  

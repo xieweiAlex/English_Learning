@@ -2,7 +2,6 @@
 words/2024/words-Jun-24.md  
 That having been said, I take all economic forecasting with **a grain of salt**. -  
 It is a tricky time for Christianity. Many Catholics are **vexed** because Pope Francis has modernised the church’s attitude towards blessings for same-sex couples. -  
-This dynamic is **impeding** free speech since people are afraid to speak up because of how they will be attacked in both traditional and social media by distortions that are meant to bring them down. -  
 A **Machiavellian plot** was suspected.  -  
 It **encompasses** everything you want, and realizing those goals and those things that are the most important to you in life.  -  
 He was **affable** at one moment, **choleric** the next. -  
@@ -19,12 +18,10 @@ That's **a load of baloney**. -
 I give myself treats and justify them to **salve** my **conscience**. -  
 **ornate**. -  
 He was so **mulish** that my **admonitions** just **flowed over** him. -  
-Musonius Rufus said many of our problems are a result of ‘following **wretched habits**.’ In this “fight against habit,” Epictetus would say, “try the opposite!” -  
 Her fellow teachers greeted her proposal with **scorn**. -  
 **Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
 **vile**: morally **reprehensible**. -  
 Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**. -  
-**Launch** us into the **stratosphere**. -  
 He looked at her **askance**, and said nothing. -  
 Dorothy had climbed onto the **ledge** outside his window. -  
 The law is often **tardy** in reacting to changing attitudes. -  
@@ -35,12 +32,8 @@ For many years the West has looked **askance** at the science coming out of Chin
 Suffering animals should be **humanely** **euthanized** on the farm. -  
 she was **hypnotized** by the **mellow tone** of his voice. -  
 The experience was something he had tried to **expunge** from his memory. -  
-It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate. -  
-The **plaintiff** can now more clearly show **culpability**. -  
 The play was considered an **affront** to public morals.  -  
 Inflation was the **scourge** of the 1970s. -  
-You hear talk about American business being **flabby**. -  
-Are some languages better than others? To ask a linguist such a question **is akin to** **blaspheming** to a **priest**. -  
 his assessment seems **cogent**. -  
 At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
 There is an **acrid tone** to your **remarks**. -  
@@ -52,7 +45,6 @@ The book's happy ending seemed **contrived**. -
 
 ## words-May-24.md ##  
 words/2024/words-May-24.md  
-I was a little **miffed** about that. -  
 How one California beach town became Gavin Newsom’s **nemesis**. -  
 
 ## words-Apr-24.md ##  
