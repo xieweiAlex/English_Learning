@@ -1,6 +1,6 @@
 ## words-Jun-24.md ##  
 words/2024/words-Jun-24.md  
-That having been said, I take all economic forecasting with **a grain of salt**. -  
+That having been said, I take all economic forecasting with **a grain of salt**.   
 It is a tricky time for Christianity. Many Catholics are **vexed** because Pope Francis has modernised the church’s attitude towards blessings for same-sex couples. -  
 A **Machiavellian plot** was suspected.  -  
 It **encompasses** everything you want, and realizing those goals and those things that are the most important to you in life.  -  

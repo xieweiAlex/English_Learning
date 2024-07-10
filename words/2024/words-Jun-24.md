@@ -1,4 +1,18 @@
 
+bigot.  
+
+
+emerald green.  
+macabre.  
+That challenge has proved to be singularly exacting and complex.  
+He was an exacting man to work for.  
+tapeworm. 
+On a coral reef in the Bonin Islands, an abandoned wormhole is home to a hermit crab.  
+Values and mores and practices are changing all the time.  
+imbibe.  
+
+
+He signed the confession under duress.  
 
 Do not treat them **flippantly**. -  
 that **amateurs** can afford to be **flippant**, professionals have to be much more disciplined. -  
