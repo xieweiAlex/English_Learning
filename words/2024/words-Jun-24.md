@@ -1,5 +1,6 @@
 
 bigot.  
+goo, gooey, gunk. 
 
 
 emerald green.  
