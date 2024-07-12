@@ -1,4 +1,9 @@
 
+First, while this city is beautiful and has many neighborhoods with quaint and attractive buildings, at least half the city is occupied by very plain houses.  
+Also, if a movie ever depicts someone pulling into a parking place right outside their destination, this is a fantasy. In fact, parking is so difficult that most people just take Lyft to their destination.  
+The creative people who, with increasing difficulty, manage to keep a foothold in the city make it interesting to live here.  
+
+
 bigot.  
 goo, gooey, gunk. 
 
