@@ -1,30 +1,57 @@
 
-First, while this city is beautiful and has many neighborhoods with quaint and attractive buildings, at least half the city is occupied by very plain houses.  
-Also, if a movie ever depicts someone pulling into a parking place right outside their destination, this is a fantasy. In fact, parking is so difficult that most people just take Lyft to their destination.  
-The creative people who, with increasing difficulty, manage to keep a foothold in the city make it interesting to live here.  
+downright ridiculous.  
+weenie.  
+gush and flush.  
+
+**Split the Difference**  
+I heard a **whizzing** sound, shots, and immediately felt the bullet **ripping** through the skin.  
+**tabby cat**.  
 
 
-bigot.  
-goo, gooey, gunk. 
+My father was **apoplectic** when he discovered the truth. -  
+
+**Macabre**: While not a part of daily vocabulary for most people, it is recognized by many, especially in contexts involving gothic or horror elements.  
+
+**marketing gimmicks**.  
+The former sealed the **demise** of the “Nifty Fifty” like Xerox and Avon Products, while the latter signaled the end of the tech and telecom bubble.  
+In our view, having already **paid dues** with tight money and higher interest rates in this cycle, the next few years could prove **fertile** for a broad swath of the equity market beyond the Magnificent Six.  
+As investors **plowed into** NVDA and the other cash rich Magnificent Six stocks, the equity market hit record-breaking levels of concentration.  
+In 2002-03, most buy-side and sell-side had **turned tail** on anything that **smacked of the dot-com bubble**.  
+While we thought online retail was a big idea, most observers considered the internet a **figment** of Wall Street’s wild imagination during a bubble and assumed that it would never be profitable.  
 
 
-emerald green.  
-macabre.  
-That challenge has proved to be singularly exacting and complex.  
-He was an exacting man to work for.  
-tapeworm. 
-On a coral reef in the Bonin Islands, an abandoned wormhole is home to a hermit crab.  
-Values and mores and practices are changing all the time.  
-imbibe.  
+Let us be reminded what happens when you let a **man-child** run a country, when ego and incompetence **run amok**.  
+What happens to your data when you die? - An individual’s **digital footprint** will long outlive them. That presents many quandaries.  
+
+**accept and expiate**.  
+Climate change moves slowly, which is part of its **calamitous** power.  
+**arsenic**.  
 
 
-He signed the confession under duress.  
+First, while this city is beautiful and has many neighborhoods with **quaint** and attractive buildings, at least half the city is occupied by very plain houses.  
+Also, if a movie ever **depicts** someone pulling into a parking place right outside their destination, **this is a fantasy**. **In fact**, parking is so difficult that most people just take Lyft to their destination.  
+The creative people who, with increasing difficulty, manage to keep a **foothold** in the city make it interesting to live here.  
+
+
+**bigot**.  
+**goo**, **gooey**, **gunk**.  
+
+**emerald green**.  
+**macabre**.  
+That challenge has proved to be **singularly** **exacting** and complex.  
+He was an **exacting** man to work for.  
+**tapeworm**.  
+On a coral reef in the Bonin Islands, an abandoned **wormhole** is home to a **hermit crab**.  
+**Values and mores** and practices are changing all the time.  
+**imbibe**.  
+
+He signed the confession **under duress**.  
 
 Do not treat them **flippantly**. -  
 that **amateurs** can afford to be **flippant**, professionals have to be much more disciplined. -  
 She wasn’t telling her friend to be dishonest, but she was telling him to be **considerate and circumspect** when he opened his mouth.  
 A citizen can **pop off** on Twitter, a journalist has to **keep their opinions to themselves** (if they want to retain their credibility).  
-A **grunt** can complain and whine, a leader cannot. 
+A **grunt** can complain and whine, a leader cannot.  
 
 **exorcise**, **exorcist**.  
 
@@ -95,6 +122,11 @@ This brings us to **normative** vs **informational conformity**.
 
 
 Today, Andrew Huberman is a **stiff**, **jacked** 48-year-old associate professor of neurology and **ophthalmology** at the Stanford University School of Medicine.  
+**broad-minded** professor puppyishly **enamored** with the wonders of biological function.  
+The wayward son would devote himself to therapy and also to science. -  
+A prophet must constrain his self-revelation.  
+
+
 His podcast is **revelatory** largely because it does not condescend, which has not been the way of public-health information in our time.  
 He does not give the impression of someone **diluting** science to universally applicable **sound bites** for the **slobbering** masses.  
 I do have to **choke back** a little bit here.  
@@ -104,7 +136,13 @@ She was **dewy** and strong and in her mid-40s, though she looked a decade young
 He was **courtly** and a bit formal, as he would later be on the podcast.  
 They cared **immoderately** about what went into their bodies.  
 He was **devoted** to his **bullmastiff**, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah. -  
+
 “He **in some ways** disappeared,” says David Spiegel, a Stanford psychiatrist who calls Andrew “**prodigiously smart**” and “intensely engaging.”  
+I don’t have total **fidelity** to who Andrew is,” says his friend Patrick Dossett. “There’s always a little unknown there.  
+gravel-voiced.  
+a man who expounds for multiple hours a week on subjects well outside his area of expertise.  
+A spokesperson for Huberman denies the account of the denigration of women and the dead-baby story and says the hair story was taken out of context.  
+
 He **puttered** around Huberman’s place, buying a juice, walking through the neighborhood, waiting for him to return.  
 The relationship struck Sarah’s friends **as odd**.  
 he actually enjoys the opportunity to **pull the rug out** from under you.  
@@ -230,12 +268,12 @@ She has a **discerning** **palate**.
 
 **Profligate behavior** by government.  
 
-That having been said, I take all economic forecasting with **a grain of salt**. -  
+That having been said, I take all economic forecasting with **a grain of salt**.   
 It is a tricky time for Christianity. Many Catholics are **vexed** because Pope Francis has modernised the church’s attitude towards blessings for same-sex couples. -  
 You are an **omnipotent**, **omniscient** deity.  
 Besides increasing resentments, **decadent spending** (as distinct from saving and investing) reduces productivity.  
 **Out of disorder and discontent** come leaders who have strong personalities, are anti-elitist, and claim to fight for the common man. They are called **populists**.  
-This dynamic is **impeding** free speech since people are afraid to speak up because of how they will be attacked in both traditional and social media by distortions that are meant to bring them down.   
+This dynamic is **impeding** free speech since people are afraid to speak up because of how they will be attacked in both traditional and social media by distortions that are meant to bring them down.  
 
 **federalist democracies**.  
 Civil wars inevitably happen, so rather than assuming “it won’t happen here,” which most people in most countries assume after **an extended period** of not having them, it is better to **be wary of** them and look for the **markers** to indicate how close one is.  
@@ -381,7 +419,7 @@ They were **scheming** to rob the bank.
 > Get in the habit of normalizing unhappiness. When you feel unhappy, take a brief moment to remind yourself that it’s normal and okay to feel unhappy sometimes.  
 
 If something doesn’t work for you, stop **beating yourself up**. Find a different way to achieve the goal.  
-Musonius Rufus said many of our problems are a result of ‘following **wretched habits**.’ In this “fight against habit,” Epictetus would say, “try the opposite!”   
+Musonius Rufus said many of our problems are a result of ‘following **wretched habits**.’ In this “fight against habit,” Epictetus would say, “try the opposite!”  
 But as the expression goes, there are many ways to **skin a cat**. In life, just hoping we will magically change is a dead end.  
 
 
@@ -444,7 +482,7 @@ Juneteenth **commemorates** the day when **enslaved** Black people in Galveston,
 Everything is **hearsay** until the Thai government releases the details.  
 
 **Marginal propensity** to consume.  
-**Launch** us into the **stratosphere**.   
+**Launch** us into the **stratosphere**.  
 **pester**, **pesky**.  
 
 **stench**, **stink**  
@@ -640,7 +678,7 @@ The government is changing the rules for claiming **dole**.
 
 **kennel**, **colonel**.  
 His **irreverence** for authority marks him out as a **troublemaker**.  
-It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate.   
+It **strikes a tone** of **irreverence** and sarcasm that teenagers often appreciate.  
 He ate every savoury **morsel** of a **delectable** stew at the dinner.  
 These are wonderfully **succulent** peaches.  
 **leaf succulent**.  
@@ -659,7 +697,7 @@ A **dodgy** second-hand car salesman.
 **Carrollton**.  
 His promise during the campaign to try to bring the war to an end was a political **masterstroke**.  
 **Nuclear proliferation** has returned to centre stage in international affairs.  
-The **plaintiff** can now more clearly show **culpability**.   
+The **plaintiff** can now more clearly show **culpability**.  
 The play was considered an **affront** to public morals.  -  
 **Camellia**.  
 
@@ -682,7 +720,7 @@ Over the years, its reputation has **ebbed and flowed**.
 **concoct** a **splendid** meal.  
 a **splendid** field of poppies.  
 Inflation was the **scourge** of the 1970s. -  
-You hear talk about American business being **flabby**.   
+You hear talk about American business being **flabby**.  
 
 **mass market**  
 **masses**.  
@@ -694,7 +732,7 @@ Love really need courage to face the **tattle** and **prate**.
 **varmint**.  
 
 **Linguists** may not like to rank languages, but **laypeople** are interested in such things.  
-Are some languages better than others? To ask a linguist such a question **is akin to** **blaspheming** to a **priest**.   
+Are some languages better than others? To ask a linguist such a question **is akin to** **blaspheming** to a **priest**.  
 
 
 **manically** focus on monetary policy.  
