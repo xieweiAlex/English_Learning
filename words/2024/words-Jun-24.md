@@ -1,16 +1,22 @@
 
-downright ridiculous.  
-weenie.  
-gush and flush.  
+Bequest.  
+penchant.  
+perverse.  
+
+
+
+### Week 2
+
+**downright** ridiculous.  
+**weenie**.  
+**gush and flush**.  
 
 **Split the Difference**  
 I heard a **whizzing** sound, shots, and immediately felt the bullet **ripping** through the skin.  
 **tabby cat**.  
 
-
 My father was **apoplectic** when he discovered the truth. -  
-
-**Macabre**: While not a part of daily vocabulary for most people, it is recognized by many, especially in contexts involving gothic or horror elements.  
+**Macabre**: While not a part of daily vocabulary for most people, it is recognized by many, especially in contexts involving **gothic** or horror elements. -  
 
 **marketing gimmicks**.  
 The former sealed the **demise** of the “Nifty Fifty” like Xerox and Avon Products, while the latter signaled the end of the tech and telecom bubble.  
@@ -18,15 +24,12 @@ In our view, having already **paid dues** with tight money and higher interest r
 As investors **plowed into** NVDA and the other cash rich Magnificent Six stocks, the equity market hit record-breaking levels of concentration.  
 In 2002-03, most buy-side and sell-side had **turned tail** on anything that **smacked of the dot-com bubble**.  
 While we thought online retail was a big idea, most observers considered the internet a **figment** of Wall Street’s wild imagination during a bubble and assumed that it would never be profitable.  
-
-
 Let us be reminded what happens when you let a **man-child** run a country, when ego and incompetence **run amok**.  
 What happens to your data when you die? - An individual’s **digital footprint** will long outlive them. That presents many quandaries.  
 
-**accept and expiate**.  
+**accept and expiate**. -  
 Climate change moves slowly, which is part of its **calamitous** power.  
 **arsenic**.  
-
 
 First, while this city is beautiful and has many neighborhoods with **quaint** and attractive buildings, at least half the city is occupied by very plain houses.  
 Also, if a movie ever **depicts** someone pulling into a parking place right outside their destination, **this is a fantasy**. **In fact**, parking is so difficult that most people just take Lyft to their destination.  
