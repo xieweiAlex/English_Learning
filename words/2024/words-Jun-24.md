@@ -4,6 +4,7 @@ penchant.
 perverse.  
 
 
+braise, braiser 
 
 ### Week 2
 
