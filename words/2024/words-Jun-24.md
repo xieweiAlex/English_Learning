@@ -1,10 +1,38 @@
 
-Bequest.  
-penchant.  
-perverse.  
+[week 2]
+[week 1]
+[Convo]
+[Phase or interesting ]
 
 
-braise, braiser 
+Autarky.  
+fag.  
+concourse.  
+myopic 
+blemish.  
+a put-upon drudge who slaved for her employer. -  
+guerilla.  
+asphalt  
+scepter.  
+human anatomy.  
+eon.  
+imp, impish.  
+Garcia is well known for his impish sense of humour.  
+a former penal colony.  
+penal servitude in labor camps.  
+
+She was prostrate on the floor.  
+prostrate onself before sb.  
+He was prostrated by the loss of his wife.
+
+
+
+**Bequest**.  
+**banquet**
+**penchant**.  
+**perverse**.  
+
+**braise**, **braiser** 
 
 ### Week 2
 
@@ -53,7 +81,7 @@ He signed the confession **under duress**.
 
 Do not treat them **flippantly**. -  
 that **amateurs** can afford to be **flippant**, professionals have to be much more disciplined. -  
-She wasn’t telling her friend to be dishonest, but she was telling him to be **considerate and circumspect** when he opened his mouth.  
+She wasn't telling her friend to be dishonest, but she was telling him to be **considerate and circumspect** when he opened his mouth.  
 A citizen can **pop off** on Twitter, a journalist has to **keep their opinions to themselves** (if they want to retain their credibility).  
 A **grunt** can complain and whine, a leader cannot.  
 
