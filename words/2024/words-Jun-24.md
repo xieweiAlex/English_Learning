@@ -4,19 +4,29 @@
 [Convo]
 [Phase or interesting ]
 
+Anguish about Joe Biden's candidacy is rational, polls suggest.  
 
-Autarky.  
-fag.  
-concourse.  
-myopic 
+
+reprimand, scold, accuse, rebuke.  
+Cease and desist: purportedly unlawful activity ("cease") and not take it up again later ("desist").  
+The cocoon-to-butterfly theory only works on cocoons and butterflies.
+elf and goblin.  
+flummox.  
+tote bag.  
+
+
+**Autarky**.  
+**fag**.  
+**concourse**.  
+**myopic** 
 blemish.  
-a put-upon drudge who slaved for her employer. -  
-guerilla.  
-asphalt  
-scepter.  
-human anatomy.  
-eon.  
-imp, impish.  
+a **put-upon** **drudge** who slaved for her employer. -  
+**guerilla**.  
+**asphalt**  
+**scepter**.  
+human **anatomy**.  
+**eon**.  
+**imp**, **impish**.  
 Garcia is well known for his impish sense of humour.  
 a former penal colony.  
 penal servitude in labor camps.  
