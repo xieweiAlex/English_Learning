@@ -4,8 +4,11 @@
 [Convo]
 [Phase or interesting ]
 
-Anguish about Joe Biden's candidacy is rational, polls suggest.  
+Think of quiche as a breakfast pie!  
 
+You have a rocking bod.  
+
+Anguish about Joe Biden's candidacy is rational, polls suggest.  
 
 reprimand, scold, accuse, rebuke.  
 Cease and desist: purportedly unlawful activity ("cease") and not take it up again later ("desist").  
