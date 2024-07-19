@@ -1,37 +1,39 @@
 
-[week 2]
-[week 1]
-[Convo]
-[Phase or interesting ]
 
-grubby
-vociferous.  
-turbine rotor, rotor spinning
+[convo](#conversation)
+[Interesting](#interesting)
 
+[week 2](#week-2)  
+[week 1](#week-1)  
 
-Monero is a privacy-preserving cryptocurrency in the vein of Bitcoin.  
+[Convo]  
+[Phase or interesting ]  
 
+Donald Trump’s running-mate has a **deep-rooted** resentment of **big business**  
 
-Think of quiche as a breakfast pie!  
+**grubby**  
+**vociferous**.  
+**turbine rotor**, **rotor spinning**  
+Monero is a privacy-preserving cryptocurrency **in the vein of Bitcoin**.  
+Think of **quiche** as a breakfast pie!  
 
+You have a **rocking bod**.  
 
-You have a rocking bod.  
+**Anguish** about Joe Biden's candidacy is rational, polls suggest.  
 
-Anguish about Joe Biden's candidacy is rational, polls suggest.  
-
-reprimand, scold, accuse, rebuke.  
-Cease and desist: purportedly unlawful activity ("cease") and not take it up again later ("desist").  
-The cocoon-to-butterfly theory only works on cocoons and butterflies.
-elf and goblin.  
-flummox.  
-tote bag.  
+**reprimand**, scold, accuse, **rebuke**.  
+**Cease and desist**: **purportedly** unlawful activity ("cease") and not take it up again later ("desist").  
+The **cocoon-to-butterfly** theory only works on cocoons and butterflies.  
+**elf and goblin**.  
+**flummox**.  
+**tote bag**.  
 
 
 **Autarky**.  
 **fag**.  
 **concourse**.  
-**myopic** 
-blemish.  
+**myopic**  
+**blemish**.  
 a **put-upon** **drudge** who slaved for her employer. -  
 **guerilla**.  
 **asphalt**  
@@ -39,24 +41,22 @@ a **put-upon** **drudge** who slaved for her employer. -
 human **anatomy**.  
 **eon**.  
 **imp**, **impish**.  
-Garcia is well known for his impish sense of humour.  
-a former penal colony.  
-penal servitude in labor camps.  
+Garcia is well known for his **impish** sense of humour.  
+a former **penal colony**.  
+**penal servitude** in labor camps.  
 
-She was prostrate on the floor.  
-prostrate onself before sb.  
-He was prostrated by the loss of his wife.
-
-
+She was **prostrate** on the floor.  
+**prostrate onself before sb**.  
+He was **prostrated** by the loss of his wife.  
 
 **Bequest**.  
-**banquet**
+**banquet**  
 **penchant**.  
 **perverse**.  
 
-**braise**, **braiser** 
+**braise**, **braiser**  
 
-### Week 2
+### Week 2  
 
 **downright** ridiculous.  
 **weenie**.  
@@ -312,3 +312,4 @@ Why **big oil** is **wading into** lithium. - What **black gold and the white me
 ## Conversation  
 
 ## Interesting  
+
