@@ -53,9 +53,9 @@ who appear **rich and decadent** to the **have-nots**.
 **Restless idleness**.  
 **perennially true**.  
 it actually **yields results**.  
-A **Machiavellian plot** was suspected.  -  
+A **Machiavellian plot** was suspected.    
 You don't have to be **Machiavellian** when it comes to things like that, but a little strategy **goes a long way**.  
-It **encompasses** everything you want, and realizing those goals and those things that are the most important to you in life.  -  
+It **encompasses** everything you want, and realizing those goals and those things that are the most important to you in life.    
 > People wear masks.  
 
 
@@ -485,7 +485,7 @@ Another **can of worms**.
 
 **presto**.  
 Don't **misdirect** your frustration.  
-his assessment seems **cogent**. -  
+his assessment seems **cogent**.   
 
 **rubbles**, **gravels**, **cobbles**.  
 > Rubbles, gravels, and cobbles are all types of small, loose materials that are commonly found on the ground. However, there are some differences between these words:  
@@ -569,7 +569,7 @@ The tang is **joined** to a handle, usually made of plastic or wood. The bar has
 He wanted to **rasp** the surface smooth.  
 Please, ” Kate begs me in her **rasping**, **sore throat voice**.  
 
-The **cusp** of a **crescent**. -  
+The **cusp** of a **crescent**.   
 His sense of humour allowed him to face adversaries with **equanimity**.  
 
 The rise and fall of empires is an **ineluctable** part of history.  

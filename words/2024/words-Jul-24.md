@@ -1,13 +1,34 @@
 
 
-[convo](#conversation)
-[Interesting](#interesting)
+[convo](#conversation)  
+[Interesting](#interesting)  
 
 [week 2](#week-2)  
 [week 1](#week-1)  
 
-[Convo]  
-[Phase or interesting ]  
+mezzanine loan.  
+The book was received with adulation by the public.  
+tomatillo.  
+Watch your language, varmint. There's a lady present.  
+prairie, steppe.  
+
+
+Spending a night in jail was his road to Damascus.  
+Has he had a real "road to Damascus"? -- of course not.  
+ride off into the sunset.  
+We delude ourselves that we are in control.  
+The House voted to impose a one-year moratorium on nuclear testing. -  
+
+
+I was born and raised in the United States, but my heritage and upbringing is drenched in the olive oil of Middle Eastern culture.  
+**fly swatter**.  
+" I have, " said Tyrion. " I swat them down like flies".  
+
+I left feeling disgruntled at the way I'd been treated.  
+“There were four to five employees, half of whom were disgruntled. Yet, USCCA was starting to gain traction.”  
+
+
+**Stem from**  
 
 Donald Trump’s running-mate has a **deep-rooted** resentment of **big business**  
 
@@ -101,8 +122,8 @@ On a coral reef in the Bonin Islands, an abandoned **wormhole** is home to a **h
 
 He signed the confession **under duress**.  
 
-Do not treat them **flippantly**. -  
-that **amateurs** can afford to be **flippant**, professionals have to be much more disciplined. -  
+Do not treat them **flippantly**.   
+that **amateurs** can afford to be **flippant**, professionals have to be much more disciplined.   
 She wasn't telling her friend to be dishonest, but she was telling him to be **considerate and circumspect** when he opened his mouth.  
 A citizen can **pop off** on Twitter, a journalist has to **keep their opinions to themselves** (if they want to retain their credibility).  
 A **grunt** can complain and whine, a leader cannot.  
@@ -143,7 +164,7 @@ Hunter was accused of illegally purchasing and possessing a firearm in October 2
 I feel like I've told everyone **within earshot** at this point, but in case you haven’t heard...  
 And there's so much **subtext** behind all of it.  
 
-Jealousy is a **primal** emotion. -  
+Jealousy is a **primal** emotion.   
 he preys on people's **primal fears**.  
 The sea is the **primal source** of all living things on earth.  
 **phony baloney**.  

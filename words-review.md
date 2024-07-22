@@ -4,11 +4,8 @@ a **put-upon** **drudge** who slaved for her employer. -
 My father was **apoplectic** when he discovered the truth. -  
 **Macabre**: While not a part of daily vocabulary for most people, it is recognized by many, especially in contexts involving **gothic** or horror elements. -  
 **accept and expiate**. -  
-Do not treat them **flippantly**. -  
-that **amateurs** can afford to be **flippant**, professionals have to be much more disciplined. -  
 she was in a **jovial** mood. -  
 Hunter was accused of illegally purchasing and possessing a firearm in October 2018 while using a **narcotic**. -  
-Jealousy is a **primal** emotion. -  
 He's **setting up** this **patsy** to **take the fall**. -  
 I like to **putter around** in the garden. -  
 Often, both groups also live in **ethnic enclaves**. -  
@@ -23,8 +20,6 @@ He would **immolate** himself for their noble cause. -
 ## words-Jun-24.md ##  
 words/2024/words-Jun-24.md  
 It is a tricky time for Christianity. Many Catholics are **vexed** because Pope Francis has modernised the church’s attitude towards blessings for same-sex couples. -  
-A **Machiavellian plot** was suspected.  -  
-It **encompasses** everything you want, and realizing those goals and those things that are the most important to you in life.  -  
 He was **affable** at one moment, **choleric** the next. -  
 His elegance is a living **reproach** to our **slovenly** habits. -  
 I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -  
@@ -55,18 +50,13 @@ she was **hypnotized** by the **mellow tone** of his voice. -
 The experience was something he had tried to **expunge** from his memory. -  
 The play was considered an **affront** to public morals.  -  
 Inflation was the **scourge** of the 1970s. -  
-his assessment seems **cogent**. -  
 At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
 There is an **acrid tone** to your **remarks**. -  
 **acrid**: harsh or **corrosive in tone**. -  
-The **cusp** of a **crescent**. -  
 What does all this **portend** for the near future?  -  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
 The book's happy ending seemed **contrived**. -  
 
-## words-May-24.md ##  
-words/2024/words-May-24.md  
-How one California beach town became Gavin Newsom’s **nemesis**. -  
 
 ## words-Apr-24.md ##  
 words/2024/words-Apr-24.md  

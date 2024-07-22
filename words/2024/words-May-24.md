@@ -288,7 +288,7 @@ Japan Inc is no longer **in thrall to** America. - As the home of capitalism tur
 America, Israel and Hamas are trapped in a dangerous **impasse**.  
 The six rules of **fire drills**.  
 Why are **embassies** supposed to be **inviolable**?  
-How one California beach town became Gavin Newsom’s **nemesis**. -  
+How one California beach town became Gavin Newsom’s **nemesis**.   
 In a **dog-eat-dog** world, competition is fierce.  
 
 
