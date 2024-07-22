@@ -6,32 +6,32 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
-mezzanine loan.  
-The book was received with adulation by the public.  
-tomatillo.  
-Watch your language, varmint. There's a lady present.  
-prairie, steppe.  
+### Week 3
+
+**out of whack**, **whack a mole**.  
 
 
-Spending a night in jail was his road to Damascus.  
-Has he had a real "road to Damascus"? -- of course not.  
-ride off into the sunset.  
-We delude ourselves that we are in control.  
-The House voted to impose a one-year moratorium on nuclear testing. -  
+**mezzanine loan**.  
+The book was received with **adulation** by the public. -  
+**tomatillo**.  
+Watch your language, **varmint**. There's a lady present.  
+**prairie**, **steppe**.  
 
+Spending a night in jail was his **road to Damascus**. -  
+Has he had a real "**road to Damascus**"? -- of course not.  
+**ride off into the sunset**.  
+We **delude** ourselves that we are in control. -  
+The House voted to impose a one-year **moratorium** on nuclear testing. -  
 
 I was born and raised in the United States, but my heritage and upbringing is drenched in the olive oil of Middle Eastern culture.  
 **fly swatter**.  
-" I have, " said Tyrion. " I swat them down like flies".  
+" I have, " said Tyrion. " I **swat them down like flies**".  
 
-I left feeling disgruntled at the way I'd been treated.  
-“There were four to five employees, half of whom were disgruntled. Yet, USCCA was starting to gain traction.”  
-
-
+I left feeling **disgruntled** at the way I'd been treated. -  
+There were four to five employees, half of whom were **disgruntled**. Yet, USCCA was starting to gain traction. 
 **Stem from**  
 
 Donald Trump’s running-mate has a **deep-rooted** resentment of **big business**  
-
 **grubby**  
 **vociferous**.  
 **turbine rotor**, **rotor spinning**  
@@ -159,7 +159,7 @@ Hunter was accused of illegally purchasing and possessing a firearm in October 2
 **archaic**.  
 **obsolete**.  
 
-## Week 1  
+### Week 1  
 
 I feel like I've told everyone **within earshot** at this point, but in case you haven’t heard...  
 And there's so much **subtext** behind all of it.  
@@ -198,8 +198,8 @@ This brings us to **normative** vs **informational conformity**.
 
 Today, Andrew Huberman is a **stiff**, **jacked** 48-year-old associate professor of neurology and **ophthalmology** at the Stanford University School of Medicine.  
 **broad-minded** professor puppyishly **enamored** with the wonders of biological function.  
-The wayward son would devote himself to therapy and also to science. -  
-A prophet must constrain his self-revelation.  
+The **wayward** son would devote himself to therapy and also to science. -  
+A **prophet** must constrain his **self-revelation**.  
 
 
 His podcast is **revelatory** largely because it does not condescend, which has not been the way of public-health information in our time.  
@@ -214,9 +214,9 @@ He was **devoted** to his **bullmastiff**, Costello, whom he worried over consta
 
 “He **in some ways** disappeared,” says David Spiegel, a Stanford psychiatrist who calls Andrew “**prodigiously smart**” and “intensely engaging.”  
 I don’t have total **fidelity** to who Andrew is,” says his friend Patrick Dossett. “There’s always a little unknown there.  
-gravel-voiced.  
-a man who expounds for multiple hours a week on subjects well outside his area of expertise.  
-A spokesperson for Huberman denies the account of the denigration of women and the dead-baby story and says the hair story was taken out of context.  
+**gravel-voiced**.  
+a man who **expounds** for multiple hours a week on subjects well outside his area of expertise.  
+A spokesperson for Huberman denies **the account of** the **denigration** of women and the dead-baby story and says the hair story was **taken out of context**.  
 
 He **puttered** around Huberman’s place, buying a juice, walking through the neighborhood, waiting for him to return.  
 The relationship struck Sarah’s friends **as odd**.  
