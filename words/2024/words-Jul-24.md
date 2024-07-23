@@ -3,11 +3,13 @@
 [convo](#conversation)  
 [Interesting](#interesting)  
 
+[week 3](#week-3)  
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+Is everything you assumed about the Middle Ages wrong?
 
-brute force.  
+Brute force.  
 insouciant.  
 impedient.  
 bullpen.  
