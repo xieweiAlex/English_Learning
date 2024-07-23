@@ -6,6 +6,18 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+
+brute force.  
+insouciant.  
+impedient.  
+bullpen.  
+bequest . 
+ethanol.  
+He seems to live off junk food.  
+feed off.  
+
+
+
 ### Week 3
 
 **out of whack**, **whack a mole**.  
