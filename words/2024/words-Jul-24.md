@@ -8,6 +8,8 @@
 [week 1](#week-1)  
 
 Is everything you assumed about the Middle Ages wrong?
+e subsisted on welfare and casual labour.  
+
 
 Brute force.  
 insouciant.  
@@ -27,6 +29,8 @@ feed off.
 
 **mezzanine loan**.  
 The book was received with **adulation** by the public. -  
+he found it difficult to cope with the adulation of the fans.  
+
 **tomatillo**.  
 Watch your language, **varmint**. There's a lady present.  
 **prairie**, **steppe**.  
