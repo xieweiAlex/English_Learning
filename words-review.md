@@ -1,5 +1,10 @@
 ## words-Jul-24.md ##  
 words/2024/words-Jul-24.md  
+The book was received with **adulation** by the public. -  
+Spending a night in jail was his **road to Damascus**. -  
+We **delude** ourselves that we are in control. -  
+The House voted to impose a one-year **moratorium** on nuclear testing. -  
+I left feeling **disgruntled** at the way I'd been treated. -  
 a **put-upon** **drudge** who slaved for her employer. -  
 My father was **apoplectic** when he discovered the truth. -  
 **Macabre**: While not a part of daily vocabulary for most people, it is recognized by many, especially in contexts involving **gothic** or horror elements. -  
@@ -9,6 +14,7 @@ Hunter was accused of illegally purchasing and possessing a firearm in October 2
 He's **setting up** this **patsy** to **take the fall**. -  
 I like to **putter around** in the garden. -  
 Often, both groups also live in **ethnic enclaves**. -  
+The **wayward** son would devote himself to therapy and also to science. -  
 He was **devoted** to his **bullmastiff**, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah. -  
 It was a wealthy place, the kind of setting where the word **au pair** comes up frequently. -  
 Finally, the notion of the "thought leader being inspirational at TED" hasn't **aged** well. It's seen as self-congratulatory, **formulaic** and ultimately vapid. -  
@@ -56,7 +62,6 @@ There is an **acrid tone** to your **remarks**. -
 What does all this **portend** for the near future?  -  
 This young man had all the **inclination** to be a **profligate** of the first water. -  
 The book's happy ending seemed **contrived**. -  
-
 
 ## words-Apr-24.md ##  
 words/2024/words-Apr-24.md  

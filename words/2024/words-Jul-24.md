@@ -7,8 +7,12 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+He may have finally cracked it by lavishing subsidies on buyers of new-builds.  
+But this has sent house prices soaring—and left the Kremlin to foot a giant bill.  
+Hillbilly Elegy.  
 
-suave and urbane.   
+
+suave and urbane.  
 expletive.  
 Agaric.  
 Ellipsis.  
@@ -16,21 +20,21 @@ Mosque.
 
 
 
-Is everything you assumed about the Middle Ages wrong?
+Is everything you assumed about the Middle Ages wrong?  
 He subsisted on welfare and casual labour.  
 
 Brute force.  
 insouciant.  
 impedient.  
 bullpen.  
-bequest . 
+bequest .  
 ethanol.  
 He seems to live off junk food.  
 feed off.  
 
 
 
-### Week 3
+### Week 3  
 
 **out of whack**, **whack a mole**.  
 
@@ -54,7 +58,7 @@ I was born and raised in the United States, but my heritage and upbringing is dr
 " I have, " said Tyrion. " I **swat them down like flies**".  
 
 I left feeling **disgruntled** at the way I'd been treated. -  
-There were four to five employees, half of whom were **disgruntled**. Yet, USCCA was starting to gain traction. 
+There were four to five employees, half of whom were **disgruntled**. Yet, USCCA was starting to gain traction.  
 **Stem from**  
 
 Donald Trump’s running-mate has a **deep-rooted** resentment of **big business**  
@@ -148,8 +152,8 @@ On a coral reef in the Bonin Islands, an abandoned **wormhole** is home to a **h
 
 He signed the confession **under duress**.  
 
-Do not treat them **flippantly**.   
-that **amateurs** can afford to be **flippant**, professionals have to be much more disciplined.   
+Do not treat them **flippantly**.  
+that **amateurs** can afford to be **flippant**, professionals have to be much more disciplined.  
 She wasn't telling her friend to be dishonest, but she was telling him to be **considerate and circumspect** when he opened his mouth.  
 A citizen can **pop off** on Twitter, a journalist has to **keep their opinions to themselves** (if they want to retain their credibility).  
 A **grunt** can complain and whine, a leader cannot.  
@@ -190,7 +194,7 @@ Hunter was accused of illegally purchasing and possessing a firearm in October 2
 I feel like I've told everyone **within earshot** at this point, but in case you haven’t heard...  
 And there's so much **subtext** behind all of it.  
 
-Jealousy is a **primal** emotion.   
+Jealousy is a **primal** emotion.  
 he preys on people's **primal fears**.  
 The sea is the **primal source** of all living things on earth.  
 **phony baloney**.  
