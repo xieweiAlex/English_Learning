@@ -7,9 +7,17 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
-Is everything you assumed about the Middle Ages wrong?
-e subsisted on welfare and casual labour.  
 
+suave and urbane.   
+expletive.  
+Agaric.  
+Ellipsis.  
+Mosque.  
+
+
+
+Is everything you assumed about the Middle Ages wrong?
+He subsisted on welfare and casual labour.  
 
 Brute force.  
 insouciant.  
