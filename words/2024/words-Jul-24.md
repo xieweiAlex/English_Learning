@@ -7,32 +7,29 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
-He may have finally cracked it by lavishing subsidies on buyers of new-builds.  
-But this has sent house prices soaring—and left the Kremlin to foot a giant bill.  
-Hillbilly Elegy.  
+
+He may have finally cracked it by **lavishing** subsidies on buyers of new-builds.  
+But this has sent house prices soaring—and left the **Kremlin** to **foot a giant bill**.  
+**Hillbilly Elegy**. -  
 
 
-suave and urbane.  
-expletive.  
-Agaric.  
-Ellipsis.  
-Mosque.  
+**suave and urbane**.  
+**expletive**.  
+**Agaric**.  
+**Ellipsis**.  
+**Mosque**.  
 
+Is everything you assumed about the **Middle Ages** wrong?  
+He **subsisted** on welfare and casual labor.  
 
-
-Is everything you assumed about the Middle Ages wrong?  
-He subsisted on welfare and casual labour.  
-
-Brute force.  
-insouciant.  
-impedient.  
-bullpen.  
-bequest .  
-ethanol.  
-He seems to live off junk food.  
-feed off.  
-
-
+**Brute force**.  
+**insouciant**.  
+**impedient**.  
+**bullpen**.  
+**bequest** .  
+**ethanol**.  
+He seems to **live off** junk food.  
+**feed off**.  
 
 ### Week 3  
 
@@ -40,8 +37,8 @@ feed off.
 
 
 **mezzanine loan**.  
-The book was received with **adulation** by the public. -  
-he found it difficult to cope with the adulation of the fans.  
+The book was received with **adulation** by the public.   
+he found it difficult to cope with the **adulation** of the fans. -  
 
 **tomatillo**.  
 Watch your language, **varmint**. There's a lady present.  
@@ -53,7 +50,7 @@ Has he had a real "**road to Damascus**"? -- of course not.
 We **delude** ourselves that we are in control. -  
 The House voted to impose a one-year **moratorium** on nuclear testing. -  
 
-I was born and raised in the United States, but my heritage and upbringing is drenched in the olive oil of Middle Eastern culture.  
+I was born and raised in the United States, but my heritage and upbringing is **drenched** in the olive oil of Middle Eastern culture.  
 **fly swatter**.  
 " I have, " said Tyrion. " I **swat them down like flies**".  
 
