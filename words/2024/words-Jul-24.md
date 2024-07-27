@@ -8,6 +8,13 @@
 [week 1](#week-1)  
 
 
+serenade. 
+bauble.  
+hygrometer 
+assiduous  
+
+
+
 He may have finally cracked it by **lavishing** subsidies on buyers of new-builds.  
 But this has sent house prices soaring—and left the **Kremlin** to **foot a giant bill**.  
 **Hillbilly Elegy**. -  
