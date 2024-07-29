@@ -1,4 +1,6 @@
 
+**tie** 
+
 **sidestep** 
 
 **recap**
@@ -24,8 +26,6 @@
 **Hearten**, **dishearten** 
 
 **tap**
-
-**tie** 
 
 **alter** 
 

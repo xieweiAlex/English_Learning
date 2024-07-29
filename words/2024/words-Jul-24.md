@@ -7,17 +7,24 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
-lounge, lobby, hall, living room
-marshy meadow, Marshy Landscape.  
-marshy waste land.  
+**muck**, **manure**, **mulch**.  
+**coquette**, **croquette**.  
+It would be a **presumptuous** mistake for me to cloud the picture with my own judgments and give opinions about what others (whose shoes I am not in) should do.  
+John Gruber, co-creator of Markdown and the **raconteur** behind Daring Fireball, offers **trenchant insights** on tech.  
+It was a **masterstroke**.  
 
-Too much sweet food cloys the palate.  
-She has a discerning palate.  
-to my uncultured palate most of the wines were good.  
+
+**lounge**, **lobby**, **hall**, **living room**
+**marshy** meadow, **Marshy Landscape**.  
+**marshy waste land**.  
+
+Too much sweet food **cloys** the **palate**. -  
+She has a **discerning** **palate**.  
+to my **uncultured** **palate** most of the wines were good.  
 
 ### Week 4
 
-beat it.  
+**beat it**.  
 
 I have no idea how to connect to them, **should I decide to go**. 
 

@@ -51,9 +51,9 @@ The play was considered an **affront** to public morals.  -
 Inflation was the **scourge** of the 1970s. -  
 At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
 There is an **acrid tone** to your **remarks**. -  
-**acrid**: harsh or **corrosive in tone**. -  
+**acrid**: harsh or **corrosive in tone**.   
 What does all this **portend** for the near future?  -  
-This young man had all the **inclination** to be a **profligate** of the first water. -  
+This young man had all the **inclination** to be a **profligate** of the first water.   
 The book's happy ending seemed **contrived**. -  
 
 ## words-Apr-24.md ##  
