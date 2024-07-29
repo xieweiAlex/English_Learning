@@ -1,6 +1,7 @@
 ## words-Jul-24.md ##  
 words/2024/words-Jul-24.md  
-The book was received with **adulation** by the public. -  
+**Hillbilly Elegy**. -  
+he found it difficult to cope with the **adulation** of the fans. -  
 Spending a night in jail was his **road to Damascus**. -  
 We **delude** ourselves that we are in control. -  
 The House voted to impose a one-year **moratorium** on nuclear testing. -  
@@ -18,7 +19,6 @@ The **wayward** son would devote himself to therapy and also to science. -
 He was **devoted** to his **bullmastiff**, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah. -  
 It was a wealthy place, the kind of setting where the word **au pair** comes up frequently. -  
 Finally, the notion of the "thought leader being inspirational at TED" hasn't **aged** well. It's seen as self-congratulatory, **formulaic** and ultimately vapid. -  
-She has a **penchant** for champagne. -  
 Link two of them together, and you've got a **disaccharide**, lactose, **maltose**, or **sucrose**. -  
 In my fever I had a long consistent **delirium**. -  
 He would **immolate** himself for their noble cause. -  
@@ -30,12 +30,9 @@ He was **affable** at one moment, **choleric** the next. -
 His elegance is a living **reproach** to our **slovenly** habits. -  
 I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -  
 Tonight she **glitters** again in my space. -  
-Most **mindless** **hooligans** are fueled by alcohol. -  
 They're a **bunch** of **doddery** old fools, and they were scared. -  
-A fancy restaurant might also have **snooty** waiters. -  
 He drove with **blithe** disregard for the rules of the road. -  
 That's **a load of baloney**. -  
-**Rarely, if ever**, does he **sidestep** a question. -  
 **ignoble**. -  
 I give myself treats and justify them to **salve** my **conscience**. -  
 **ornate**. -  
@@ -43,11 +40,7 @@ He was so **mulish** that my **admonitions** just **flowed over** him. -
 Her fellow teachers greeted her proposal with **scorn**. -  
 **Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
 **vile**: morally **reprehensible**. -  
-Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**. -  
-He looked at her **askance**, and said nothing. -  
-Dorothy had climbed onto the **ledge** outside his window. -  
 The law is often **tardy** in reacting to changing attitudes. -  
-The artist exploring the new is **liable to** **derision** and hostility. -  
 She accepted the criticism with **magnanimity**. -  
 all the waiters were **suave** and **deferential**. -  
 For many years the West has looked **askance** at the science coming out of China. -  

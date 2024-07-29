@@ -1,19 +1,42 @@
 
 
-[convo](#conversation)  
+[Convo](#conversation)  
 [Interesting](#interesting)  
 
 [week 3](#week-3)  
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+### Week 4
 
-serenade. 
-bauble.  
-hygrometer 
-assiduous  
+beat it.  
 
+I have no idea how to connect to them, **should I decide to go**. 
 
+Just **poking** by the way, all friendly **discourse**. -  
+It was like **woodstock**. 
+CBDC would **morph into** what we saw in Canada.  
+**cardinal rule**.  
+the baby's **plump arms**.  
+Corn cooked in the Instant Pot results in perfectly seasoned, plump, and flavorful corn every time.  
+**corn on the cob**.  
+This file contains a **compendium** of all of the highest impact events from your life. -  
+
+Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. - 
+> You’ll never be happy or feel good if your **sense of worth** is tied up in always being **well-received**, if you can’t handle the injustice of being misunderstood or unfairly criticized.  
+
+You gotta leave **the knaves and the fools** to their own business, while you do your best to improve yours, to hold yourself to your own standards and to try to get better as you go. -  
+
+Plastic is in **widespread** use. 
+a **widespread** misunderstanding.  
+I wouldn't take the ranking as **gospel**.  
+
+**heterodox economics**  
+
+**serenade**.  
+**bauble**.  
+**hygrometer**  
+**assiduous**  
 
 He may have finally cracked it by **lavishing** subsidies on buyers of new-builds.  
 But this has sent house prices soaring—and left the **Kremlin** to **foot a giant bill**.  
@@ -44,7 +67,7 @@ He seems to **live off** junk food.
 
 
 **mezzanine loan**.  
-The book was received with **adulation** by the public.   
+The book was received with **adulation** by the public.  
 he found it difficult to cope with the **adulation** of the fans. -  
 
 **tomatillo**.  
@@ -308,7 +331,7 @@ Hopeful successes on the battlefield repeatedly followed by **dispiriting defeat
 Serve with red onion, sliced grapefruit and **balsamic vinegar**.  
 
 
-She has a **penchant** for champagne. -  
+She has a **penchant** for champagne.   
 **shelf life**.  
 
 Link two of them together, and you've got a **disaccharide**, lactose, **maltose**, or **sucrose**. -  

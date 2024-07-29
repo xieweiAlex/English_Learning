@@ -101,7 +101,7 @@ Wikileaks has **kicked the hornet's nest**, and the swarm is headed towards us.
 
 Tonight she **glitters** again in my space. -  
 **vulva**.  
-Most **mindless** **hooligans** are fueled by alcohol. -  
+Most **mindless** **hooligans** are fueled by alcohol.   
 **undulation**, **gyration**.  
 **banal**, **banality**.  
 **Parable**: any of the stories told by Jesus to convey his religious message.  
@@ -121,7 +121,7 @@ If you haven’t, we asked the RV bot for the funniest things he **blurted** out
 84% of last year’s US car sales were traditional **gas guzzlers**, their lowest-ever share of sales as the avenue gets more electric.  
 
 It's like a savings account with a **crummy** rate of returns, and when you die, they keep you money.  
-A fancy restaurant might also have **snooty** waiters. -  
+A fancy restaurant might also have **snooty** waiters.   
 
 a **wretched** idle layabout.  
 the **wretched** conditions of the slums.  
@@ -135,7 +135,7 @@ At least we've confirmed that they were up to something **untoward**.
 **carp**, **carper**.  
 That's **a load of baloney**. -  
 
-**Rarely, if ever**, does he **sidestep** a question. -  
+**Rarely, if ever**, does he **sidestep** a question.   
 **aquiculture**, **aquaculture**.  
 
 
@@ -222,7 +222,7 @@ Mountain **scenery** is superb.
 An energy-rich future is **within reach**.  
 Lululemon’s US growth sours as athleisure rivals like Alo and Vuori **make strides**.  
 
-Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**. -  
+Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**.   
 Everything is **hearsay** until the Thai government releases the details.  
 
 **Marginal propensity** to consume.  
@@ -242,7 +242,7 @@ Do we need to **upskill**?
 a lifestyle of **grotesque** luxury.  
 
 Many in mainstream science and medicine look at all this slightly **askance**.  
-He looked at her **askance**, and said nothing. -  
+He looked at her **askance**, and said nothing.   
 
 But the **corollary** of better performance is higher pay.  
 
@@ -263,9 +263,9 @@ Money **spawns** all sorts of wrongdoing, from cheating on income tax returns to
 **dumb shit**  
 **Taiwan strait**.  
 **strait-laced**, **straight-laced**  
-Dorothy had climbed onto the **ledge** outside his window. -  
+Dorothy had climbed onto the **ledge** outside his window.   
 The law is often **tardy** in reacting to changing attitudes. -  
-The artist exploring the new is **liable to** **derision** and hostility. -  
+The artist exploring the new is **liable to** **derision** and hostility.   
 **seagoing**.  
 She accepted the criticism with **magnanimity**. -  
 Elinor would not **vouchsafe** any answer.  
