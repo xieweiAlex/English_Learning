@@ -7,6 +7,14 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+lounge, lobby, hall, living room
+marshy meadow, Marshy Landscape.  
+marshy waste land.  
+
+Too much sweet food cloys the palate.  
+She has a discerning palate.  
+to my uncultured palate most of the wines were good.  
+
 ### Week 4
 
 beat it.  
