@@ -7,6 +7,11 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+
+Could we just get a temp, please?  
+So, you've been temping for us for a year now, and we want to bring you aboard permanently.  
+
+
 **muck**, **manure**, **mulch**.  
 **coquette**, **croquette**.  
 It would be a **presumptuous** mistake for me to cloud the picture with my own judgments and give opinions about what others (whose shoes I am not in) should do.  
