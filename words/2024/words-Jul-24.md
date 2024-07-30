@@ -8,16 +8,19 @@
 [week 1](#week-1)  
 
 
-Could we just get a temp, please?  
-So, you've been temping for us for a year now, and we want to bring you aboard permanently.  
-
+Could we just get a **temp**, please?  
+So, you've been **temping** for us for a year now, and we want to bring you aboard permanently.  
 
 **muck**, **manure**, **mulch**.  
 **coquette**, **croquette**.  
+amicable, amiable, affable, personable  
+**effable**, **ineffable** 
+**ins and outs**, **nitty gritty**. 
+**salve**, **suave**.  
+
 It would be a **presumptuous** mistake for me to cloud the picture with my own judgments and give opinions about what others (whose shoes I am not in) should do.  
 John Gruber, co-creator of Markdown and the **raconteur** behind Daring Fireball, offers **trenchant insights** on tech.  
 It was a **masterstroke**.  
-
 
 **lounge**, **lobby**, **hall**, **living room**
 **marshy** meadow, **Marshy Landscape**.  
@@ -37,8 +40,8 @@ Just **poking** by the way, all friendly **discourse**. -
 It was like **woodstock**. 
 CBDC would **morph into** what we saw in Canada.  
 **cardinal rule**.  
-the baby's **plump arms**.  
-Corn cooked in the Instant Pot results in perfectly seasoned, plump, and flavorful corn every time.  
+the baby's **plump arms**. -  
+Corn cooked in the Instant Pot results in perfectly seasoned, **plump**, and flavorful corn every time.  
 **corn on the cob**.  
 This file contains a **compendium** of all of the highest impact events from your life. -  
 
