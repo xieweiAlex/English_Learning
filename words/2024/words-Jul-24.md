@@ -7,6 +7,11 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, handily beating analysts' forecasts. 
+
+
+expound, expunge.  
+
 His paintings are contrived and formulaic.  
 
 Could we just get a **temp**, please?  
