@@ -7,6 +7,7 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+His paintings are contrived and formulaic.  
 
 Could we just get a **temp**, please?  
 So, you've been **temping** for us for a year now, and we want to bring you aboard permanently.  
