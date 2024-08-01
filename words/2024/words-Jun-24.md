@@ -223,7 +223,6 @@ An energy-rich future is **within reach**.
 Lululemon’s US growth sours as athleisure rivals like Alo and Vuori **make strides**.  
 
 Juneteenth **commemorates** the day when **enslaved** Black people in Galveston, Texas, learned they were free 2½ years after the passing of the **Emancipation** **Proclamation**.   
-Everything is **hearsay** until the Thai government releases the details.  
 
 **Marginal propensity** to consume.  
 **Launch** us into the **stratosphere**.  

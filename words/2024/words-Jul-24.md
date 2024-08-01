@@ -3,23 +3,38 @@
 [Convo](#conversation)  
 [Interesting](#interesting)  
 
+[week 3](#week-4)  
 [week 3](#week-3)  
 [week 2](#week-2)  
 [week 1](#week-1)  
 
-The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, handily beating analysts' forecasts. 
+When he arrived here, he was positively **rapturous**. -  
+
+Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more of a **prom** thing. -  
+**Crisper**.  
+**modicum**.  
+**pagan**, heathen, **infidel**, **heretic**.  
+**heretical**, **heresy** 
+**maim**.  
+**explicate**, **expound**.  
+He was released **on bail** pending **committal** proceedings.  
+**non-committal**.  
+
+Everything is **hearsay** until the Thai government releases the details.  
+
+The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, **handily** beating analysts' forecasts. 
 
 
-expound, expunge.  
+**expound**, **expunge**.  
 
-His paintings are contrived and formulaic.  
+His paintings are **contrived** and **formulaic**. -  
 
 Could we just get a **temp**, please?  
 So, you've been **temping** for us for a year now, and we want to bring you aboard permanently.  
 
 **muck**, **manure**, **mulch**.  
 **coquette**, **croquette**.  
-amicable, amiable, affable, personable  
+**amicable**, **amiable**, **affable**, **personable**  
 **effable**, **ineffable** 
 **ins and outs**, **nitty gritty**. 
 **salve**, **suave**.  
