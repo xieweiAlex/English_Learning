@@ -8,6 +8,13 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+
+clear-cut 
+suds  
+lumbar spine/vertebrae.    
+
+
+
 When he arrived here, he was positively **rapturous**. -  
 
 Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more of a **prom** thing. -  
