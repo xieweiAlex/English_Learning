@@ -3,10 +3,15 @@
 [Convo](#conversation)  
 [Interesting](#interesting)  
 
+[week 5](#week-5)  
 [week 4](#week-4)  
 [week 3](#week-3)  
 [week 2](#week-2)  
 [week 1](#week-1)  
+
+
+**Palliative** care. 
+
 
 ## Week 5  
 The **fallacious** case for **abolishing** the rich. -- Arguments for caps on income and wealth are simple, **rousing** and wrong.  
