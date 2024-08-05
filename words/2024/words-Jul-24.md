@@ -3,17 +3,42 @@
 [Convo](#conversation)  
 [Interesting](#interesting)  
 
-[week 3](#week-4)  
+[week 4](#week-4)  
 [week 3](#week-3)  
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+## Week 5  
+The **fallacious** case for **abolishing** the rich. -- Arguments for caps on income and wealth are simple, **rousing** and wrong.  
 
-clear-cut 
-suds  
-lumbar spine/vertebrae.    
+The **demise** of an iconic American highway.  
+California’s Highway 1 is among the world’s truly magical **stretches** of road.  
+
+So developed markets holding it as a reserved asset is pretty **far along** the line of success.  
+
+> Is it possible for me to keep the car until mid-September if you decide to take it? My move-out date is at the end of September, so I will still need a car to **get around**.  
+
+**rendition**.  
 
 
+She began **blathering** on about spirituality and life after death. -  
+now stop your **blathering** and get back to work.  
+you might say, "His hands were **grubby** after working in the garden." It's a fairly common term used to describe physical dirtiness or a **disheveled** appearance. -  
+**rote learning**, **rote memorization**.  
+
+
+**tax rebate**, export tax rebate.  
+Catherine gave a **gurgle** of laughter.  
+**gurgle, guggle**.  
+**edamame**.  
+The crowd **pelted** the mayor with angry questions.  
+**pelted** each other with snowballs.  
+two little boys **pelted** him with rotten apples.  
+Once we remove our **pelts**, we're mostly human.  
+
+**clear-cut**  
+**suds**  
+**lumbar spine**/**vertebrae**.  
 
 When he arrived here, he was positively **rapturous**. -  
 
@@ -21,7 +46,7 @@ Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more o
 **Crisper**.  
 **modicum**.  
 **pagan**, heathen, **infidel**, **heretic**.  
-**heretical**, **heresy** 
+**heretical**, **heresy**  
 **maim**.  
 **explicate**, **expound**.  
 He was released **on bail** pending **committal** proceedings.  
@@ -29,9 +54,7 @@ He was released **on bail** pending **committal** proceedings.
 
 Everything is **hearsay** until the Thai government releases the details.  
 
-The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, **handily** beating analysts' forecasts. 
-
-
+The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, **handily** beating analysts' forecasts.  
 **expound**, **expunge**.  
 
 His paintings are **contrived** and **formulaic**. -  
@@ -42,15 +65,15 @@ So, you've been **temping** for us for a year now, and we want to bring you aboa
 **muck**, **manure**, **mulch**.  
 **coquette**, **croquette**.  
 **amicable**, **amiable**, **affable**, **personable**  
-**effable**, **ineffable** 
-**ins and outs**, **nitty gritty**. 
+**effable**, **ineffable**  
+**ins and outs**, **nitty gritty**.  
 **salve**, **suave**.  
 
 It would be a **presumptuous** mistake for me to cloud the picture with my own judgments and give opinions about what others (whose shoes I am not in) should do.  
 John Gruber, co-creator of Markdown and the **raconteur** behind Daring Fireball, offers **trenchant insights** on tech.  
 It was a **masterstroke**.  
 
-**lounge**, **lobby**, **hall**, **living room**
+**lounge**, **lobby**, **hall**, **living room**  
 **marshy** meadow, **Marshy Landscape**.  
 **marshy waste land**.  
 
@@ -58,14 +81,14 @@ Too much sweet food **cloys** the **palate**. -
 She has a **discerning** **palate**.  
 to my **uncultured** **palate** most of the wines were good.  
 
-### Week 4
+### Week 4  
 
 **beat it**.  
 
-I have no idea how to connect to them, **should I decide to go**. 
+I have no idea how to connect to them, **should I decide to go**.  
 
 Just **poking** by the way, all friendly **discourse**. -  
-It was like **woodstock**. 
+It was like **woodstock**.  
 CBDC would **morph into** what we saw in Canada.  
 **cardinal rule**.  
 the baby's **plump arms**. -  
@@ -73,12 +96,12 @@ Corn cooked in the Instant Pot results in perfectly seasoned, **plump**, and fla
 **corn on the cob**.  
 This file contains a **compendium** of all of the highest impact events from your life. -  
 
-Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. - 
+Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. -  
 > You’ll never be happy or feel good if your **sense of worth** is tied up in always being **well-received**, if you can’t handle the injustice of being misunderstood or unfairly criticized.  
 
 You gotta leave **the knaves and the fools** to their own business, while you do your best to improve yours, to hold yourself to your own standards and to try to get better as you go. -  
 
-Plastic is in **widespread** use. 
+Plastic is in **widespread** use.  
 a **widespread** misunderstanding.  
 I wouldn't take the ranking as **gospel**.  
 
@@ -382,7 +405,7 @@ Hopeful successes on the battlefield repeatedly followed by **dispiriting defeat
 Serve with red onion, sliced grapefruit and **balsamic vinegar**.  
 
 
-She has a **penchant** for champagne.   
+She has a **penchant** for champagne.  
 **shelf life**.  
 
 Link two of them together, and you've got a **disaccharide**, lactose, **maltose**, or **sucrose**. -  

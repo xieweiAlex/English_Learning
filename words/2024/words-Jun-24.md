@@ -554,7 +554,7 @@ The beautiful and **dolorous** memory.
 > bang for the buck.  
 
 There is an **acrid tone** to your **remarks**. -  
-**acrid**: harsh or **corrosive in tone**. -  
+**acrid**: harsh or **corrosive in tone**.   
 Many highly **corrosive substances** are used in the nuclear industry.  
 
 She was trying hard to **disgorge** a fish bone.  
@@ -637,7 +637,7 @@ Senate sends **sweeping** foreign aid package to Biden's desk.
 
 Some mass media tend to please people of **plebeian** tastes.  
 We ought to use the **pluperfect** and say wakened, but woke is better and was always used by Peter.  
-This young man had all the **inclination** to be a **profligate** of the first water. -  
+This young man had all the **inclination** to be a **profligate** of the first water.   
 
 **fall victim to**.  
 

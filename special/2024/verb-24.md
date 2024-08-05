@@ -1,4 +1,24 @@
 
+
+**Pelt, Hurl, fling, toss, lob, chuck**  
+
+**throw, bombard, shower** 
+
+Hurl: To throw something with great force. Unlike "pelt," which often implies multiple objects being thrown, "hurl" typically refers to a single, forceful throw.
+
+Fling: To throw something carelessly or with a sudden motion. "Fling" suggests a lack of precision or concern.  
+
+Chuck: Informal term for throwing something carelessly or without much effort. It's similar to "fling" but often used more casually.
+
+Lob: To throw something in a high arc. It implies a gentle, arcing trajectory rather than a direct and forceful throw.
+
+Bombard: To attack or throw objects at someone or something repeatedly and aggressively. "Bombard" conveys a sense of continuous and intense action.  
+
+Shower: To throw or drop many things over a wide area. It implies a spread-out distribution, similar to "pelt" but often used for lighter items.  
+
+
+## July 
+
 **tie** 
 
 **sidestep** 

@@ -1,5 +1,16 @@
 ## words-Jul-24.md ##  
 words/2024/words-Jul-24.md  
+She began **blathering** on about spirituality and life after death. -  
+you might say, "His hands were **grubby** after working in the garden." It's a fairly common term used to describe physical dirtiness or a **disheveled** appearance. -  
+When he arrived here, he was positively **rapturous**. -  
+Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more of a **prom** thing. -  
+His paintings are **contrived** and **formulaic**. -  
+Too much sweet food **cloys** the **palate**. -  
+Just **poking** by the way, all friendly **discourse**. -  
+the baby's **plump arms**. -  
+This file contains a **compendium** of all of the highest impact events from your life. -  
+Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. -  
+You gotta leave **the knaves and the fools** to their own business, while you do your best to improve yours, to hold yourself to your own standards and to try to get better as you go. -  
 **Hillbilly Elegy**. -  
 he found it difficult to cope with the **adulation** of the fans. -  
 Spending a night in jail was his **road to Damascus**. -  
@@ -51,9 +62,7 @@ The play was considered an **affront** to public morals.  -
 Inflation was the **scourge** of the 1970s. -  
 At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
 There is an **acrid tone** to your **remarks**. -  
-**acrid**: harsh or **corrosive in tone**.   
 What does all this **portend** for the near future?  -  
-This young man had all the **inclination** to be a **profligate** of the first water.   
 The book's happy ending seemed **contrived**. -  
 
 ## words-Apr-24.md ##  
