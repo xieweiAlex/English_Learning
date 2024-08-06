@@ -11,6 +11,10 @@
 
 
 **Palliative** care. 
+And covers herself in rubies, **emeralds**, and **sapphires**. -  
+He swore never to **divulge** the secret.  
+**drivel**.  
+peevish.  
 
 
 ## Week 5  
