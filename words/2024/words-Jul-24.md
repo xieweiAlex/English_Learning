@@ -10,7 +10,7 @@
 [week 1](#week-1)  
 
 
-**Palliative** care. 
+**Palliative** care.  
 And covers herself in rubies, **emeralds**, and **sapphires**. -  
 He swore never to **divulge** the secret.  
 **drivel**.  
@@ -123,7 +123,7 @@ I wouldn't take the ranking as **gospel**.
 
 He may have finally cracked it by **lavishing** subsidies on buyers of new-builds.  
 But this has sent house prices soaring—and left the **Kremlin** to **foot a giant bill**.  
-**Hillbilly Elegy**. -  
+**Hillbilly Elegy**.  
 
 
 **suave and urbane**.  
@@ -157,7 +157,7 @@ he found it difficult to cope with the **adulation** of the fans. -
 Watch your language, **varmint**. There's a lady present.  
 **prairie**, **steppe**.  
 
-Spending a night in jail was his **road to Damascus**. -  
+Spending a night in jail was his **road to Damascus**.  
 Has he had a real "**road to Damascus**"? -- of course not.  
 **ride off into the sunset**.  
 We **delude** ourselves that we are in control. -  
@@ -280,7 +280,7 @@ Yet Amazon still retains one big advantage: its vast online book **emporium**.
 **coagulate**.  
 **inflexion point**.  
 **verisimilar**.  
-she was in a **jovial** mood. -  
+she was in a **jovial** mood.  
 
 
 One of the demonstrators, a young woman, sat **forlorn** on the **sidewalk**.  
@@ -323,7 +323,7 @@ He **parried** the unwelcome question very **skilfully**.
 
 He's **setting up** this **patsy** to **take the fall**. -  
 They walked silently over the **dewy grass**.  
-I like to **putter around** in the garden. -  
+I like to **putter around** in the garden.  
 You're too intelligent to fall for his **flattery**.  
 She started employing jazz players to execute more open, **discursive** forms.  
 **on/off grid**.  
@@ -350,7 +350,7 @@ The **subtext** was always the same: We may live in chaos, but there are mechani
 She was **dewy** and strong and in her mid-40s, though she looked a decade younger, with two small kids from a previous relationship.  
 He was **courtly** and a bit formal, as he would later be on the podcast.  
 They cared **immoderately** about what went into their bodies.  
-He was **devoted** to his **bullmastiff**, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah. -  
+He was **devoted** to his **bullmastiff**, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah.   
 
 “He **in some ways** disappeared,” says David Spiegel, a Stanford psychiatrist who calls Andrew “**prodigiously smart**” and “intensely engaging.”  
 I don’t have total **fidelity** to who Andrew is,” says his friend Patrick Dossett. “There’s always a little unknown there.  
@@ -394,7 +394,7 @@ This conversation extends for an extraordinary nine minutes, both men **egging e
 **Admittedly**  
 A **haughty** British **aristocrat**.  
 
-Finally, the notion of the "thought leader being inspirational at TED" hasn't **aged** well. It's seen as self-congratulatory, **formulaic** and ultimately vapid. -  
+Finally, the notion of the "thought leader being inspirational at TED" hasn't **aged** well. It's seen as self-congratulatory, **formulaic** and ultimately vapid.  
 
 **butthead**.  
 **chunksters**.  
@@ -434,7 +434,7 @@ The Middle Path here is to **straddle** between **Samsara** and **nirvana**.
 **stern warning**.  
 
 The **onus** is on employers to follow health and safety laws.  
-In my fever I had a long consistent **delirium**. -  
+In my fever I had a long consistent **delirium**.   
 
 
 Many of Biden's most trusted aides believe the debate was just one bad night and expect it to **blow over**.  

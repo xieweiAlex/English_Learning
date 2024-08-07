@@ -114,7 +114,7 @@ Curiosity can also be dangerous, **leading to** setbacks or even downfalls.
 
 
 **Requiem** of bank loans.  
-They're a **bunch** of **doddery** old fools, and they were scared. -  
+They're a **bunch** of **doddery** old fools, and they were scared.   
 
 Airdrops Should **Give Way To** A Better Token Distribution Method.  
 If you haven’t, we asked the RV bot for the funniest things he **blurted** out last time…  
@@ -133,7 +133,7 @@ He drove with **blithe** disregard for the rules of the road. -
 **untoward** jokes and racial remarks.  
 At least we've confirmed that they were up to something **untoward**.  
 **carp**, **carper**.  
-That's **a load of baloney**. -  
+That's **a load of baloney**.   
 
 **Rarely, if ever**, does he **sidestep** a question.   
 **aquiculture**, **aquaculture**.  
@@ -150,7 +150,7 @@ A coral reef is built by the **accretion** of tiny, identical organisms.
 I give myself treats and justify them to **salve** my **conscience**. -  
 **ornate**. -  
 The **momentary** relief was followed by worse suffering.  
-He was so **mulish** that my **admonitions** just **flowed over** him. -  
+He was so **mulish** that my **admonitions** just **flowed over** him.   
 For each title there is a brief **synopsis** of the book.  
 Musicians blast their **brassy jazz** from street corners.  
 This **antiseptic** is for external use only.  
@@ -339,7 +339,7 @@ European banks are making **heady** profits in Russia.
 Markets celebrated the two bills’ passing, after protesters took to the streets of **Buenos Aires**.  
 Louisiana could soon start **castrating** child-rapists.  
 
-Suffering animals should be **humanely** **euthanized** on the farm. -  
+Suffering animals should be **humanely** **euthanized** on the farm.   
 Politicians around him grew rich, but Truman’s clothing business failed. He was **punctilious** about paying back every penny he owed.  
 losing myself in a **captivating** book.  
 
@@ -553,7 +553,7 @@ Come, come, come. You must be **famished**.
 The beautiful and **dolorous** memory.  
 > bang for the buck.  
 
-There is an **acrid tone** to your **remarks**. -  
+There is an **acrid tone** to your **remarks**.   
 **acrid**: harsh or **corrosive in tone**.   
 Many highly **corrosive substances** are used in the nuclear industry.  
 
@@ -654,7 +654,7 @@ If there's anything I can't stand it's an **indecisive**, **wishy-washy** custom
 What has he done to deserve that **termagant**?  
 The **fire brigade** was called out twice last night.  
 **prizefighter**.  
-The book's happy ending seemed **contrived**. -  
+The book's happy ending seemed **contrived**.   
 We had roasted **pheasant** for dinner.  
 
 My baby slept safe from harm in her **white wicker bassinet**.  
