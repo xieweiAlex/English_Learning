@@ -9,6 +9,18 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+autograph. 
+ascorbic acid.  
+moot point. ?  
+malarkey, baloney.  
+entrapment.  
+Mercurial thermometer.  
+kibitz.  
+The beautiful and dolorous memory.  
+Her eyes were puffy from crying.  
+
+
+mundane, juejune, banal, monotonous 
 
 **Palliative** care.  
 And covers herself in rubies, **emeralds**, and **sapphires**. -  

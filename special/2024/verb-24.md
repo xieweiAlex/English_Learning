@@ -1,5 +1,7 @@
 
 
+**segment**
+
 **Pelt, Hurl, fling, toss, lob, chuck**  
 
 **throw, bombard, shower** 
