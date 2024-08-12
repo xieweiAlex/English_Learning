@@ -3,30 +3,48 @@
 [Convo](#conversation)  
 [Interesting](#interesting)  
 
+[week 6](#week-6)  
 [week 5](#week-5)  
 [week 4](#week-4)  
 [week 3](#week-3)  
 [week 2](#week-2)  
 [week 1](#week-1)  
 
-autograph. 
-ascorbic acid.  
-moot point. ?  
-malarkey, baloney.  
-entrapment.  
-Mercurial thermometer.  
-kibitz.  
-The beautiful and dolorous memory.  
-Her eyes were puffy from crying.  
+## Week 6
 
+**endogenous vs exogenous**.  
+Crypto bounces back, are we **in the clear**?  
 
-mundane, juejune, banal, monotonous 
+**clarion**?? 
+**prelude**.  
+**oratory**. 
+**pillory**  
+**grubby**
+**grumpy**
+
+He was a **vociferous** opponent of Conservatism. -  
+The chance to that is **slim to none**.  
+
+**explicate, expound, elucidate, dissect**.  
+**musty**, **muster**
+
+**autograph**. 
+**ascorbic acid**.  
+But for Americans it's a **moot point**. The State Department says, don't travel to India.  
+**malarkey**, **baloney**.  
+**entrapment**.  
+**Mercurial** thermometer.  
+**kibitz**.  
+The beautiful and **dolorous** memory.  
+Her eyes were **puffy** from crying.  
+
+**mundane**, **juejune**, **banal**, **monotonous** 
 
 **Palliative** care.  
 And covers herself in rubies, **emeralds**, and **sapphires**. -  
 He swore never to **divulge** the secret.  
 **drivel**.  
-peevish.  
+**peevish**.  
 
 
 ## Week 5  
