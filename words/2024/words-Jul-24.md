@@ -10,6 +10,15 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+Monetary inflation spirals inexorably on. 
+the seemingly inexorable march of new technology.  
+CHINA's rise has long appeared inexorable.   
+tempered steel/glass.  
+quenched and tempered steel.  
+She gets very bad-tempered when she's tired.
+
+
+
 ## Week 6
 
 **endogenous vs exogenous**.  
