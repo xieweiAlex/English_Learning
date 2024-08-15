@@ -10,13 +10,20 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+Polish billionaire Rafal Brzoska wins an injunction temporarily banning Meta from publishing fake ads that use images of him or his wife.  
+
 Monetary inflation spirals inexorably on. 
 the seemingly inexorable march of new technology.  
-CHINA's rise has long appeared inexorable.   
-tempered steel/glass.  
-quenched and tempered steel.  
+china's rise has long appeared **inexorable**. -   
+**tempered steel/glass**.  
+**quenched and tempered** steel.  
 She gets very bad-tempered when she's tired.
-
+It's a wild riff for saxophone.  
+overture, prelude, interlude, crescendo, climax, climactic, epilogue  
+dub  
+tenuous, precarious  
+pseudonymous vs anonymous  
+inane dialogue and mannered acting.  
 
 
 ## Week 6
