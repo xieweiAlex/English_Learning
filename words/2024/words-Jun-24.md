@@ -147,7 +147,7 @@ That's **a load of baloney**.
 **tarmac**.  
 A coral reef is built by the **accretion** of tiny, identical organisms.  
 **dilettante**.  
-I give myself treats and justify them to **salve** my **conscience**. -  
+I give myself treats and justify them to **salve** my **conscience**.   
 **ornate**. -  
 The **momentary** relief was followed by worse suffering.  
 He was so **mulish** that my **admonitions** just **flowed over** him.   
@@ -363,7 +363,7 @@ Macron wants a **snap** election to get him out of **a deep hole**.
 
 The war for AI talent is heating up. - Big tech firms **scramble to** fill gaps as **brain drain** **sets in**.  
 
-she was **hypnotized** by the **mellow tone** of his voice. -  
+she was **hypnotized** by the **mellow tone** of his voice.   
 The years have **mellowed** him.  
 
 Remote work is **faltering**—Slack and Zoom might be to blame.  
@@ -441,7 +441,7 @@ A **dodgy** second-hand car salesman.
 His promise during the campaign to try to bring the war to an end was a political **masterstroke**.  
 **Nuclear proliferation** has returned to centre stage in international affairs.  
 The **plaintiff** can now more clearly show **culpability**.  
-The play was considered an **affront** to public morals.  -  
+The play was considered an **affront** to public morals.    
 **Camellia**.  
 
 Low-level **current**, **tingling** sensation throughout their back.  

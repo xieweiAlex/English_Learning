@@ -12,12 +12,12 @@
 
 Polish billionaire Rafal Brzoska wins an injunction temporarily banning Meta from publishing fake ads that use images of him or his wife.  
 
-Monetary inflation spirals inexorably on. 
+Monetary inflation spirals inexorably on.  
 the seemingly inexorable march of new technology.  
-china's rise has long appeared **inexorable**. -   
+china's rise has long appeared **inexorable**. -  
 **tempered steel/glass**.  
 **quenched and tempered** steel.  
-She gets very bad-tempered when she's tired.
+She gets very bad-tempered when she's tired.  
 It's a wild riff for saxophone.  
 overture, prelude, interlude, crescendo, climax, climactic, epilogue  
 dub  
@@ -26,25 +26,25 @@ pseudonymous vs anonymous
 inane dialogue and mannered acting.  
 
 
-## Week 6
+## Week 6  
 
 **endogenous vs exogenous**.  
 Crypto bounces back, are we **in the clear**?  
 
-**clarion**?? 
+**clarion**??  
 **prelude**.  
-**oratory**. 
+**oratory**.  
 **pillory**  
-**grubby**
-**grumpy**
+**grubby**  
+**grumpy**  
 
 He was a **vociferous** opponent of Conservatism. -  
 The chance to that is **slim to none**.  
 
 **explicate, expound, elucidate, dissect**.  
-**musty**, **muster**
+**musty**, **muster**  
 
-**autograph**. 
+**autograph**.  
 **ascorbic acid**.  
 But for Americans it's a **moot point**. The State Department says, don't travel to India.  
 **malarkey**, **baloney**.  
@@ -54,7 +54,7 @@ But for Americans it's a **moot point**. The State Department says, don't travel
 The beautiful and **dolorous** memory.  
 Her eyes were **puffy** from crying.  
 
-**mundane**, **juejune**, **banal**, **monotonous** 
+**mundane**, **juejune**, **banal**, **monotonous**  
 
 **Palliative** care.  
 And covers herself in rubies, **emeralds**, and **sapphires**. -  
@@ -274,7 +274,7 @@ I heard a **whizzing** sound, shots, and immediately felt the bullet **ripping**
 **tabby cat**.  
 
 My father was **apoplectic** when he discovered the truth. -  
-**Macabre**: While not a part of daily vocabulary for most people, it is recognized by many, especially in contexts involving **gothic** or horror elements. -  
+**Macabre**: While not a part of daily vocabulary for most people, it is recognized by many, especially in contexts involving **gothic** or horror elements.   
 
 **marketing gimmicks**.  
 The former sealed the **demise** of the “Nifty Fifty” like Xerox and Avon Products, while the latter signaled the end of the tech and telecom bubble.  
@@ -396,7 +396,7 @@ The **subtext** was always the same: We may live in chaos, but there are mechani
 She was **dewy** and strong and in her mid-40s, though she looked a decade younger, with two small kids from a previous relationship.  
 He was **courtly** and a bit formal, as he would later be on the podcast.  
 They cared **immoderately** about what went into their bodies.  
-He was **devoted** to his **bullmastiff**, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah.   
+He was **devoted** to his **bullmastiff**, Costello, whom he worried over constantly: Was Costello comfortable? Sleeping properly? Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah.  
 
 “He **in some ways** disappeared,” says David Spiegel, a Stanford psychiatrist who calls Andrew “**prodigiously smart**” and “intensely engaging.”  
 I don’t have total **fidelity** to who Andrew is,” says his friend Patrick Dossett. “There’s always a little unknown there.  
@@ -480,7 +480,7 @@ The Middle Path here is to **straddle** between **Samsara** and **nirvana**.
 **stern warning**.  
 
 The **onus** is on employers to follow health and safety laws.  
-In my fever I had a long consistent **delirium**.   
+In my fever I had a long consistent **delirium**.  
 
 
 Many of Biden's most trusted aides believe the debate was just one bad night and expect it to **blow over**.  
