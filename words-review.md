@@ -1,12 +1,20 @@
-## words-Jul-24.md ##  
-words/2024/words-Jul-24.md  
+## words-Aug-24.md ##  
+words/2024/words-Aug-24.md  
+**plumage** -  
+They accepted without **demur**. -  
+Monetary inflation spirals **inexorably** on. -  
+china's rise has long appeared **inexorable**. -  
+He was a **vociferous** opponent of Conservatism. -  
+And covers herself in rubies, **emeralds**, and **sapphires**. -  
 She began **blathering** on about spirituality and life after death. -  
 you might say, "His hands were **grubby** after working in the garden." It's a fairly common term used to describe physical dirtiness or a **disheveled** appearance. -  
 When he arrived here, he was positively **rapturous**. -  
 Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more of a **prom** thing. -  
 His paintings are **contrived** and **formulaic**. -  
 Too much sweet food **cloys** the **palate**. -  
-Just **poking** by the way, all friendly **discourse**.   
+
+## words-Jul-24.md ##  
+words/2024/words-Jul-24.md  
 the baby's **plump arms**. -  
 This file contains a **compendium** of all of the highest impact events from your life. -  
 Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. -  
@@ -19,10 +27,8 @@ a **put-upon** **drudge** who slaved for her employer. -
 My father was **apoplectic** when he discovered the truth. -  
 **accept and expiate**. -  
 Hunter was accused of illegally purchasing and possessing a firearm in October 2018 while using a **narcotic**. -  
-He's **setting up** this **patsy** to **take the fall**.   
 Often, both groups also live in **ethnic enclaves**. -  
 The **wayward** son would devote himself to therapy and also to science. -  
-It was a wealthy place, the kind of setting where the word **au pair** comes up frequently.   
 Link two of them together, and you've got a **disaccharide**, lactose, **maltose**, or **sucrose**. -  
 He would **immolate** himself for their noble cause. -  
 

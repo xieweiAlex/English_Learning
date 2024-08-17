@@ -151,7 +151,7 @@ if [[ "$#" -ne 1 ]]; then
 fi
 
 echo ".."
-ensure_trailing_spaces "./words/2024/words-Jul-24.md"
+ensure_trailing_spaces "./words/2024/words-Aug-24.md"
 
 echo "..."
 if [[ $action == 'sync' ]];

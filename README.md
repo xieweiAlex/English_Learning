@@ -12,6 +12,7 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 
 ### 2024 
 
+[Aug Words](./words/2024/words-Aug-24.md) |
 [July Words](./words/2024/words-Jul-24.md) |
 
 [June Words](./words/2024/words-Jun-24.md) |
