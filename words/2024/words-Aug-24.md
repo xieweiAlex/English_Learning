@@ -3,8 +3,27 @@
 [Convo](#conversation)  
 [Interesting](#interesting)  
 
+[week 3](#week-3)  
 [week 2](#week-2)  
 [week 1](#week-1)  
+
+### Week 3
+
+**modish**
+**ambit**.  
+**insouciant**  
+**eucharist**  
+**plush**.  
+**rec room**.  
+**tater tots**.  
+**Divvy it up** between us.  
+**arid** area/region/climate  
+
+**slovenly**, sloppy, clumpsy, 
+
+It is a **bicameral** body, meaning it has two separate chambers.  
+Russia sentences Evan Gershkovich to 16 years on **bogus** spying charges.  
+The epic **bust-up** between China and India could be ending.  
 
 
 **squabble**.  
@@ -30,7 +49,7 @@ It's a wild **riff** for saxophone.
 **pseudonymous** vs **anonymous**  
 **inane** dialogue and mannered acting.  
 
-## Week 2  
+### Week 2  
 
 **endogenous vs exogenous**.  
 Crypto bounces back, are we **in the clear**?  
@@ -143,4 +162,7 @@ to my **uncultured** **palate** most of the wines were good.
 ## Conversation  
 
 ## Interesting  
+As I grow, I'm more inclined to adopt a "roll with the punches" attitude.   
+So when do you really know it's time to call it quits?  
+
 

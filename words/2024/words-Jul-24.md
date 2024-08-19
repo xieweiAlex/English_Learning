@@ -3,8 +3,6 @@
 [Convo](#conversation)  
 [Interesting](#interesting)  
 
-[week 6](#week-6)  
-[week 5](#week-5)  
 [week 4](#week-4)  
 [week 3](#week-3)  
 [week 2](#week-2)  
