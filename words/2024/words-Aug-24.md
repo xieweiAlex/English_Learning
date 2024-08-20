@@ -7,6 +7,14 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+
+the **reek** of stale tobacco smoke.  
+the **putrid** smell from the slaughterhouse.  
+The 81-year-old president's speech ran past midnight Eastern time as the DNC was **behind schedule**.  
+
+I have to **embellish** your misery on these fake torture reports.  
+
+
 ### Week 3
 
 **modish**
@@ -55,6 +63,8 @@ It's a wild **riff** for saxophone.
 Crypto bounces back, are we **in the clear**?  
 
 **clarion**??  
+**rendition**.  
+
 **prelude**.  
 **oratory**.  
 **pillory**  
@@ -95,8 +105,6 @@ California’s Highway 1 is among the world’s truly magical **stretches** of r
 So developed markets holding it as a reserved asset is pretty **far along** the line of success.  
 
 > Is it possible for me to keep the car until mid-September if you decide to take it? My move-out date is at the end of September, so I will still need a car to **get around**.  
-
-**rendition**.  
 
 
 She began **blathering** on about spirituality and life after death. -  
@@ -160,9 +168,21 @@ She has a **discerning** **palate**.
 to my **uncultured** **palate** most of the wines were good.  
 
 ## Conversation  
+> Happened in real life or audio/video that I can resonate a scene
+
+I have to **embellish** your misery on these fake torture reports.  
 
 ## Interesting  
+> vivid, absurd, "outrageous", hilarious
+
 As I grow, I'm more inclined to adopt a "roll with the punches" attitude.   
 So when do you really know it's time to call it quits?  
 
+**slovenly**, sloppy, clumpsy, 
+The epic **bust-up** between China and India could be ending.  
 
+**overture, prelude, interlude, crescendo, climax, climactic, epilogue**  
+Crypto bounces back, are we **in the clear**?  
+And covers herself in rubies, **emeralds**, and **sapphires**.   
+
+The **fallacious** case for **abolishing** the rich. -- Arguments for caps on income and wealth are simple, **rousing** and wrong.  
