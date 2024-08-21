@@ -13,6 +13,7 @@ the **putrid** smell from the slaughterhouse.
 The 81-year-old president's speech ran past midnight Eastern time as the DNC was **behind schedule**.  
 
 I have to **embellish** your misery on these fake torture reports.  
+Patreon should call Apple on this bluff. I don’t think they could lose.  
 
 
 ### Week 3
