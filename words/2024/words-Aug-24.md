@@ -7,6 +7,11 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+Some children have more finely trained perceptual skills than others.
+Douglas was a complex man, thoughtful, gallant, and generous.   
+self-aware.  
+lash out.  
+
 
 the **reek** of stale tobacco smoke.  
 the **putrid** smell from the slaughterhouse.  
