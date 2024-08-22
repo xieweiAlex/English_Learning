@@ -273,7 +273,7 @@ Xi Jinping, China’s president, **sneers** at “the so-called universal values
 
 Now let's look at another **facet** of the problem.  
 No wonder, as well, that millennials have revived interest in this book and the possibility of Financial Independence. They already have **multiple facets** to their lives—some that make money, some as hobbies, some as passions, some as **quirks**.  
-If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant. -  
+If you’ve worked at only one company for most of your career, it takes **oomph** to put yourself out into the world, where ageism runs rampant.   
 Perhaps because our jobs are so **laced into** every hour of our days, we take our leisure in unconscious and unsatisfying ways.  
 
 The **provenance** of Bitcoin is very important.  

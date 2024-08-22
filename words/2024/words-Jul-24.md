@@ -18,7 +18,7 @@ Just **poking** by the way, all friendly **discourse**.
 It was like **woodstock**.  
 CBDC would **morph into** what we saw in Canada.  
 **cardinal rule**.  
-the baby's **plump arms**. -  
+the baby's **plump arms**.   
 Corn cooked in the Instant Pot results in perfectly seasoned, **plump**, and flavorful corn every time.  
 **corn on the cob**.  
 This file contains a **compendium** of all of the highest impact events from your life. -  
@@ -245,7 +245,7 @@ I like to **putter around** in the garden.
 You're too intelligent to fall for his **flattery**.  
 She started employing jazz players to execute more open, **discursive** forms.  
 **on/off grid**.  
-Often, both groups also live in **ethnic enclaves**. -  
+Often, both groups also live in **ethnic enclaves**.   
 This brings us to **normative** vs **informational conformity**.  
 
 

@@ -13,12 +13,15 @@ the **putrid** smell from the slaughterhouse.
 The 81-year-old president's speech ran past midnight Eastern time as the DNC was **behind schedule**.  
 
 I have to **embellish** your misery on these fake torture reports.  
-Patreon should call Apple on this bluff. I don’t think they could lose.  
+Patreon should **call Apple on this bluff**. I don’t think they could lose.  
+Joe had a low, **guttural** voice with a Midwestern accent.  
+She wiped her **floury** hands on her **apron**.  
+**parking apron**
 
 
-### Week 3
+### Week 3  
 
-**modish**
+**modish**  
 **ambit**.  
 **insouciant**  
 **eucharist**  
@@ -28,7 +31,7 @@ Patreon should call Apple on this bluff. I don’t think they could lose.
 **Divvy it up** between us.  
 **arid** area/region/climate  
 
-**slovenly**, sloppy, clumpsy, 
+**slovenly**, sloppy, clumpsy,  
 
 It is a **bicameral** body, meaning it has two separate chambers.  
 Russia sentences Evan Gershkovich to 16 years on **bogus** spying charges.  
@@ -47,7 +50,7 @@ Polish billionaire Rafal Brzoska wins an **injunction** temporarily banning Meta
 
 Monetary inflation spirals **inexorably** on. -  
 the seemingly **inexorable** march of new technology.  
-china's rise has long appeared **inexorable**. -  
+china's rise has long appeared **inexorable**.   
 **tempered steel/glass**.  
 **quenched and tempered** steel.  
 She gets very **bad-tempered** when she's tired.  
@@ -129,7 +132,7 @@ Once we remove our **pelts**, we're mostly human.
 
 When he arrived here, he was positively **rapturous**. -  
 
-Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more of a **prom** thing. -  
+Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more of a **prom** thing.   
 **Crisper**.  
 **modicum**.  
 **pagan**, heathen, **infidel**, **heretic**.  
@@ -144,7 +147,7 @@ Everything is **hearsay** until the Thai government releases the details.
 The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, **handily** beating analysts' forecasts.  
 **expound**, **expunge**.  
 
-His paintings are **contrived** and **formulaic**. -  
+His paintings are **contrived** and **formulaic**.   
 
 Could we just get a **temp**, please?  
 So, you've been **temping** for us for a year now, and we want to bring you aboard permanently.  
@@ -169,21 +172,22 @@ She has a **discerning** **palate**.
 to my **uncultured** **palate** most of the wines were good.  
 
 ## Conversation  
-> Happened in real life or audio/video that I can resonate a scene
+> Happened in real life or audio/video that I can resonate a scene  
 
 I have to **embellish** your misery on these fake torture reports.  
 
 ## Interesting  
-> vivid, absurd, "outrageous", hilarious
+> vivid, absurd, "outrageous", hilarious  
 
-As I grow, I'm more inclined to adopt a "roll with the punches" attitude.   
-So when do you really know it's time to call it quits?  
+As I grow, I'm more inclined to adopt a "**roll with the punches**" attitude.  
+So when do you really know it's time to **call it quits**?  
+Patreon should **call Apple on this bluff**. I don’t think they could lose.  
 
-**slovenly**, sloppy, clumpsy, 
+**slovenly**, sloppy, **clumpy**,  
 The epic **bust-up** between China and India could be ending.  
 
 **overture, prelude, interlude, crescendo, climax, climactic, epilogue**  
 Crypto bounces back, are we **in the clear**?  
-And covers herself in rubies, **emeralds**, and **sapphires**.   
+And covers herself in rubies, **emeralds**, and **sapphires**.  
 
 The **fallacious** case for **abolishing** the rich. -- Arguments for caps on income and wealth are simple, **rousing** and wrong.  
