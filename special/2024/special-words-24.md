@@ -1,4 +1,8 @@
 
+**empirical**
+
+**eclectic** 
+
 **decoy**
 
 ## July 

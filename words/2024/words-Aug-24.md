@@ -13,6 +13,9 @@ self-aware.
 lash out.  
 
 
+Top Harris adviser says **Sun Belt**’s **back in play**.  
+scour, scourge, scrounge.  
+
 the **reek** of stale tobacco smoke.  
 the **putrid** smell from the slaughterhouse.  
 The 81-year-old president's speech ran past midnight Eastern time as the DNC was **behind schedule**.  
@@ -180,6 +183,11 @@ to my **uncultured** **palate** most of the wines were good.
 > Happened in real life or audio/video that I can resonate a scene  
 
 I have to **embellish** your misery on these fake torture reports.  
+
+Lighten up a little.  
+A foot in the door. 
+
+
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious  
