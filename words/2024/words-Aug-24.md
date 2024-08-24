@@ -7,6 +7,12 @@
 [week 2](#week-2)  
 [week 1](#week-1)  
 
+
+I asked a favour of him, but he refused point-blank.  
+mustard??? 
+
+
+
 Some children have more finely trained perceptual skills than others.
 Douglas was a complex man, thoughtful, gallant, and generous.   
 self-aware.  
