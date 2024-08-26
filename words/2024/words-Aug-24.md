@@ -1,26 +1,63 @@
 
 
-[Convo](#conversation)  
-[Interesting](#interesting)  
+[Convo](#conversation) | [Interesting](#interesting)  
 
-[week 3](#week-3)  
-[week 2](#week-2)  
-[week 1](#week-1)  
+[Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
-
-I asked a favour of him, but he refused point-blank.  
-mustard??? 
+These piecemeal solutions won't work.  
 
 
+### Week 4  
 
-Some children have more finely trained perceptual skills than others.
-Douglas was a complex man, thoughtful, gallant, and generous.   
-self-aware.  
-lash out.  
+If they want to keep their license they will **toe the party line**.  
+Tourists sunbathe and frolic in the ocean.  
+This period is often referred to as the "anabolic window," when your muscles are most receptive to protein and nutrients for recovery and growth.  
+If you wait until the next day, it won't entirely **negate** the benefits, but you might miss out on the optimal recovery period.
 
+drudgery.  
+copulate, copulation.  
+atrium, patio, stairwell, courtyard
+on par, below par.  
+
+**coquette**  
+Has anyone ever told you what a **drag** you are?  
+I'm basically **squealing** like a birthday girl.  
+No one can truly **turn over a new leaf**.  
+
+**icky**.  
+**Hops** serve to **embitter** beer.  
+To reveal it would be to **embitter** her life. -  
+He hated her with a **cankered**, shameful **abhorrence**. -  
+The **amort** relationship was like a **black hole**, and it's been **cankering** my soul. -  
+**rugged**.  
+That may seem **anticlimactic**.  
+The conclusion of the movie was **anticlimactic**.  
+Your statement doesn't **jibe with** the facts.  
+The truth is that the risks of the euro splintering really have mounted.  
+**stylus**.  
+**lorry driver**, **lorry crane**.  
+
+Ah, like now, I'm feeling **loopy** and I don't really know how to express myself.  
+Although, if I stand next to a powerful array of magnets, I do get pretty **loopy**.  
+**rebound guy**.  
+**what a dork**, am I right?  
+
+**kneading** dough.  
+**Knead** the lame muscles.  
+Soften the plug by **vigorous kneading**, form it into a ball (no elongated shape!) Seal the opening of the ear canal with gentle pressure.  
+
+He fears the implicit **reproach** to himself, because in Putin's Russia you get jailed for 15 years just bc of calling an invasion invasion.  
+
+I asked a favour of him, but he refused **point-blank**.  
+**mustard**  
+
+Some children have more **finely** trained **perceptual** skills than others.  
+Douglas was a complex man, **thoughtful**, **gallant**, and generous.  
+**self-aware**.  
+**lash out**.  
 
 Top Harris adviser says **Sun Belt**’s **back in play**.  
-scour, scourge, scrounge.  
+**scour**, scourge, scrounge.  
 
 the **reek** of stale tobacco smoke.  
 the **putrid** smell from the slaughterhouse.  
@@ -30,7 +67,7 @@ I have to **embellish** your misery on these fake torture reports.
 Patreon should **call Apple on this bluff**. I don’t think they could lose.  
 Joe had a low, **guttural** voice with a Midwestern accent.  
 She wiped her **floury** hands on her **apron**.  
-**parking apron**
+**parking apron**  
 
 
 ### Week 3  
@@ -64,7 +101,7 @@ Polish billionaire Rafal Brzoska wins an **injunction** temporarily banning Meta
 
 Monetary inflation spirals **inexorably** on. -  
 the seemingly **inexorable** march of new technology.  
-china's rise has long appeared **inexorable**.   
+china's rise has long appeared **inexorable**.  
 **tempered steel/glass**.  
 **quenched and tempered** steel.  
 She gets very **bad-tempered** when she's tired.  
@@ -146,7 +183,7 @@ Once we remove our **pelts**, we're mostly human.
 
 When he arrived here, he was positively **rapturous**. -  
 
-Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more of a **prom** thing.   
+Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more of a **prom** thing.  
 **Crisper**.  
 **modicum**.  
 **pagan**, heathen, **infidel**, **heretic**.  
@@ -161,7 +198,7 @@ Everything is **hearsay** until the Thai government releases the details.
 The latest figures affirm the strength and resiliency of the U.S. labor market over the last year, **handily** beating analysts' forecasts.  
 **expound**, **expunge**.  
 
-His paintings are **contrived** and **formulaic**.   
+His paintings are **contrived** and **formulaic**.  
 
 Could we just get a **temp**, please?  
 So, you've been **temping** for us for a year now, and we want to bring you aboard permanently.  
@@ -186,17 +223,28 @@ She has a **discerning** **palate**.
 to my **uncultured** **palate** most of the wines were good.  
 
 ## Conversation  
-> Happened in real life or audio/video that I can resonate a scene  
+> Happened in real life or audio/video that I can resonate with a scene/context.  
+
+Although, if I stand next to a powerful array of magnets, I do get pretty **loopy**.  
+
+Has anyone ever told you what a **drag** you are? - Yes, everyone, constantly.  
+I'm basically **squealing** like a birthday girl.  
+No one can truly **turn over a new leaf**.  
+
+**rebound guy**.  
+**what a dork**, am I right?  
 
 I have to **embellish** your misery on these fake torture reports.  
 
-Lighten up a little.  
-A foot in the door. 
-
+**Lighten up** a little.  
+A **foot in the door**.  
+He fears the implicit **reproach** to himself, because in Putin's Russia you get jailed for 15 years just bc of calling an invasion invasion.  
 
 
 ## Interesting  
-> vivid, absurd, "outrageous", hilarious  
+> vivid, absurd, "outrageous", hilarious expressions.  
+
+If they want to keep their license they will **toe the party line**.  
 
 As I grow, I'm more inclined to adopt a "**roll with the punches**" attitude.  
 So when do you really know it's time to **call it quits**?  
@@ -210,3 +258,7 @@ Crypto bounces back, are we **in the clear**?
 And covers herself in rubies, **emeralds**, and **sapphires**.  
 
 The **fallacious** case for **abolishing** the rich. -- Arguments for caps on income and wealth are simple, **rousing** and wrong.  
+
+Soften the plug by **vigorous kneading**, form it into a ball (no elongated shape!) Seal the opening of the ear canal with gentle pressure.  
+
+

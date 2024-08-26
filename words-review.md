@@ -1,5 +1,8 @@
 ## words-Aug-24.md ##  
 words/2024/words-Aug-24.md  
+To reveal it would be to **embitter** her life. -  
+He hated her with a **cankered**, shameful **abhorrence**. -  
+The **amort** relationship was like a **black hole**, and it's been **cankering** my soul. -  
 **plumage** -  
 They accepted without **demur**. -  
 Monetary inflation spirals **inexorably** on. -  
