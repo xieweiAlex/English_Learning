@@ -5,6 +5,7 @@
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
 These piecemeal solutions won't work.  
+The FED in the US taking a backseat, their options become constrained by what's going on on the fiscal side.    
 
 
 ### Week 4  
