@@ -4,9 +4,28 @@
 
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
+Something has to give.  
+make sure you work on far off things.   
+somehow I feel Suresh should be interview Sundar instead Doug, I have a feeling towards Suresh 
+I always feel Sundar is a tech guy, this is Walmart global Tech meeting, it's hard to not let people wonder why Suresh doesn't show up to speak. 
+
+
+Cissie was round-shouldered and dumpy.  
+buffoon, Jester, clown.  
+the preponderance of oaks in these woods
+
+manslaughter, murder, homicide  
+
+Someone would need to pay the $180,000 delinquent tax note at auction.
+juvenile delinquent.  
+The empire had for years been falling into decadence.  
+
+mumble, grumble, babble, whisper.  
+
+
+
 These piecemeal solutions won't work.  
 The FED in the US taking a backseat, their options become constrained by what's going on on the fiscal side.    
-
 
 ### Week 4  
 
@@ -244,6 +263,10 @@ He fears the implicit **reproach** to himself, because in Putin's Russia you get
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
+
+He was down in the dumps after losing his job.  
+
+
 
 If they want to keep their license they will **toe the party line**.  
 

@@ -42,13 +42,13 @@ He drove with **blithe** disregard for the rules of the road. -
 **ornate**. -  
 Her fellow teachers greeted her proposal with **scorn**. -  
 **Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
-**vile**: morally **reprehensible**. -  
-The law is often **tardy** in reacting to changing attitudes. -  
+**vile**: morally **reprehensible**.   
+The law is often **tardy** in reacting to changing attitudes.   
 She accepted the criticism with **magnanimity**. -  
-all the waiters were **suave** and **deferential**. -  
+all the waiters were **suave** and **deferential**.   
 For many years the West has looked **askance** at the science coming out of China. -  
 The experience was something he had tried to **expunge** from his memory. -  
-Inflation was the **scourge** of the 1970s. -  
+Inflation was the **scourge** of the 1970s.   
 At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
 What does all this **portend** for the near future?  -  
 
