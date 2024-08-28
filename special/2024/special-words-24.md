@@ -4,7 +4,7 @@
 
 **empirical**
 
-**eclectic** 
+**eclectic**,  **dialectic**  
 
 **decoy**
 
