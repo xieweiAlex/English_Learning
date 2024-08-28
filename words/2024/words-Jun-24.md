@@ -210,7 +210,7 @@ Petty crime is having a **deleterious** effect on community life.
 Heavy industry pollutes our rivers with **noxious** chemicals.  
 I become completely **self-absorbed** and I'm sort of a vicious, cruel, **vile** person.  
 a vicious, **vile** and **soulless** attack.  
-**vile**: morally **reprehensible**. -  
+**vile**: morally **reprehensible**.   
 Paul is a tedious, **self-absorbed** **jackass** who neglects his girlfriend.  
 
 This repo is intended for recording all data **pertaining to** the Code Assistant track in the DX GenAI project.  
@@ -263,7 +263,7 @@ Money **spawns** all sorts of wrongdoing, from cheating on income tax returns to
 **Taiwan strait**.  
 **strait-laced**, **straight-laced**  
 Dorothy had climbed onto the **ledge** outside his window.   
-The law is often **tardy** in reacting to changing attitudes. -  
+The law is often **tardy** in reacting to changing attitudes.   
 The artist exploring the new is **liable to** **derision** and hostility.   
 **seagoing**.  
 She accepted the criticism with **magnanimity**. -  
@@ -314,7 +314,7 @@ That gravity and **levity** are somehow **at odds**.
 In times of painful injustice, play brings the **levity** we need to be able to breathe.  
 **silica gel**.  
 
-all the waiters were **suave** and **deferential**. -  
+all the waiters were **suave** and **deferential**.   
 He is a **suave**, cool, and cultured man.  
 In conversation, he was **suave and urbane**.  
 **temptress**.  
@@ -462,7 +462,7 @@ Over the years, its reputation has **ebbed and flowed**.
 
 **concoct** a **splendid** meal.  
 a **splendid** field of poppies.  
-Inflation was the **scourge** of the 1970s. -  
+Inflation was the **scourge** of the 1970s.   
 You hear talk about American business being **flabby**.  
 
 **mass market**  

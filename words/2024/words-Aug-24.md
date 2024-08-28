@@ -2,7 +2,7 @@
 
 [Convo](#conversation) | [Interesting](#interesting)  
 
-[verb](../../special/2024/verb-24.md) | [special](../../special/2024/special-words-24.md)
+[verb](../../special/2024/verb-24.md) | [special](../../special/2024/special-words-24.md)  
 
 
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
@@ -16,29 +16,29 @@ She is enthral by the story she hear.
 
 Cissie was **round-shouldered** and **dumpy**. -  
 **buffoon**, Jester, clown.  
-the **preponderance** of oaks in these woods
+the **preponderance** of oaks in these woods  
 
 **manslaughter**, **murder**, **homicide**  
 
-Someone would need to pay the $180,000 **delinquent tax** note at auction.
+Someone would need to pay the $180,000 **delinquent tax** note at auction.  
 **juvenile delinquent**.  
 The empire had for years been falling into **decadence**.  
 
 **mumble, grumble, babble, whisper**.  
 
 These **piecemeal solutions** won't work.  
-The FED in the US **taking a backseat**, their options become constrained by what's going on on the fiscal side.    
+The FED in the US **taking a backseat**, their options become constrained by what's going on on the fiscal side.  
 
 ### Week 4  
 
 If they want to keep their license they will **toe the party line**.  
 Tourists **sunbathe** and **frolic** in the ocean.  
 This period is often referred to as the "**anabolic window**," when your muscles are most receptive to protein and nutrients for recovery and growth.  
-If you wait until the next day, it won't entirely **negate** the benefits, but you might miss out on the optimal recovery period.
+If you wait until the next day, it won't entirely **negate** the benefits, but you might miss out on the optimal recovery period.  
 
 **drudgery**.  
 **copulate**, **copulation**.  
-**atrium**, patio, stairwell, **courtyard**
+**atrium**, patio, stairwell, **courtyard**  
 **on par, below par**.  
 
 **coquette**  
@@ -267,7 +267,7 @@ He fears the implicit **reproach** to himself, because in Putin's Russia you get
 > vivid, absurd, "outrageous", hilarious expressions.  
 
 He was **down in the dumps** after losing his job.  
-
+The FED in the US **taking a backseat**, their options become constrained by what's going on on the fiscal side.  
 
 
 If they want to keep their license they will **toe the party line**.  
