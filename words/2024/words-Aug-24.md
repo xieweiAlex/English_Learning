@@ -6,6 +6,19 @@
 
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
+intrusive, obtrusive, 
+extraneous, unsightly  
+coffer.  
+he avoids the glitter of show business.  
+I mean that all glitters is not gold.  
+the expansive glittering lake.  
+burgundy.  
+vinyl.  
+
+
+I'm cutting it close. 
+
+
 A **geyser** of gas and liquid erupted. -  
 
 A hot climate **enervate** people who are not used to it. -   
@@ -266,6 +279,7 @@ I have to **embellish** your misery on these fake torture reports.
 A **foot in the door**.  
 He fears the implicit **reproach** to himself, because in Putin's Russia you get jailed for 15 years just bc of calling an invasion invasion.  
 
+Nothing really interesting there, kind of a **let down**.
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
