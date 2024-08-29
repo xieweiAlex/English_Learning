@@ -4,13 +4,17 @@
 
 [verb](../../special/2024/verb-24.md) | [special](../../special/2024/special-words-24.md)  
 
-
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
+
+A **geyser** of gas and liquid erupted. -  
+
+A hot climate **enervate** people who are not used to it. -   
+**enervate**: More common synonyms like "weaken," "**debilitate**," or "exhaust" are often used instead.  
 
 Imagine engaging with random trolls online, getting into **spats** with journalists and politicians.  
 **percussion instrument**, **percussion drilling**.  
 **Umami**.  
-She is enthral by the story she hear.  
+She is **enthral** by the story she hear.  
 
 **Something has to give**.  
 
@@ -250,7 +254,7 @@ to my **uncultured** **palate** most of the wines were good.
 Although, if I stand next to a powerful array of magnets, I do get pretty **loopy**.  
 
 Has anyone ever told you what a **drag** you are? - Yes, everyone, constantly.  
-I'm basically **squealing** like a birthday girl.  
+Can't you tell I'm basically **squealing** like a birthday girl.  
 No one can truly **turn over a new leaf**.  
 
 **rebound guy**.  
@@ -265,6 +269,8 @@ He fears the implicit **reproach** to himself, because in Putin's Russia you get
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
+
+Because surely if the Democrats had actually stolen the election, the Republican leadership wouldn't have let themselves just be **walked over**.  
 
 He was **down in the dumps** after losing his job.  
 The FED in the US **taking a backseat**, their options become constrained by what's going on on the fiscal side.  
