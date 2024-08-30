@@ -6,18 +6,17 @@
 
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
-intrusive, obtrusive, 
-extraneous, unsightly  
-coffer.  
-he avoids the glitter of show business.  
-I mean that all glitters is not gold.  
-the expansive glittering lake.  
-burgundy.  
-vinyl.  
+**I'm cutting it close**. 
 
-
-I'm cutting it close. 
-
+**intrusive**, **obtrusive** 
+**extraneous**, **unsightly**  
+**coffer**.  
+he avoids the **glitter** of **show business**.  
+I mean that **all glitters is not gold**.  
+the **expansive** **glittering** lake.  
+**burgundy**.  
+**vinyl**.  
+**brochette**, kabab. -     
 
 A **geyser** of gas and liquid erupted. -  
 
@@ -264,6 +263,8 @@ to my **uncultured** **palate** most of the wines were good.
 ## Conversation  
 > Happened in real life or audio/video that I can resonate with a scene/context.  
 
+**I'm cutting it close**. 
+
 Although, if I stand next to a powerful array of magnets, I do get pretty **loopy**.  
 
 Has anyone ever told you what a **drag** you are? - Yes, everyone, constantly.  
@@ -283,6 +284,8 @@ Nothing really interesting there, kind of a **let down**.
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
+
+I mean that **all glitters is not gold**.  
 
 Because surely if the Democrats had actually stolen the election, the Republican leadership wouldn't have let themselves just be **walked over**.  
 
