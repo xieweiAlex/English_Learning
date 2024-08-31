@@ -6,6 +6,13 @@
 
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
+oblige.  
+shear wall, shear stress.  
+
+
+**Never in my life have I seen** someone interview in shorts. 
+
+
 **I'm cutting it close**. 
 
 **intrusive**, **obtrusive** 
@@ -284,6 +291,8 @@ Nothing really interesting there, kind of a **let down**.
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
+
+**Never in my life have I seen** someone interview in shorts. 
 
 I mean that **all glitters is not gold**.  
 
