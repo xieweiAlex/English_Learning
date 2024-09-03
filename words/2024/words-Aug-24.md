@@ -4,10 +4,36 @@
 
 [verb](../../special/2024/verb-24.md) | [special](../../special/2024/special-words-24.md)  
 
+
+[Week 5](#week-5) |
+
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
-oblige.  
-shear wall, shear stress.  
+## Week 5
+
+Why Texas Republicans are **souring** on crypto.  
+
+the night was **percolating** with an **expectant energy**.
+the water **percolating** through the soil may **leach out** minerals.  
+**disgorge**.  
+Now we've got the **pleasantries** **out of the way**, please leave my house.  
+It is a **sneaky and underhand** way of doing business.  
+The towers are made of steel **cased in granite**.  
+the **luxuriant** vegetation of tropical forest.  
+
+You solve that problem and a **proctor** awards you a cryptocredential, a free non-transferable NFT sent to your crypto wallet that establishes “proof-of-learn.”  
+
+The wound is still discharging **pus**.  
+
+A pimple is a small localized **build-up** of **sebum**, dead skin cells, and bacteria clogging a hair **follicle**, usually at the surface of the skin. It resolves on its own. However, if it is deeper in the skin, it can develop into an **abscess**. -  
+
+**oblige**.  
+**shear wall**, **shear stress**.  
+
+The meeting you just **blew off**? Isn't it important.  
+
+The transformation has been **nothing short of a miracle**.   
+**Nothing short of the approval of** Peterman himself will save you this time.  
 
 
 **Never in my life have I seen** someone interview in shorts. 
@@ -269,6 +295,9 @@ to my **uncultured** **palate** most of the wines were good.
 
 ## Conversation  
 > Happened in real life or audio/video that I can resonate with a scene/context.  
+
+The meeting you just **blew off**? Isn't it important.  
+**Nothing short of the approval of** Peterman himself will save you this time.  
 
 **I'm cutting it close**. 
 
