@@ -21,7 +21,7 @@ CBDC would **morph into** what we saw in Canada.
 the baby's **plump arms**.   
 Corn cooked in the Instant Pot results in perfectly seasoned, **plump**, and flavorful corn every time.  
 **corn on the cob**.  
-This file contains a **compendium** of all of the highest impact events from your life. -  
+This file contains a **compendium** of all of the highest impact events from your life.   
 
 Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. -  
 > You’ll never be happy or feel good if your **sense of worth** is tied up in always being **well-received**, if you can’t handle the injustice of being misunderstood or unfairly criticized.  
@@ -157,7 +157,7 @@ While we thought online retail was a big idea, most observers considered the int
 Let us be reminded what happens when you let a **man-child** run a country, when ego and incompetence **run amok**.  
 What happens to your data when you die? - An individual’s **digital footprint** will long outlive them. That presents many quandaries.  
 
-**accept and expiate**. -  
+**accept and expiate**.   
 Climate change moves slowly, which is part of its **calamitous** power.  
 **arsenic**.  
 
@@ -335,7 +335,7 @@ Serve with red onion, sliced grapefruit and **balsamic vinegar**.
 She has a **penchant** for champagne.  
 **shelf life**.  
 
-Link two of them together, and you've got a **disaccharide**, lactose, **maltose**, or **sucrose**. -  
+Link two of them together, and you've got a **disaccharide**, lactose, **maltose**, or **sucrose**.   
 Table sugar, **sucrose**, is made up of one molecule of glucose and one molecule of fructose.  
 
 

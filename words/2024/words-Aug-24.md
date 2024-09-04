@@ -5,15 +5,22 @@
 [verb](../../special/2024/verb-24.md) | [special](../../special/2024/special-words-24.md)  
 
 
-[Week 5](#week-5) |
+[Week 5](#week-5) |  
 
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
-## Week 5
+Try **humus** on wheat **pita bread**.  
+Don't be afraid to **haggle**: for the moment, it's a buyer's market.  
+
+For the longest time, they wouldn't **fess up** to it, it was something the community and people had to dig into to find out.  
+The claim of achieving over 400k TPS over this time period was **categorically** false.  
+
+
+## Week 5  
 
 Why Texas Republicans are **souring** on crypto.  
 
-the night was **percolating** with an **expectant energy**.
+the night was **percolating** with an **expectant energy**.  
 the water **percolating** through the soil may **leach out** minerals.  
 **disgorge**.  
 Now we've got the **pleasantries** **out of the way**, please leave my house.  
@@ -32,16 +39,16 @@ A pimple is a small localized **build-up** of **sebum**, dead skin cells, and ba
 
 The meeting you just **blew off**? Isn't it important.  
 
-The transformation has been **nothing short of a miracle**.   
+The transformation has been **nothing short of a miracle**.  
 **Nothing short of the approval of** Peterman himself will save you this time.  
 
 
-**Never in my life have I seen** someone interview in shorts. 
+**Never in my life have I seen** someone interview in shorts.  
 
 
-**I'm cutting it close**. 
+**I'm cutting it close**.  
 
-**intrusive**, **obtrusive** 
+**intrusive**, **obtrusive**  
 **extraneous**, **unsightly**  
 **coffer**.  
 he avoids the **glitter** of **show business**.  
@@ -49,11 +56,11 @@ I mean that **all glitters is not gold**.
 the **expansive** **glittering** lake.  
 **burgundy**.  
 **vinyl**.  
-**brochette**, kabab. -     
+**brochette**, kabab. -  
 
 A **geyser** of gas and liquid erupted. -  
 
-A hot climate **enervate** people who are not used to it. -   
+A hot climate **enervate** people who are not used to it. -  
 **enervate**: More common synonyms like "weaken," "**debilitate**," or "exhaust" are often used instead.  
 
 Imagine engaging with random trolls online, getting into **spats** with journalists and politicians.  
@@ -197,7 +204,7 @@ Crypto bounces back, are we **in the clear**?
 **grubby**  
 **grumpy**  
 
-He was a **vociferous** opponent of Conservatism. -  
+He was a **vociferous** opponent of Conservatism.   
 The chance to that is **slim to none**.  
 
 **explicate, expound, elucidate, dissect**.  
@@ -296,10 +303,12 @@ to my **uncultured** **palate** most of the wines were good.
 ## Conversation  
 > Happened in real life or audio/video that I can resonate with a scene/context.  
 
+This file contains a **compendium** of all of the highest impact events from your life.  
+
 The meeting you just **blew off**? Isn't it important.  
 **Nothing short of the approval of** Peterman himself will save you this time.  
 
-**I'm cutting it close**. 
+**I'm cutting it close**.  
 
 Although, if I stand next to a powerful array of magnets, I do get pretty **loopy**.  
 
@@ -316,13 +325,15 @@ I have to **embellish** your misery on these fake torture reports.
 A **foot in the door**.  
 He fears the implicit **reproach** to himself, because in Putin's Russia you get jailed for 15 years just bc of calling an invasion invasion.  
 
-Nothing really interesting there, kind of a **let down**.
+Nothing really interesting there, kind of a **let down**.  
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
 
-**Never in my life have I seen** someone interview in shorts. 
+For the longest time, they wouldn't **fess up** to it, it was something the community and people had to dig into to find out.  
+The claim of achieving over 400k TPS over this time period was **categorically** false.  
 
+**Never in my life have I seen** someone interview in shorts.  
 I mean that **all glitters is not gold**.  
 
 Because surely if the Democrats had actually stolen the election, the Republican leadership wouldn't have let themselves just be **walked over**.  

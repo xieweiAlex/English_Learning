@@ -6,7 +6,6 @@ The **amort** relationship was like a **black hole**, and it's been **cankering*
 **plumage** -  
 They accepted without **demur**. -  
 Monetary inflation spirals **inexorably** on. -  
-He was a **vociferous** opponent of Conservatism. -  
 And covers herself in rubies, **emeralds**, and **sapphires**. -  
 She began **blathering** on about spirituality and life after death. -  
 you might say, "His hands were **grubby** after working in the garden." It's a fairly common term used to describe physical dirtiness or a **disheveled** appearance. -  
@@ -15,7 +14,6 @@ Too much sweet food **cloys** the **palate**. -
 
 ## words-Jul-24.md ##  
 words/2024/words-Jul-24.md  
-This file contains a **compendium** of all of the highest impact events from your life. -  
 Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. -  
 You gotta leave **the knaves and the fools** to their own business, while you do your best to improve yours, to hold yourself to your own standards and to try to get better as you go. -  
 he found it difficult to cope with the **adulation** of the fans. -  
@@ -24,10 +22,8 @@ The House voted to impose a one-year **moratorium** on nuclear testing. -
 I left feeling **disgruntled** at the way I'd been treated. -  
 a **put-upon** **drudge** who slaved for her employer. -  
 My father was **apoplectic** when he discovered the truth. -  
-**accept and expiate**. -  
 Hunter was accused of illegally purchasing and possessing a firearm in October 2018 while using a **narcotic**. -  
 The **wayward** son would devote himself to therapy and also to science. -  
-Link two of them together, and you've got a **disaccharide**, lactose, **maltose**, or **sucrose**. -  
 He would **immolate** himself for their noble cause. -  
 
 ## words-Jun-24.md ##  
