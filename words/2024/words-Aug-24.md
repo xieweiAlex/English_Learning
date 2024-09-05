@@ -9,6 +9,13 @@
 
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
+
+The bright sunlight made me squint.  
+He was born with a squint.  
+shim.  
+
+
+
 Try **humus** on wheat **pita bread**.  
 Don't be afraid to **haggle**: for the moment, it's a buyer's market.  
 
@@ -302,6 +309,8 @@ to my **uncultured** **palate** most of the wines were good.
 
 ## Conversation  
 > Happened in real life or audio/video that I can resonate with a scene/context.  
+
+Bits and Bytes can wait, people can not. 
 
 This file contains a **compendium** of all of the highest impact events from your life.  
 
