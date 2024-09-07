@@ -5,10 +5,10 @@ He hated her with a **cankered**, shameful **abhorrence**. -
 The **amort** relationship was like a **black hole**, and it's been **cankering** my soul. -  
 **plumage** -  
 They accepted without **demur**. -  
-Monetary inflation spirals **inexorably** on. -  
+Monetary inflation spirals **inexorably** on.   
 And covers herself in rubies, **emeralds**, and **sapphires**. -  
-She began **blathering** on about spirituality and life after death. -  
-you might say, "His hands were **grubby** after working in the garden." It's a fairly common term used to describe physical dirtiness or a **disheveled** appearance. -  
+She began **blathering** on about spirituality and life after death.   
+you might say, "His hands were **grubby** after working in the garden." It's a fairly common term used to describe physical dirtiness or a **disheveled** appearance.   
 When he arrived here, he was positively **rapturous**. -  
 Too much sweet food **cloys** the **palate**. -  
 

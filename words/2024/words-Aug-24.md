@@ -10,10 +10,12 @@
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
 
-The bright sunlight made me squint.  
-He was born with a squint.  
-shim.  
-
+The bright sunlight made me **squint**.  
+He was born with a **squint**.  
+**shim**.  
+The German regulator said the violations were a minor **infraction**. -  
+**vicinity, proximity, adjacent**  
+He **disrobe** to get a good Sun. - tan on the beach. -  
 
 
 Try **humus** on wheat **pita bread**.  
@@ -310,7 +312,7 @@ to my **uncultured** **palate** most of the wines were good.
 ## Conversation  
 > Happened in real life or audio/video that I can resonate with a scene/context.  
 
-Bits and Bytes can wait, people can not. 
+**Bits and Bytes** can wait, people can not. 
 
 This file contains a **compendium** of all of the highest impact events from your life.  
 
@@ -338,6 +340,9 @@ Nothing really interesting there, kind of a **let down**.
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
+
+**Tipping** Non-Public Information.  
+At work, you found out that Walmart is **parting ways** with a major food supplier, and you own stock in that supplier’s company.  
 
 For the longest time, they wouldn't **fess up** to it, it was something the community and people had to dig into to find out.  
 The claim of achieving over 400k TPS over this time period was **categorically** false.  
