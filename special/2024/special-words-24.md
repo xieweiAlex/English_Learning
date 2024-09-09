@@ -1,4 +1,8 @@
 
+**liberating**  
+
+**explorative**
+
 **sheer**
 
 **preconception**

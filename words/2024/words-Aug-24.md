@@ -9,6 +9,29 @@
 
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
 
+You even hate rabbits with their **beady** red eyes, their constant **stench** and their unfriendly nature.  
+Some executives write for themselves. Andrew Bosworth, a **bigwig** at Meta (formerly Facebook), has a blog in which he muses interestingly on many topics,
+Writing is not always the best way to communicate in the workplace. Video is more **memorable**.  
+
+**strike up** a conversation.  
+
+**elide, omit, ellipsis, drop, leave out**.  
+**pride and prejudice**.  
+
+Well, in that case, my night **stank**.  
+The place **stank** of **decayed fish**.  
+Damn. You got that good **stank**. -- Thanks, **back at you**, bud.  
+
+Life throws you **curveball**, bro!  
+And **need I remind you**, it was doing your way, that made you **end up here**.  
+
+
+**The Diamond Sutra**.  
+Most neck pain is associated with poor posture combined with age-related **wear and tear**.  
+
+The entire fiat system is **on its last legs**, these are the **death throes** of the fiat system, it's almost over.  
+**level up** the play field.  
+
 
 The bright sunlight made me **squint**.  
 He was born with a **squint**.  
@@ -186,7 +209,7 @@ They accepted without **demur**. -
 
 Polish billionaire Rafal Brzoska wins an **injunction** temporarily banning Meta from publishing fake ads that use images of him or his wife.  
 
-Monetary inflation spirals **inexorably** on. -  
+Monetary inflation spirals **inexorably** on.   
 the seemingly **inexorable** march of new technology.  
 china's rise has long appeared **inexorable**.  
 **tempered steel/glass**.  
@@ -249,9 +272,9 @@ So developed markets holding it as a reserved asset is pretty **far along** the 
 > Is it possible for me to keep the car until mid-September if you decide to take it? My move-out date is at the end of September, so I will still need a car to **get around**.  
 
 
-She began **blathering** on about spirituality and life after death. -  
+She began **blathering** on about spirituality and life after death.   
 now stop your **blathering** and get back to work.  
-you might say, "His hands were **grubby** after working in the garden." It's a fairly common term used to describe physical dirtiness or a **disheveled** appearance. -  
+you might say, "His hands were **grubby** after working in the garden." It's a fairly common term used to describe physical dirtiness or a **disheveled** appearance.   
 **rote learning**, **rote memorization**.  
 
 
