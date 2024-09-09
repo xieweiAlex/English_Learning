@@ -8,6 +8,15 @@
 [Week 2](#week-2)| [Week 1](#week-1) |  
 
 Thus **it behooves me** to keep in mind the difference between wants and needs.  
+a sweet-natured girl of a placid disposition.  
+He was a plump, placid boy.  
+Bankruptcy was the blight of the family.  
+The blight struck the crop.
+The two candidates who attract the most votes in the first round will square off in the second.  
+circumference, diameter, girth, curvature.  
+tadpole, toad.  
+no man's land, badlands, wasteland, hinterland  
+
 
 ## Week 2  
 
