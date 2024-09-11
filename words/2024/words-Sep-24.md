@@ -4,24 +4,31 @@
 
 [verb](../../special/2024/verb-24.md) | [special](../../special/2024/special-words-24.md)  
 
+[Word Review](../../words-review.md)
 
 [Week 2](#week-2)| [Week 1](#week-1) |  
 
+I believe we can **dispense with** the bedding, your grace. I'm sure Tyrion did not mean to threaten the king.  
+Can we **dispense with** the formalities?  
+
+He only has a **smattering** of French.  
+**Exogenous** vs **endogenous**
+
 Thus **it behooves me** to keep in mind the difference between wants and needs.  
-a sweet-natured girl of a placid disposition.  
-He was a plump, placid boy.  
-Bankruptcy was the blight of the family.  
-The blight struck the crop.
-The two candidates who attract the most votes in the first round will square off in the second.  
-circumference, diameter, girth, curvature.  
-tadpole, toad.  
-no man's land, badlands, wasteland, hinterland  
+a sweet-natured girl of a **placid** **disposition**.  
+He was a **plump**, **placid** boy.  
+Bankruptcy was the **blight** of the family.  
+The **blight** struck the crop.
+The two candidates who attract the most votes in the first round will **square off** in the second.  
+**circumference**, diameter, girth, **curvature**.  
+**tadpole**, **toad**.  
+**no man's land**, **badlands**, wasteland, hinterland  
 
 
 ## Week 2  
 
-It was unfettered growth, even speculation in Real Estate market.  
-You're too smart for your own good, have anyone told you that?  
+It was **unfettered** growth, even speculation in Real Estate market.  
+You're **too smart for your** own good, have anyone told you that?  
 
 You even hate rabbits with their **beady** red eyes, their constant **stench** and their unfriendly nature.  
 Some executives write for themselves. Andrew Bosworth, a **bigwig** at Meta (formerly Facebook), has a blog in which he muses interestingly on many topics,  
@@ -133,6 +140,9 @@ The FED in the US **taking a backseat**, their options become constrained by wha
 
 ## Conversation  
 > Happened in real life or audio/video that I can resonate with a scene/context.  
+
+You're **too smart for your** own good, have anyone told you that?  
+I believe we can **dispense with** the bedding, your grace. I'm sure Tyrion did not mean to threaten the king.  
 
 **Bits and Bytes** can wait, people can not.  
 
