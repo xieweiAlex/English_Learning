@@ -4,23 +4,34 @@
 
 [verb](../../special/2024/verb-24.md) | [special](../../special/2024/special-words-24.md)  
 
-[Word Review](../../words-review.md)
+[Word Review](../../words-review.md)  
 
 [Week 2](#week-2)| [Week 1](#week-1) |  
 
-Should you take your work laptop, you must use VPN at every login.  
+Luxury **juggernauts** **Tapestry** and Capri head to court to save their $8.5B fashion merger.  
+
+**precept, doctrine, axiom, scriptural**  
+**arse**.  
+**sliver, glimmer**  
+He's an **impartial** and **perspicacious** judge. -  
+She looked at him **intently**.  
+People were **awestruck** by the pictures the satellite sent back to earth.  
+God's greatest gifts come through **travail**. -  
+
+
+**Should you take your work laptop**, you must use VPN at every login.  
 
 I believe we can **dispense with** the bedding, your grace. I'm sure Tyrion did not mean to threaten the king.  
 Can we **dispense with** the formalities?  
 
 He only has a **smattering** of French.  
-**Exogenous** vs **endogenous**
+**Exogenous** vs **endogenous**  
 
 Thus **it behooves me** to keep in mind the difference between wants and needs.  
 a sweet-natured girl of a **placid** **disposition**.  
 He was a **plump**, **placid** boy.  
 Bankruptcy was the **blight** of the family.  
-The **blight** struck the crop.
+The **blight** struck the crop.  
 The two candidates who attract the most votes in the first round will **square off** in the second.  
 **circumference**, diameter, girth, **curvature**.  
 **tadpole**, **toad**.  
@@ -160,6 +171,9 @@ Although, if I stand next to a powerful array of magnets, I do get pretty **loop
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
+
+**Should you take your work laptop**, you must use VPN at every login.  
+
 
 **Tipping** Non-Public Information.  
 At work, you found out that Walmart is **parting ways** with a major food supplier, and you own stock in that supplier’s company.  
