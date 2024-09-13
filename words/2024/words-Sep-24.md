@@ -8,6 +8,8 @@
 
 [Week 2](#week-2)| [Week 1](#week-1) |  
 
+Should you take your work laptop, you must use VPN at every login.  
+
 I believe we can **dispense with** the bedding, your grace. I'm sure Tyrion did not mean to threaten the king.  
 Can we **dispense with** the formalities?  
 
