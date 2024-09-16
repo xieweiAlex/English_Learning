@@ -8,7 +8,30 @@
 
 [Week 2](#week-2)| [Week 1](#week-1) |  
 
+## Week 3
+
+I refused to ask **out of spite**.  
+Tell that stupid **palooka** to sit down and shut up.  
+
+
+He is an easy person to **hoodwink**. -   
+**Orcas**, or killer whales, are afflicted by **bio-accumulation** of toxins.  
+She put the vase of flowers on the **window ledge**.  
+
+She was a little **rough around the edges**, but she was also a really good person, when she tried.    
+
 Luxury **juggernauts** **Tapestry** and Capri head to court to save their $8.5B fashion merger.  
+Hair that's thick and **luxuriant** needs regular trimming.  
+**cannibal**, **cannibalism**.  
+**castration**.  
+**modish**.  
+**buffoon**: it might be used to describe someone who is acting in an absurd or **silly manner**, often as an insult.  
+He made a fool of himself, acting like a **buffoon** at the party.  
+The word has a **pejorative** **overtone**.  
+
+**back to the envelope**  
+She gave a **soliloquy** on her doubts and dreams while gazing out the window.  
+
 
 **precept, doctrine, axiom, scriptural**  
 **arse**.  
@@ -153,6 +176,11 @@ The FED in the US **taking a backseat**, their options become constrained by wha
 
 ## Conversation  
 > Happened in real life or audio/video that I can resonate with a scene/context.  
+
+I refused to ask **out of spite**.  
+
+
+She was a little **rough around the edges**, but she was also a really good person, when she tried.    
 
 You're **too smart for your** own good, have anyone told you that?  
 I believe we can **dispense with** the bedding, your grace. I'm sure Tyrion did not mean to threaten the king.  
