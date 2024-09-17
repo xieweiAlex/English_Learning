@@ -8,6 +8,10 @@
 
 [Week 2](#week-2)| [Week 1](#week-1) |  
 
+Give me your Second Sons and I may not have you **gelded**.  
+It is a **sneaky and underhand way** of doing business.  
+It undermines cohesion and creates **dissension**.  
+
 ## Week 3
 
 I refused to ask **out of spite**.  
@@ -177,8 +181,8 @@ The FED in the US **taking a backseat**, their options become constrained by wha
 ## Conversation  
 > Happened in real life or audio/video that I can resonate with a scene/context.  
 
+Give me your Second Sons and I may not have you **gelded**.  
 I refused to ask **out of spite**.  
-
 
 She was a little **rough around the edges**, but she was also a really good person, when she tried.    
 
