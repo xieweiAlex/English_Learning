@@ -12,17 +12,17 @@ Give me your Second Sons and I may not have you **gelded**.
 It is a **sneaky and underhand way** of doing business.  
 It undermines cohesion and creates **dissension**.  
 
-## Week 3
+## Week 3  
 
 I refused to ask **out of spite**.  
 Tell that stupid **palooka** to sit down and shut up.  
 
 
-He is an easy person to **hoodwink**. -   
+He is an easy person to **hoodwink**. -  
 **Orcas**, or killer whales, are afflicted by **bio-accumulation** of toxins.  
 She put the vase of flowers on the **window ledge**.  
 
-She was a little **rough around the edges**, but she was also a really good person, when she tried.    
+She was a little **rough around the edges**, but she was also a really good person, when she tried.  
 
 Luxury **juggernauts** **Tapestry** and Capri head to court to save their $8.5B fashion merger.  
 Hair that's thick and **luxuriant** needs regular trimming.  
@@ -97,9 +97,9 @@ The entire fiat system is **on its last legs**, these are the **death throes** o
 The bright sunlight made me **squint**.  
 He was born with a **squint**.  
 **shim**.  
-The German regulator said the violations were a minor **infraction**. -  
+The German regulator said the violations were a minor **infraction**.   
 **vicinity, proximity, adjacent**  
-He **disrobe** to get a good Sun. - tan on the beach. -  
+He **disrobe** to get a good Sun. - tan on the beach.   
 
 
 Try **humus** on wheat **pita bread**.  
@@ -184,7 +184,7 @@ The FED in the US **taking a backseat**, their options become constrained by wha
 Give me your Second Sons and I may not have you **gelded**.  
 I refused to ask **out of spite**.  
 
-She was a little **rough around the edges**, but she was also a really good person, when she tried.    
+She was a little **rough around the edges**, but she was also a really good person, when she tried.  
 
 You're **too smart for your** own good, have anyone told you that?  
 I believe we can **dispense with** the bedding, your grace. I'm sure Tyrion did not mean to threaten the king.  
