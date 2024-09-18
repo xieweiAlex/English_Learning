@@ -8,6 +8,13 @@
 
 [Week 2](#week-2)| [Week 1](#week-1) |  
 
+> good acting is telling truth under an imaginary situation.  
+
+
+The rabbit scampered off.  
+he scampered in like an overgrown puppy.  
+scamper, frolic, romp 
+
 Give me your Second Sons and I may not have you **gelded**.  
 It is a **sneaky and underhand way** of doing business.  
 It undermines cohesion and creates **dissension**.  
