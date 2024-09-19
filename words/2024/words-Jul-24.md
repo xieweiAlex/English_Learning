@@ -256,7 +256,7 @@ This brings us to **normative** vs **informational conformity**.
 
 Today, Andrew Huberman is a **stiff**, **jacked** 48-year-old associate professor of neurology and **ophthalmology** at the Stanford University School of Medicine.  
 **broad-minded** professor puppyishly **enamored** with the wonders of biological function.  
-The **wayward** son would devote himself to therapy and also to science. -  
+The **wayward** son would devote himself to therapy and also to science.   
 A **prophet** must constrain his **self-revelation**.  
 
 

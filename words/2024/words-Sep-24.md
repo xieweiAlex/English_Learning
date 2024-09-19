@@ -10,10 +10,16 @@
 
 > good acting is telling truth under an imaginary situation.  
 
+Harris has Trump on defense in sharp-elbowed presidential debate.  
+memo, memorandum.  
 
-The rabbit scampered off.  
-he scampered in like an overgrown puppy.  
-scamper, frolic, romp 
+**size up** the situation.  
+The Meg is able to **size up** its prey before it even sees it.  
+The President is unlikely to **cave in** to demands for a public inquiry.  
+
+The rabbit **scampered** off.  
+he **scampered** in like an overgrown puppy.  
+**scamper**, **frolic**, **romp**  
 
 Give me your Second Sons and I may not have you **gelded**.  
 It is a **sneaky and underhand way** of doing business.  
@@ -104,9 +110,9 @@ The entire fiat system is **on its last legs**, these are the **death throes** o
 The bright sunlight made me **squint**.  
 He was born with a **squint**.  
 **shim**.  
-The German regulator said the violations were a minor **infraction**.   
+The German regulator said the violations were a minor **infraction**.  
 **vicinity, proximity, adjacent**  
-He **disrobe** to get a good Sun. - tan on the beach.   
+He **disrobe** to get a good Sun. - tan on the beach.  
 
 
 Try **humus** on wheat **pita bread**.  

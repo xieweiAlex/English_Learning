@@ -330,7 +330,7 @@ They entered the shop, which was a curious **ramshackle** building.
 **vicious** cycle.  
 **muddy** the information environment.  
 
-For many years the West has looked **askance** at the science coming out of China. -  
+For many years the West has looked **askance** at the science coming out of China.   
 They were seen as **imitators** and intellectual-property thieves, **rather than** as innovators.  
 
 China’s vehicle exports **quintupled** during the pandemic, and last year it reported 5M shipments.  
@@ -504,7 +504,7 @@ The latest figures affirm the strength and resiliency of the U.S. labor market o
 > The people I deal with today will be meddling, ungrateful, arrogant, dishonest, jealous, and surly. They are like this because they can’t tell good from evil.  
 
 
-At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period. -  
+At present, the dispute for saving or **abolishing** **death penalty** has achieved the **perfervid** period.   
 **second base**.  
 The **gull** held the fish in its **beak**.  
 **repartee**.  

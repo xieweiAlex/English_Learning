@@ -201,7 +201,7 @@ The epic **bust-up** between China and India could be ending.
 
 **squabble**.  
 **spigot**, **faucet**  
-**plumage** -  
+**plumage**   
 she was **exasperated** by all this **havering**.  
 **mordant**, **corrosive**  
 He should **lighten up** a little.  
