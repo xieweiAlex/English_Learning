@@ -8,10 +8,16 @@
 
 [Week 2](#week-2)| [Week 1](#week-1) |  
 
+Whole villages were **stricken** with the disease.  
+We went to the aid of the **stricken** boat.  
+The town has recently been given a **facelift**.
+
+**ominous, portend, bode**  
+
 > good acting is telling truth under an imaginary situation.  
 
-Harris has Trump on defense in sharp-elbowed presidential debate.  
-memo, memorandum.  
+Harris has Trump on defense in **sharp-elbowed** presidential debate.  
+**memo**, **memorandum**.  
 
 **size up** the situation.  
 The Meg is able to **size up** its prey before it even sees it.  
