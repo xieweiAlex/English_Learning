@@ -8,6 +8,63 @@
 
 [Week 2](#week-2)| [Week 1](#week-1) |  
 
+
+locus of control.  
+
+**Omen, ominous, menacing** 
+unsettling, worrisome, gloomy, disconcerting
+**sinister**.
+**grim reaper**.  
+
+**slant**.  
+**imperial concubine**.  
+**asorbic acid, scurvy**.  
+
+**befuddle, bewilder, bemuse, stump**
+
+**clandestinely**
+
+**contractures**
+
+There are no **hard and fast** **sartorial** rules, it always depends on context.  
+But the discussion seemed like it was remaining too **theoretical** for too long, and the time seemed **ripe** for a more practical experiment. And so came the idea for Zuzalu.  
+
+
+He's the **diametrical opposite** of his brother.  
+
+
+**whipsaw**?? 
+**canteen**?? 
+
+**partake**  
+**tadpole**  
+**fratricidal**
+**hardtack**  
+**Ahem**.  
+**torpid**.  
+**whirlwind, whirlpool**  
+**left/right atrium**.  
+
+
+Her **triumph** is now clear; The Economist’s tracker shows polls moving 1.5 points in her direction.
+Elsewhere, we report on China’s decision to raise its surprisingly low retirement age—and the popular anger that has **ensued**.  
+Anger **abounds** as China raises its **strikingly** low retirement age.   
+How much trouble is Boeing in? -- A **protracted** strike could cause **lasting** damage.  
+The car industry’s plans to **decarbonize** by replacing petrol with batteries. But many customers want both.  
+Hybrid sales have **rocketed** worldwide. But we explain why the hype won’t last.  
+A by-election loss puts Justin Trudeau **on the ropes**. -- For how much longer can the Liberal leader **hold on**?  
+
+
+I have long **harboured** a secret resentment against morning people.   
+While I bash the snooze button for the **umpteenth** time they are exercising and catching up on emails.  
+Yet when I try to **emulate** them I find myself staring **blankly** at my screen for most of the day.  
+
+In 1948, when **the world was your oyster**, and America was just **jelling**.  
+
+In the **tempestuous** sea of financial markets where waves of information and market trends buffet brokers and investors alike, algorithmic trading serves as a **sturdy vessel**, navigating the **tricky waters** with efficiency and precision.   
+making **informed decisions** that are not only profitable but are also free from the **vagaries** of human psychology. -  
+Thus, combining the power of algorithms with a solid **grasp** of market **intricacies** can truly unlock the **bountiful** realm of trading success.  
+
 Whole villages were **stricken** with the disease.  
 We went to the aid of the **stricken** boat.  
 The town has recently been given a **facelift**.
