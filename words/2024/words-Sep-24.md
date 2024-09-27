@@ -1,18 +1,78 @@
 
-
 [Convo](#conversation) | [Interesting](#interesting)  
 
 [verb](../../special/2024/verb-24.md) | [special](../../special/2024/special-words-24.md)  
 
 [Word Review](../../words-review.md)  
 
-[Week 2](#week-2)| [Week 1](#week-1) |  
+[Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
+
+Your eye's **twitching**.  
+I am both **overhung** and humiliated by my **uncouth** **comportment** last night. -
+So, what happened to you two **lovebirds** last night, huh?  
+Bad news, prof. - Eleanor might not be coming. - She **bailed** **right after** you did last night.
+Seemed like she was having **second thoughts** about being part of the Brainy Bunch, so.
+But we **press on**, like professionals.
+We're gonna get 'em eventually. - I'll just keep **chipping away** till one of 'em bails.
+Now, **granted**, I also tricked the doorman. And **snuck down** to Earth,
+I'm **pulling for ya**.  
+
+They were **granted** refugee status. 
+**MRI**: **magnetic resonance imaging**  
 
 
-locus of control.  
+This **precept** has guided U.S. government policy for 30 years. -
+Ferguson should be basking in the **afterglow** of his successes.  
+**precept, doctrine, tenets**.  
+It's neither **junky nor janky**, but just **dandy**.  
+The **dapple** of the deer is yellow.  
+
+It’s a lot of back-and-forth **volleying**, which is what makes the early years of a new device frontier exciting and highly uncertain. 
+Big bold ideas get tried out, and most of them **wind up as** **dead ends** to abandon.  
+Compare and contrast to where we’ve been with laptops for the last 20 years, or the **pinnacle** we appear to have reached in recent years with phones.  
+
+Microdosing Accutane (40mg weekly) for **blemish-free** skin. Alternatives include over-the-counter retinols.  
+
+We are in **unqualified** agreement.   
+The rescue mission, thankfully, was an **unqualified success**.  
+
+An encounter in which the **incumbent** vice-president skilfully managed to present herself as the change candidate. To us, the **ill-tempered** **dust-up** served as a warning.  
+Given the complexity of America’s **archaic** election system, the low trust of America’s voters in it and the baleful precedent of the invasion of the Capitol on January 6th 2021.  
+America’s election is **mired** in conflict.  
+
+
+Combining global liquidity conditions with Bitcoin on-chain valuation metrics provides a more **nuanced** understanding of Bitcoin cycles, helping investors identify moments when internal market dynamics may temporarily **decouple** Bitcoin from liquidity trends.  
+
+We adopt a policy of **keeping our hands off** other people's responsibilities and **tend to** our own instead.  
+If people have created some disasters for themselves, we allow them to face their own **proverbial music**.  
+We strive to **ascertain** what it is we can change and what we cannot change. -  
+We do what we can to solve a problem, and then we stop **fretting and stewing**.  
+
+**snippy, snappy, snarky** 
+
+**brown adipose tissue** (BAT).  
+Still, the judge **is not bound by** this recommendation and can impose a more severe sentence if deemed appropriate.  
+
+**foretell, foresee, prophecy**. 
+**prophet, herald, harbinger, usher**.  
+
+Musk, who’s built a reputation as a free-speech enthusiast, initially **balked at** the court’s request to take down several X accounts, saying in April that he would sooner close X’s office in Brazil than comply with the order.
+
+These **quibbles** in no way **detract** from her achievement.  
+The misinformation he spreads, as it **detracts** or distracts from NASA to its mission?  
+
+**chuckel, giggle, smirk, grin, amused**.  
+
+FYI--we've **enclosed** next steps for your new account.  
+
+**As it was raining**, we stayed indoors.
+We stayed indoors **as it was raining**.
+
+**locus of control**.  
+Barcelona is the **locus** of Spanish industry.   
 
 **Omen, ominous, menacing** 
-unsettling, worrisome, gloomy, disconcerting
+**unsettling, worrisome, gloomy, disconcerting**
 **sinister**.
 **grim reaper**.  
 
@@ -280,8 +340,11 @@ Although, if I stand next to a powerful array of magnets, I do get pretty **loop
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
 
-**Should you take your work laptop**, you must use VPN at every login.  
 
+**As it was raining**, we stayed indoors.
+We stayed indoors **as it was raining**.
+
+**Should you take your work laptop**, you must use VPN at every login.  
 
 **Tipping** Non-Public Information.  
 At work, you found out that Walmart is **parting ways** with a major food supplier, and you own stock in that supplier’s company.  

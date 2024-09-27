@@ -1,4 +1,7 @@
 
+**nuanced**
+
+
 **inviting**
 
 **liberating**  
