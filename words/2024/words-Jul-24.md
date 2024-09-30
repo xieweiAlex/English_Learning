@@ -79,7 +79,7 @@ Spending a night in jail was his **road to Damascus**.
 Has he had a real "**road to Damascus**"? -- of course not.  
 **ride off into the sunset**.  
 We **delude** ourselves that we are in control. -  
-The House voted to impose a one-year **moratorium** on nuclear testing. -  
+The House voted to impose a one-year **moratorium** on nuclear testing.   
 
 I was born and raised in the United States, but my heritage and upbringing is **drenched** in the olive oil of Middle Eastern culture.  
 **fly swatter**.  

@@ -1,5 +1,12 @@
 ## words-Sep-24.md ##  
 words/2024/words-Sep-24.md  
+I am both **overhung** and humiliated by my **uncouth** **comportment** last night. -  
+This **precept** has guided U.S. government policy for 30 years. -  
+We strive to **ascertain** what it is we can change and what we cannot change. -  
+making **informed decisions** that are not only profitable but are also free from the **vagaries** of human psychology. -  
+He is an easy person to **hoodwink**. -  
+He's an **impartial** and **perspicacious** judge. -  
+God's greatest gifts come through **travail**. -  
 A pimple is a small localized **build-up** of **sebum**, dead skin cells, and bacteria clogging a hair **follicle**, usually at the surface of the skin. It resolves on its own. However, if it is deeper in the skin, it can develop into an **abscess**. -  
 **brochette**, kabab. -  
 A **geyser** of gas and liquid erupted. -  
@@ -8,6 +15,13 @@ Cissie was **round-shouldered** and **dumpy**. -
 
 ## words-Aug-24.md ##  
 words/2024/words-Aug-24.md  
+The German regulator said the violations were a minor **infraction**. -  
+He **disrobe** to get a good Sun. - tan on the beach. -  
+A pimple is a small localized **build-up** of **sebum**, dead skin cells, and bacteria clogging a hair **follicle**, usually at the surface of the skin. It resolves on its own. However, if it is deeper in the skin, it can develop into an **abscess**. -  
+**brochette**, kabab. -  
+A **geyser** of gas and liquid erupted. -  
+A hot climate **enervate** people who are not used to it. -  
+Cissie was **round-shouldered** and **dumpy**. -  
 To reveal it would be to **embitter** her life. -  
 He hated her with a **cankered**, shameful **abhorrence**. -  
 The **amort** relationship was like a **black hole**, and it's been **cankering** my soul. -  
@@ -23,7 +37,6 @@ Nearly every week there is some thread on Reddit about how Daily Stoic is too th
 You gotta leave **the knaves and the fools** to their own business, while you do your best to improve yours, to hold yourself to your own standards and to try to get better as you go. -  
 he found it difficult to cope with the **adulation** of the fans. -  
 We **delude** ourselves that we are in control. -  
-The House voted to impose a one-year **moratorium** on nuclear testing.   
 I left feeling **disgruntled** at the way I'd been treated. -  
 a **put-upon** **drudge** who slaved for her employer. -  
 My father was **apoplectic** when he discovered the truth. -  

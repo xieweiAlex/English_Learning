@@ -7,33 +7,46 @@
 
 [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+Once you come through this crucible, you can guide your own life course.  
+Spruce Pine is the sole producer of ultra pure Quartz for crucibles that all global semiconductor production relies on.  
+
+*sprain your ankle**.  
+How can I just **conjure up** that fucking extra gear?  
+Having that **steely discipline**, having the ability to **spring out of bed** at 4:30 and attack the day, does that give you an **edge** in your life you feel?  
+I don't think there are **preponderance** of people out there are like that.  
+
+**slope, sloper**.  
+
+Israel **conducts** massive strike targeting **Hezbollah** HQ in **Beirut**.  
+
+
 Your eye's **twitching**.  
-I am both **overhung** and humiliated by my **uncouth** **comportment** last night. -
+I am both **overhung** and humiliated by my **uncouth** **comportment** last night. -  
 So, what happened to you two **lovebirds** last night, huh?  
-Bad news, prof. - Eleanor might not be coming. - She **bailed** **right after** you did last night.
-Seemed like she was having **second thoughts** about being part of the Brainy Bunch, so.
-But we **press on**, like professionals.
-We're gonna get 'em eventually. - I'll just keep **chipping away** till one of 'em bails.
-Now, **granted**, I also tricked the doorman. And **snuck down** to Earth,
+Bad news, prof. - Eleanor might not be coming. - She **bailed** **right after** you did last night.  
+Seemed like she was having **second thoughts** about being part of the Brainy Bunch, so.  
+But we **press on**, like professionals.  
+We're gonna get 'em eventually. - I'll just keep **chipping away** till one of 'em bails.  
+Now, **granted**, I also tricked the doorman. And **snuck down** to Earth,  
 I'm **pulling for ya**.  
 
-They were **granted** refugee status. 
+They were **granted** refugee status.  
 **MRI**: **magnetic resonance imaging**  
 
 
-This **precept** has guided U.S. government policy for 30 years. -
+This **precept** has guided U.S. government policy for 30 years. -  
 Ferguson should be basking in the **afterglow** of his successes.  
 **precept, doctrine, tenets**.  
 It's neither **junky nor janky**, but just **dandy**.  
 The **dapple** of the deer is yellow.  
 
-It’s a lot of back-and-forth **volleying**, which is what makes the early years of a new device frontier exciting and highly uncertain. 
+It’s a lot of back-and-forth **volleying**, which is what makes the early years of a new device frontier exciting and highly uncertain.  
 Big bold ideas get tried out, and most of them **wind up as** **dead ends** to abandon.  
 Compare and contrast to where we’ve been with laptops for the last 20 years, or the **pinnacle** we appear to have reached in recent years with phones.  
 
 Microdosing Accutane (40mg weekly) for **blemish-free** skin. Alternatives include over-the-counter retinols.  
 
-We are in **unqualified** agreement.   
+We are in **unqualified** agreement.  
 The rescue mission, thankfully, was an **unqualified success**.  
 
 An encounter in which the **incumbent** vice-president skilfully managed to present herself as the change candidate. To us, the **ill-tempered** **dust-up** served as a warning.  
@@ -48,15 +61,15 @@ If people have created some disasters for themselves, we allow them to face thei
 We strive to **ascertain** what it is we can change and what we cannot change. -  
 We do what we can to solve a problem, and then we stop **fretting and stewing**.  
 
-**snippy, snappy, snarky** 
+**snippy, snappy, snarky**  
 
 **brown adipose tissue** (BAT).  
 Still, the judge **is not bound by** this recommendation and can impose a more severe sentence if deemed appropriate.  
 
-**foretell, foresee, prophecy**. 
+**foretell, foresee, prophecy**.  
 **prophet, herald, harbinger, usher**.  
 
-Musk, who’s built a reputation as a free-speech enthusiast, initially **balked at** the court’s request to take down several X accounts, saying in April that he would sooner close X’s office in Brazil than comply with the order.
+Musk, who’s built a reputation as a free-speech enthusiast, initially **balked at** the court’s request to take down several X accounts, saying in April that he would sooner close X’s office in Brazil than comply with the order.  
 
 These **quibbles** in no way **detract** from her achievement.  
 The misinformation he spreads, as it **detracts** or distracts from NASA to its mission?  
@@ -65,26 +78,26 @@ The misinformation he spreads, as it **detracts** or distracts from NASA to its 
 
 FYI--we've **enclosed** next steps for your new account.  
 
-**As it was raining**, we stayed indoors.
-We stayed indoors **as it was raining**.
+**As it was raining**, we stayed indoors.  
+We stayed indoors **as it was raining**.  
 
 **locus of control**.  
-Barcelona is the **locus** of Spanish industry.   
+Barcelona is the **locus** of Spanish industry.  
 
-**Omen, ominous, menacing** 
-**unsettling, worrisome, gloomy, disconcerting**
-**sinister**.
+**Omen, ominous, menacing**  
+**unsettling, worrisome, gloomy, disconcerting**  
+**sinister**.  
 **grim reaper**.  
 
 **slant**.  
 **imperial concubine**.  
 **asorbic acid, scurvy**.  
 
-**befuddle, bewilder, bemuse, stump**
+**befuddle, bewilder, bemuse, stump**  
 
-**clandestinely**
+**clandestinely**  
 
-**contractures**
+**contractures**  
 
 There are no **hard and fast** **sartorial** rules, it always depends on context.  
 But the discussion seemed like it was remaining too **theoretical** for too long, and the time seemed **ripe** for a more practical experiment. And so came the idea for Zuzalu.  
@@ -93,12 +106,12 @@ But the discussion seemed like it was remaining too **theoretical** for too long
 He's the **diametrical opposite** of his brother.  
 
 
-**whipsaw**?? 
-**canteen**?? 
+**whipsaw**??  
+**canteen**??  
 
 **partake**  
 **tadpole**  
-**fratricidal**
+**fratricidal**  
 **hardtack**  
 **Ahem**.  
 **torpid**.  
@@ -106,28 +119,28 @@ He's the **diametrical opposite** of his brother.
 **left/right atrium**.  
 
 
-Her **triumph** is now clear; The Economist’s tracker shows polls moving 1.5 points in her direction.
+Her **triumph** is now clear; The Economist’s tracker shows polls moving 1.5 points in her direction.  
 Elsewhere, we report on China’s decision to raise its surprisingly low retirement age—and the popular anger that has **ensued**.  
-Anger **abounds** as China raises its **strikingly** low retirement age.   
+Anger **abounds** as China raises its **strikingly** low retirement age.  
 How much trouble is Boeing in? -- A **protracted** strike could cause **lasting** damage.  
 The car industry’s plans to **decarbonize** by replacing petrol with batteries. But many customers want both.  
 Hybrid sales have **rocketed** worldwide. But we explain why the hype won’t last.  
 A by-election loss puts Justin Trudeau **on the ropes**. -- For how much longer can the Liberal leader **hold on**?  
 
 
-I have long **harboured** a secret resentment against morning people.   
+I have long **harboured** a secret resentment against morning people.  
 While I bash the snooze button for the **umpteenth** time they are exercising and catching up on emails.  
 Yet when I try to **emulate** them I find myself staring **blankly** at my screen for most of the day.  
 
 In 1948, when **the world was your oyster**, and America was just **jelling**.  
 
-In the **tempestuous** sea of financial markets where waves of information and market trends buffet brokers and investors alike, algorithmic trading serves as a **sturdy vessel**, navigating the **tricky waters** with efficiency and precision.   
+In the **tempestuous** sea of financial markets where waves of information and market trends buffet brokers and investors alike, algorithmic trading serves as a **sturdy vessel**, navigating the **tricky waters** with efficiency and precision.  
 making **informed decisions** that are not only profitable but are also free from the **vagaries** of human psychology. -  
 Thus, combining the power of algorithms with a solid **grasp** of market **intricacies** can truly unlock the **bountiful** realm of trading success.  
 
 Whole villages were **stricken** with the disease.  
 We went to the aid of the **stricken** boat.  
-The town has recently been given a **facelift**.
+The town has recently been given a **facelift**.  
 
 **ominous, portend, bode**  
 
@@ -341,8 +354,8 @@ Although, if I stand next to a powerful array of magnets, I do get pretty **loop
 > vivid, absurd, "outrageous", hilarious expressions.  
 
 
-**As it was raining**, we stayed indoors.
-We stayed indoors **as it was raining**.
+**As it was raining**, we stayed indoors.  
+We stayed indoors **as it was raining**.  
 
 **Should you take your work laptop**, you must use VPN at every login.  
 
