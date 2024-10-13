@@ -140,7 +140,6 @@ To **desecrate** a holy spring is considered profanity.
 Unfortunately, the fans aren't all that **rapacious**.  
 
 two years of **feckless** negotiations.  
-Her husband was a charming, but lazy and **feckless** man.  
 Another **curveball** could be **on tap** for today as the Labor Department publishes fresh Consumer Price Index data.  
 
 In the first days of war, Russia’s armored might **shrivelled** before the courage of the nation it had attacked.  

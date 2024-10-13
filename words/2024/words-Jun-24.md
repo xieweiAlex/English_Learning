@@ -99,7 +99,7 @@ The word has a **pejorative** overtone.
 
 Wikileaks has **kicked the hornet's nest**, and the swarm is headed towards us.  
 
-Tonight she **glitters** again in my space. -  
+Tonight she **glitters** again in my space.   
 **vulva**.  
 Most **mindless** **hooligans** are fueled by alcohol.   
 **undulation**, **gyration**.  
@@ -266,7 +266,7 @@ Dorothy had climbed onto the **ledge** outside his window.
 The law is often **tardy** in reacting to changing attitudes.   
 The artist exploring the new is **liable to** **derision** and hostility.   
 **seagoing**.  
-She accepted the criticism with **magnanimity**. -  
+She accepted the criticism with **magnanimity**.   
 Elinor would not **vouchsafe** any answer.  
 
 I was numbed by the **enormity** of the responsibility.  

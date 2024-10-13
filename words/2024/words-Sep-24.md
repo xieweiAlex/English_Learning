@@ -5,10 +5,72 @@
 
 [Word Review](../../words-review.md)  
 
-[Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
+[Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-Once you come through this crucible, you can guide your own life course.  
-Spruce Pine is the sole producer of ultra pure Quartz for crucibles that all global semiconductor production relies on.  
+Inflation is an **outgrowth** of war.  
+This big shop is an **outgrowth** of my little shop I started three years ago.  
+What you beheld was the interior of a **cloister**.  
+her remorse could be a **blight** on that happiness.  
+**Blighted stems** often **canker**. -  
+
+I just think you're the kind of person who likes a **contingency plan**.  
+**contingency** fund/reserve/plan  
+We should be prepared for any **contingency**.  
+
+But for Americans it's a **moot point**. The State Department says, don't travel to India.  
+A hot climate **enervate** people who are not used to it. -  
+**entreat**.  
+Her husband was a charming, but lazy and **feckless** man. -  
+**eclectic**  
+Before the poor **wretch** had time to speak, he was shot.  
+I wouldn't **freeload**. I'm not a **freeloader**.  
+I got three years' **probation**, **on condition** that I stay at the hostel for a year.  
+
+There was always a 2 percent **surcharge** imposed by the city of San Francisco for traffic congestion.  
+
+Flood in **monsoon** season.  
+On Thursday evening, at around 7 pm Pacific time, Tesla **is slated to** unveil the newest vehicle in its lineup.  
+**pathbreaking**, **trail-blazer**.  
+Tesla AI head Ashok Elluswamy **intimated** that the automaker had at least a sense of the challenge ahead.  
+
+
+This **tap water** is not **potable**, it's polluted.  
+Rate hikes are clearly working—with mortgage rates above 7% and credit card rates going **haywire**, the Fed must be working on something quite specific to bring down CONSUMER price inflation.  
+You had supply chains going **haywire**, inflation **shoot up**.  
+**common toad**, **tree toad**.  
+It succinctly covered all the **salient points** of the case. -  
+She could feel something **icky** on her fingers. -  
+**bastion, citadel, fortress, stronghold**  
+**scrap, scrape**.  
+I might **scrape through** the exam if I'm lucky.  
+We managed to **scrape together** eight volunteers.  
+I can just **scrape by** on what my parents give me.  
+Some of the younger men began to **pelt** one another with snowballs.  
+The **untimely** death of the engineer delayed the completion of the project.  
+
+For the poorest people, however, growth can be the difference between a good life and **penury**.  
+
+Epictetus was **well-accustomed** to a hard life, having spent years as a slave.  
+Gov. Greg Abbott called the state "the modern **embodiment** of the American dream. -  
+We can argue about whether Apple’s **compulsion** to **never, ever** comment on unannounced products is **beneficial** or not.  
+Orion **by all accounts** is a really **compelling** demo. But it’s also very clearly a prototype device only suitable for demos.  
+They look **orthopedic**, like glasses intended to aid people whose vision is so low they’re legally blind.  
+
+**Unpalatable**  
+She's a **dab hand** with a paintbrush.  
+I put a **dab** of butter on my bread.  
+**dab** at the stain—**vigorous** rubbing could damage the carpet.  
+He was out of work and living in **squalor**.  
+
+**raunchy vs squalid vs squalor**  
+Rock 'n' roll had entered a period of **stasis**.  
+The **cul-de-sac** **stasis of life** in the suburban middle class?  
+
+
+## Week 4  
+
+Once you come through this **crucible**, you can guide your own life course. -  
+**Spruce Pine** is the sole producer of ultra pure **Quartz** for **crucibles** that all global semiconductor production relies on.  
 
 *sprain your ankle**.  
 How can I just **conjure up** that fucking extra gear?  
@@ -16,9 +78,7 @@ Having that **steely discipline**, having the ability to **spring out of bed** a
 I don't think there are **preponderance** of people out there are like that.  
 
 **slope, sloper**.  
-
 Israel **conducts** massive strike targeting **Hezbollah** HQ in **Beirut**.  
-
 
 Your eye's **twitching**.  
 I am both **overhung** and humiliated by my **uncouth** **comportment** last night. -  

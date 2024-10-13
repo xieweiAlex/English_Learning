@@ -36,7 +36,7 @@ The entire fiat system is **on its last legs**, these are the **death throes** o
 The bright sunlight made me **squint**.  
 He was born with a **squint**.  
 **shim**.  
-The German regulator said the violations were a minor **infraction**. -  
+The German regulator said the violations were a minor **infraction**.   
 **vicinity, proximity, adjacent**  
 He **disrobe** to get a good Sun. - tan on the beach. -  
 
@@ -92,7 +92,7 @@ the **expansive** **glittering** lake.
 
 A **geyser** of gas and liquid erupted. -  
 
-A hot climate **enervate** people who are not used to it. -  
+A hot climate **enervate** people who are not used to it.   
 **enervate**: More common synonyms like "weaken," "**debilitate**," or "exhaust" are often used instead.  
 
 Imagine engaging with random trolls online, getting into **spats** with journalists and politicians.  

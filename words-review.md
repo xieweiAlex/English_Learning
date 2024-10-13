@@ -15,12 +15,10 @@ Cissie was **round-shouldered** and **dumpy**. -
 
 ## words-Aug-24.md ##  
 words/2024/words-Aug-24.md  
-The German regulator said the violations were a minor **infraction**. -  
 He **disrobe** to get a good Sun. - tan on the beach. -  
 A pimple is a small localized **build-up** of **sebum**, dead skin cells, and bacteria clogging a hair **follicle**, usually at the surface of the skin. It resolves on its own. However, if it is deeper in the skin, it can develop into an **abscess**. -  
 **brochette**, kabab. -  
 A **geyser** of gas and liquid erupted. -  
-A hot climate **enervate** people who are not used to it. -  
 Cissie was **round-shouldered** and **dumpy**. -  
 To reveal it would be to **embitter** her life. -  
 He hated her with a **cankered**, shameful **abhorrence**. -  
@@ -49,13 +47,11 @@ It is a tricky time for Christianity. Many Catholics are **vexed** because Pope 
 He was **affable** at one moment, **choleric** the next. -  
 His elegance is a living **reproach** to our **slovenly** habits. -  
 I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -  
-Tonight she **glitters** again in my space. -  
 He drove with **blithe** disregard for the rules of the road. -  
 **ignoble**. -  
 **ornate**. -  
 Her fellow teachers greeted her proposal with **scorn**. -  
 **Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
-She accepted the criticism with **magnanimity**. -  
 The experience was something he had tried to **expunge** from his memory. -  
 What does all this **portend** for the near future?  -  
 
