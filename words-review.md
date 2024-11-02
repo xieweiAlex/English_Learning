@@ -1,5 +1,12 @@
 ## words-Sep-24.md ##  
 words/2024/words-Sep-24.md  
+**Blighted stems** often **canker**. -  
+A hot climate **enervate** people who are not used to it. -  
+Her husband was a charming, but lazy and **feckless** man. -  
+It succinctly covered all the **salient points** of the case. -  
+She could feel something **icky** on her fingers. -  
+Gov. Greg Abbott called the state "the modern **embodiment** of the American dream. -  
+Once you come through this **crucible**, you can guide your own life course. -  
 I am both **overhung** and humiliated by my **uncouth** **comportment** last night. -  
 This **precept** has guided U.S. government policy for 30 years. -  
 We strive to **ascertain** what it is we can change and what we cannot change. -  

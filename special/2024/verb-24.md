@@ -1,4 +1,10 @@
 
+**spot**
+
+**punt**
+
+## Sep 
+
 **intervene** 
 
 **swerve** 
