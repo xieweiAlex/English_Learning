@@ -62,7 +62,7 @@ He **feigned** indifference to criticism of his work.
 **propitious**, **auspicious**.   
 
 He **pilfer** from a cash register.   
-We **extort**, we **pilfer**, we **filch and sack**. -  
+We **extort**, we **pilfer**, we **filch and sack**.   
 **heist**.  
 
 They seem more withdrawn and **checked out** at work.  

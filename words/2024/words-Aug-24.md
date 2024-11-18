@@ -5,117 +5,8 @@
 [verb](../../special/2024/verb-24.md) | [special](../../special/2024/special-words-24.md)  
 
 
-[Week 5](#week-5) |  
 
 [Week 4](#week-4) | [week 3](#week-3) | [week 2](#week-2) | [week 1](#week-1)  
-
-You even hate rabbits with their **beady** red eyes, their constant **stench** and their unfriendly nature.  
-Some executives write for themselves. Andrew Bosworth, a **bigwig** at Meta (formerly Facebook), has a blog in which he muses interestingly on many topics,
-Writing is not always the best way to communicate in the workplace. Video is more **memorable**.  
-
-**strike up** a conversation.  
-
-**elide, omit, ellipsis, drop, leave out**.  
-**pride and prejudice**.  
-
-Well, in that case, my night **stank**.  
-The place **stank** of **decayed fish**.  
-Damn. You got that good **stank**. -- Thanks, **back at you**, bud.  
-
-Life throws you **curveball**, bro!  
-And **need I remind you**, it was doing your way, that made you **end up here**.  
-
-
-**The Diamond Sutra**.  
-Most neck pain is associated with poor posture combined with age-related **wear and tear**.  
-
-The entire fiat system is **on its last legs**, these are the **death throes** of the fiat system, it's almost over.  
-**level up** the play field.  
-
-
-The bright sunlight made me **squint**.  
-He was born with a **squint**.  
-**shim**.  
-The German regulator said the violations were a minor **infraction**.   
-**vicinity, proximity, adjacent**  
-He **disrobe** to get a good Sun. - tan on the beach. -  
-
-
-Try **humus** on wheat **pita bread**.  
-Don't be afraid to **haggle**: for the moment, it's a buyer's market.  
-
-For the longest time, they wouldn't **fess up** to it, it was something the community and people had to dig into to find out.  
-The claim of achieving over 400k TPS over this time period was **categorically** false.  
-
-
-## Week 5  
-
-Why Texas Republicans are **souring** on crypto.  
-
-the night was **percolating** with an **expectant energy**.  
-the water **percolating** through the soil may **leach out** minerals.  
-**disgorge**.  
-Now we've got the **pleasantries** **out of the way**, please leave my house.  
-It is a **sneaky and underhand** way of doing business.  
-The towers are made of steel **cased in granite**.  
-the **luxuriant** vegetation of tropical forest.  
-
-You solve that problem and a **proctor** awards you a cryptocredential, a free non-transferable NFT sent to your crypto wallet that establishes “proof-of-learn.”  
-
-The wound is still discharging **pus**.  
-
-A pimple is a small localized **build-up** of **sebum**, dead skin cells, and bacteria clogging a hair **follicle**, usually at the surface of the skin. It resolves on its own. However, if it is deeper in the skin, it can develop into an **abscess**. -  
-
-**oblige**.  
-**shear wall**, **shear stress**.  
-
-The meeting you just **blew off**? Isn't it important.  
-
-The transformation has been **nothing short of a miracle**.  
-**Nothing short of the approval of** Peterman himself will save you this time.  
-
-
-**Never in my life have I seen** someone interview in shorts.  
-
-
-**I'm cutting it close**.  
-
-**intrusive**, **obtrusive**  
-**extraneous**, **unsightly**  
-**coffer**.  
-he avoids the **glitter** of **show business**.  
-I mean that **all glitters is not gold**.  
-the **expansive** **glittering** lake.  
-**burgundy**.  
-**vinyl**.  
-**brochette**, kabab. -  
-
-A **geyser** of gas and liquid erupted. -  
-
-A hot climate **enervate** people who are not used to it.   
-**enervate**: More common synonyms like "weaken," "**debilitate**," or "exhaust" are often used instead.  
-
-Imagine engaging with random trolls online, getting into **spats** with journalists and politicians.  
-**percussion instrument**, **percussion drilling**.  
-**Umami**.  
-She is **enthral** by the story she hear.  
-
-**Something has to give**.  
-
-Cissie was **round-shouldered** and **dumpy**. -  
-**buffoon**, Jester, clown.  
-the **preponderance** of oaks in these woods  
-
-**manslaughter**, **murder**, **homicide**  
-
-Someone would need to pay the $180,000 **delinquent tax** note at auction.  
-**juvenile delinquent**.  
-The empire had for years been falling into **decadence**.  
-
-**mumble, grumble, babble, whisper**.  
-
-These **piecemeal solutions** won't work.  
-The FED in the US **taking a backseat**, their options become constrained by what's going on on the fiscal side.  
 
 ### Week 4  
 
@@ -136,14 +27,14 @@ No one can truly **turn over a new leaf**.
 
 **icky**.  
 **Hops** serve to **embitter** beer.  
-To reveal it would be to **embitter** her life. -  
-He hated her with a **cankered**, shameful **abhorrence**. -  
-The **amort** relationship was like a **black hole**, and it's been **cankering** my soul. -  
+To reveal it would be to **embitter** her life.   
+He hated her with a **cankered**, shameful **abhorrence**.   
+The **amort** relationship was like a **black hole**, and it's been **cankering** my soul.   
 **rugged**.  
 That may seem **anticlimactic**.  
 The conclusion of the movie was **anticlimactic**.  
 Your statement doesn't **jibe with** the facts.  
-The truth is that the risks of the euro **splintering** really have mounted. -  
+The truth is that the risks of the euro **splintering** really have mounted.   
 **stylus**.  
 **lorry driver**, **lorry crane**.  
 
@@ -205,7 +96,7 @@ The epic **bust-up** between China and India could be ending.
 she was **exasperated** by all this **havering**.  
 **mordant**, **corrosive**  
 He should **lighten up** a little.  
-They accepted without **demur**. -  
+They accepted without **demur**.   
 
 Polish billionaire Rafal Brzoska wins an **injunction** temporarily banning Meta from publishing fake ads that use images of him or his wife.  
 
@@ -255,7 +146,7 @@ Her eyes were **puffy** from crying.
 **mundane**, **juejune**, **banal**, **monotonous**  
 
 **Palliative** care.  
-And covers herself in rubies, **emeralds**, and **sapphires**. -  
+And covers herself in rubies, **emeralds**, and **sapphires**.   
 He swore never to **divulge** the secret.  
 **drivel**.  
 **peevish**.  
@@ -291,7 +182,7 @@ Once we remove our **pelts**, we're mostly human.
 **suds**  
 **lumbar spine**/**vertebrae**.  
 
-When he arrived here, he was positively **rapturous**. -  
+When he arrived here, he was positively **rapturous**.   
 
 Oh, sweetie, guests don't normally wear **corsages** to a wedding. That's more of a **prom** thing.  
 **Crisper**.  
@@ -328,7 +219,7 @@ It was a **masterstroke**.
 **marshy** meadow, **Marshy Landscape**.  
 **marshy waste land**.  
 
-Too much sweet food **cloys** the **palate**. -  
+Too much sweet food **cloys** the **palate**.   
 She has a **discerning** **palate**.  
 to my **uncultured** **palate** most of the wines were good.  
 
