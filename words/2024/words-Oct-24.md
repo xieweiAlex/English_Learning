@@ -67,7 +67,7 @@ the World Wide Web **Consortium**.
 I don’t have strong feelings about passkeys, but I am vaguely **unsettled** by them.  
 
 The lawyer **fielded** all questions from the press.  
-When nationalism **rears its head** in China, the country's neighbours **tremble**. -  
+When nationalism **rears its head** in China, the country's neighbours **tremble**.   
 
 **in the good graces of**.  
 **in a position to do sth**.  
@@ -122,7 +122,7 @@ We should be prepared for any **contingency**.
 But for Americans it's a **moot point**. The State Department says, don't travel to India.  
 A hot climate **enervate** people who are not used to it. -  
 **entreat**.  
-Her husband was a charming, but lazy and **feckless** man. -  
+Her husband was a charming, but lazy and **feckless** man.   
 **eclectic**  
 Before the poor **wretch** had time to speak, he was shot.  
 I wouldn't **freeload**. I'm not a **freeloader**.  
@@ -140,7 +140,7 @@ This **tap water** is not **potable**, it's polluted.
 Rate hikes are clearly working—with mortgage rates above 7% and credit card rates going **haywire**, the Fed must be working on something quite specific to bring down CONSUMER price inflation.  
 You had supply chains going **haywire**, inflation **shoot up**.  
 **common toad**, **tree toad**.  
-It succinctly covered all the **salient points** of the case. -  
+It succinctly covered all the **salient points** of the case.   
 She could feel something **icky** on her fingers. -  
 **bastion, citadel, fortress, stronghold**  
 **scrap, scrape**.  
@@ -153,7 +153,7 @@ The **untimely** death of the engineer delayed the completion of the project.
 For the poorest people, however, growth can be the difference between a good life and **penury**.  
 
 Epictetus was **well-accustomed** to a hard life, having spent years as a slave.  
-Gov. Greg Abbott called the state "the modern **embodiment** of the American dream. -  
+Gov. Greg Abbott called the state "the modern **embodiment** of the American dream.   
 We can argue about whether Apple’s **compulsion** to **never, ever** comment on unannounced products is **beneficial** or not.  
 Orion **by all accounts** is a really **compelling** demo. But it’s also very clearly a prototype device only suitable for demos.  
 They look **orthopedic**, like glasses intended to aid people whose vision is so low they’re legally blind.  

@@ -7,16 +7,20 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+weaning baby.  
+The press was accused of being subservient to the government.  
+
+
 **catastrophize**.  
+**postnasal**.  
 
-postnasal.  
-
+carpal tunnel syndrome.  
 
 I came away with the impression that Mehmet Oz was, despite his well-deserved medical **renown**, **preternaturally** **vapid** and **preening**, and, thus, to me, an incongruous figure. -  
-And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -     
+And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -  
 I thought this **boded** poorly for Netflix’s upcoming Christmas Day NFL games.  
 Streaming is altogether different. Netflix didn’t fall down on this big fight night, but they **stumbled**.  
-The Onion, the **satirical** news company that repeatedly **spoofed** conspiracy theorist Alex Jones, has won the bankruptcy auction for control over his media empire — most notably Infowars. -    
+The Onion, the **satirical** news company that repeatedly **spoofed** conspiracy theorist Alex Jones, has won the bankruptcy auction for control over his media empire — most notably Infowars. -  
 
 
 It's your decision, we won't **begrudge** you either way.  
@@ -92,7 +96,7 @@ Trump winning in 2016 was like a **trapdoor** we didn’t even know existed open
 This is going to be bad. But we shouldn’t be **concussed** like we were in 2016.  
 **sobering reality**.  
 
-Sen. Ted Cruz handily defeated Democratic Rep. Colin Allred to win a third term in the U.S. Senate.  
+Sen. Ted Cruz **handily** defeated Democratic Rep. Colin Allred to win a third term in the U.S. Senate.  
 
 **surmount** difficulties.  
 The house was **surmounted** by a tall chimney.  

@@ -1,14 +1,10 @@
 ## words-Oct-24.md ##  
 words/2024/words-Oct-24.md  
 This is why we can’t give up, why we must believe in our **agency**. Because time and again, one person can—and does—make a difference. -  
-When nationalism **rears its head** in China, the country's neighbours **tremble**. -  
 Just like average **punters**, firms in China often struggle to find good investments and therefore plough cash into commercial and residential property. -  
 **Blighted stems** often **canker**. -  
 A hot climate **enervate** people who are not used to it. -  
-Her husband was a charming, but lazy and **feckless** man. -  
-It succinctly covered all the **salient points** of the case. -  
 She could feel something **icky** on her fingers. -  
-Gov. Greg Abbott called the state "the modern **embodiment** of the American dream. -  
 
 ## words-Sep-24.md ##  
 words/2024/words-Sep-24.md  
