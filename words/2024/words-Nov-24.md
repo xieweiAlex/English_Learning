@@ -7,37 +7,52 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-Expurgate.  
-Her hair is a reddish-brown colour.  
-nab.  
-Meanwhile, the high price is clearly beginning to crimp demand.  
+**catastrophize**.  
+
+postnasal.  
 
 
-She had ovarian cancer, bad. It had already **metastasized**.  
-The prognosis was grim: months to live, at best. And those months, toward the end, would inexorably grow ever more painful and profoundly sad.  
-He’s got friends — which fact alone can be rare for an 84-year-old — and he sees them regularly.  
-If they ever somehow met, my dad and Joe Biden would become fast friends.  
+I came away with the impression that Mehmet Oz was, despite his well-deserved medical **renown**, **preternaturally** **vapid** and **preening**, and, thus, to me, an incongruous figure. -  
+And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -     
+I thought this **boded** poorly for Netflix’s upcoming Christmas Day NFL games.  
+Streaming is altogether different. Netflix didn’t fall down on this big fight night, but they **stumbled**.  
+The Onion, the **satirical** news company that repeatedly **spoofed** conspiracy theorist Alex Jones, has won the bankruptcy auction for control over his media empire — most notably Infowars. -    
+
+
+It's your decision, we won't **begrudge** you either way.  
+
+Somewhere along the way snakes start sort of **morphing** into dragons.  
+
+**Expurgate**.  
+Her hair is a **reddish-brown** colour.  
+**nab**.  
+Meanwhile, the high price is clearly beginning to **crimp** demand. -  
+
+
+She had **ovarian** cancer, bad. It had already **metastasized**.  
+The **prognosis** was grim: months to live, at best. And those months, toward the end, would inexorably grow ever more painful and profoundly sad.  
+He’s got friends — which **fact alone** can be rare for an 84-year-old — and he sees them regularly.  
+
+If they ever somehow met, my dad and Joe Biden would become **fast friends**.  
 “I know that walk,” he told me early this year, regarding Biden’s stiffening gait.  
-wedding band.  
-He looked around to no avail, and went to bed without it.  
-Some people imbue meaning and sentimental importance to certain objects. My dad saw his wedding ring like that. It was a sacred token. And now he’d lost it.  
-and if no one had, well, maybe could they keep an eye out for it.  
-He wasn’t forlorn. He laughed even. That’s how he is. That’s how I am. That’s how we are. I’m his boy, as he still sometimes reminds me. But I know what that ring meant to him.  
-That absolute certainty can and usually does come before every single vote in a state has been counted, but comes after the likely winner is ascertainable beyond a reasonable doubt.  
-The New York Times’s infamous “needle” lurched sickeningly rightward early.  
+**wedding band**.  
+He looked around to **no avail**, and went to bed without it.  
+Some people **imbue** meaning and sentimental importance to certain objects. My dad saw his wedding ring like that. It was a **sacred** token. And now he’d lost it.  
+and if no one had, well, maybe could they **keep an eye out** for it.  
+He wasn’t **forlorn**. He laughed even. That’s how he is. That’s how I am. That’s how we are. I’m his boy, as he still sometimes reminds me. But I know what that ring meant to him.  
+That absolute certainty can and usually does come before every single vote in a state has been counted, but comes after the likely winner is **ascertainable** beyond a reasonable doubt.  
+The New York Times’s infamous “needle” **lurched** **sickeningly** rightward early.  
 
-I hadn’t stopped feeling heartsick about his ring.  
-it was no surprise I was welling up with tears come the morning.  
+I hadn’t stopped feeling **heartsick** about his ring.  
+It was no surprise I was **welling up** with tears come the morning.  
 
-At last the rabble had had enough of this.  
-Critics have accused him of rabble-rousing.  
-
+**At last** the **rabble** had had enough of this.  
+**Critics** have accused him of **rabble-rousing**.  
 
 the **rickety** wooden stairs.  
 The **rickety** barn needs repairing.  
 **continental quilt: duvet**.  
 This is a jail, not a **harem**, Captain Butler.  
-
 
 A female comedian has Chinese men **up in arms**.  
 **hunt and peck**.  
