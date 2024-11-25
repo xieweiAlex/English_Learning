@@ -6,15 +6,23 @@
 [Word Review](../../words-review.md)  
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
+He never allowed his work to **impinge** on his private life.
+ordure, dung, fecal, feces, muck, manure, turd.  
 
-weaning baby.  
-The press was accused of being subservient to the government.  
 
+
+A few weeks of **aerobics** will **firm up** that **flabby** stomach.  
+We can give you more detail as our plans **firm up**.   
+
+
+**weaning baby**.  
+The press was accused of being **subservient** to the government.  
+The S&P 500, they're the **Crème de la crème**.  
 
 **catastrophize**.  
 **postnasal**.  
 
-carpal tunnel syndrome.  
+**carpal tunnel syndrome**.  
 
 I came away with the impression that Mehmet Oz was, despite his well-deserved medical **renown**, **preternaturally** **vapid** and **preening**, and, thus, to me, an incongruous figure. -  
 And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -  
