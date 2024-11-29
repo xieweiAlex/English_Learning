@@ -21,7 +21,7 @@ I don't think there are **preponderance** of people out there are like that.
 Israel **conducts** massive strike targeting **Hezbollah** HQ in **Beirut**.  
 
 Your eye's **twitching**.  
-I am both **overhung** and humiliated by my **uncouth** **comportment** last night. -  
+I am both **overhung** and humiliated by my **uncouth** **comportment** last night.   
 So, what happened to you two **lovebirds** last night, huh?  
 Bad news, prof. - Eleanor might not be coming. - She **bailed** **right after** you did last night.  
 Seemed like she was having **second thoughts** about being part of the Brainy Bunch, so.  
@@ -166,7 +166,7 @@ I refused to ask **out of spite**.
 Tell that stupid **palooka** to sit down and shut up.  
 
 
-He is an easy person to **hoodwink**. -  
+He is an easy person to **hoodwink**.   
 **Orcas**, or killer whales, are afflicted by **bio-accumulation** of toxins.  
 She put the vase of flowers on the **window ledge**.  
 
@@ -191,7 +191,7 @@ She gave a **soliloquy** on her doubts and dreams while gazing out the window.
 He's an **impartial** and **perspicacious** judge.   
 She looked at him **intently**.  
 People were **awestruck** by the pictures the satellite sent back to earth.  
-God's greatest gifts come through **travail**. -  
+God's greatest gifts come through **travail**.   
 
 
 **Should you take your work laptop**, you must use VPN at every login.  

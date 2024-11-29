@@ -120,7 +120,7 @@ I just think you're the kind of person who likes a **contingency plan**.
 We should be prepared for any **contingency**.  
 
 But for Americans it's a **moot point**. The State Department says, don't travel to India.  
-A hot climate **enervate** people who are not used to it. -  
+A hot climate **enervate** people who are not used to it.   
 **entreat**.  
 Her husband was a charming, but lazy and **feckless** man.   
 **eclectic**  

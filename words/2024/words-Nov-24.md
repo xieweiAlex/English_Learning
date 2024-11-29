@@ -6,14 +6,21 @@
 [Word Review](../../words-review.md)  
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
-He never allowed his work to **impinge** on his private life.
-ordure, dung, fecal, feces, muck, manure, turd.  
 
+a **mordant** sense of humour.  
+However sad, however **mordant**, however terrible, we must know it.  
 
+Not particularly strong, but not **ductile** or easily malleable either. -  
+Not useful for any practical or **ornamental** purpose.  
+
+Nobody can **impugn** his ability.  
+**aghast**.  
+
+He never allowed his work to **impinge** on his private life.  
+**ordure**, **dung, fecal, feces, muck, manure, turd**.  
 
 A few weeks of **aerobics** will **firm up** that **flabby** stomach.  
-We can give you more detail as our plans **firm up**.   
-
+We can give you more detail as our plans **firm up**.  
 
 **weaning baby**.  
 The press was accused of being **subservient** to the government.  

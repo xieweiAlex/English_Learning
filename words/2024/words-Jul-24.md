@@ -26,7 +26,7 @@ This file contains a **compendium** of all of the highest impact events from you
 Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. -  
 > You’ll never be happy or feel good if your **sense of worth** is tied up in always being **well-received**, if you can’t handle the injustice of being misunderstood or unfairly criticized.  
 
-You gotta leave **the knaves and the fools** to their own business, while you do your best to improve yours, to hold yourself to your own standards and to try to get better as you go. -  
+You gotta leave **the knaves and the fools** to their own business, while you do your best to improve yours, to hold yourself to your own standards and to try to get better as you go.   
 
 Plastic is in **widespread** use.  
 a **widespread** misunderstanding.  
