@@ -1,10 +1,24 @@
+## words-Dec-24.md ##  
+words/2024/words-Dec-24.md  
+Matt Gaetz has withdrawn from **contention** to be Donald Trump’s attorney-general. -  
+And honestly, if he's acting a little **aggro**... -  
+I don't **grovel** to anybody. -  
+His response was immediate and **emphatic**. -  
+It's like a **splinter** in their mind, they had to live with for rest of their life. -  
+His agenda is **discordant** with ours. -  
+
 ## words-Nov-24.md ##  
 words/2024/words-Nov-24.md  
+And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is. -  
 Not particularly strong, but not **ductile** or easily malleable either. -  
+Nobody can **impugn** his ability. -  
 I came away with the impression that Mehmet Oz was, despite his well-deserved medical **renown**, **preternaturally** **vapid** and **preening**, and, thus, to me, an incongruous figure. -  
 And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -  
 The Onion, the **satirical** news company that repeatedly **spoofed** conspiracy theorist Alex Jones, has won the bankruptcy auction for control over his media empire — most notably Infowars. -  
 Meanwhile, the high price is clearly beginning to **crimp** demand. -  
+Space may be worse for humans than thought. - Why going into orbit sends cells **haywire**. -  
+The banks should have been more **circumspect** in their dealings. -  
+So now I'm going to add a **sachet** of yeast to each glass. -  
 
 ## words-Oct-24.md ##  
 words/2024/words-Oct-24.md  
