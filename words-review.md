@@ -1,5 +1,8 @@
 ## words-Dec-24.md ##  
 words/2024/words-Dec-24.md  
+Clean clothes and good manners are **prepossessing**. -  
+I know this is an **imposition**. But please **hear me out**. -  
+The selling pressure is **abating**. -  
 Matt Gaetz has withdrawn from **contention** to be Donald Trump’s attorney-general. -  
 And honestly, if he's acting a little **aggro**... -  
 I don't **grovel** to anybody. -  
@@ -16,16 +19,12 @@ I came away with the impression that Mehmet Oz was, despite his well-deserved me
 And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -  
 The Onion, the **satirical** news company that repeatedly **spoofed** conspiracy theorist Alex Jones, has won the bankruptcy auction for control over his media empire — most notably Infowars. -  
 Meanwhile, the high price is clearly beginning to **crimp** demand. -  
-Space may be worse for humans than thought. - Why going into orbit sends cells **haywire**. -  
-The banks should have been more **circumspect** in their dealings. -  
-So now I'm going to add a **sachet** of yeast to each glass. -  
 
 ## words-Oct-24.md ##  
 words/2024/words-Oct-24.md  
 This is why we can’t give up, why we must believe in our **agency**. Because time and again, one person can—and does—make a difference. -  
 Just like average **punters**, firms in China often struggle to find good investments and therefore plough cash into commercial and residential property. -  
 **Blighted stems** often **canker**. -  
-She could feel something **icky** on her fingers. -  
 
 ## words-Sep-24.md ##  
 words/2024/words-Sep-24.md  
@@ -52,7 +51,6 @@ He would **immolate** himself for their noble cause. -
 ## words-Jun-24.md ##  
 words/2024/words-Jun-24.md  
 It is a tricky time for Christianity. Many Catholics are **vexed** because Pope Francis has modernised the church’s attitude towards blessings for same-sex couples. -  
-He was **affable** at one moment, **choleric** the next. -  
 His elegance is a living **reproach** to our **slovenly** habits. -  
 I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -  
 He drove with **blithe** disregard for the rules of the road. -  
@@ -60,5 +58,4 @@ He drove with **blithe** disregard for the rules of the road. -
 **ornate**. -  
 Her fellow teachers greeted her proposal with **scorn**. -  
 **Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
-The experience was something he had tried to **expunge** from his memory. -  
 What does all this **portend** for the near future?  -  

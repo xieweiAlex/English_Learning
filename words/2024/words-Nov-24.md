@@ -128,10 +128,10 @@ We're coming back. It's a **snafu**, that's all.
 **Sullying** the reputation of this beautiful girl.  
 
 Volkswagen’s **woes** illustrate Germany’s creeping deindustrialisation.  
-Space may be worse for humans than thought. - Why going into orbit sends cells **haywire**. -  
+Space may be worse for humans than thought. - Why going into orbit sends cells **haywire**.   
 
 It's not just all **sunshine and rainbows**.  
-The banks should have been more **circumspect** in their dealings. -  
+The banks should have been more **circumspect** in their dealings.   
 Dannay and Lee remained **circumspect** about their writing methods.  
 measures to **resuscitate** the **ailing** Japanese economy.  
 **Measles** **ails** the little girl.  
@@ -147,7 +147,7 @@ Rules on privacy, data and **espionage** are **splintering**.
 
 **nudge**.  
 **impregnable, impregnate**.  
-So now I'm going to add a **sachet** of yeast to each glass. -  
+So now I'm going to add a **sachet** of yeast to each glass.   
 
 
 ## Conversation  

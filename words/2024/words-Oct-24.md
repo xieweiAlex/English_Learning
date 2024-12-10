@@ -141,7 +141,7 @@ Rate hikes are clearly working—with mortgage rates above 7% and credit card ra
 You had supply chains going **haywire**, inflation **shoot up**.  
 **common toad**, **tree toad**.  
 It succinctly covered all the **salient points** of the case.   
-She could feel something **icky** on her fingers. -  
+She could feel something **icky** on her fingers.   
 **bastion, citadel, fortress, stronghold**  
 **scrap, scrape**.  
 I might **scrape through** the exam if I'm lucky.  

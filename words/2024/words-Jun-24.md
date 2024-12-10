@@ -76,7 +76,7 @@ The wine list is **well-rounded** and **modestly priced**.
 
 **air your dirty laundry** in public.  
 Unfortunately for Patrick he wouldn't get away **scot-free** this time.  
-He was **affable** at one moment, **choleric** the next. -  
+He was **affable** at one moment, **choleric** the next.   
 **cuddly**.  
 **sewer**, **sewerage**.  
 **Amalgam**.  
@@ -376,7 +376,7 @@ The Egyptians offered **resolute** resistance to the aggressors.
 It’s **obnoxious**. The way they lie and cheat and **meddle**. The way they condescend and argue. They get in our way. They pick fights. They do all sorts of things we hate.  
 
 Since it is very cold at the top, **coverall** is required.  
-The experience was something he had tried to **expunge** from his memory. -  
+The experience was something he had tried to **expunge** from his memory.   
 **old hand**, **light hand**  
 **sleight of hand**  
 
