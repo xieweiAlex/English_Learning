@@ -5,11 +5,43 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+Viewed objectively, however, this concept is anachronistic. Knowledge work is not an assembly line, and extracting value from information is an activity that’s often at odds with busyness, not supported by it.  
+
+
+
+senseless.  
+
+fiddle, fudge.  
+
+**freeload**  
+**lagoon**.  
+**creatine**, **cretin**.  
+**dormant, hibernate, inactive**  
+**imposture**.  
+tear to **shreds**.  
+There is not **a shred of truth** in the story.  
+**lichen**.  
+**clear-cut**.  
+
+**Narcotic**.  
+Brazil **courts** China as its Musk **feud** erupts again. - Xi Jinping, China’s leader, **spies a chance** to draw Brazil closer.  
+
+> There is **mounting** evidence on why short and sharp is best
+
+It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley. -    
+
+**disaffected, alienated, arouse, resent** 
+Is it logic, nature or self-fulfilling **prophecy**  
+quick, dirty, **30,0000 foot overview** of what fibs are.  
+Often it is not just what you say but how **briskly** you say it. The value of **brevity** applies even when asking people to donate money, such as to political candidates.  
+
 She is **famed for** playing **dizzy blondes**.  
 The city is **famed** for its **scenic** spots.  
 **To the chagrin** of their parents, neither Phil nor Pam went to church anymore.  
 
-bonhomie.  
+### Week 2 
+
+**bonhomie**.  
 **gobi desert**.  
 Clean clothes and good manners are **prepossessing**. -  
 Whole villages were **stricken** with the disease.  
@@ -115,6 +147,10 @@ Taken in front of a **plain white** or **off-white** background.
 Hal Finney, recipient of the first Bitcoin transaction, predicted $10 million per coin. As we approach six figures, his vision appears increasingly **prescient**.  
 
 This is why we can’t give up, why we must believe in our **agency**. Because time and again, one person can—and does—make a difference.  
+
+> There is **mounting** evidence on why short and sharp is best
+
+
 
 
 
