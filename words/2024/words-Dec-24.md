@@ -5,13 +5,41 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-Viewed objectively, however, this concept is anachronistic. Knowledge work is not an assembly line, and extracting value from information is an activity that’s often at odds with busyness, not supported by it.  
+Even a written apology failed to placate the indignant hostess.  
+
+a quarry of knowledge.  
+quarry many old manuscripts.  
+Blood coagulates when it meets air.  
+
+mallet.  
+convulse.  
+fusillade.  
+impotence.  
 
 
+The **restitution** of cultural heritage will **race ahead** in 2025. - Britain could end up losing its **marbles**.  
+**Snuffing out** the flame of freedom in Hong Kong.  
+What’s about to hit the world economy? - Trumponomics **tees off**  
+e ruled Libya for 42 years, no less **repressively** than the Assads did in Syria. In the end he was caught, after a battle, hiding in a sewer and then tortured and killed by rebels.  
+People were so fearful that Mr Assad’s spies and **informers** were everywhere that they would not say a word about Syrian politics.  
+The West, while generally backing Kurds who dominate the east of Syria, is watching **warily**.  
+The earthling’s guide to building a Moon base. - **One-armed robots** are being trained in lunar construction.  
 
-senseless.  
+The volume tends to **jive** fairly reasonably well with the pricing. -  
 
-fiddle, fudge.  
+But to further encapsulate the business a little more, I think it's a glass of Lemonade that at the start of the parade, it's going to be full of **theatrics**.  
+At the start of the parade, it is fully **shrouded** by **fog machines**. -  
+I think that was **woven in** to everything that you described. You were just being far more subtle about it, and I had to **draw that out**.  
+
+If the cold-blooded killing of the UnitedHealthcare CEO wasn’t **macabre** enough, the **lionisation** on social media of the alleged murderer, Luigi Mangione, makes the tragedy even more disturbing.  
+General Motors (NYSE:GM) is **pulling the plug on** further funding for its loss-making Cruise robotaxi subsidiary.  
+And Lemonade's business model still relies partially on **ceding** some insurance to larger reinsurers.  
+
+Viewed **objectively**, however, this concept is **anachronistic**. Knowledge work is not an **assembly line**, and extracting value from information is an activity that’s often **at odds** with busyness, not supported by it.  
+
+**senseless**.  
+
+**fiddle, fudge**.  
 
 **freeload**  
 **lagoon**.  
@@ -26,11 +54,11 @@ There is not **a shred of truth** in the story.
 **Narcotic**.  
 Brazil **courts** China as its Musk **feud** erupts again. - Xi Jinping, China’s leader, **spies a chance** to draw Brazil closer.  
 
-> There is **mounting** evidence on why short and sharp is best
+> There is **mounting** evidence on why short and sharp is best  
 
-It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley. -    
+It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley. -  
 
-**disaffected, alienated, arouse, resent** 
+**disaffected, alienated, arouse, resent**  
 Is it logic, nature or self-fulfilling **prophecy**  
 quick, dirty, **30,0000 foot overview** of what fibs are.  
 Often it is not just what you say but how **briskly** you say it. The value of **brevity** applies even when asking people to donate money, such as to political candidates.  
@@ -39,7 +67,7 @@ She is **famed for** playing **dizzy blondes**.
 The city is **famed** for its **scenic** spots.  
 **To the chagrin** of their parents, neither Phil nor Pam went to church anymore.  
 
-### Week 2 
+### Week 2  
 
 **bonhomie**.  
 **gobi desert**.  
@@ -106,8 +134,6 @@ And honestly, if he's acting a little **aggro**... -
 
 ### Week 1  
 
-
-
 **metropolis, cosmopolis**  
 **Pascal**.  
 That he is a **buffoon** with bathroom fixtures of gold?  
@@ -148,8 +174,9 @@ Hal Finney, recipient of the first Bitcoin transaction, predicted $10 million pe
 
 This is why we can’t give up, why we must believe in our **agency**. Because time and again, one person can—and does—make a difference.  
 
-> There is **mounting** evidence on why short and sharp is best
+> There is **mounting** evidence on why short and sharp is best  
 
+General Motors (NYSE:GM) is **pulling the plug on** further funding for its loss-making Cruise robotaxi subsidiary.  
 
 
 
