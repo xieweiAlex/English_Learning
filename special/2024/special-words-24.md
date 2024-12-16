@@ -1,4 +1,6 @@
 
+**monastic**
+
 **omission**
 > Here’s how he once explained the omission... 
 

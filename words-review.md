@@ -17,12 +17,10 @@ Not particularly strong, but not **ductile** or easily malleable either. -
 Nobody can **impugn** his ability. -  
 I came away with the impression that Mehmet Oz was, despite his well-deserved medical **renown**, **preternaturally** **vapid** and **preening**, and, thus, to me, an incongruous figure. -  
 And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -  
-The Onion, the **satirical** news company that repeatedly **spoofed** conspiracy theorist Alex Jones, has won the bankruptcy auction for control over his media empire — most notably Infowars. -  
 Meanwhile, the high price is clearly beginning to **crimp** demand. -  
 
 ## words-Oct-24.md ##  
 words/2024/words-Oct-24.md  
-This is why we can’t give up, why we must believe in our **agency**. Because time and again, one person can—and does—make a difference. -  
 Just like average **punters**, firms in China often struggle to find good investments and therefore plough cash into commercial and residential property. -  
 **Blighted stems** often **canker**. -  
 

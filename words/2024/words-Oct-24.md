@@ -37,7 +37,7 @@ Escape from the **meat grinder**: the making of a Russian **deserter**
 When workplace bonuses backfire. - The **gelignite** of incentives  
 
 
-This is why we can’t give up, why we must believe in our **agency**. Because time and again, one person can—and does—make a difference. -  
+This is why we can’t give up, why we must believe in our **agency**. Because time and again, one person can—and does—make a difference.   
 > the state of being in action or exerting power  
 
 

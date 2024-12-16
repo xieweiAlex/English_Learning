@@ -5,17 +5,24 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-Even a written apology failed to placate the indignant hostess.  
+> **defile**: defile comes from the Old French defouler, meaning "to trample down, violate, or desecrate." Defouler is derived from the prefix de- (indicating reversal or removal) and fouler ("to tread, crush, or trample"), which itself comes from the Latin fullo, meaning "a person who cleans or treats cloth."  
+> **fusillade**: its original sense of "a volley of gunfire." Over time, the term also came to mean "a rapid outburst of anything," such as words or blows, used metaphorically.  
 
-a quarry of knowledge.  
-quarry many old manuscripts.  
-Blood coagulates when it meets air.  
+She **writhed** as one who is in terrible pain, and her limbs were **dreadfully** **convulsed**.  
+Her face was **convulsed** with sudden fear.  
+She rocked **backwards and forwards**, **convulsed** with **helpless** **mirth**.  
 
-mallet.  
-convulse.  
-fusillade.  
-impotence.  
+He went **ballistic** when I told him about the accident.  
+**pacify, placate, mollify, assuage**.  
 
+Even a written apology failed to **placate** the indignant hostess.  
+
+**a quarry of** knowledge.  
+**quarry** many old manuscripts.  
+Blood **coagulates** when it meets air.  
+
+**mallet**.  
+**impotence**.  
 
 The **restitution** of cultural heritage will **race ahead** in 2025. - Britain could end up losing its **marbles**.  
 **Snuffing out** the flame of freedom in Hong Kong.  
@@ -141,8 +148,6 @@ That he is a **buffoon** with bathroom fixtures of gold?
 **rubber stamp**  
 I don't **grovel** to anybody. -  
 
-**defile**??  
-
 **security blanket**.  
 **prop trading**.  
 **feast or famine**.  
@@ -165,6 +170,8 @@ Taken in front of a **plain white** or **off-white** background.
 
 ## Conversation  
 > Happened in real life or audio/video that I can resonate with a scene/context.  
+
+I **hold grudge** towards people who wronged me.  
 
 
 ## Interesting  

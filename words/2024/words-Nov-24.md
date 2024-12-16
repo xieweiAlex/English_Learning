@@ -44,7 +44,7 @@ I came away with the impression that Mehmet Oz was, despite his well-deserved me
 And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -  
 I thought this **boded** poorly for Netflix’s upcoming Christmas Day NFL games.  
 Streaming is altogether different. Netflix didn’t fall down on this big fight night, but they **stumbled**.  
-The Onion, the **satirical** news company that repeatedly **spoofed** conspiracy theorist Alex Jones, has won the bankruptcy auction for control over his media empire — most notably Infowars. -  
+The Onion, the **satirical** news company that repeatedly **spoofed** conspiracy theorist Alex Jones, has won the bankruptcy auction for control over his media empire — most notably Infowars.   
 
 It's your decision, we won't **begrudge** you either way.  
 Somewhere along the way snakes start sort of **morphing** into dragons.  
