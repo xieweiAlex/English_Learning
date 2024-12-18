@@ -5,6 +5,44 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+She had **embezzled** $5,600,000 in company funds.  
+
+
+**Merino wool**.  
+
+Bitgo has a **stellar** reputation but the lack of transparency has always been a concern.  
+
+The court are always **at your disposal**.  
+I'm not familiar to the name of the food. I'm **at your disposal**.  
+He faced a **fusillade** of questions from the waiting journalists. -  
+It will **emulsify** that mucus, you will breath so much better.  
+**distaste**.  
+**scoreboard**.  
+
+She walked with a **waddle**. -  
+His fever was **allayed** by the medicine. -  
+
+He deplored religious **bigotry**. -  
+Bigotry, intolerance and ignorance are still **rife**.  
+
+he **tippy-toed** around the house.  
+a **tippy** racing shell; a **tippy** card table.  
+
+the work never seemed to **faze** him, he just happily went up to work when he had the spare time.  
+
+**hallow, hollow, halo**  
+The deathly **Hallows**.  
+
+The influence of **grunge music** starts to take off.  
+**mop of hair**  
+
+Some question the relatively **lowly** position of vibrant metropolises like London (45th out of 173 cities in 2024) or New York (70th);  
+others **scoff at** the sedate places that score highly: cities like Copenhagen and Calgary appear in the top ten this year, as they have done for much of the past two decades.  
+Tel Aviv was this year’s biggest **faller**, dropping 20 places down the ranking to 112th.  
+
+
+## Week 3  
+
 > **defile**: defile comes from the Old French defouler, meaning "to trample down, violate, or desecrate." Defouler is derived from the prefix de- (indicating reversal or removal) and fouler ("to tread, crush, or trample"), which itself comes from the Latin fullo, meaning "a person who cleans or treats cloth."  
 > **fusillade**: its original sense of "a volley of gunfire." Over time, the term also came to mean "a rapid outburst of anything," such as words or blows, used metaphorically.  
 
@@ -172,10 +210,13 @@ Taken in front of a **plain white** or **off-white** background.
 > Happened in real life or audio/video that I can resonate with a scene/context.  
 
 I **hold grudge** towards people who wronged me.  
+Well, we have 3 months **lead time**.  
 
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
+
+Britons may **scoff at** the idea that they have anything to teach the world about railways.  
 
 Hal Finney, recipient of the first Bitcoin transaction, predicted $10 million per coin. As we approach six figures, his vision appears increasingly **prescient**.  
 

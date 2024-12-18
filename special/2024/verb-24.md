@@ -1,4 +1,6 @@
 
+**stoke**
+
 **rise, fall** 
 
 **undermine** 

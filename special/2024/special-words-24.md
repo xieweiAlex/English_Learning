@@ -1,4 +1,15 @@
 
+**ornate**
+> It's a good word to know, especially if you enjoy writing or discussing aesthetics, but in casual conversations, simpler synonyms like "fancy" or "decorative" might be more commonly used.
+
+**distaste**
+
+> Kreider’s **distaste** for **frenetic work**, however, was put to the test in the months leading up to the writing of his post.
+
+
+**discrete**
+Regardless of where you work, be sure to also give yourself a specific time frame to keep the session a **discrete challenge** and not an **open-ended** **slog**.
+
 **monastic**
 
 **omission**

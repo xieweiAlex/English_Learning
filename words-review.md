@@ -1,5 +1,12 @@
 ## words-Dec-24.md ##  
 words/2024/words-Dec-24.md  
+He faced a **fusillade** of questions from the waiting journalists. -  
+She walked with a **waddle**. -  
+His fever was **allayed** by the medicine. -  
+He deplored religious **bigotry**. -  
+The volume tends to **jive** fairly reasonably well with the pricing. -  
+At the start of the parade, it is fully **shrouded** by **fog machines**. -  
+It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley. -  
 Clean clothes and good manners are **prepossessing**. -  
 I know this is an **imposition**. But please **hear me out**. -  
 The selling pressure is **abating**. -  
