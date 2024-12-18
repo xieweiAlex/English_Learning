@@ -3,7 +3,7 @@
 
 **rise, fall** 
 
-**undermine** 
+**undermine**, **underpin**  
 > The group is more important than the individual; don’t behave in a way that undermines the chosen path.
 
 

@@ -59,8 +59,6 @@ It is a tricky time for Christianity. Many Catholics are **vexed** because Pope 
 His elegance is a living **reproach** to our **slovenly** habits. -  
 I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -  
 He drove with **blithe** disregard for the rules of the road. -  
-**ignoble**. -  
-**ornate**. -  
 Her fellow teachers greeted her proposal with **scorn**. -  
 **Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
 What does all this **portend** for the near future?  -  

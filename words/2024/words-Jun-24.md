@@ -142,13 +142,13 @@ That's **a load of baloney**.
 ## Week 4  
 
 **broach**.  
-**ignoble**. -  
+**ignoble**.   
 **plunder**  
 **tarmac**.  
 A coral reef is built by the **accretion** of tiny, identical organisms.  
 **dilettante**.  
 I give myself treats and justify them to **salve** my **conscience**.   
-**ornate**. -  
+**ornate**.   
 The **momentary** relief was followed by worse suffering.  
 He was so **mulish** that my **admonitions** just **flowed over** him.   
 For each title there is a brief **synopsis** of the book.  

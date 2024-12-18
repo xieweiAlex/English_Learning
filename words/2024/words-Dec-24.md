@@ -5,11 +5,41 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+When I last visited Tallinn, in the mid-1990s, the people fizzed with optimism because they had recently shrugged off the decades-long grasp of the great bear  
+Russia’s military heft is already at least equal to that of Britain, France, Germany and Poland combined.   
+He observes that the leaders will find it impossible to unite Syrians until “they have truly repudiated the unhinged views of groups like Al-Qaeda and their ideological offshoots in ISIS”.   
+
+
+He is incapable of discriminating between a good idea and a terrible one.  
+More discriminating visitors now tend to shun the area.  
+
+
+If the Europeans did not reduce subsidies, a trade war would **ensue**. -     
+The team is trying to **ferret** out missing details.
+she had the ability to **ferret out** the facts.  
+**contracept, contraception**.  
+Frank ran errands for a seedy local villain.  
+It's a **spot check**. There's no system for it.  
+He can be **intransigent** and **pig-headed** at times. -    
+
+The man is off his **rocker**.
+I guess he's supposed to be a **punk rocker**. 
+**rocker arm**, **rocker switch**.  
+
+**Turns and twists** of the road.  
+
+Browbeat??  
+**ignoble**??  
+
+**laud**.  
+lexicon  
+
+Gerontocracy.  
+Heron??  
+
+
 She had **embezzled** $5,600,000 in company funds.  
-
-
 **Merino wool**.  
-
 Bitgo has a **stellar** reputation but the lack of transparency has always been a concern.  
 
 The court are always **at your disposal**.  
@@ -41,7 +71,7 @@ others **scoff at** the sedate places that score highly: cities like Copenhagen 
 Tel Aviv was this year’s biggest **faller**, dropping 20 places down the ranking to 112th.  
 
 
-## Week 3  
+### Week 3  
 
 > **defile**: defile comes from the Old French defouler, meaning "to trample down, violate, or desecrate." Defouler is derived from the prefix de- (indicating reversal or removal) and fouler ("to tread, crush, or trample"), which itself comes from the Latin fullo, meaning "a person who cleans or treats cloth."  
 > **fusillade**: its original sense of "a volley of gunfire." Over time, the term also came to mean "a rapid outburst of anything," such as words or blows, used metaphorically.  
@@ -225,8 +255,4 @@ This is why we can’t give up, why we must believe in our **agency**. Because t
 > There is **mounting** evidence on why short and sharp is best  
 
 General Motors (NYSE:GM) is **pulling the plug on** further funding for its loss-making Cruise robotaxi subsidiary.  
-
-
-
-
 
