@@ -273,7 +273,7 @@ You solve that problem and a **proctor** awards you a cryptocredential, a free n
 
 The wound is still discharging **pus**.  
 
-A pimple is a small localized **build-up** of **sebum**, dead skin cells, and bacteria clogging a hair **follicle**, usually at the surface of the skin. It resolves on its own. However, if it is deeper in the skin, it can develop into an **abscess**. -  
+A pimple is a small localized **build-up** of **sebum**, dead skin cells, and bacteria clogging a hair **follicle**, usually at the surface of the skin. It resolves on its own. However, if it is deeper in the skin, it can develop into an **abscess**.   
 
 **oblige**.  
 **shear wall**, **shear stress**.  

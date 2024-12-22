@@ -23,7 +23,7 @@ Corn cooked in the Instant Pot results in perfectly seasoned, **plump**, and fla
 **corn on the cob**.  
 This file contains a **compendium** of all of the highest impact events from your life.   
 
-Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. -  
+Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**.   
 > You’ll never be happy or feel good if your **sense of worth** is tied up in always being **well-received**, if you can’t handle the injustice of being misunderstood or unfairly criticized.  
 
 You gotta leave **the knaves and the fools** to their own business, while you do your best to improve yours, to hold yourself to your own standards and to try to get better as you go.   
@@ -85,7 +85,7 @@ I was born and raised in the United States, but my heritage and upbringing is **
 **fly swatter**.  
 " I have, " said Tyrion. " I **swat them down like flies**".  
 
-I left feeling **disgruntled** at the way I'd been treated. -  
+I left feeling **disgruntled** at the way I'd been treated.   
 There were four to five employees, half of whom were **disgruntled**. Yet, USCCA was starting to gain traction.  
 **Stem from**  
 
@@ -206,7 +206,7 @@ One of the demonstrators, a young woman, sat **forlorn** on the **sidewalk**.
 
 Shampoo contains **cleansing agents** — basically, **detergents** — that clean **impurities** off your hair.  
 Restaurant chains are feeling **compelled** to put the "value" back into the value meal after years of price hikes have **hampered** sales, and McDonald's is under particularly **acute pressure**.  
-Hunter was accused of illegally purchasing and possessing a firearm in October 2018 while using a **narcotic**. -  
+Hunter was accused of illegally purchasing and possessing a firearm in October 2018 while using a **narcotic**.   
 
 **slovenly**.  
 **portly**.  

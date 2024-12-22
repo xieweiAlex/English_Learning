@@ -5,40 +5,64 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-When I last visited Tallinn, in the mid-1990s, the people fizzed with optimism because they had recently shrugged off the decades-long grasp of the great bear  
-Russia’s military heft is already at least equal to that of Britain, France, Germany and Poland combined.   
-He observes that the leaders will find it impossible to unite Syrians until “they have truly repudiated the unhinged views of groups like Al-Qaeda and their ideological offshoots in ISIS”.   
+### Week 4  
+
+How will I ever **get on top of** all this work?  
+I refuse to let winter **get on top of** me.  
+
+We see it with The Washington Post under Bezos, when he **kiboshed** the paper’s endorsement of Kamala Harris so as not to antagonize Donald Trump. -  
+Patrick Soon-Shiong, whose latest **dictum** is for the paper’s editorial board to, I swear, “take a break” from writing about Donald Trump. -  
+
+Three geese **waddled** across the road.  
+The floor was **dappled** with pale moonlight. -  
+**sumo wrestling**.  
+**shoptalk, lingo, jargon, trade talk**.  
+But the Russian **detente** didn't last long. -  
+The numbers don't **jibe**.  
+Your statement doesn't **jibe with** the facts. -  
+**feckless, wimpy, lame, feeble.**  
+his voice sounded **feeble** and far away.  
 
 
-He is incapable of discriminating between a good idea and a terrible one.  
-More discriminating visitors now tend to shun the area.  
+Alcohol is a **contributory** factor in 10% of all road accidents. -  
+Nothing **onerous**, I promise!  
+**Colander**.  
+
+**elf, goblins, gremlin, pixie fairy, imp**  
 
 
-If the Europeans did not reduce subsidies, a trade war would **ensue**. -     
-The team is trying to **ferret** out missing details.
+When I last visited Tallinn, in the mid-1990s, the people **fizzed** with optimism because they had recently shrugged off the decades-long grasp of the great bear.  
+Russia’s military **heft** is already at least equal to that of Britain, France, Germany and Poland combined.  
+He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”. -  
+
+He is incapable of **discriminating** between a good idea and a terrible one.  
+More discriminating visitors now tend to **shun** the area.  
+
+
+If the Europeans did not reduce subsidies, a trade war would **ensue**. -  
+The team is trying to **ferret** out missing details.  
 she had the ability to **ferret out** the facts.  
 **contracept, contraception**.  
-Frank ran errands for a seedy local villain.  
+Frank ran errands for a **seedy** local villain. -  
 It's a **spot check**. There's no system for it.  
-He can be **intransigent** and **pig-headed** at times. -    
+He can be **intransigent** and **pig-headed** at times. -  
 
-The man is off his **rocker**.
-I guess he's supposed to be a **punk rocker**. 
+The man is off his **rocker**.  
+I guess he's supposed to be a **punk rocker**.  
 **rocker arm**, **rocker switch**.  
 
 **Turns and twists** of the road.  
 
-Browbeat??  
-**ignoble**??  
+The manager **browbeat** the team into working overtime.  
+His **ignoble** behavior tarnished his reputation. -  
 
 **laud**.  
-lexicon  
+**lexicon**  
 
-Gerontocracy.  
-Heron??  
+**Gerontocracy**.  
+**Heron**??  
 
-
-She had **embezzled** $5,600,000 in company funds.  
+She had **embezzled** $5,600,000 in company funds. -  
 **Merino wool**.  
 Bitgo has a **stellar** reputation but the lack of transparency has always been a concern.  
 
@@ -202,7 +226,6 @@ Hal Finney, recipient of the first Bitcoin transaction, predicted $10 million pe
 To interview its executive chairman Michael Saylor, how his company has **catapulted** to one of the most highly valued in America.  
 
 **membranous**.  
-**shoptalk**  
 That promise is already in **jeopardy**.  
 The Huawei **dust-up** has put that relationship **in jeopardy**.  
 And honestly, if he's acting a little **aggro**... -  
@@ -245,6 +268,8 @@ Well, we have 3 months **lead time**.
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
+>
+When I last visited Tallinn, in the mid-1990s, the people **fizzed** with optimism because they had recently shrugged off the decades-long grasp of the great bear.  
 
 Britons may **scoff at** the idea that they have anything to teach the world about railways.  
 

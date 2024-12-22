@@ -1,5 +1,17 @@
 ## words-Dec-24.md ##  
 words/2024/words-Dec-24.md  
+We see it with The Washington Post under Bezos, when he **kiboshed** the paper’s endorsement of Kamala Harris so as not to antagonize Donald Trump. -  
+Patrick Soon-Shiong, whose latest **dictum** is for the paper’s editorial board to, I swear, “take a break” from writing about Donald Trump. -  
+The floor was **dappled** with pale moonlight. -  
+But the Russian **detente** didn't last long. -  
+Your statement doesn't **jibe with** the facts. -  
+Alcohol is a **contributory** factor in 10% of all road accidents. -  
+He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”. -  
+If the Europeans did not reduce subsidies, a trade war would **ensue**. -  
+Frank ran errands for a **seedy** local villain. -  
+He can be **intransigent** and **pig-headed** at times. -  
+His **ignoble** behavior tarnished his reputation. -  
+She had **embezzled** $5,600,000 in company funds. -  
 He faced a **fusillade** of questions from the waiting journalists. -  
 She walked with a **waddle**. -  
 His fever was **allayed** by the medicine. -  
@@ -20,15 +32,12 @@ His agenda is **discordant** with ours. -
 ## words-Nov-24.md ##  
 words/2024/words-Nov-24.md  
 And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is. -  
-Not particularly strong, but not **ductile** or easily malleable either. -  
 Nobody can **impugn** his ability. -  
 I came away with the impression that Mehmet Oz was, despite his well-deserved medical **renown**, **preternaturally** **vapid** and **preening**, and, thus, to me, an incongruous figure. -  
 And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -  
-Meanwhile, the high price is clearly beginning to **crimp** demand. -  
 
 ## words-Oct-24.md ##  
 words/2024/words-Oct-24.md  
-Just like average **punters**, firms in China often struggle to find good investments and therefore plough cash into commercial and residential property. -  
 **Blighted stems** often **canker**. -  
 
 ## words-Sep-24.md ##  
@@ -37,20 +46,16 @@ Once you come through this **crucible**, you can guide your own life course. -
 This **precept** has guided U.S. government policy for 30 years. -  
 We strive to **ascertain** what it is we can change and what we cannot change. -  
 making **informed decisions** that are not only profitable but are also free from the **vagaries** of human psychology. -  
-A pimple is a small localized **build-up** of **sebum**, dead skin cells, and bacteria clogging a hair **follicle**, usually at the surface of the skin. It resolves on its own. However, if it is deeper in the skin, it can develop into an **abscess**. -  
 A **geyser** of gas and liquid erupted. -  
 A hot climate **enervate** people who are not used to it. -  
 Cissie was **round-shouldered** and **dumpy**. -  
 
 ## words-Jul-24.md ##  
 words/2024/words-Jul-24.md  
-Nearly every week there is some thread on Reddit about how Daily Stoic is too this or that, and people **pile on** their **pent up** resentments and **conjectures**. -  
 he found it difficult to cope with the **adulation** of the fans. -  
 We **delude** ourselves that we are in control. -  
-I left feeling **disgruntled** at the way I'd been treated. -  
 a **put-upon** **drudge** who slaved for her employer. -  
 My father was **apoplectic** when he discovered the truth. -  
-Hunter was accused of illegally purchasing and possessing a firearm in October 2018 while using a **narcotic**. -  
 He would **immolate** himself for their noble cause. -  
 
 ## words-Jun-24.md ##  

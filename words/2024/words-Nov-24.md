@@ -19,7 +19,7 @@ And the more **parsimonious** you are, the more economically dense each byte tha
 a **mordant** sense of humour.  
 However sad, however **mordant**, however terrible, we must know it.  
 
-Not particularly strong, but not **ductile** or easily malleable either. -  
+Not particularly strong, but not **ductile** or easily malleable either.   
 Not useful for any practical or **ornamental** purpose.  
 
 Nobody can **impugn** his ability. -  
@@ -52,7 +52,7 @@ Somewhere along the way snakes start sort of **morphing** into dragons.
 **Expurgate**.??  
 Her hair is a **reddish-brown** colour.  
 **nab**.  
-Meanwhile, the high price is clearly beginning to **crimp** demand. -  
+Meanwhile, the high price is clearly beginning to **crimp** demand.   
 
 
 She had **ovarian** cancer, bad. It had already **metastasized**.  

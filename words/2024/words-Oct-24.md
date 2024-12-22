@@ -83,7 +83,7 @@ can you give **credence** to this **ordure**?.
 And even these investments now seem **shoddy**: most of the homes being auctioned in Changsha have gone unsold.  
 If each foreclosure meant another family getting **booted out** of a home, China’s property crisis would be causing dramatic social instability, as America’s did after 2007.  
 **Whereas** local courts once took less than three months to rule on foreclosure cases, this year many have chosen to delay filing cases for at least six months to give buyers time to catch up.  
-Just like average **punters**, firms in China often struggle to find good investments and therefore plough cash into commercial and residential property. -  
+Just like average **punters**, firms in China often struggle to find good investments and therefore plough cash into commercial and residential property.   
 But they should also fear the rising **distress** among companies.  
 
 
