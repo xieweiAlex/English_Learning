@@ -7,6 +7,17 @@
 
 ### Week 4  
 
+**recta, rectum, rectus**.  
+She received a mild **reproof** from the teacher.  
+**reproof, rebuke, reproach, reprimand**  
+**trade pact, warsaw pact**.  
+
+
+reality TV. The channel known for **treacly** **rom-coms** teased “Small Town Setup,” a show that sends big-city singletons home to meet matches chosen by their neighbors and family. Who wouldn’t want to be a part of that? -   
+Amazon’s said to be **bailing on** office construction plans and breaking leases to save $1.3B.  
+Amazon’s mandate was criticized by employees, some of whom said it was a **sneaky** way to cut headcount while avoiding layoffs.  
+
+
 How will I ever **get on top of** all this work?  
 I refuse to let winter **get on top of** me.  
 
@@ -23,13 +34,11 @@ Your statement doesn't **jibe with** the facts. -
 **feckless, wimpy, lame, feeble.**  
 his voice sounded **feeble** and far away.  
 
-
 Alcohol is a **contributory** factor in 10% of all road accidents. -  
 Nothing **onerous**, I promise!  
 **Colander**.  
 
 **elf, goblins, gremlin, pixie fairy, imp**  
-
 
 When I last visited Tallinn, in the mid-1990s, the people **fizzed** with optimism because they had recently shrugged off the decades-long grasp of the great bear.  
 Russia’s military **heft** is already at least equal to that of Britain, France, Germany and Poland combined.  
@@ -37,7 +46,6 @@ He observes that the leaders will find it impossible to unite Syrians until “t
 
 He is incapable of **discriminating** between a good idea and a terrible one.  
 More discriminating visitors now tend to **shun** the area.  
-
 
 If the Europeans did not reduce subsidies, a trade war would **ensue**. -  
 The team is trying to **ferret** out missing details.  
@@ -54,7 +62,7 @@ I guess he's supposed to be a **punk rocker**.
 **Turns and twists** of the road.  
 
 The manager **browbeat** the team into working overtime.  
-His **ignoble** behavior tarnished his reputation. -  
+His **ignoble** behavior **tarnished** his reputation. -  
 
 **laud**.  
 **lexicon**  
@@ -268,7 +276,29 @@ Well, we have 3 months **lead time**.
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
->
+
+
+Amazon’s mandate was criticized by employees, some of whom said it was a **sneaky** way to cut headcount while avoiding layoffs.  
+
+More discriminating visitors now tend to **shun** the area.  
+If the Europeans did not reduce subsidies, a trade war would **ensue**.  
+
+The team is trying to **ferret** out missing details.  
+
+The man is off his **rocker**.  
+
+The manager **browbeat** the team into working overtime.  
+
+
+his voice sounded **feeble** and far away.  
+
+I refuse to let winter **get on top of** me.  
+
+The court are always **at your disposal**.  
+
+he **tippy-toed** around the house.  
+The influence of **grunge music** starts to take off.  
+
 When I last visited Tallinn, in the mid-1990s, the people **fizzed** with optimism because they had recently shrugged off the decades-long grasp of the great bear.  
 
 Britons may **scoff at** the idea that they have anything to teach the world about railways.  

@@ -1,4 +1,11 @@
 
+**mush** 
+> has Twitter turned my brain to mush?
+
+
+**sneaky**
+> Amazon’s mandate was criticized by employees, some of whom said it was a sneaky way to cut headcount while avoiding layoffs. 
+
 **ornate**
 > It's a good word to know, especially if you enjoy writing or discussing aesthetics, but in casual conversations, simpler synonyms like "fancy" or "decorative" might be more commonly used.
 
