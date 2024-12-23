@@ -5,6 +5,14 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+**doodad, gadget, bauble, trinket, ornament**
+
+“Hold on to that,” Marcus says, “and you won’t **be tempted to** aim at anything else.”  
+> Imagine how it would feel to be **driven** from within like that. To do what you were designed to do day in, day out, without needing to **look over your shoulder** for outside approval or reward.
+
+One can always argue UI/UX as that has been the **bane** of bitcoin since inception. 
+
+
 ### Week 4  
 
 **recta, rectum, rectus**.  
