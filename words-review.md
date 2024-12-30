@@ -5,15 +5,11 @@ Patrick Soon-Shiong, whose latest **dictum** is for the paper’s editorial boar
 The floor was **dappled** with pale moonlight. -  
 But the Russian **detente** didn't last long. -  
 Your statement doesn't **jibe with** the facts. -  
-Alcohol is a **contributory** factor in 10% of all road accidents. -  
 He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”. -  
 If the Europeans did not reduce subsidies, a trade war would **ensue**. -  
 Frank ran errands for a **seedy** local villain. -  
 He can be **intransigent** and **pig-headed** at times. -  
-His **ignoble** behavior tarnished his reputation. -  
 She had **embezzled** $5,600,000 in company funds. -  
-He faced a **fusillade** of questions from the waiting journalists. -  
-She walked with a **waddle**. -  
 His fever was **allayed** by the medicine. -  
 He deplored religious **bigotry**. -  
 The volume tends to **jive** fairly reasonably well with the pricing. -  
@@ -25,13 +21,11 @@ The selling pressure is **abating**. -
 Matt Gaetz has withdrawn from **contention** to be Donald Trump’s attorney-general. -  
 And honestly, if he's acting a little **aggro**... -  
 I don't **grovel** to anybody. -  
-His response was immediate and **emphatic**. -  
 It's like a **splinter** in their mind, they had to live with for rest of their life. -  
 His agenda is **discordant** with ours. -  
 
 ## words-Nov-24.md ##  
 words/2024/words-Nov-24.md  
-And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is. -  
 Nobody can **impugn** his ability. -  
 I came away with the impression that Mehmet Oz was, despite his well-deserved medical **renown**, **preternaturally** **vapid** and **preening**, and, thus, to me, an incongruous figure. -  
 And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -  
@@ -56,7 +50,6 @@ he found it difficult to cope with the **adulation** of the fans. -
 We **delude** ourselves that we are in control. -  
 a **put-upon** **drudge** who slaved for her employer. -  
 My father was **apoplectic** when he discovered the truth. -  
-He would **immolate** himself for their noble cause. -  
 
 ## words-Jun-24.md ##  
 words/2024/words-Jun-24.md  

@@ -366,7 +366,7 @@ McRae’s observation is undoubtedly **macabre**. But there is also something be
 **Tremor**.  
 **aesthete**, **aesthetic**, **connoisseur**.  
 **fudge**, **flub**.  
-He would **immolate** himself for their noble cause. -  
+He would **immolate** himself for their noble cause.   
 He knew it was a strategy with a high risk of **self-immolation**.  
 
 **bogus** vs fake  
