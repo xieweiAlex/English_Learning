@@ -8,6 +8,10 @@
 
 
 Distraught, vv  
+tightfisted, stingy, frugal, cheap, 
+spendthrift  
+
+
 
 I became a distraught, worried mother, a useless role if ever there was one.  
 I was distraught and let out a bellow of tearful rage.  
