@@ -134,7 +134,7 @@ Yet when I try to **emulate** them I find myself staring **blankly** at my scree
 In 1948, when **the world was your oyster**, and America was just **jelling**.  
 
 In the **tempestuous** sea of financial markets where waves of information and market trends buffet brokers and investors alike, algorithmic trading serves as a **sturdy vessel**, navigating the **tricky waters** with efficiency and precision.  
-making **informed decisions** that are not only profitable but are also free from the **vagaries** of human psychology. -  
+making **informed decisions** that are not only profitable but are also free from the **vagaries** of human psychology.   
 Thus, combining the power of algorithms with a solid **grasp** of market **intricacies** can truly unlock the **bountiful** realm of trading success.  
 
 Whole villages were **stricken** with the disease.  
@@ -301,7 +301,7 @@ the **expansive** **glittering** lake.
 
 A **geyser** of gas and liquid erupted. -  
 
-A hot climate **enervate** people who are not used to it. -  
+A hot climate **enervate** people who are not used to it.   
 **enervate**: More common synonyms like "weaken," "**debilitate**," or "exhaust" are often used instead.  
 
 Imagine engaging with random trolls online, getting into **spats** with journalists and politicians.  

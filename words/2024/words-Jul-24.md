@@ -69,7 +69,7 @@ He seems to **live off** junk food.
 
 **mezzanine loan**.  
 The book was received with **adulation** by the public.  
-he found it difficult to cope with the **adulation** of the fans. -  
+he found it difficult to cope with the **adulation** of the fans.   
 
 **tomatillo**.  
 Watch your language, **varmint**. There's a lady present.  
@@ -145,7 +145,7 @@ He was **prostrated** by the loss of his wife.
 I heard a **whizzing** sound, shots, and immediately felt the bullet **ripping** through the skin.  
 **tabby cat**.  
 
-My father was **apoplectic** when he discovered the truth. -  
+My father was **apoplectic** when he discovered the truth.   
 **Macabre**: While not a part of daily vocabulary for most people, it is recognized by many, especially in contexts involving **gothic** or horror elements.   
 
 **marketing gimmicks**.  

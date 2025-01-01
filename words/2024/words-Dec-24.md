@@ -3,23 +3,34 @@
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 [Word Review](../../words-review.md)  
 
-
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-
-Distraught, vv  
-tightfisted, stingy, frugal, cheap, 
-spendthrift  
+And I think it's just totally gratuitous. It's mindless.  
+bobsled.  
 
 
+> To be deemed organic, eggs must be uncaged, fed a diet free of pesticides and fertilisers, hormones and antibiotics, and kept with higher standards of animal welfare (where practices like beak trimming are banned). Organic eggs are stamped with an 0 on their shells – and make up just 3 per cent of the eggs available to buy in supermarkets.
 
-I became a distraught, worried mother, a useless role if ever there was one.  
-I was distraught and let out a bellow of tearful rage.  
+> Poached and boiled come out on top with the least calories and, surprisingly, cooking them in butter is lower in fat and calories than frying in olive oil.
+> “How you cook your eggs can affect their nutrient profile,”
+
+Avoid **plucking** which can lead to infections and ingrown hairs
+
+**blithe, lithesome, blithe**  
+He's not his usual **blithe** and festive self, is he?  
+**abate, abet, ablate**. vv  
+
+**Distraught**, vv  
+**tightfisted, stingy, frugal, cheap, scrimping, skimping**  
+**prudent, judicious, sensible**  
+**spendthrift, profligate, squander**  
+
+I became a **distraught**, worried mother, a useless role if ever there was one.  
+I was **distraught** and **let out** a **bellow** of tearful rage. -  
 
 The times are good. The living is easy. The vibes are **zingy**.  
 A wine with a **zingy**, peachy **palate**.  
-A **zippy**, **zingy**, almost **citrusy** tang.   
-
+A **zippy**, **zingy**, almost **citrusy** tang.  
 
 ### Week 5, 2024-12-30  
 
@@ -50,10 +61,8 @@ It would be nice to get a **breather**.
 
 **Handkerchief, serviette**  
 **loony bin**.  
-Every step of the last three miles was **purgatory**.   
+Every step of the last three miles was **purgatory**.  
 Smoke was **curling up** the **chimney**.  
-
-
 
 ### Week 4  
 
@@ -63,7 +72,7 @@ She received a mild **reproof** from the teacher.
 **trade pact, warsaw pact**.  
 
 
-reality TV. The channel known for **treacly** **rom-coms** teased “Small Town Setup,” a show that sends big-city singletons home to meet matches chosen by their neighbors and family. Who wouldn’t want to be a part of that?   
+reality TV. The channel known for **treacly** **rom-coms** teased “Small Town Setup,” a show that sends big-city singletons home to meet matches chosen by their neighbors and family. Who wouldn’t want to be a part of that?  
 Amazon’s said to be **bailing on** office construction plans and breaking leases to save $1.3B.  
 Amazon’s mandate was criticized by employees, some of whom said it was a **sneaky** way to cut headcount while avoiding layoffs.  
 
@@ -71,20 +80,20 @@ Amazon’s mandate was criticized by employees, some of whom said it was a **sne
 How will I ever **get on top of** all this work?  
 I refuse to let winter **get on top of** me.  
 
-We see it with The Washington Post under Bezos, when he **kiboshed** the paper’s endorsement of Kamala Harris so as not to antagonize Donald Trump.   
-Patrick Soon-Shiong, whose latest **dictum** is for the paper’s editorial board to, I swear, “take a break” from writing about Donald Trump.   
+We see it with The Washington Post under Bezos, when he **kiboshed** the paper’s endorsement of Kamala Harris so as not to antagonize Donald Trump.  
+Patrick Soon-Shiong, whose latest **dictum** is for the paper’s editorial board to, I swear, “take a break” from writing about Donald Trump.  
 
 Three geese **waddled** across the road.  
-The floor was **dappled** with pale moonlight.   
+The floor was **dappled** with pale moonlight.  
 **sumo wrestling**.  
 **shoptalk, lingo, jargon, trade talk**.  
-But the Russian **detente** didn't last long.   
+But the Russian **detente** didn't last long.  
 The numbers don't **jibe**.  
-Your statement doesn't **jibe with** the facts.   
+Your statement doesn't **jibe with** the facts.  
 **feckless, wimpy, lame, feeble.**  
 his voice sounded **feeble** and far away.  
 
-Alcohol is a **contributory** factor in 10% of all road accidents.   
+Alcohol is a **contributory** factor in 10% of all road accidents.  
 Nothing **onerous**, I promise!  
 **Colander**.  
 
@@ -92,18 +101,18 @@ Nothing **onerous**, I promise!
 
 When I last visited Tallinn, in the mid-1990s, the people **fizzed** with optimism because they had recently shrugged off the decades-long grasp of the great bear.  
 Russia’s military **heft** is already at least equal to that of Britain, France, Germany and Poland combined.  
-He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”.   
+He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”.  
 
 He is incapable of **discriminating** between a good idea and a terrible one.  
 More discriminating visitors now tend to **shun** the area.  
 
-If the Europeans did not reduce subsidies, a trade war would **ensue**.   
+If the Europeans did not reduce subsidies, a trade war would **ensue**.  
 The team is trying to **ferret** out missing details.  
 she had the ability to **ferret out** the facts.  
 **contracept, contraception**.  
-Frank ran errands for a **seedy** local villain.   
+Frank ran errands for a **seedy** local villain.  
 It's a **spot check**. There's no system for it.  
-He can be **intransigent** and **pig-headed** at times.   
+He can be **intransigent** and **pig-headed** at times.  
 
 The man is off his **rocker**.  
 I guess he's supposed to be a **punk rocker**.  
@@ -112,7 +121,7 @@ I guess he's supposed to be a **punk rocker**.
 **Turns and twists** of the road.  
 
 The manager **browbeat** the team into working overtime.  
-His **ignoble** behavior **tarnished** his reputation.   
+His **ignoble** behavior **tarnished** his reputation.  
 
 **laud**.  
 **lexicon**  
@@ -120,21 +129,21 @@ His **ignoble** behavior **tarnished** his reputation.
 **Gerontocracy**.  
 **Heron**??  
 
-She had **embezzled** $5,600,000 in company funds.   
+She had **embezzled** $5,600,000 in company funds.  
 **Merino wool**.  
 Bitgo has a **stellar** reputation but the lack of transparency has always been a concern.  
 
 The court are always **at your disposal**.  
 I'm not familiar to the name of the food. I'm **at your disposal**.  
-He faced a **fusillade** of questions from the waiting journalists.   
+He faced a **fusillade** of questions from the waiting journalists.  
 It will **emulsify** that mucus, you will breath so much better.  
 **distaste**.  
 **scoreboard**.  
 
-She walked with a **waddle**.   
-His fever was **allayed** by the medicine.   
+She walked with a **waddle**.  
+His fever was **allayed** by the medicine.  
 
-He deplored religious **bigotry**.   
+He deplored religious **bigotry**.  
 Bigotry, intolerance and ignorance are still **rife**.  
 
 he **tippy-toed** around the house.  
@@ -182,10 +191,10 @@ People were so fearful that Mr Assad’s spies and **informers** were everywhere
 The West, while generally backing Kurds who dominate the east of Syria, is watching **warily**.  
 The earthling’s guide to building a Moon base. - **One-armed robots** are being trained in lunar construction.  
 
-The volume tends to **jive** fairly reasonably well with the pricing.   
+The volume tends to **jive** fairly reasonably well with the pricing.  
 
 But to further encapsulate the business a little more, I think it's a glass of Lemonade that at the start of the parade, it's going to be full of **theatrics**.  
-At the start of the parade, it is fully **shrouded** by **fog machines**.   
+At the start of the parade, it is fully **shrouded** by **fog machines**.  
 I think that was **woven in** to everything that you described. You were just being far more subtle about it, and I had to **draw that out**.  
 
 If the cold-blooded killing of the UnitedHealthcare CEO wasn’t **macabre** enough, the **lionisation** on social media of the alleged murderer, Luigi Mangione, makes the tragedy even more disturbing.  
@@ -213,7 +222,7 @@ Brazil **courts** China as its Musk **feud** erupts again. - Xi Jinping, China�
 
 > There is **mounting** evidence on why short and sharp is best  
 
-It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley.   
+It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley.  
 
 **disaffected, alienated, arouse, resent**  
 Is it logic, nature or self-fulfilling **prophecy**  
@@ -228,13 +237,13 @@ The city is **famed** for its **scenic** spots.
 
 **bonhomie**.  
 **gobi desert**.  
-Clean clothes and good manners are **prepossessing**.   
+Clean clothes and good manners are **prepossessing**.  
 Whole villages were **stricken** with the disease.  
 **caricature, cartoon, parody, grotesque**  
 **pithy, succinct, witty, snarky, tongue-in-cheek**  
 
 **oddball, oddity**.  
-I know this is an **imposition**. But please **hear me out**.   
+I know this is an **imposition**. But please **hear me out**.  
 **quadrant**  
 **lighten up**.  
 **ore**.  
@@ -242,7 +251,7 @@ I know this is an **imposition**. But please **hear me out**.
 **underpin, undermine**.  
 **pantry**.  
 
-The selling pressure is **abating**.   
+The selling pressure is **abating**.  
 **Six of one and half a dozen of the other**.  
 
 
@@ -271,7 +280,7 @@ losing a trade or two isn't going to cause **irreparable** damage.
 
 **Optimism abounds**.  
 He had accused the main opposition party of being a threat to democracy and being **in cahoots with** North Korea—but provided no evidence.  
-Matt Gaetz has withdrawn from **contention** to be Donald Trump’s attorney-general.   
+Matt Gaetz has withdrawn from **contention** to be Donald Trump’s attorney-general.  
 **Once dominant**, Germany is now desperate.  
 The magic and the **minefield** of confidence. - Self-doubt, hubris and everything in between  
 
@@ -286,7 +295,7 @@ To interview its executive chairman Michael Saylor, how his company has **catapu
 **membranous**.  
 That promise is already in **jeopardy**.  
 The Huawei **dust-up** has put that relationship **in jeopardy**.  
-And honestly, if he's acting a little **aggro**...   
+And honestly, if he's acting a little **aggro**...  
 
 ### Week 1  
 
@@ -295,24 +304,24 @@ And honestly, if he's acting a little **aggro**...
 That he is a **buffoon** with bathroom fixtures of gold?  
 **pigeonhole**.  
 **rubber stamp**  
-I don't **grovel** to anybody.   
+I don't **grovel** to anybody.  
 
 **security blanket**.  
 **prop trading**.  
 **feast or famine**.  
 
 He taught me to edit and **splice** film.  
-His response was immediate and **emphatic**.   
+His response was immediate and **emphatic**.  
 The rebels are **emphatic** that this is not a surrender.  
 
 The parents of Jerry Seinfeld are always **depicted** as **bickering** miserable couple, everyone can related to that.  
-It's like a **splinter** in their mind, they had to live with for rest of their life.   
+It's like a **splinter** in their mind, they had to live with for rest of their life.  
 
 
 He **slammed** on the brakes and the car **shuddered** to a halt.  
 The news sent a **shudder** through the audience.  
 Something gave a loud **discordant** **twang**.  
-His agenda is **discordant** with ours.   
+His agenda is **discordant** with ours.  
 Taken in front of a **plain white** or **off-white** background.  
 
 
@@ -341,9 +350,7 @@ The manager **browbeat** the team into working overtime.
 
 
 his voice sounded **feeble** and far away.  
-
 I refuse to let winter **get on top of** me.  
-
 The court are always **at your disposal**.  
 
 he **tippy-toed** around the house.  

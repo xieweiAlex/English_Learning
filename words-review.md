@@ -39,17 +39,13 @@ words/2024/words-Sep-24.md
 Once you come through this **crucible**, you can guide your own life course. -  
 This **precept** has guided U.S. government policy for 30 years. -  
 We strive to **ascertain** what it is we can change and what we cannot change. -  
-making **informed decisions** that are not only profitable but are also free from the **vagaries** of human psychology. -  
 A **geyser** of gas and liquid erupted. -  
-A hot climate **enervate** people who are not used to it. -  
 Cissie was **round-shouldered** and **dumpy**. -  
 
 ## words-Jul-24.md ##  
 words/2024/words-Jul-24.md  
-he found it difficult to cope with the **adulation** of the fans. -  
 We **delude** ourselves that we are in control. -  
 a **put-upon** **drudge** who slaved for her employer. -  
-My father was **apoplectic** when he discovered the truth. -  
 
 ## words-Jun-24.md ##  
 words/2024/words-Jun-24.md  
