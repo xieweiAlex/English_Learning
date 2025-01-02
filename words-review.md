@@ -2,7 +2,6 @@
 words/2024/words-Dec-24.md  
 We see it with The Washington Post under Bezos, when he **kiboshed** the paper’s endorsement of Kamala Harris so as not to antagonize Donald Trump. -  
 Patrick Soon-Shiong, whose latest **dictum** is for the paper’s editorial board to, I swear, “take a break” from writing about Donald Trump. -  
-The floor was **dappled** with pale moonlight. -  
 But the Russian **detente** didn't last long. -  
 Your statement doesn't **jibe with** the facts. -  
 He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”. -  

@@ -5,23 +5,37 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-And I think it's just totally gratuitous. It's mindless.  
-bobsled.  
+A **hygrometer** can determine how much humidity is in your home. Some central humidifiers come equipped with hygrometers, but you can also find them at hardware stores.  
+
+We cheer, we celebrate. It’s a big show and a lot of fun, but how many of us—in a rush for a kiss from a loved one or as the glasses **clink** together.  
+
+We have published an **obituary** of Jimmy Carter, America’s 39th president.  
+China’s firms are **taking flight**, worrying its rulers. - Policymakers at home and abroad are anxious about **offshoring**.  
 
 
-> To be deemed organic, eggs must be uncaged, fed a diet free of pesticides and fertilisers, hormones and antibiotics, and kept with higher standards of animal welfare (where practices like beak trimming are banned). Organic eggs are stamped with an 0 on their shells – and make up just 3 per cent of the eggs available to buy in supermarkets.
+World **Exhibition or Exposition**.  
+**Aristotle** was valued because of his clear **exposition** of rational thought.  
+Whisk the cream into the mixture to **emulsify** it. ??  
+**redoubt**??  
 
-> Poached and boiled come out on top with the least calories and, surprisingly, cooking them in butter is lower in fat and calories than frying in olive oil.
-> “How you cook your eggs can affect their nutrient profile,”
+And I think it's just totally **gratuitous**. It's **mindless**. -  
+**bobsled**.  
 
-Avoid **plucking** which can lead to infections and ingrown hairs
+
+> To be deemed organic, eggs must be uncaged, fed a diet free of pesticides and fertilisers, hormones and antibiotics, and kept with higher standards of animal welfare (where practices like beak trimming are banned). Organic eggs are stamped with an 0 on their shells – and make up just 3 per cent of the eggs available to buy in supermarkets.  
+
+> Poached and boiled come out on top with the least calories and, surprisingly, cooking them in butter is lower in fat and calories than frying in olive oil.  
+> “How you cook your eggs can affect their nutrient profile,”  
+
+Avoid **plucking** which can lead to infections and ingrown hairs  
 
 **blithe, lithesome, blithe**  
 He's not his usual **blithe** and festive self, is he?  
-**abate, abet, ablate**. vv  
+**bate**, **abate, abet, ablate**. vv  
+
 
 **Distraught**, vv  
-**tightfisted, stingy, frugal, cheap, scrimping, skimping**  
+**tightfisted, stingy, frugal, cheap, scrimping, skimping**, **tightwad**  
 **prudent, judicious, sensible**  
 **spendthrift, profligate, squander**  
 
@@ -32,7 +46,8 @@ The times are good. The living is easy. The vibes are **zingy**.
 A wine with a **zingy**, peachy **palate**.  
 A **zippy**, **zingy**, almost **citrusy** tang.  
 
-### Week 5, 2024-12-30  
+### Week 5  
+> 2024-12-30  
 
 **gully** erosion.  
 In summer the stream from the **gully** flows into the **Baikal**.  
