@@ -5,6 +5,11 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+poofy??
+fetid??
+mulligen?? 
+
+
 **tartar sauce**.  
 **GMT**: Greenwich Mean Time.  
 
@@ -14,7 +19,6 @@ We cheer, we celebrate. It’s a big show and a lot of fun, but how many of us�
 
 We have published an **obituary** of Jimmy Carter, America’s 39th president.  
 China’s firms are **taking flight**, worrying its rulers. - Policymakers at home and abroad are anxious about **offshoring**.  
-
 
 World **Exhibition or Exposition**.  
 **Aristotle** was valued because of his clear **exposition** of rational thought.  
@@ -28,12 +32,12 @@ And I think it's just totally **gratuitous**. It's **mindless**. -
 > To be deemed organic, eggs must be uncaged, fed a diet free of pesticides and fertilisers, hormones and antibiotics, and kept with higher standards of animal welfare (where practices like beak trimming are banned). Organic eggs are stamped with an 0 on their shells – and make up just 3 per cent of the eggs available to buy in supermarkets.  
 
 > Poached and boiled come out on top with the least calories and, surprisingly, cooking them in butter is lower in fat and calories than frying in olive oil.  
-> “How you cook your eggs can affect their nutrient profile,”  
+> “How you cook your eggs can affect their nutrient **profile**,”  
 
 Avoid **plucking** which can lead to infections and ingrown hairs  
 
 **blithe, lithesome, blithe**  
-He's not his usual **blithe** and festive self, is he?  
+He's not his usual **blithe** and **festive** self, is he?  
 **bate**, **abate, abet, ablate**. vv  
 
 
@@ -62,6 +66,7 @@ Justin Trudeau is unlikely to win the Canadian election. - A **pugnacious** Cons
 
 This was called **pork barrel spending**. It paid for new roads, bridges, and government buildings -- for almost anything the congressmen wanted.  
 **Pork-barrel** politicians hand out rents to win votes and influence people.  
+pork-barrel: a **legislative** **appropriation** designed to **ingratiate** legislators with their **constituents**.  
 
 **incandescent bulb**.  
 She was **incandescent** with rage.  
@@ -353,6 +358,17 @@ Well, we have 3 months **lead time**.
 
 ## Interesting  
 > vivid, absurd, "outrageous", hilarious expressions.  
+
+Avoid **plucking** which can lead to infections and ingrown hairs  
+
+But while Ukraine’s economy has reinvented itself to navigate wartime realities, Russia’s is showing signs of **faltering**.  
+A **tie-up** between Honda and Nissan will not fix their problems.  
+**Pork-barrel** politicians hand out rents to win votes and influence people.  
+
+pork-barrel: a **legislative** **appropriation** designed to **ingratiate** legislators with their **constituents**.  
+
+It would be nice to get a **breather**.  
+
 
 
 Amazon’s mandate was criticized by employees, some of whom said it was a **sneaky** way to cut headcount while avoiding layoffs.  
