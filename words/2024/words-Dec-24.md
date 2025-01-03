@@ -5,6 +5,9 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+**tartar sauce**.  
+**GMT**: Greenwich Mean Time.  
+
 A **hygrometer** can determine how much humidity is in your home. Some central humidifiers come equipped with hygrometers, but you can also find them at hardware stores.  
 
 We cheer, we celebrate. It’s a big show and a lot of fun, but how many of us—in a rush for a kiss from a loved one or as the glasses **clink** together.  
