@@ -3,11 +3,22 @@
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 [Word Review](../../words-review.md)  
 
+[Seinfeld](../../media/seinfeld.md)
+
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
+
+I haven't felt inclined to **avail myself of** your kind offer.   
+
+Can I take a **mulligan** on that decision?  
+I had a terrible opening hand, so I used my **mulligan** to **redraw**. -    
+That meeting didn't go as planned—can we call it a **mulligan** and start fresh tomorrow?  
 
 poofy??
 fetid??
 mulligen?? 
+elide?? 
+
+**iron ore**.  
 
 
 **tartar sauce**.  
@@ -368,8 +379,6 @@ A **tie-up** between Honda and Nissan will not fix their problems.
 pork-barrel: a **legislative** **appropriation** designed to **ingratiate** legislators with their **constituents**.  
 
 It would be nice to get a **breather**.  
-
-
 
 Amazon’s mandate was criticized by employees, some of whom said it was a **sneaky** way to cut headcount while avoiding layoffs.  
 
