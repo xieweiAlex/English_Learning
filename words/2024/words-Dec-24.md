@@ -3,24 +3,63 @@
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 [Word Review](../../words-review.md)  
 
-[Seinfeld](../../media/seinfeld.md)
+[Seinfeld](../../media/seinfeld.md)  
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-I haven't felt inclined to **avail myself of** your kind offer.   
+tutelage??  
+enamored??  
+poofy??  
+fetid??  
+mulligen??  
+elide??  
+
+pig-headed, headstrong. vv  
+
+**urban sprawl**.  
+I tripped and went **sprawling**.  
+The city is a **sprawling** **behemoth** with no heart.  
+They live in a **palatial** mansion with sprawling gardens. -  
+
+Two players were **ejected** after a **tussle** on the field. -  
+
+The **cuckoo** lays its eggs in other birds' nests.  
+Sin, like the **cuckoo bird**, has an insatiable appetite, and it tries to take over our lives.  
+
+Massage is a wonderful **antidote** to stress.  
+
+**scatology**  
+
+**disconsolate**, inconsolable, draught, anguish, agnoy  
+> People might opt for simpler synonyms like "heartbroken," "inconsolable," or "devastated" in casual settings. If you're writing something expressive or literary, using "disconsolate" can add a touch of sophistication.  
+
+
+He had **soap suds** in his ears.  
+The full **enormity** of the crime has not yet been revealed.  
+**grisly**.  
+**rattle out**.  
+
+An **expectant** crowd gathered.  
+**Vinaigrette**.  
+**mentally handicapped**, **handicapped child**  
+
+**desiccative preservation**.  
+Violence was **anathema** to them.  
+The aim was to **bludgeon** speculators and impress creditors. -  
+Roses grew in **profusion** against the old wall. -  
+
+I did not have any **intimation** that he was going to resign.  
+There was no **intimation** from his doctor that his condition was serious.  
+**sleet**.  
+
+I haven't felt inclined to **avail myself of** your kind offer.  
 
 Can I take a **mulligan** on that decision?  
-I had a terrible opening hand, so I used my **mulligan** to **redraw**. -    
+I had a terrible opening hand, so I used my **mulligan** to **redraw**. -  
 That meeting didn't go as planned—can we call it a **mulligan** and start fresh tomorrow?  
 
-poofy??
-fetid??
-mulligen?? 
-elide?? 
 
 **iron ore**.  
-
-
 **tartar sauce**.  
 **GMT**: Greenwich Mean Time.  
 
@@ -121,8 +160,8 @@ Three geese **waddled** across the road.
 The floor was **dappled** with pale moonlight.  
 **sumo wrestling**.  
 **shoptalk, lingo, jargon, trade talk**.  
-But the Russian **detente** didn't last long.  
-The numbers don't **jibe**.  
+But the Russian **detente** didn't last long. -  
+The numbers don't **jibe**. -  
 Your statement doesn't **jibe with** the facts.  
 **feckless, wimpy, lame, feeble.**  
 his voice sounded **feeble** and far away.  
@@ -135,7 +174,7 @@ Nothing **onerous**, I promise!
 
 When I last visited Tallinn, in the mid-1990s, the people **fizzed** with optimism because they had recently shrugged off the decades-long grasp of the great bear.  
 Russia’s military **heft** is already at least equal to that of Britain, France, Germany and Poland combined.  
-He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”.  
+He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”. -  
 
 He is incapable of **discriminating** between a good idea and a terrible one.  
 More discriminating visitors now tend to **shun** the area.  
@@ -144,9 +183,9 @@ If the Europeans did not reduce subsidies, a trade war would **ensue**.
 The team is trying to **ferret** out missing details.  
 she had the ability to **ferret out** the facts.  
 **contracept, contraception**.  
-Frank ran errands for a **seedy** local villain.  
+Frank ran errands for a **seedy** local villain. -  
 It's a **spot check**. There's no system for it.  
-He can be **intransigent** and **pig-headed** at times.  
+He can be **intransigent** and **pig-headed** at times. -  
 
 The man is off his **rocker**.  
 I guess he's supposed to be a **punk rocker**.  
@@ -175,7 +214,7 @@ It will **emulsify** that mucus, you will breath so much better.
 **scoreboard**.  
 
 She walked with a **waddle**.  
-His fever was **allayed** by the medicine.  
+His fever was **allayed** by the medicine. -  
 
 He deplored religious **bigotry**.  
 Bigotry, intolerance and ignorance are still **rife**.  
@@ -225,10 +264,10 @@ People were so fearful that Mr Assad’s spies and **informers** were everywhere
 The West, while generally backing Kurds who dominate the east of Syria, is watching **warily**.  
 The earthling’s guide to building a Moon base. - **One-armed robots** are being trained in lunar construction.  
 
-The volume tends to **jive** fairly reasonably well with the pricing.  
+The volume tends to **jive** fairly reasonably well with the pricing. -  
 
 But to further encapsulate the business a little more, I think it's a glass of Lemonade that at the start of the parade, it's going to be full of **theatrics**.  
-At the start of the parade, it is fully **shrouded** by **fog machines**.  
+At the start of the parade, it is fully **shrouded** by **fog machines**. -  
 I think that was **woven in** to everything that you described. You were just being far more subtle about it, and I had to **draw that out**.  
 
 If the cold-blooded killing of the UnitedHealthcare CEO wasn’t **macabre** enough, the **lionisation** on social media of the alleged murderer, Luigi Mangione, makes the tragedy even more disturbing.  
@@ -256,7 +295,7 @@ Brazil **courts** China as its Musk **feud** erupts again. - Xi Jinping, China�
 
 > There is **mounting** evidence on why short and sharp is best  
 
-It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley.  
+It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley. -  
 
 **disaffected, alienated, arouse, resent**  
 Is it logic, nature or self-fulfilling **prophecy**  
@@ -271,7 +310,7 @@ The city is **famed** for its **scenic** spots.
 
 **bonhomie**.  
 **gobi desert**.  
-Clean clothes and good manners are **prepossessing**.  
+Clean clothes and good manners are **prepossessing**. -  
 Whole villages were **stricken** with the disease.  
 **caricature, cartoon, parody, grotesque**  
 **pithy, succinct, witty, snarky, tongue-in-cheek**  
@@ -351,7 +390,6 @@ The rebels are **emphatic** that this is not a surrender.
 The parents of Jerry Seinfeld are always **depicted** as **bickering** miserable couple, everyone can related to that.  
 It's like a **splinter** in their mind, they had to live with for rest of their life.  
 
-
 He **slammed** on the brakes and the car **shuddered** to a halt.  
 The news sent a **shudder** through the audience.  
 Something gave a loud **discordant** **twang**.  
@@ -359,9 +397,13 @@ His agenda is **discordant** with ours.
 Taken in front of a **plain white** or **off-white** background.  
 
 
-
 ## Conversation  
-> Happened in real life or audio/video that I can resonate with a scene/context.  
+> Happens in real life or audio/video that I can vivid recall with an imagery.  
+
+So I was right. I took **a rash of** shit for two years, but... I was right.  
+It's a lot of money, I get it. I can feel you judging me. That's **palpable**.  
+
+I will put it **by your door**.  
 
 I **hold grudge** towards people who wronged me.  
 Well, we have 3 months **lead time**.  

@@ -1,30 +1,26 @@
 ## words-Dec-24.md ##  
 words/2024/words-Dec-24.md  
-We see it with The Washington Post under Bezos, when he **kiboshed** the paper’s endorsement of Kamala Harris so as not to antagonize Donald Trump. -  
-Patrick Soon-Shiong, whose latest **dictum** is for the paper’s editorial board to, I swear, “take a break” from writing about Donald Trump. -  
+They live in a **palatial** mansion with sprawling gardens. -  
+Two players were **ejected** after a **tussle** on the field. -  
+The aim was to **bludgeon** speculators and impress creditors. -  
+Roses grew in **profusion** against the old wall. -  
+I had a terrible opening hand, so I used my **mulligan** to **redraw**. -  
+And I think it's just totally **gratuitous**. It's **mindless**. -  
+I was **distraught** and **let out** a **bellow** of tearful rage. -  
 But the Russian **detente** didn't last long. -  
-Your statement doesn't **jibe with** the facts. -  
+The numbers don't **jibe**. -  
 He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”. -  
-If the Europeans did not reduce subsidies, a trade war would **ensue**. -  
 Frank ran errands for a **seedy** local villain. -  
 He can be **intransigent** and **pig-headed** at times. -  
-She had **embezzled** $5,600,000 in company funds. -  
 His fever was **allayed** by the medicine. -  
-He deplored religious **bigotry**. -  
 The volume tends to **jive** fairly reasonably well with the pricing. -  
 At the start of the parade, it is fully **shrouded** by **fog machines**. -  
 It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley. -  
 Clean clothes and good manners are **prepossessing**. -  
-I know this is an **imposition**. But please **hear me out**. -  
-The selling pressure is **abating**. -  
-Matt Gaetz has withdrawn from **contention** to be Donald Trump’s attorney-general. -  
-And honestly, if he's acting a little **aggro**... -  
-I don't **grovel** to anybody. -  
-It's like a **splinter** in their mind, they had to live with for rest of their life. -  
-His agenda is **discordant** with ours. -  
 
 ## words-Nov-24.md ##  
 words/2024/words-Nov-24.md  
+And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is. -  
 Nobody can **impugn** his ability. -  
 I came away with the impression that Mehmet Oz was, despite his well-deserved medical **renown**, **preternaturally** **vapid** and **preening**, and, thus, to me, an incongruous figure. -  
 And iPads are a huge business for Apple, and the iPad is now **solidly** established as a piece of our **cultural firmament**. Everyone knows what an iPad is. -  
