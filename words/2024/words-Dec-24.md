@@ -7,36 +7,35 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-In fact, my mother wanted her children to see themselves much like the gardenia: lovely, strong and perfect.  
-Never had she met such spite and pettiness.  
+His article is, predictably, a scathing attack on capitalism.   
 
 
-Eczema.  
-purgatory.  
-ovary 
-She gazed at the serene landscape, a picture of perfect repose.  
+In fact, my mother wanted her children to see themselves much like the **gardenia**: lovely, strong and perfect.  
+**Never had she** met such spite and **pettiness**.  
 
-the warm turquoise sea. -  
-the sky shaded from turquoise to night blue.  
+**Eczema**.  
+**purgatory**.  
+**ovary** 
+She gazed at the serene landscape, a picture of perfect **repose**. -  
 
-overbearing, supercilious, conceited, condescending
-off-limits.  
+the warm **turquoise** sea. -  
+the sky shaded from **turquoise** to night blue.  
+
+**overbearing, supercilious, conceited, condescending**
+**off-limits**.  
 
 late-bloomer, slowpoke
-
 ashram.  
-
 chimney.  
 
 
-There is an acrid tone to your remarks.
-The room was filled with acrid smoke.
-feudal society.  
-amorous.  
-specious, suspicious, spacious 
-His debts were a noose around his neck.  
-bolt-on 
-
+There is an **acrid** tone to your remarks.
+The room was filled with **acrid smoke**.
+**feudal society**.  
+**amorous**.  
+**specious, suspicious, spacious** 
+His debts were a **noose** around his neck.  
+**bolt-on** 
 
 tutelage??  
 enamored??  
@@ -436,6 +435,8 @@ Taken in front of a **plain white** or **off-white** background.
 
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
+
+I gave some pretty scathing feedback on that training though.  
 
 So I was right. I took **a rash of** shit for two years, but... I was right.  
 It's a lot of money, I get it. I can feel you judging me. That's **palpable**.  
