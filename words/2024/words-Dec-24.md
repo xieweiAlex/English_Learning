@@ -7,12 +7,36 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+Eczema.  
+purgatory.  
+
+
+ashram.  
+
+chimney.  
+
+
+There is an acrid tone to your remarks.
+The room was filled with acrid smoke.
+feudal society.  
+amorous.  
+specious, suspicious, spacious 
+His debts were a noose around his neck.  
+bolt-on 
+
+
 tutelage??  
 enamored??  
 poofy??  
 fetid??  
 mulligen??  
 elide??  
+
+Layaway  
+
+
+## Week 6
+> 2025-01-05 
 
 pig-headed, headstrong. vv  
 
