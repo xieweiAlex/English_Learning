@@ -7,9 +7,22 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+In fact, my mother wanted her children to see themselves much like the gardenia: lovely, strong and perfect.  
+Never had she met such spite and pettiness.  
+
+
 Eczema.  
 purgatory.  
+ovary 
+She gazed at the serene landscape, a picture of perfect repose.  
 
+the warm turquoise sea. -  
+the sky shaded from turquoise to night blue.  
+
+overbearing, supercilious, conceited, condescending
+off-limits.  
+
+late-bloomer, slowpoke
 
 ashram.  
 
