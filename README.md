@@ -10,8 +10,11 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 ### Word Review 
 [Words Review](./words-review.md)
 
-### 2024 
+### 2025 
+[Jan Words](./words/2025/words-Jan-25.md) |
 
+
+### 2024 
 
 [Dec Words](./words/2024/words-Dec-24.md) |
 [Nov Words](./words/2024/words-Nov-24.md) |

@@ -1,5 +1,7 @@
-## words-Dec-24.md ##  
-words/2024/words-Dec-24.md  
+## words-Jan-25.md ##  
+words/2025/words-Jan-25.md  
+She gazed at the serene landscape, a picture of perfect **repose**. -  
+the warm **turquoise** sea. -  
 They live in a **palatial** mansion with sprawling gardens. -  
 Two players were **ejected** after a **tussle** on the field. -  
 The aim was to **bludgeon** speculators and impress creditors. -  
@@ -7,6 +9,9 @@ Roses grew in **profusion** against the old wall. -
 I had a terrible opening hand, so I used my **mulligan** to **redraw**. -  
 And I think it's just totally **gratuitous**. It's **mindless**. -  
 I was **distraught** and **let out** a **bellow** of tearful rage. -  
+
+## words-Dec-24.md ##  
+words/2024/words-Dec-24.md  
 But the Russian **detente** didn't last long. -  
 The numbers don't **jibe**. -  
 He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”. -  

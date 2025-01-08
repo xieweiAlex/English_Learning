@@ -151,9 +151,10 @@ if [[ "$#" -ne 1 ]]; then
 fi
 
 echo ".."
-ensure_trailing_spaces "./words/2024/words-Dec-24.md"
-/words-Nov-24.md
+ensure_trailing_spaces "./words/2025/words-Jan-25.md"
+
 echo "..."
+
 if [[ $action == 'sync' ]];
 then
   echo -e "${GREEN}Update back words to origin files ${NC}" 
