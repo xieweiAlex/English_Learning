@@ -7,8 +7,10 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-His article is, predictably, a scathing attack on capitalism.  
+The Queen laid a wreath at the war memorial.  
 
+
+His article is, predictably, a **scathing** attack on capitalism.  
 
 In fact, my mother wanted her children to see themselves much like the **gardenia**: lovely, strong and perfect.  
 **Never had she** met such spite and **pettiness**.  
@@ -24,9 +26,9 @@ the sky shaded from **turquoise** to night blue.
 **overbearing, supercilious, conceited, condescending**  
 **off-limits**.  
 
-late-bloomer, slowpoke  
-ashram.  
-chimney.  
+**late-bloomer, slowpoke**  
+**ashram**.  
+**chimney**.  
 
 
 There is an **acrid** tone to your remarks.  
@@ -50,7 +52,7 @@ Layaway
 ## Week 2  
 > 2025-01-06  
 
-pig-headed, headstrong. vv  
+**pig-headed, headstrong**. vv  
 
 **urban sprawl**.  
 I tripped and went **sprawling**.  
@@ -97,7 +99,7 @@ That meeting didn't go as planned—can we call it a **mulligan** and start fres
 
 **iron ore**.  
 **tartar sauce**.  
-**GMT**: Greenwich Mean Time.  
+**GMT**: **Greenwich Mean Time**.  
 
 A **hygrometer** can determine how much humidity is in your home. Some central humidifiers come equipped with hygrometers, but you can also find them at hardware stores.  
 
@@ -125,7 +127,7 @@ Avoid **plucking** which can lead to infections and ingrown hairs
 **blithe, lithesome, blithe**  
 He's not his usual **blithe** and **festive** self, is he?  
 **bate**, **abate, abet, ablate**. vv  
-
+**tax rebate**, **export rebate** 
 
 **Distraught**, vv  
 **tightfisted, stingy, frugal, cheap, scrimping, skimping**, **tightwad**  
@@ -182,7 +184,6 @@ I gave some pretty **scathing** feedback on that training though.
 
 So I was right. I took **a rash of** shit for two years, but... I was right.  
 It's a lot of money, I get it. I can feel you judging me. That's **palpable**.  
-
 I will put it **by your door**.  
 
 ## Interesting  
