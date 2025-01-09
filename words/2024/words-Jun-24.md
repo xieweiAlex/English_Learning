@@ -129,7 +129,7 @@ the **wretched** conditions of the slums.
 I was totally **zoned out** the entire time.  
 Older people should not **skimp on** food or heating.  
 He was **blithely** unaware of the trouble he'd caused.  
-He drove with **blithe** disregard for the rules of the road. -  
+He drove with **blithe** disregard for the rules of the road.   
 **untoward** jokes and racial remarks.  
 At least we've confirmed that they were up to something **untoward**.  
 **carp**, **carper**.  

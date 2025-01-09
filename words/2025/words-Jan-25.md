@@ -7,9 +7,12 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-The Queen laid a wreath at the war memorial.  
-asperity, austerity.  
-recant
+**onward, upward**.  
+outward, inward, untoward, skyward, afterward  
+
+The Queen laid a **wreath** at the war memorial.  
+**asperity, austerity**.  
+**recant**  
 
 
 His article is, predictably, a **scathing** attack on capitalism.  
@@ -129,7 +132,7 @@ Avoid **plucking** which can lead to infections and ingrown hairs
 **blithe, lithesome, blithe**  
 He's not his usual **blithe** and **festive** self, is he?  
 **bate**, **abate, abet, ablate**. vv  
-**tax rebate**, **export rebate** 
+**tax rebate**, **export rebate**  
 
 **Distraught**, vv  
 **tightfisted, stingy, frugal, cheap, scrimping, skimping**, **tightwad**  
