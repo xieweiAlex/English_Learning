@@ -8,6 +8,8 @@
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
 The Queen laid a wreath at the war memorial.  
+asperity, austerity.  
+recant
 
 
 His article is, predictably, a **scathing** attack on capitalism.  
