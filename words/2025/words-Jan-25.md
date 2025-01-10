@@ -7,6 +7,24 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+The visiting side were soundly thrashed.  
+He became angry and began to thrash a servant.  
+The fishes thrashed around in the net.  
+impart.  
+
+
+ascetic, monastic.  
+The monks lived a very ascetic life.
+They live in the same rarefied world of global fame.  
+Fear is a major impediment to thinking like an iconoclast and stops the average person in his tracks.
+Lyricism.  
+The leaves started to shrivel up.
+wizen, shrivel, wilt . 
+an indecorous proposition.  
+She could not ignore his indecorous behaviour though she loved him very much.  
+immersive VR experience
+
+
 **onward, upward**.  
 outward, inward, untoward, skyward, afterward  
 
