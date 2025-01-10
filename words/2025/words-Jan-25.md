@@ -7,34 +7,44 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-The visiting side were soundly thrashed.  
-He became angry and began to thrash a servant.  
-The fishes thrashed around in the net.  
-impart.  
+
+How Ukraine’s new tech **foils** Russian aerial attacks. -  It is **pioneering** **acoustic** detection, with surprising success.
+America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades. -    
+China is **itching** to mine the ocean floor.  
+**military junta**.  
+Myanmar’s rapidly changing civil war, in maps and charts. -  Ethnic **militias** and pro-democracy groups are scoring victories against the **governing junta**.  
+**Myanmar, Cambodia, Laos**. 
+If Mr Trump starts to be perceived as an elderly man, prone to senior moments and unable to work relentlessly long days, his **pugnacious** **appeal** might **dim**.  
+
+Could a man who makes ugly promises of mass **expulsion** actually fix America’s immigration system?  
+Justin Trudeau **steps down**, leaving a **wrecked** party and a divided Canada.  
+Early sex research was often **shoddy**.  
+Cathie was **dead on** the money, with AI software stocks absolutely soaring since the “second wave” of AI formally kicked off in late 2022.  
+
+The **visiting side** were soundly **thrashed**.  
+He became angry and began to **thrash** a servant.  
+The fishes **thrashed** around in the net.  
+**impart**.  
 
 
-ascetic, monastic.  
-The monks lived a very ascetic life.
-They live in the same rarefied world of global fame.  
-Fear is a major impediment to thinking like an iconoclast and stops the average person in his tracks.
-Lyricism.  
-The leaves started to shrivel up.
-wizen, shrivel, wilt . 
-an indecorous proposition.  
-She could not ignore his indecorous behaviour though she loved him very much.  
-immersive VR experience
-
+**ascetic, monastic**.  
+The monks lived a very **ascetic** life.
+They live in the same **rarefied** world of global fame.  
+Fear is a major **impediment** to thinking like an **iconoclast** and stops the average person in his tracks. -  
+**Lyricism**.  
+The leaves started to **shrivel up**.
+**wizen, shrivel, wilt**. 
+an **indecorous** proposition.  
+She could not ignore his **indecorous** behaviour though she loved him very much.  
+**immersive** VR experience
 
 **onward, upward**.  
-outward, inward, untoward, skyward, afterward  
+**outward, inward, untoward, skyward, afterward**  
 
 The Queen laid a **wreath** at the war memorial.  
 **asperity, austerity**.  
 **recant**  
-
-
 His article is, predictably, a **scathing** attack on capitalism.  
-
 In fact, my mother wanted her children to see themselves much like the **gardenia**: lovely, strong and perfect.  
 **Never had she** met such spite and **pettiness**.  
 
