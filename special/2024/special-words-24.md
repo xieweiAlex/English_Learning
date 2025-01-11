@@ -1,4 +1,9 @@
 
+
+**ideate**, **ideation**. 
+
+## Dec 
+
 **faltering**
 
 **mush**, **mushy**
@@ -17,7 +22,7 @@
 **discrete**
 Regardless of where you work, be sure to also give yourself a specific time frame to keep the session a **discrete challenge** and not an **open-ended** **slog**.
 
-**monastic**
+**monastic**, **ascetic**
 
 **omission**
 > Here’s how he once explained the omission... 

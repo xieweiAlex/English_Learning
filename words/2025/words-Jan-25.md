@@ -8,6 +8,29 @@
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
 
+Some people have an antipathy to cats.  
+a deep antipathy to social pretension.
+antipathy, animosity, hostility, hatred, enmity.  
+The premiere on Monday is sold out.   
+He has paid a visit to Australian Premier.  
+
+
+I'm **parched** — I'll die without a drink.  
+The **silver coinage** was repeatedly debased with **copper** vellon.  
+Her face was **careworn** with anxiety. -  
+**gaffe machine**.  
+She had an **unerring** instinct for a good business deal. -  
+The police moved quickly to **dispel** the rumors.  
+**immaculate**.  
+**stricken**.  
+
+
+
+**Monk fruit** sweetener has been around for decades but has recently grown in popularity since it’s become more **readily** available.  
+Monk fruit is usually dried and used to make medicinal teas.  
+Not everyone is a fan of monk fruit’s fruity taste. Some people report an unpleasant aftertaste.  
+
+
 How Ukraine’s new tech **foils** Russian aerial attacks. -  It is **pioneering** **acoustic** detection, with surprising success.
 America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades. -    
 China is **itching** to mine the ocean floor.  
