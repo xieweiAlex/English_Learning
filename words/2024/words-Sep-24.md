@@ -9,7 +9,7 @@
 
 ## Week 4  
 
-Once you come through this **crucible**, you can guide your own life course. -  
+Once you come through this **crucible**, you can guide your own life course.   
 **Spruce Pine** is the sole producer of ultra pure **Quartz** for **crucibles** that all global semiconductor production relies on.  
 
 *sprain your ankle**.  
@@ -311,7 +311,7 @@ She is **enthral** by the story she hear.
 
 **Something has to give**.  
 
-Cissie was **round-shouldered** and **dumpy**. -  
+Cissie was **round-shouldered** and **dumpy**.   
 **buffoon**, Jester, clown.  
 the **preponderance** of oaks in these woods  
 

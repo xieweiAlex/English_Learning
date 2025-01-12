@@ -13,7 +13,7 @@ She has a **discerning** **palate**.
 **Profligate behavior** by government.  
 
 That having been said, I take all economic forecasting with **a grain of salt**.   
-It is a tricky time for Christianity. Many Catholics are **vexed** because Pope Francis has modernised the church’s attitude towards blessings for same-sex couples. -  
+It is a tricky time for Christianity. Many Catholics are **vexed** because Pope Francis has modernised the church’s attitude towards blessings for same-sex couples.   
 You are an **omnipotent**, **omniscient** deity.  
 Besides increasing resentments, **decadent spending** (as distinct from saving and investing) reduces productivity.  
 **Out of disorder and discontent** come leaders who have strong personalities, are anti-elitist, and claim to fight for the common man. They are called **populists**.  

@@ -1,4 +1,6 @@
 
+**acumen**
+> He lacked the judgment and political acumen for the post of chairman. 
 
 **ideate**, **ideation**. 
 

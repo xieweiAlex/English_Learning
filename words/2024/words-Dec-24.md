@@ -180,7 +180,7 @@ The city is **famed** for its **scenic** spots.
 
 **bonhomie**.  
 **gobi desert**.  
-Clean clothes and good manners are **prepossessing**. -  
+Clean clothes and good manners are **prepossessing**.   
 Whole villages were **stricken** with the disease.  
 **caricature, cartoon, parody, grotesque**  
 **pithy, succinct, witty, snarky, tongue-in-cheek**  

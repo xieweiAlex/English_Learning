@@ -7,12 +7,32 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+blugeon, browbeat, coerce, compel  
 
-Some people have an antipathy to cats.  
-a deep antipathy to social pretension.
-antipathy, animosity, hostility, hatred, enmity.  
-The premiere on Monday is sold out.   
-He has paid a visit to Australian Premier.  
+Jubilant  
+He had an **aptitude** for journalism. -  
+The assessment center helps determine different **aptitudes and interests**.  
+He lacked the judgment and **political acumen** for the post of chairman.  
+What I'm testing with this question is your business **acumen**.  
+
+### Week 3  
+> 2025-01-12  
+
+**baseboard, plywood, drywall, radiator**.  
+**starboard, hull**  
+
+**bulkhead**: In shipbuilding, any vertical panel was called a head. So walls installed abeam (side-to-side) in a vessel's hull were called "bulkheads".  
+
+The women **swoon over** him.  
+Such Numbers should make strategists **swoon**.  
+**dawn-to-dusk**.  
+The beauty of a sunset is **ineffable**. -  
+
+Some people have an **antipathy** to cats.  
+a deep **antipathy** to social pretension.  
+**antipathy, animosity, hostility, hatred, enmity**.  
+The **premiere** on Monday is sold out.  
+He has paid a visit to Australian **Premier**.  
 
 
 I'm **parched** — I'll die without a drink.  
@@ -27,16 +47,16 @@ The police moved quickly to **dispel** the rumors.
 
 
 **Monk fruit** sweetener has been around for decades but has recently grown in popularity since it’s become more **readily** available.  
-Monk fruit is usually dried and used to make medicinal teas.  
-Not everyone is a fan of monk fruit’s fruity taste. Some people report an unpleasant aftertaste.  
+**Monk fruit** is usually dried and used to make **medicinal teas**.  
+Not everyone is a fan of monk fruit’s **fruity** taste. Some people report an unpleasant **aftertaste**.  
 
 
-How Ukraine’s new tech **foils** Russian aerial attacks. -  It is **pioneering** **acoustic** detection, with surprising success.
-America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades. -    
+How Ukraine’s new tech **foils** Russian aerial attacks. -  It is **pioneering** **acoustic** detection, with surprising success.  
+America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades. -  
 China is **itching** to mine the ocean floor.  
 **military junta**.  
 Myanmar’s rapidly changing civil war, in maps and charts. -  Ethnic **militias** and pro-democracy groups are scoring victories against the **governing junta**.  
-**Myanmar, Cambodia, Laos**. 
+**Myanmar, Cambodia, Laos**.  
 If Mr Trump starts to be perceived as an elderly man, prone to senior moments and unable to work relentlessly long days, his **pugnacious** **appeal** might **dim**.  
 
 Could a man who makes ugly promises of mass **expulsion** actually fix America’s immigration system?  
@@ -51,15 +71,15 @@ The fishes **thrashed** around in the net.
 
 
 **ascetic, monastic**.  
-The monks lived a very **ascetic** life.
+The monks lived a very **ascetic** life.  
 They live in the same **rarefied** world of global fame.  
 Fear is a major **impediment** to thinking like an **iconoclast** and stops the average person in his tracks. -  
 **Lyricism**.  
-The leaves started to **shrivel up**.
-**wizen, shrivel, wilt**. 
+The leaves started to **shrivel up**.  
+**wizen, shrivel, wilt**.  
 an **indecorous** proposition.  
 She could not ignore his **indecorous** behaviour though she loved him very much.  
-**immersive** VR experience
+**immersive** VR experience  
 
 **onward, upward**.  
 **outward, inward, untoward, skyward, afterward**  
@@ -115,7 +135,7 @@ I tripped and went **sprawling**.
 The city is a **sprawling** **behemoth** with no heart.  
 They live in a **palatial** mansion with sprawling gardens. -  
 
-Two players were **ejected** after a **tussle** on the field. -  
+Two players were **ejected** after a **tussle** on the field.  
 
 The **cuckoo** lays its eggs in other birds' nests.  
 Sin, like the **cuckoo bird**, has an insatiable appetite, and it tries to take over our lives.  

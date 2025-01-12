@@ -113,7 +113,7 @@ Inflation is an **outgrowth** of war.
 This big shop is an **outgrowth** of my little shop I started three years ago.  
 What you beheld was the interior of a **cloister**.  
 her remorse could be a **blight** on that happiness.  
-**Blighted stems** often **canker**. -  
+**Blighted stems** often **canker**.   
 
 I just think you're the kind of person who likes a **contingency plan**.  
 **contingency** fund/reserve/plan  
