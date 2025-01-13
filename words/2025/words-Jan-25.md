@@ -7,9 +7,23 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-blugeon, browbeat, coerce, compel  
+**matte finish**.  
+**headphone, earpiece, earbuds** 
 
-Jubilant  
+tutelage??  
+enamored??  
+poofy??  
+fetid??  
+elide??  
+Layaway  
+
+
+string flossing: Requires manual **dexterity** and precision.  
+String flossing is better for: Removing **sticky plaque** and **tartar** buildup. -
+
+**Bludgeon, browbeat, coerce, compel**  
+
+**Jubilant**  
 He had an **aptitude** for journalism. -  
 The assessment center helps determine different **aptitudes and interests**.  
 He lacked the judgment and **political acumen** for the post of chairman.  
@@ -114,16 +128,6 @@ The room was filled with **acrid smoke**.
 **specious, suspicious, spacious**  
 His debts were a **noose** around his neck.  
 **bolt-on**  
-
-tutelage??  
-enamored??  
-poofy??  
-fetid??  
-mulligen??  
-elide??  
-
-Layaway  
-
 
 ## Week 2  
 > 2025-01-06  
