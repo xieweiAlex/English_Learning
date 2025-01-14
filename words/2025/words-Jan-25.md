@@ -7,20 +7,22 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+He mixed up some **plaster** to repair the wall.  
+He's got his leg in a **plaster cast**.  
+Commercial and event revenue will be **divvied up**.  
+**dossier**.  
 
-If nothing else, Doug is a hard-nosed businessman.  
+If nothing else, Doug is a **hard-nosed** businessman.  
 
-Devils don't slosh around much of a Sunday, I don't reckon.
-There seems to be lots of money sloshing around in professional tennis.  
-The children were sloshing around in the puddles.  
-The water was sloshing around in the bucket.  
+Devils don't **slosh around** much of a Sunday, I don't reckon.
+There seems to be lots of money **sloshing around** in professional tennis.  
+The children were **sloshing around** in the puddles.  
+The water was **sloshing** around in the bucket. -  
 
-vinyl.  
-cushy.  
-In his job, patience is an invaluable asset.
-I can aver that he is telling the truth.  
-
-
+v**inyl**.  
+**cushy**.  
+In his job, patience is an **invaluable** asset.
+I can **aver** that he is telling the truth. -  
 
 **matte finish**.  
 **headphone, earpiece, earbuds** 
