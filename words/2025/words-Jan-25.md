@@ -7,6 +7,15 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+self-involved, self-absorbed, self-centered, egoist, 
+lob.  
+The announcer was fired for taking payola.  
+fishing vessel, cargo vessel, container vessel.  
+capillary vessel.    
+
+I added a dollop of vanilla ice cream to the pie.  
+
+
 We had **gotten a hold** of **class clown**.  
 George Carlin was a **right of passage** in the 70s.  
 
