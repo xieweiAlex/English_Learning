@@ -7,6 +7,12 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+We had **gotten a hold** of **class clown**.  
+George Carlin was a **right of passage** in the 70s.  
+
+> Have you eaten yet? 
+> did you eat 
+
 He mixed up some **plaster** to repair the wall.  
 He's got his leg in a **plaster cast**.  
 Commercial and event revenue will be **divvied up**.  
