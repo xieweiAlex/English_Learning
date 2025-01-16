@@ -44,7 +44,7 @@ Nothing **onerous**, I promise!
 
 When I last visited Tallinn, in the mid-1990s, the people **fizzed** with optimism because they had recently shrugged off the decades-long grasp of the great bear.  
 Russia’s military **heft** is already at least equal to that of Britain, France, Germany and Poland combined.  
-He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”. -  
+He observes that the leaders will find it impossible to unite Syrians until “they have truly **repudiated** the **unhinged views** of groups like **Al-Qaeda** and their ideological **offshoots** in **ISIS**”.   
 
 He is incapable of **discriminating** between a good idea and a terrible one.  
 More discriminating visitors now tend to **shun** the area.  
@@ -55,7 +55,7 @@ she had the ability to **ferret out** the facts.
 **contracept, contraception**.  
 Frank ran errands for a **seedy** local villain. -  
 It's a **spot check**. There's no system for it.  
-He can be **intransigent** and **pig-headed** at times. -  
+He can be **intransigent** and **pig-headed** at times.   
 
 The man is off his **rocker**.  
 I guess he's supposed to be a **punk rocker**.  

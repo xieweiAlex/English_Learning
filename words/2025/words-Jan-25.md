@@ -7,20 +7,33 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-self-involved, self-absorbed, self-centered, egoist, 
-lob.  
-The announcer was fired for taking payola.  
-fishing vessel, cargo vessel, container vessel.  
-capillary vessel.    
+Biden **jabs** at Trump in farewell address, but pledges peaceful transition.  
+In the **sweltering** haze of summer-noon.  
 
-I added a dollop of vanilla ice cream to the pie.  
+**confiscate, forfeit, seize, plunder**.  
+The **customs** officials confiscated the **contraband**. -  
+"They each covet the other person's life," says Reynolds.  
+A **covetous** man is good to none but worse to himself.  
+
+
+The protesters carried **placards** with bold messages. -  
+The **placard** on the wall listed the safety instructions.  
+> In casual speech, people might use alternatives like "sign," "poster," or "notice" instead  
+
+**self-involved, self-absorbed, self-centered, egoist**.  
+**lob**.  
+The announcer was fired for taking **payola**. -  
+**fishing vessel, cargo vessel, container vessel**.  
+**capillary vessel**.  
+
+I added a **dollop** of vanilla ice cream to the pie.  
 
 
 We had **gotten a hold** of **class clown**.  
 George Carlin was a **right of passage** in the 70s.  
 
-> Have you eaten yet? 
-> did you eat 
+> Have you had dinner yet?  
+> did you eat dinner yet?  
 
 He mixed up some **plaster** to repair the wall.  
 He's got his leg in a **plaster cast**.  
@@ -29,18 +42,18 @@ Commercial and event revenue will be **divvied up**.
 
 If nothing else, Doug is a **hard-nosed** businessman.  
 
-Devils don't **slosh around** much of a Sunday, I don't reckon.
+Devils don't **slosh around** much of a Sunday, I don't reckon.  
 There seems to be lots of money **sloshing around** in professional tennis.  
 The children were **sloshing around** in the puddles.  
 The water was **sloshing** around in the bucket. -  
 
 v**inyl**.  
 **cushy**.  
-In his job, patience is an **invaluable** asset.
+In his job, patience is an **invaluable** asset.  
 I can **aver** that he is telling the truth. -  
 
 **matte finish**.  
-**headphone, earpiece, earbuds** 
+**headphone, earpiece, earbuds**  
 
 tutelage??  
 enamored??  
@@ -51,7 +64,7 @@ Layaway
 
 
 string flossing: Requires manual **dexterity** and precision.  
-String flossing is better for: Removing **sticky plaque** and **tartar** buildup. -
+String flossing is better for: Removing **sticky plaque** and **tartar** buildup. -  
 
 **Bludgeon, browbeat, coerce, compel**  
 
