@@ -7,6 +7,19 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+tutelage??  
+enamored??  
+poofy??  
+fetid??  
+elide??  
+Layaway  
+
+**Klutz**. vv 
+The Indians are the **aboriginal** Americans.  
+**Totemism** is the behaving criterion of Australian **Aboriginal** people, which impenetrate almost every aspect of their life.  
+The pictures were not meant to **titillate** audiences. -  
+
+
 Biden **jabs** at Trump in farewell address, but pledges peaceful transition.  
 In the **sweltering** haze of summer-noon.  
 
@@ -47,20 +60,13 @@ There seems to be lots of money **sloshing around** in professional tennis.
 The children were **sloshing around** in the puddles.  
 The water was **sloshing** around in the bucket. -  
 
-v**inyl**.  
+**vinyl**.  
 **cushy**.  
 In his job, patience is an **invaluable** asset.  
 I can **aver** that he is telling the truth. -  
 
 **matte finish**.  
 **headphone, earpiece, earbuds**  
-
-tutelage??  
-enamored??  
-poofy??  
-fetid??  
-elide??  
-Layaway  
 
 
 string flossing: Requires manual **dexterity** and precision.  
