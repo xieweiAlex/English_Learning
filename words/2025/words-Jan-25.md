@@ -14,7 +14,19 @@ fetid??
 elide??  
 Layaway  
 
+I know why you hung up on the toxic exs.  
+
+
 Donkey Doug. 
+One main functionality of men is to produce semens, but we already have banks for that nowadays.  
+
+vermin vs pest
+**Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**. -  
+A cavalcade processed through town.  
+He was handsome, upright, and chivalrous.  
+**stakeout**: surveillance of some place or some person by the police (as in anticipation of a crime)
+He is a proverbially dour New England Puritan.
+The woman is proverbially stupid.  
 
 
 **Klutz**. vv 
