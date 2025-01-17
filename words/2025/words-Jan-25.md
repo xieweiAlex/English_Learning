@@ -14,6 +14,9 @@ fetid??
 elide??  
 Layaway  
 
+Donkey Doug. 
+
+
 **Klutz**. vv 
 The Indians are the **aboriginal** Americans.  
 **Totemism** is the behaving criterion of Australian **Aboriginal** people, which impenetrate almost every aspect of their life.  
