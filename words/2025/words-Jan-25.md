@@ -7,33 +7,50 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+Emily's mercurial temperament made her difficult to live with.  
+mercurial barometer/thermometer.  
+the extortionate power of the unions.  
+Hundreds of thousands of jubilant Americans cheered him on his return.  
+The city was entombed in volcanic lava.  
+If left unchecked, weeds will flourish.  
+
+
+
 tutelage??  
 enamored??  
 poofy??  
 fetid??  
 elide??  
 Layaway  
+**Jubilant**  
 
-I know why you hung up on the toxic exs.  
+I can **console** myself with the fact that I'm not alone.  
+She is **disconsolate** at the death of her cat.  
+**Recumbent** bicycle equipped with very comfortable office chair.  
+He was **subservient** and **servile**.  
+
+The press was accused of being **subservient** to the government. -  
+I know why you **hung up on** the toxic Exes.  
+
+**reproach, reprehend, reprimand, rebuke**  
+**peevish, cranky, irritable, whiny, snarky, obnoxious**.  
 
 
-Donkey Doug. 
-One main functionality of men is to produce semens, but we already have banks for that nowadays.  
+**Donkey Doug**.  
+One main functionality of men is to produce **semens**, but we already have banks for that nowadays. -  
 
-vermin vs pest
+**vermin, pest**  
 **Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**. -  
-A cavalcade processed through town.  
-He was handsome, upright, and chivalrous.  
-**stakeout**: surveillance of some place or some person by the police (as in anticipation of a crime)
-He is a proverbially dour New England Puritan.
-The woman is proverbially stupid.  
+A **cavalcade** processed through town.  
+He was handsome, **upright**, and **chivalrous**. -  
+**stakeout**: surveillance of some place or some person by the police (as in anticipation of a crime)  
+He is a **proverbially** dour **New England Puritan**.  
+The woman is **proverbially** stupid.  
 
-
-**Klutz**. vv 
+**Klutz**. vv  
 The Indians are the **aboriginal** Americans.  
 **Totemism** is the behaving criterion of Australian **Aboriginal** people, which impenetrate almost every aspect of their life.  
 The pictures were not meant to **titillate** audiences. -  
-
 
 Biden **jabs** at Trump in farewell address, but pledges peaceful transition.  
 In the **sweltering** haze of summer-noon.  
@@ -42,7 +59,6 @@ In the **sweltering** haze of summer-noon.
 The **customs** officials confiscated the **contraband**. -  
 "They each covet the other person's life," says Reynolds.  
 A **covetous** man is good to none but worse to himself.  
-
 
 The protesters carried **placards** with bold messages. -  
 The **placard** on the wall listed the safety instructions.  
@@ -56,12 +72,9 @@ The announcer was fired for taking **payola**. -
 
 I added a **dollop** of vanilla ice cream to the pie.  
 
-
 We had **gotten a hold** of **class clown**.  
 George Carlin was a **right of passage** in the 70s.  
 
-> Have you had dinner yet?  
-> did you eat dinner yet?  
 
 He mixed up some **plaster** to repair the wall.  
 He's got his leg in a **plaster cast**.  
@@ -70,7 +83,9 @@ Commercial and event revenue will be **divvied up**.
 
 If nothing else, Doug is a **hard-nosed** businessman.  
 
-Devils don't **slosh around** much of a Sunday, I don't reckon.  
+Devils don't **slosh around** much of a Sunday, I don't **reckon**.  
+I **reckon** she's pulling in over $100 000.  
+
 There seems to be lots of money **sloshing around** in professional tennis.  
 The children were **sloshing around** in the puddles.  
 The water was **sloshing** around in the bucket. -  
@@ -83,13 +98,11 @@ I can **aver** that he is telling the truth. -
 **matte finish**.  
 **headphone, earpiece, earbuds**  
 
-
 string flossing: Requires manual **dexterity** and precision.  
 String flossing is better for: Removing **sticky plaque** and **tartar** buildup. -  
 
 **Bludgeon, browbeat, coerce, compel**  
 
-**Jubilant**  
 He had an **aptitude** for journalism. -  
 The assessment center helps determine different **aptitudes and interests**.  
 He lacked the judgment and **political acumen** for the post of chairman.  
@@ -114,7 +127,6 @@ a deep **antipathy** to social pretension.
 The **premiere** on Monday is sold out.  
 He has paid a visit to Australian **Premier**.  
 
-
 I'm **parched** — I'll die without a drink.  
 The **silver coinage** was repeatedly debased with **copper** vellon.  
 Her face was **careworn** with anxiety. -  
@@ -124,12 +136,9 @@ The police moved quickly to **dispel** the rumors.
 **immaculate**.  
 **stricken**.  
 
-
-
 **Monk fruit** sweetener has been around for decades but has recently grown in popularity since it’s become more **readily** available.  
 **Monk fruit** is usually dried and used to make **medicinal teas**.  
 Not everyone is a fan of monk fruit’s **fruity** taste. Some people report an unpleasant **aftertaste**.  
-
 
 How Ukraine’s new tech **foils** Russian aerial attacks. -  It is **pioneering** **acoustic** detection, with surprising success.  
 America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades. -  
@@ -306,7 +315,7 @@ pork-barrel: a **legislative** **appropriation** designed to **ingratiate** legi
 She was **incandescent** with rage.  
 His performance was **incandescent**.  
 
-**doodad, gadget, bauble, trinket, ornament**  
+**doodad, gadget, bauble, trinket, ornament**. vv  
 
 “Hold on to that,” Marcus says, “and you won’t **be tempted to** aim at anything else.”  
 > Imagine how it would feel to be **driven** from within like that. To do what you were designed to do day in, day out, without needing to **look over your shoulder** for outside approval or reward.  
@@ -326,6 +335,15 @@ Smoke was **curling up** the **chimney**.
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
 
+I know why you **hung up on** the toxic Exes.  
+We had **gotten a hold** of **class clown**.  
+George Carlin was a **right of passage** in the 70s.  
+
+> Have you had dinner yet?  
+> did you eat dinner?  
+
+
+
 I gave some pretty **scathing** feedback on that training though.  
 
 So I was right. I took **a rash of** shit for two years, but... I was right.  
@@ -334,6 +352,19 @@ I will put it **by your door**.
 
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
+
+If nothing else, Doug is a **hard-nosed** businessman.  
+There seems to be lots of money **sloshing around** in professional tennis.  
+
+The Indians are the **aboriginal** Americans.  
+Biden **jabs** at Trump in farewell address, but pledges peaceful transition.  
+
+I'm **parched** — I'll die without a drink.  
+The **silver coinage** was repeatedly debased with **copper** vellon.  
+
+How Ukraine’s new tech **foils** Russian aerial attacks. -  It is **pioneering** **acoustic** detection, with surprising success.  
+
+
 
 Avoid **plucking** which can lead to infections and ingrown hairs  
 
