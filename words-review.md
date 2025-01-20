@@ -1,5 +1,16 @@
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
+The press was accused of being **subservient** to the government. -  
+One main functionality of men is to produce **semens**, but we already have banks for that nowadays. -  
+**Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**. -  
+He was handsome, **upright**, and **chivalrous**. -  
+The pictures were not meant to **titillate** audiences. -  
+The **customs** officials confiscated the **contraband**. -  
+The protesters carried **placards** with bold messages. -  
+The announcer was fired for taking **payola**. -  
+The water was **sloshing** around in the bucket. -  
+I can **aver** that he is telling the truth. -  
+String flossing is better for: Removing **sticky plaque** and **tartar** buildup. -  
 He had an **aptitude** for journalism. -  
 The beauty of a sunset is **ineffable**. -  
 Her face was **careworn** with anxiety. -  
@@ -27,6 +38,7 @@ It is one thing for Canada to attract **disaffected** immigrant tech workers fro
 
 ## words-Nov-24.md ##  
 words/2024/words-Nov-24.md  
+And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is. -  
 Nobody can **impugn** his ability. -  
 
 ## words-Sep-24.md ##  

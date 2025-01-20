@@ -7,14 +7,35 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-Emily's mercurial temperament made her difficult to live with.  
-mercurial barometer/thermometer.  
-the extortionate power of the unions.  
-Hundreds of thousands of jubilant Americans cheered him on his return.  
-The city was entombed in volcanic lava.  
-If left unchecked, weeds will flourish.  
+### Week 4  
+> 2025-01-19  
 
+This is the biggest **clout** I'll ever have with them, they'll finally listen to everything I say after this.  
 
+cumin beef. 
+braised eggplant.  
+
+delude, delusive.  
+?? delude, deceive, dishonest, fool  
+
+This tardiness is a symptom of two deeper problems.  
+
+He said this with an **ingratiating** smile.  
+He is **bedeviled** by his mistaken ideas.  
+This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
+
+**bedevil, beset, plague**  
+
+I was **beset** by clouds of flies.  
+
+**Shoddy, shabby, seedy, pissy, crappy, lousy, shitty, stinky**.  
+
+Emily's **mercurial** temperament made her difficult to live with.  
+**mercurial** barometer/thermometer.  
+the **extortionate** power of the unions.  
+Hundreds of thousands of **jubilant** Americans cheered him on his return.  
+The city was **entombed** in volcanic lava.  
+If left **unchecked**, weeds will **flourish**.  
 
 tutelage??  
 enamored??  
