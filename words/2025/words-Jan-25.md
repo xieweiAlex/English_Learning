@@ -7,6 +7,19 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+She felt like an interloper in her own family.  
+Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor. - 
+
+snorkel.  
+cervical vertebrae.  
+The empire had for years been falling into decadence.  
+indigenous.  
+blood viscosity, oil viscosity.  
+The old gentleman was as spry as ever.  
+crate.  
+
+
+
 ### Week 4  
 > 2025-01-19  
 
