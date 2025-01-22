@@ -19,37 +19,37 @@ Many organisms that die in the sea are soon buried by sediment.
 
 
 She felt like an interloper in her own family.  
+He seems like getting **railroaded**. They came up with some **phony**, **murder-for-hire** charge.  
+
+She felt like an **interloper** in her own family. -  
 Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor. - 
 
-snorkel.  
-cervical vertebrae.  
-The empire had for years been falling into decadence.  
-indigenous.  
-blood viscosity, oil viscosity.  
-The old gentleman was as spry as ever.  
-crate.  
-
-
+**snorkel**.  
+**cervical vertebrae**.  
+The empire had for years been falling into **decadence**.  
+**indigenous**.  
+**blood viscosity**, **oil viscosity**.  
+The old gentleman was as **spry** as ever. -  
+**crate**.  
 
 ### Week 4  
 > 2025-01-19  
 
 This is the biggest **clout** I'll ever have with them, they'll finally listen to everything I say after this.  
 
-cumin beef. 
-braised eggplant.  
+**cumin beef**. 
+**braised eggplant**.  
 
 delude, delusive.  
 ?? delude, deceive, dishonest, fool  
 
-This tardiness is a symptom of two deeper problems.  
+This **tardiness** is a symptom of two deeper problems.  
 
 He said this with an **ingratiating** smile.  
 He is **bedeviled** by his mistaken ideas.  
 This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
 
 **bedevil, beset, plague**  
-
 I was **beset** by clouds of flies.  
 
 **Shoddy, shabby, seedy, pissy, crappy, lousy, shitty, stinky**.  
@@ -70,8 +70,8 @@ Layaway
 **Jubilant**  
 
 I can **console** myself with the fact that I'm not alone.  
-She is **disconsolate** at the death of her cat.  
-**Recumbent** bicycle equipped with very comfortable office chair.  
+She is **disconsolate** at the death of her cat. -  
+**Recumbent** bicycle equipped with very comfortable office chair. -  
 He was **subservient** and **servile**.  
 
 The press was accused of being **subservient** to the government. -  
