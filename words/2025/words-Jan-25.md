@@ -7,18 +7,26 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-Nobody can gainsay his claims.  
-She had a shrill high-pitched voice.  
-Her voice was shrill and penetrating.   
+blurt out.  
+We had roasted pheasant for dinner.  
+His scruffy appearance does not reflect his character.  
+supine??  
+dolorous.  
+The curtains were fluttering in the breeze.  
+Little sparrows fluttered among the branches.  
+
+Nobody can **gainsay** his claims.  
+She had a **shrill** high-pitched voice.  
+Her voice was **shrill** and penetrating.   
 
 
-precept. vv 
-impotence.  
-The sediment settled and the water was clear.  
-Many organisms that die in the sea are soon buried by sediment.   
+**precept**. vv 
+**impotence**.  
+The **sediment** settled and the water was clear.  
+Many organisms that die in the sea are soon buried by **sediment**.   
 
 
-She felt like an interloper in her own family.  
+She felt like an **interloper** in her own family.  
 He seems like getting **railroaded**. They came up with some **phony**, **murder-for-hire** charge.  
 
 She felt like an **interloper** in her own family. -  
