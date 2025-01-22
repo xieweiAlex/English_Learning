@@ -7,6 +7,17 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+Nobody can gainsay his claims.  
+She had a shrill high-pitched voice.  
+Her voice was shrill and penetrating.   
+
+
+precept. vv 
+impotence.  
+The sediment settled and the water was clear.  
+Many organisms that die in the sea are soon buried by sediment.   
+
+
 She felt like an interloper in her own family.  
 Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor. - 
 
