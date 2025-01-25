@@ -6,7 +6,9 @@
 
 **outweigh**
 
-**stoke**??
+**stoke**
+> He continued to stoke up hatred in his speeches. 
+> He stoked up the fire before going to bed 
 
 **rise, fall** 
 

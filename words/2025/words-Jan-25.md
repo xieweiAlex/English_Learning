@@ -7,11 +7,14 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-deracinate, eradicate, decimate, sweep, wipe out.  
-snot, snotty.  
-laissez-faire
+scallion, scallop.  
 
-serviette, handkerchief, tissue.  
+
+**deracinate, eradicate, decimate, sweep, wipe out**.  
+**snot, snotty**.  
+**laissez-faire**
+
+**serviette, handkerchief, tissue**.  
 Her speech was greeted with howls of derision.  
 The artist exploring the new is liable to derision and hostility.  
 decision, scorn, ridicule, disdain.  
