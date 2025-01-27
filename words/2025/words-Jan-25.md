@@ -7,43 +7,84 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-scallion, scallop.  
+## Week 4  
+poofy??  
+
+A technological **tour de force**. -  
+
+Why global bond markets are **convulsing**.  
+Baby-bommers are **loaded**. Why are they so stingy?  
+How Silicon Valley **fell in line** with Donald Trump.  
+Has the Royal Navy become too **timid**?  
+Mr Trump’s critics have often accused him of **buffoonery** and isolationism.  
+But even before he has taken the oath of office, Mr Trump has shown how much those words **fall short**.  
+Mr Trump is **supplanting** a vision of America’s role in the world that held sway since the Second World War.  
+The President has had time to think, regroup, and — most importantly — build a **cadre** of dedicated ops.  
+
+
+**crimson, scarlet, maroon, burgundy**,  
+You just learned your accounts have been **cleaned out**.  
+The social services **account for** a substantial part of public spending.  
+**wretched, pitiful, hideous, vile, pathetic, deplorable**. vv  
+
+You’ll never find a more **wretched** **hive of scum** and **villainy** than “SEO experts.  
+so I’m **amenable** to an argument from Google that this is a justifiable step in their never-ending war with SEO scammers seeking to game search results in their favor.  
+
+This law becomes **operative** immediately.  
+**operative treatment**  
+
+**scruffy, scuff, scrape, scratch**  
+
+Our parents are such **wankers**.  
+I only have an **itsy-bitsy** portion of food.  
+
+Amy, come on. Is that a **hickey**, young lady?  
+The sun **dissipated** the mists.  
+The news **dissipated** my fear.  
+
+The mattress I'm now sleeping on is **saggy**.  
+Daisy: Will you still love me when my skin grows old and **saggy**?  
+
+The dog was **gnawing** a bone.  
+The problem had been **gnawing** at him for months.  
+
+**maritime law/court/rights**.  
+**scallion, scallop**.  
 
 
 **deracinate, eradicate, decimate, sweep, wipe out**.  
 **snot, snotty**.  
-**laissez-faire**
+**laissez-faire**  
 
 **serviette, handkerchief, tissue**.  
-Her speech was greeted with howls of derision.  
-The artist exploring the new is liable to derision and hostility.  
-decision, scorn, ridicule, disdain.  
+Her speech was greeted with **howls of derision**.  
+The artist exploring the new is liable to **derision** and hostility.  
+**decision, scorn, ridicule, disdain**.  
 
-
-blurt out.  
-We had roasted pheasant for dinner.  
-His scruffy appearance does not reflect his character.  
-supine??  
-dolorous.  
-The curtains were fluttering in the breeze.  
-Little sparrows fluttered among the branches.  
+**blurt out**.  
+We had roasted **pheasant** for dinner.  
+His **scruffy** appearance does not reflect his character. -  
+**supine**??  
+**dolorous**.  
+The curtains were **fluttering** in the breeze.  
+Little sparrows **fluttered** among the branches.  
 
 Nobody can **gainsay** his claims.  
 She had a **shrill** high-pitched voice.  
-Her voice was **shrill** and penetrating.   
+Her voice was **shrill** and penetrating.  
 
 
-**precept**. vv 
+**precept**. vv  
 **impotence**.  
 The **sediment** settled and the water was clear.  
-Many organisms that die in the sea are soon buried by **sediment**.   
+Many organisms that die in the sea are soon buried by **sediment**.  
 
 
 She felt like an **interloper** in her own family.  
 He seems like getting **railroaded**. They came up with some **phony**, **murder-for-hire** charge.  
 
 She felt like an **interloper** in her own family. -  
-Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor. - 
+Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor. -  
 
 **snorkel**.  
 **cervical vertebrae**.  
@@ -53,12 +94,12 @@ The empire had for years been falling into **decadence**.
 The old gentleman was as **spry** as ever. -  
 **crate**.  
 
-### Week 4  
+### Week 3  
 > 2025-01-19  
 
 This is the biggest **clout** I'll ever have with them, they'll finally listen to everything I say after this.  
 
-**cumin beef**. 
+**cumin beef**.  
 **braised eggplant**.  
 
 delude, delusive.  
@@ -98,7 +139,7 @@ He was **subservient** and **servile**.
 The press was accused of being **subservient** to the government. -  
 I know why you **hung up on** the toxic Exes.  
 
-**reproach, reprehend, reprimand, rebuke**  
+**reproach, reprehend, reproof, reprimand, rebuke**  
 **peevish, cranky, irritable, whiny, snarky, obnoxious**.  
 
 
@@ -174,7 +215,7 @@ The assessment center helps determine different **aptitudes and interests**.
 He lacked the judgment and **political acumen** for the post of chairman.  
 What I'm testing with this question is your business **acumen**.  
 
-### Week 3  
+### Week 2  
 > 2025-01-12  
 
 **baseboard, plywood, drywall, radiator**.  
@@ -270,7 +311,7 @@ The room was filled with **acrid smoke**.
 His debts were a **noose** around his neck.  
 **bolt-on**  
 
-## Week 2  
+## Week 1  
 > 2025-01-06  
 
 **pig-headed, headstrong**. vv  
@@ -362,7 +403,7 @@ The times are good. The living is easy. The vibes are **zingy**.
 A wine with a **zingy**, peachy **palate**.  
 A **zippy**, **zingy**, almost **citrusy** tang.  
 
-### Week 1  
+### Week 0  
 > 2024-12-30  
 
 **gully** erosion.  

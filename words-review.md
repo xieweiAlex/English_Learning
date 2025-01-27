@@ -1,5 +1,13 @@
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
+A technological **tour de force**. -  
+His **scruffy** appearance does not reflect his character. -  
+She felt like an **interloper** in her own family. -  
+Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor. -  
+The old gentleman was as **spry** as ever. -  
+This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
+She is **disconsolate** at the death of her cat. -  
+**Recumbent** bicycle equipped with very comfortable office chair. -  
 The press was accused of being **subservient** to the government. -  
 One main functionality of men is to produce **semens**, but we already have banks for that nowadays. -  
 **Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**. -  
