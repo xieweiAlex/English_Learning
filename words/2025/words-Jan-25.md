@@ -21,8 +21,7 @@ But even before he has taken the oath of office, Mr Trump has shown how much tho
 Mr Trump is **supplanting** a vision of America’s role in the world that held sway since the Second World War.  
 The President has had time to think, regroup, and — most importantly — build a **cadre** of dedicated ops.  
 
-
-**crimson, scarlet, maroon, burgundy**,  
+**crimson, scarlet, maroon, burgundy**  
 You just learned your accounts have been **cleaned out**.  
 The social services **account for** a substantial part of public spending.  
 **wretched, pitiful, hideous, vile, pathetic, deplorable**. vv  
@@ -34,7 +33,6 @@ This law becomes **operative** immediately.
 **operative treatment**  
 
 **scruffy, scuff, scrape, scratch**  
-
 Our parents are such **wankers**.  
 I only have an **itsy-bitsy** portion of food.  
 
@@ -49,11 +47,10 @@ The dog was **gnawing** a bone.
 The problem had been **gnawing** at him for months.  
 
 **maritime law/court/rights**.  
-**scallion, scallop**.  
-
+**Scallion, scallop**.  
 
 **deracinate, eradicate, decimate, sweep, wipe out**.  
-**snot, snotty**.  
+**Snot, snotty**.  
 **laissez-faire**  
 
 **serviette, handkerchief, tissue**.  

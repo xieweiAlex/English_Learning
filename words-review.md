@@ -2,21 +2,21 @@
 words/2025/words-Jan-25.md  
 A technological **tour de force**. -  
 His **scruffy** appearance does not reflect his character. -  
-She felt like an **interloper** in her own family. -  
-Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor. -  
+She felt like an **interloper** in her own family.   
+Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor.   
 The old gentleman was as **spry** as ever. -  
 This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
 She is **disconsolate** at the death of her cat. -  
 **Recumbent** bicycle equipped with very comfortable office chair. -  
 The press was accused of being **subservient** to the government. -  
 One main functionality of men is to produce **semens**, but we already have banks for that nowadays. -  
-**Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**. -  
+**Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**.   
 He was handsome, **upright**, and **chivalrous**. -  
 The pictures were not meant to **titillate** audiences. -  
 The **customs** officials confiscated the **contraband**. -  
 The protesters carried **placards** with bold messages. -  
 The announcer was fired for taking **payola**. -  
-The water was **sloshing** around in the bucket. -  
+The water was **sloshing** around in the bucket.   
 I can **aver** that he is telling the truth. -  
 String flossing is better for: Removing **sticky plaque** and **tartar** buildup. -  
 He had an **aptitude** for journalism. -  
@@ -46,14 +46,14 @@ It is one thing for Canada to attract **disaffected** immigrant tech workers fro
 
 ## words-Nov-24.md ##  
 words/2024/words-Nov-24.md  
-And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is. -  
+And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is.   
 Nobody can **impugn** his ability. -  
 
 ## words-Sep-24.md ##  
 words/2024/words-Sep-24.md  
 This **precept** has guided U.S. government policy for 30 years. -  
-We strive to **ascertain** what it is we can change and what we cannot change. -  
-A **geyser** of gas and liquid erupted. -  
+We strive to **ascertain** what it is we can change and what we cannot change.   
+A **geyser** of gas and liquid erupted.   
 
 ## words-Jul-24.md ##  
 words/2024/words-Jul-24.md  
