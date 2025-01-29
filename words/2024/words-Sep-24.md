@@ -58,7 +58,7 @@ Combining global liquidity conditions with Bitcoin on-chain valuation metrics pr
 
 We adopt a policy of **keeping our hands off** other people's responsibilities and **tend to** our own instead.  
 If people have created some disasters for themselves, we allow them to face their own **proverbial music**.  
-We strive to **ascertain** what it is we can change and what we cannot change. -  
+We strive to **ascertain** what it is we can change and what we cannot change.   
 We do what we can to solve a problem, and then we stop **fretting and stewing**.  
 
 **snippy, snappy, snarky**  
@@ -299,7 +299,7 @@ the **expansive** **glittering** lake.
 **vinyl**.  
 **brochette**, kabab.   
 
-A **geyser** of gas and liquid erupted. -  
+A **geyser** of gas and liquid erupted.   
 
 A hot climate **enervate** people who are not used to it.   
 **enervate**: More common synonyms like "weaken," "**debilitate**," or "exhaust" are often used instead.  

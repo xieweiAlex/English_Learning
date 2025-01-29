@@ -7,8 +7,16 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-## Week 4  
 poofy??  
+
+abscess, pus, hemorrhage, obscene  
+
+The noise that trunks and ambulances made in the street rankles me every day.  
+Lisa was rankled by his assertion.  
+The concessions did little to placate the students.  
+
+
+## Week 4  
 
 A technological **tour de force**. -  
 
@@ -81,7 +89,7 @@ She felt like an **interloper** in her own family.
 He seems like getting **railroaded**. They came up with some **phony**, **murder-for-hire** charge.  
 
 She felt like an **interloper** in her own family. -  
-Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor. -  
+Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor.   
 
 **snorkel**.  
 **cervical vertebrae**.  
@@ -144,7 +152,7 @@ I know why you **hung up on** the toxic Exes.
 One main functionality of men is to produce **semens**, but we already have banks for that nowadays. -  
 
 **vermin, pest**  
-**Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**. -  
+**Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**.   
 A **cavalcade** processed through town.  
 He was handsome, **upright**, and **chivalrous**. -  
 **stakeout**: surveillance of some place or some person by the police (as in anticipation of a crime)  
@@ -192,7 +200,7 @@ I **reckon** she's pulling in over $100 000.
 
 There seems to be lots of money **sloshing around** in professional tennis.  
 The children were **sloshing around** in the puddles.  
-The water was **sloshing** around in the bucket. -  
+The water was **sloshing** around in the bucket.   
 
 **vinyl**.  
 **cushy**.  
