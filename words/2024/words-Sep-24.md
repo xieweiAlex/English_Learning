@@ -34,7 +34,7 @@ They were **granted** refugee status.
 **MRI**: **magnetic resonance imaging**  
 
 
-This **precept** has guided U.S. government policy for 30 years. -  
+This **precept** has guided U.S. government policy for 30 years.   
 Ferguson should be basking in the **afterglow** of his successes.  
 **precept, doctrine, tenets**.  
 It's neither **junky nor janky**, but just **dandy**.  

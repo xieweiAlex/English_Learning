@@ -15,6 +15,15 @@ The noise that trunks and ambulances made in the street rankles me every day.
 Lisa was rankled by his assertion.  
 The concessions did little to placate the students.  
 
+What process turns liquid cake into poofy air-filled solid cake?  
+> Thus, disaffected originally meant “alienated in feeling” or “not inclined toward,” particularly in the sense of losing loyalty or affection. It was first used in English in the 17th century, often referring to subjects or citizens who had become dissatisfied with authority or governance.  
+
+> poofy: It can also carry informal or slang meanings, depending on context. However, its primary meaning relates to something appearing soft, full, or inflated in shape.  
+
+**precept, commandment, principle, tenets, axiom, motto**  
+**precinct**  
+
+
 
 ## Week 4  
 
@@ -79,7 +88,6 @@ She had a **shrill** high-pitched voice.
 Her voice was **shrill** and penetrating.  
 
 
-**precept**. vv  
 **impotence**.  
 The **sediment** settled and the water was clear.  
 Many organisms that die in the sea are soon buried by **sediment**.  
@@ -89,7 +97,7 @@ She felt like an **interloper** in her own family.
 He seems like getting **railroaded**. They came up with some **phony**, **murder-for-hire** charge.  
 
 She felt like an **interloper** in her own family. -  
-Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor.   
+Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor.  
 
 **snorkel**.  
 **cervical vertebrae**.  
@@ -152,7 +160,7 @@ I know why you **hung up on** the toxic Exes.
 One main functionality of men is to produce **semens**, but we already have banks for that nowadays. -  
 
 **vermin, pest**  
-**Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**.   
+**Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**.  
 A **cavalcade** processed through town.  
 He was handsome, **upright**, and **chivalrous**. -  
 **stakeout**: surveillance of some place or some person by the police (as in anticipation of a crime)  
@@ -200,7 +208,7 @@ I **reckon** she's pulling in over $100 000.
 
 There seems to be lots of money **sloshing around** in professional tennis.  
 The children were **sloshing around** in the puddles.  
-The water was **sloshing** around in the bucket.   
+The water was **sloshing** around in the bucket.  
 
 **vinyl**.  
 **cushy**.  

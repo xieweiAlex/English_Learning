@@ -22,7 +22,7 @@ However sad, however **mordant**, however terrible, we must know it.
 Not particularly strong, but not **ductile** or easily malleable either.   
 Not useful for any practical or **ornamental** purpose.  
 
-Nobody can **impugn** his ability. -  
+Nobody can **impugn** his ability.   
 **aghast**.  
 
 He never allowed his work to **impinge** on his private life.  
