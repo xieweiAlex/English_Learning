@@ -200,7 +200,6 @@ In the short-term, the **prospect** of a reserve currency replacing the dollar i
 its "safe-haven" status is hard to beat, especially **in light of** the **plight** of the euro.  
 It is equally difficult to predict what **budgetary** and **austerity** measures in Europe and the United States will do to the global economy in the coming years  
 
-**inane**, **asinine**, **idiotic**, **nonsensical**  
 
 **Surplice**  
 **sunblock**  

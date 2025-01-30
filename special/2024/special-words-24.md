@@ -1,4 +1,8 @@
 
+
+**attuned**
+> The dollar is once again looking **overextended**. And Trump, ever **attuned** to the dollar’s impact, hasn't **shied away** from the issue.  
+
 **acumen**
 > He lacked the judgment and political acumen for the post of chairman. 
 

@@ -7,15 +7,44 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+He had managed to **extricate** himself from most of his official duties.  
+They managed to **extricate** the pilot from the tangled control panel.  
 
-bootleg, moonshine 
-abscess, pus, hemorrhage, obscene  
+**mouthpiece, megaphone, bullhorn**.  
 
-The noise that trunks and ambulances made in the street rankles me every day.  
-Lisa was rankled by his assertion.  
-The concessions did little to placate the students.  
+The global rate of debasement is around 8% per annum plus 3% inflation while bond yields are 4.5% (that is financial **repression** in a nutshell).
+The dollar is once again looking **overextended**. And Trump, ever **attuned** to the dollar’s impact, hasn't **shied away** from the issue.  
 
-What process turns liquid cake into poofy air-filled solid cake?  
+Donald Trump and Joe Biden have both made **indefensible** decisions. -  
+What an arcane piece of aviation law says about Britain’s government. - The **parable** of the slots
+David Lynch **mesmerised** **filmgoers** with mystery, beauty and horror.  
+The **pomp** is mostly over. Donald Trump, once America’s 45th president, has now been sworn in as the 47th.  
+> pomp and circumstance 
+> grandeur, pomp, fanfare, splendor, trappings,  
+
+They enjoyed all the **trappings** of wealth.  
+
+Why has Donald Trump **held fire on** tariffs?  
+“Made in China 2025” has been a success, but at what cost?  
+How (un)popular is China’s Communist Party? -- As the economy **falters** and the social compact **frays**, Xi Jinping wants to know.  
+
+wampum?? 
+She is very **touchy** about her past. - 
+
+**inane**, **asinine**, **idiotic**, **nonsensical**  
+**imbecile, moron, lunatic, retard, delusional**. 
+
+**Pier, Jetty, wharf, marina, dock, ferry**.  
+**boardwalk, promenade**. vv  
+
+**bootleg, moonshine**?? 
+**abscess, pus, hemorrhage, obscene**  
+
+The noise that trunks and ambulances made in the street **rankles** me every day. -    
+Lisa was **rankled** by his assertion.  
+The concessions did little to **placate** the students. -  
+
+What process turns liquid cake into **poofy** **air-filled** solid cake?  
 > Thus, disaffected originally meant “alienated in feeling” or “not inclined toward,” particularly in the sense of losing loyalty or affection. It was first used in English in the 17th century, often referring to subjects or citizens who had become dissatisfied with authority or governance.  
 
 > poofy: It can also carry informal or slang meanings, depending on context. However, its primary meaning relates to something appearing soft, full, or inflated in shape.  
