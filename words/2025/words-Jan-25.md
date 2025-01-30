@@ -7,8 +7,8 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-poofy??  
 
+bootleg, moonshine 
 abscess, pus, hemorrhage, obscene  
 
 The noise that trunks and ambulances made in the street rankles me every day.  
