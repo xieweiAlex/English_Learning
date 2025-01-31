@@ -7,6 +7,26 @@
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
+[Questions](#question)|
+
+### Question 
+humbug
+
+
+
+**mace, malice**. 
+**mace**: a liquid that temporarily disables a person; prepared as an aerosol and sprayed in the face, it irritates the eyes and causes dizziness and immobilization
+
+The judge might **take it out on you**.  
+I didn't mean to **take it out on you**.  
+
+It is a **panacea** because it **mutualize** the losses over the global population at around 8% per year (see below). It is in fact a form of taxation, but people don't understand or see it, so governments can **get away with it**.   
+The key difference in 2009 was that Bernanke understood the cause of 1929 and instead of doing nothing, debased the currency, thus **stemming** the deflationary debt spiral.  
+I've wondered about these questions my entire adult life. And across that time, my ideas have **veered** around wildly.   
+In what follows we’ll wind through territory that might seem a little **esoteric**, and a long way from the kind of stuff I usually write about.
+The ability to take a slice of reality and project it onto a screen so that it seems, for us, to really be there — almost within reach — would have **bedazzled** and confounded our ancestors.
+But **it bears repeating** (yet again!): we’re still in the early stages of this shift.  
+
 He had managed to **extricate** himself from most of his official duties.  
 They managed to **extricate** the pilot from the tangled control panel.  
 
@@ -33,6 +53,10 @@ She is very **touchy** about her past. -
 
 **inane**, **asinine**, **idiotic**, **nonsensical**  
 **imbecile, moron, lunatic, retard, delusional**. 
+**dweeb**
+The engineer at my office is a real **dweeb**.
+
+
 
 **Pier, Jetty, wharf, marina, dock, ferry**.  
 **boardwalk, promenade**. vv  
