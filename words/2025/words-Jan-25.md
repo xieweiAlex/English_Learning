@@ -5,12 +5,23 @@
 
 [Seinfeld](../../media/seinfeld.md)  
 
+[Questions](#question)|
+
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
-[Questions](#question)|
 
 ### Question 
 humbug
+indigent 
+indigenous
+
+
+--------------------  
+
+They're having absolute brain hemorrhage right now as they confront the possibility of 
+
+
+The fusty old establishment refused to recognize the demand for popular music.
 
 
 
