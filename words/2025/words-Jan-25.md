@@ -5,37 +5,83 @@
 
 [Seinfeld](../../media/seinfeld.md)  
 
-[Questions](#question)|
+[Questions](#question)|  
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
 
-### Question 
-humbug
-indigent 
-indigenous
+### Question  
+indigent  
+indigenous  
+wampum??  
+delude, delusive.  
+?? delude, deceive, dishonest, fool  
+**bootleg, moonshine**??  
+**supine**??  
+tutelage??  
+enamored??  
+poofy??  
+fetid??  
+elide??  
+Layaway  
+**Jubilant**  
+
+Whisk the cream into the mixture to **emulsify** it. ??  
+**redoubt**??  
 
 
 --------------------  
+**sand dune**.  
 
-They're having absolute brain hemorrhage right now as they confront the possibility of 
+> Humbug is not commonly used in everyday conversation, but it is still recognized, especially in literary or historical contexts. It means deceptive talk or behavior or nonsense.  
+
+**chump, klutz, knucklehead, lubber, dweeb** vv  
+The engineer at my office is a real **dweeb**.  
+
+**flora and fauna**.  
+**intestinal flora, microbial flora**.  
+Some are beneficial, while others are harmful. Having the right type of bacteria in your gut helps you maintain a healthy **gut flora**.  
 
 
-The fusty old establishment refused to recognize the demand for popular music.
+Kash Patel is a **crackpot**. -- Is he also a **menace**?  
+The Michelin Guide is no longer the only **tastemaker** **in town**.  
 
+Of course, this will be attacked as a conflict of interest. But Biden took 10% for the big guy, and Pelosi traded her stocks, and Hillary monetized her speeches, and Podesta had his $300B climate **slush fund**, and Obama got his Netflix deal. All became millionaires via various deniable forms of **payola** for Democrats.  
+This is such a **crackerjack** essay. Clear, concise, and uncomplicated. I find it hard to argue with.  
+It’s even more **galling** because Coca-Cola don’t actually make the Coke themselves - that is outsourced to “bottling companies”. They literally just sell it. -  
+Crypto prices **seesaw** as inflation picture continues to evolve.  
+Elon Musk, the billionaire CEO of Tesla Inc. who has quickly become one of Trump’s **foremost** supporters and financial backers, are all also expected to attend.  
+TikTok is an **ingenious** propaganda platform. A mass audience — which skews very young — finds it addictively entertaining. -  
+**Notwithstanding** those pressures, Illumina retains a **stronghold** in clinical markets with applications in cancer diagnostics.  
+And the notion that mobile web apps are closing the gap with native apps is laughable. The **gulf** between them is **widening**, not **narrowing**.  
+It turns out, that brief **blurb** I wrote about Due 14 years ago was meaningful to the success of Due.  
 
+**carton box**  
+Whereas a "cardboard box" usually implies a thicker, more robust box made from **corrugated cardboard**.  
 
-**mace, malice**. 
-**mace**: a liquid that temporarily disables a person; prepared as an aerosol and sprayed in the face, it irritates the eyes and causes dizziness and immobilization
+I was in love with her—'was' being the **operative** word.  
+This law becomes **operative** immediately.  
+**operative treatment**  
+
+**Low profile**.  
+You're such a good speaker. Your suit is very flattering, you have lots of **gravitas**.  
+we're gonna **get to the bottom** of this.  
+Specifically, they are having an absolute **brain hemorrhage** right now as they confront the possibility of Tulsi at DNI, Kash at FBI and Bobby Kennedy at HHS.  
+
+Host Raoul Pal navigates a **myriad** of topics from wine preferences and **culinary tips** to macroeconomic trends and AI developments.  
+The **fusty** old establishment refused to recognize the demand for popular music. -  
+
+**mace, malice**.  
+**mace**: a liquid that temporarily disables a person; prepared as an aerosol and sprayed in the face, it irritates the eyes and causes dizziness and immobilization  
 
 The judge might **take it out on you**.  
 I didn't mean to **take it out on you**.  
 
-It is a **panacea** because it **mutualize** the losses over the global population at around 8% per year (see below). It is in fact a form of taxation, but people don't understand or see it, so governments can **get away with it**.   
+It is a **panacea** because it **mutualize** the losses over the global population at around 8% per year (see below). It is in fact a form of taxation, but people don't understand or see it, so governments can **get away with it**.  
 The key difference in 2009 was that Bernanke understood the cause of 1929 and instead of doing nothing, debased the currency, thus **stemming** the deflationary debt spiral.  
-I've wondered about these questions my entire adult life. And across that time, my ideas have **veered** around wildly.   
-In what follows we’ll wind through territory that might seem a little **esoteric**, and a long way from the kind of stuff I usually write about.
-The ability to take a slice of reality and project it onto a screen so that it seems, for us, to really be there — almost within reach — would have **bedazzled** and confounded our ancestors.
+I've wondered about these questions my entire adult life. And across that time, my ideas have **veered** around wildly.  
+In what follows we’ll wind through territory that might seem a little **esoteric**, and a long way from the kind of stuff I usually write about.  
+The ability to take a slice of reality and project it onto a screen so that it seems, for us, to really be there — almost within reach — would have **bedazzled** and confounded our ancestors.  
 But **it bears repeating** (yet again!): we’re still in the early stages of this shift.  
 
 He had managed to **extricate** himself from most of his official duties.  
@@ -43,14 +89,14 @@ They managed to **extricate** the pilot from the tangled control panel.
 
 **mouthpiece, megaphone, bullhorn**.  
 
-The global rate of debasement is around 8% per annum plus 3% inflation while bond yields are 4.5% (that is financial **repression** in a nutshell).
+The global rate of debasement is around 8% per annum plus 3% inflation while bond yields are 4.5% (that is financial **repression** in a nutshell).  
 The dollar is once again looking **overextended**. And Trump, ever **attuned** to the dollar’s impact, hasn't **shied away** from the issue.  
 
 Donald Trump and Joe Biden have both made **indefensible** decisions. -  
-What an arcane piece of aviation law says about Britain’s government. - The **parable** of the slots
+What an arcane piece of aviation law says about Britain’s government. - The **parable** of the slots  
 David Lynch **mesmerised** **filmgoers** with mystery, beauty and horror.  
 The **pomp** is mostly over. Donald Trump, once America’s 45th president, has now been sworn in as the 47th.  
-> pomp and circumstance 
+> pomp and circumstance  
 > grandeur, pomp, fanfare, splendor, trappings,  
 
 They enjoyed all the **trappings** of wealth.  
@@ -59,23 +105,18 @@ Why has Donald Trump **held fire on** tariffs?
 “Made in China 2025” has been a success, but at what cost?  
 How (un)popular is China’s Communist Party? -- As the economy **falters** and the social compact **frays**, Xi Jinping wants to know.  
 
-wampum?? 
-She is very **touchy** about her past. - 
+She is very **touchy** about her past. -  
 
 **inane**, **asinine**, **idiotic**, **nonsensical**  
-**imbecile, moron, lunatic, retard, delusional**. 
-**dweeb**
-The engineer at my office is a real **dweeb**.
-
+**imbecile, moron, lunatic, retard, delusional**.  
 
 
 **Pier, Jetty, wharf, marina, dock, ferry**.  
 **boardwalk, promenade**. vv  
 
-**bootleg, moonshine**?? 
 **abscess, pus, hemorrhage, obscene**  
 
-The noise that trunks and ambulances made in the street **rankles** me every day. -    
+The noise that trunks and ambulances made in the street **rankles** me every day. -  
 Lisa was **rankled** by his assertion.  
 The concessions did little to **placate** the students. -  
 
@@ -110,9 +151,6 @@ The social services **account for** a substantial part of public spending.
 You’ll never find a more **wretched** **hive of scum** and **villainy** than “SEO experts.  
 so I’m **amenable** to an argument from Google that this is a justifiable step in their never-ending war with SEO scammers seeking to game search results in their favor.  
 
-This law becomes **operative** immediately.  
-**operative treatment**  
-
 **scruffy, scuff, scrape, scratch**  
 Our parents are such **wankers**.  
 I only have an **itsy-bitsy** portion of food.  
@@ -142,7 +180,6 @@ The artist exploring the new is liable to **derision** and hostility.
 **blurt out**.  
 We had roasted **pheasant** for dinner.  
 His **scruffy** appearance does not reflect his character. -  
-**supine**??  
 **dolorous**.  
 The curtains were **fluttering** in the breeze.  
 Little sparrows **fluttered** among the branches.  
@@ -179,8 +216,6 @@ This is the biggest **clout** I'll ever have with them, they'll finally listen t
 **cumin beef**.  
 **braised eggplant**.  
 
-delude, delusive.  
-?? delude, deceive, dishonest, fool  
 
 This **tardiness** is a symptom of two deeper problems.  
 
@@ -199,14 +234,6 @@ the **extortionate** power of the unions.
 Hundreds of thousands of **jubilant** Americans cheered him on his return.  
 The city was **entombed** in volcanic lava.  
 If left **unchecked**, weeds will **flourish**.  
-
-tutelage??  
-enamored??  
-poofy??  
-fetid??  
-elide??  
-Layaway  
-**Jubilant**  
 
 I can **console** myself with the fact that I'm not alone.  
 She is **disconsolate** at the death of her cat. -  
@@ -231,7 +258,6 @@ He was handsome, **upright**, and **chivalrous**. -
 He is a **proverbially** dour **New England Puritan**.  
 The woman is **proverbially** stupid.  
 
-**Klutz**. vv  
 The Indians are the **aboriginal** Americans.  
 **Totemism** is the behaving criterion of Australian **Aboriginal** people, which impenetrate almost every aspect of their life.  
 The pictures were not meant to **titillate** audiences. -  
@@ -449,8 +475,6 @@ China’s firms are **taking flight**, worrying its rulers. - Policymakers at ho
 
 World **Exhibition or Exposition**.  
 **Aristotle** was valued because of his clear **exposition** of rational thought.  
-Whisk the cream into the mixture to **emulsify** it. ??  
-**redoubt**??  
 
 And I think it's just totally **gratuitous**. It's **mindless**. -  
 **bobsled**.  
@@ -526,8 +550,6 @@ George Carlin was a **right of passage** in the 70s.
 > Have you had dinner yet?  
 > did you eat dinner?  
 
-
-
 I gave some pretty **scathing** feedback on that training though.  
 
 So I was right. I took **a rash of** shit for two years, but... I was right.  
@@ -547,8 +569,6 @@ I'm **parched** — I'll die without a drink.
 The **silver coinage** was repeatedly debased with **copper** vellon.  
 
 How Ukraine’s new tech **foils** Russian aerial attacks. -  It is **pioneering** **acoustic** detection, with surprising success.  
-
-
 
 Avoid **plucking** which can lead to infections and ingrown hairs  
 
