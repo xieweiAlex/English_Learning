@@ -16,13 +16,10 @@ The announcer was fired for taking **payola**. -
 I can **aver** that he is telling the truth. -  
 String flossing is better for: Removing **sticky plaque** and **tartar** buildup. -  
 He had an **aptitude** for journalism. -  
-The beauty of a sunset is **ineffable**. -  
 Her face was **careworn** with anxiety. -  
 She had an **unerring** instinct for a good business deal. -  
 America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades. -  
-Fear is a major **impediment** to thinking like an **iconoclast** and stops the average person in his tracks. -  
 She gazed at the serene landscape, a picture of perfect **repose**. -  
-the warm **turquoise** sea. -  
 They live in a **palatial** mansion with sprawling gardens. -  
 The aim was to **bludgeon** speculators and impress creditors. -  
 Roses grew in **profusion** against the old wall. -  
@@ -35,10 +32,7 @@ words/2024/words-Dec-24.md
 But the Russian **detente** didn't last long. -  
 The numbers don't **jibe**. -  
 Frank ran errands for a **seedy** local villain. -  
-His fever was **allayed** by the medicine. -  
 The volume tends to **jive** fairly reasonably well with the pricing. -  
-At the start of the parade, it is fully **shrouded** by **fog machines**. -  
-It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley. -  
 
 ## words-Jul-24.md ##  
 words/2024/words-Jul-24.md  
@@ -50,5 +44,4 @@ words/2024/words-Jun-24.md
 His elegance is a living **reproach** to our **slovenly** habits. -  
 I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -  
 Her fellow teachers greeted her proposal with **scorn**. -  
-**Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
 What does all this **portend** for the near future?  -  

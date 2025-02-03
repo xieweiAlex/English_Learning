@@ -84,7 +84,7 @@ It will **emulsify** that mucus, you will breath so much better.
 **scoreboard**.  
 
 She walked with a **waddle**.  
-His fever was **allayed** by the medicine. -  
+His fever was **allayed** by the medicine.   
 
 He deplored religious **bigotry**.  
 Bigotry, intolerance and ignorance are still **rife**.  
@@ -137,7 +137,7 @@ The earthling’s guide to building a Moon base. - **One-armed robots** are bein
 The volume tends to **jive** fairly reasonably well with the pricing. -  
 
 But to further encapsulate the business a little more, I think it's a glass of Lemonade that at the start of the parade, it's going to be full of **theatrics**.  
-At the start of the parade, it is fully **shrouded** by **fog machines**. -  
+At the start of the parade, it is fully **shrouded** by **fog machines**.   
 I think that was **woven in** to everything that you described. You were just being far more subtle about it, and I had to **draw that out**.  
 
 If the cold-blooded killing of the UnitedHealthcare CEO wasn’t **macabre** enough, the **lionisation** on social media of the alleged murderer, Luigi Mangione, makes the tragedy even more disturbing.  
@@ -165,7 +165,7 @@ Brazil **courts** China as its Musk **feud** erupts again. - Xi Jinping, China�
 
 > There is **mounting** evidence on why short and sharp is best  
 
-It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley. -  
+It is one thing for Canada to attract **disaffected** immigrant tech workers from Silicon Valley.   
 
 **disaffected, alienated, arouse, resent**  
 Is it logic, nature or self-fulfilling **prophecy**  

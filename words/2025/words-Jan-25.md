@@ -7,7 +7,7 @@
 
 [Questions](#question)|  
 
-[Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
+[Week 5](#week-5) | [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 
 
 ### Question  
@@ -29,8 +29,35 @@ Layaway
 Whisk the cream into the mixture to **emulsify** it. ??  
 **redoubt**??  
 
-
 --------------------  
+
+He parried the unwelcome question very skilfully.  
+Budapest lies astride the river.   
+She settled herself astride and leaned forward, whispering things in its ear.  
+
+
+TVL became a critical metric in cryptocurrency because it gave investors a measuring stick to help define the risks and potential benefits of investing in a particular DeFi platform.  
+
+
+### Week 5
+
+
+**needless** to say I was wrong about that... 
+> the measurement of youth. 
+
+
+
+
+The audience cheered and clapped **in delight**.   
+> But, at least where I sat, no one felt obliged to get to their feet and offer a standing ovation.  
+
+Our Back Story columnist **grumbled** recently that the standing ovation has become far too routine—and that evidently struck a nerve with many readers.  
+
+Trump’s brutal tariffs far **outstrip** any he has imposed before.   
+
+Female Helicopter Pilot’s Entire Social Media **Scrubbed** Before Army Finally Released Her Name.  
+
+
 **sand dune**.  
 
 > Humbug is not commonly used in everyday conversation, but it is still recognized, especially in literary or historical contexts. It means deceptive talk or behavior or nonsense.  
@@ -329,7 +356,7 @@ What I'm testing with this question is your business **acumen**.
 The women **swoon over** him.  
 Such Numbers should make strategists **swoon**.  
 **dawn-to-dusk**.  
-The beauty of a sunset is **ineffable**. -  
+The beauty of a sunset is **ineffable**.   
 
 Some people have an **antipathy** to cats.  
 a deep **antipathy** to social pretension.  
@@ -372,7 +399,7 @@ The fishes **thrashed** around in the net.
 **ascetic, monastic**.  
 The monks lived a very **ascetic** life.  
 They live in the same **rarefied** world of global fame.  
-Fear is a major **impediment** to thinking like an **iconoclast** and stops the average person in his tracks. -  
+Fear is a major **impediment** to thinking like an **iconoclast** and stops the average person in his tracks.   
 **Lyricism**.  
 The leaves started to **shrivel up**.  
 **wizen, shrivel, wilt**.  
@@ -395,7 +422,7 @@ In fact, my mother wanted her children to see themselves much like the **gardeni
 **ovary**  
 She gazed at the serene landscape, a picture of perfect **repose**. -  
 
-the warm **turquoise** sea. -  
+the warm **turquoise** sea.   
 the sky shaded from **turquoise** to night blue.  
 
 **overbearing, supercilious, conceited, condescending**  

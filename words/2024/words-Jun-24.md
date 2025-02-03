@@ -191,7 +191,7 @@ A mixture of gratitude and shame **welled up** in Harry.
 
 
 **shellfish**, clam, clamshell, **scallop**.  
-**Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams. -  
+**Scallops** are a type of **bivalve** **mollusk**, meaning the interior muscle is surrounded by two shells similarly to oysters, **mussels**, and clams.   
 
 **vengeful**, **vengeance**, revenge, vendetta.  
 

@@ -1,4 +1,14 @@
 
+## Furniture 
+
+Book selves/case
+Dresser
+
+## Cloth Related 
+Plaids, flannel, stripped 
+
+Cardigan, patterned, denim, 
+
 ### Religion, Christianity
 
 ### Accident 
@@ -41,6 +51,7 @@
 ## Color  
 * Sapphire 
 * Cyan 
+* crimson 
 
 **emeralds**, and **sapphires**.   
 reddish-brown  
