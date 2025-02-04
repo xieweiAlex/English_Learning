@@ -32,18 +32,25 @@ islet, atelier
 
 --------------------  
 
-Aphid.  
-
-I was only a gnat in the affair.  
-Strain at a gnat and swallow a camel.  
+In fact, Cortical Labs’ most heralded project to date is DishBrain, a system that combines living brain cells with computing devices to create machines with biological intelligence.  
+In England the cuckoo is the herald of spring.  
 
 
-He parried the unwelcome question very skilfully.  
-Budapest lies astride the river.   
-She settled herself astride and leaned forward, whispering things in its ear.  
+
+Building a portfolio that looks diversified has become a cinch. Building one that is actually diversified, in the sense that its components offset each other’s risk, has become much harder.  
+What stings even more is that diversification across asset classes has become more difficult, too.  
 
 
-TVL became a critical metric in cryptocurrency because it gave investors a measuring stick to help define the risks and potential benefits of investing in a particular DeFi platform.  
+**Aphid**.  
+
+I was only a **gnat** in the affair.  
+**Strain at a gnat and swallow a camel**.  
+
+He **parried** the unwelcome question very skilfully.  
+**Budapest** **lies astride** the river.   
+She settled herself **astride** and leaned forward, whispering things in its ear.  
+
+TVL became a critical metric in cryptocurrency because it gave investors a **measuring stick** to help define the risks and potential benefits of investing in a particular DeFi platform.  
 
 
 ### Week 5
