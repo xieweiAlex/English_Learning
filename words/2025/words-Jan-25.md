@@ -28,8 +28,15 @@ Layaway
 
 Whisk the cream into the mixture to **emulsify** it. ??  
 **redoubt**??  
+islet, atelier 
 
 --------------------  
+
+Aphid.  
+
+I was only a gnat in the affair.  
+Strain at a gnat and swallow a camel.  
+
 
 He parried the unwelcome question very skilfully.  
 Budapest lies astride the river.   
