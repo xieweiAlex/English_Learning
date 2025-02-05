@@ -36,7 +36,7 @@ The volume tends to **jive** fairly reasonably well with the pricing. -
 
 ## words-Jul-24.md ##  
 words/2024/words-Jul-24.md  
-We **delude** ourselves that we are in control. -  
+We **delude** ourselves that we are in control.   
 a **put-upon** **drudge** who slaved for her employer. -  
 
 ## words-Jun-24.md ##  

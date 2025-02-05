@@ -30,7 +30,17 @@ Whisk the cream into the mixture to **emulsify** it. ??
 **redoubt**??  
 islet, atelier 
 
+gloat? 
+
 --------------------  
+
+Apparel.  
+spruce up.  
+
+indifference, nonchalance.   
+Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah.  
+
+
 
 In fact, Cortical Labs’ most heralded project to date is DishBrain, a system that combines living brain cells with computing devices to create machines with biological intelligence.  
 In England the cuckoo is the herald of spring.  
