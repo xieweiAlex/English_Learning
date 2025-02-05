@@ -34,21 +34,29 @@ gloat?
 
 --------------------  
 
-Apparel.  
-spruce up.  
+As we stand on the cusp of a new era of unprecedented growth.  
 
-indifference, nonchalance.   
+
+Those were very long and dismal winter evenings!
+The singer gave a dismal performance of some old songs.  
+
+
+Don't suck up to me, you suck-up.  
+Instead of a slug creature, I have a cute little scarf.  
+
+**Apparel**.  
+**spruce up**.  
+
+**indifference, nonchalance**.   
 Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah.  
 
 
 
-In fact, Cortical Labs’ most heralded project to date is DishBrain, a system that combines living brain cells with computing devices to create machines with biological intelligence.  
-In England the cuckoo is the herald of spring.  
+In fact, Cortical Labs’ most **heralded** project to date is DishBrain, a system that combines living brain cells with computing devices to create machines with biological intelligence.  
+In England the **cuckoo** is the **herald** of spring.  
 
-
-
-Building a portfolio that looks diversified has become a cinch. Building one that is actually diversified, in the sense that its components offset each other’s risk, has become much harder.  
-What stings even more is that diversification across asset classes has become more difficult, too.  
+Building a portfolio that looks diversified has become a **cinch**. Building one that is actually diversified, in the sense that its components offset each other’s risk, has become much harder. -  
+What **stings even more** is that diversification across asset classes has become more difficult, too.  
 
 
 **Aphid**.  
