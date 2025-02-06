@@ -18,7 +18,7 @@ String flossing is better for: Removing **sticky plaque** and **tartar** buildup
 He had an **aptitude** for journalism. -  
 Her face was **careworn** with anxiety. -  
 She had an **unerring** instinct for a good business deal. -  
-America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades. -  
+America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades.   
 She gazed at the serene landscape, a picture of perfect **repose**. -  
 They live in a **palatial** mansion with sprawling gardens. -  
 The aim was to **bludgeon** speculators and impress creditors. -  

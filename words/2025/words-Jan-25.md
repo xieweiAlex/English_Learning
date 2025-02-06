@@ -15,7 +15,7 @@ indigent
 indigenous  
 wampum??  
 delude, delusive.  
-?? delude, deceive, dishonest, fool  
+delude, deceive, dishonest, fool
 **bootleg, moonshine**??  
 **supine**??  
 tutelage??  
@@ -28,21 +28,21 @@ Layaway
 
 Whisk the cream into the mixture to **emulsify** it. ??  
 **redoubt**??  
-islet, atelier 
+islet
+atelier 
 
 gloat? 
 
 --------------------  
 
-As we stand on the cusp of a new era of unprecedented growth.  
+As we stand on the **cusp** of a new era of unprecedented growth.  
 
 
-Those were very long and dismal winter evenings!
-The singer gave a dismal performance of some old songs.  
+Those were very long and **dismal** winter evenings!
+The singer gave a **dismal** performance of some old songs.  
 
-
-Don't suck up to me, you suck-up.  
-Instead of a slug creature, I have a cute little scarf.  
+Don't **suck up** to me, you **suck-up**.  
+Instead of a **slug** creature, I have a cute little scarf.  
 
 **Apparel**.  
 **spruce up**.  
