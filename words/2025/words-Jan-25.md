@@ -35,8 +35,10 @@ gloat?
 
 --------------------  
 
-As we stand on the **cusp** of a new era of unprecedented growth.  
+He's a first-class dolt who insists on doing things his way.   
 
+They **deadhead** back to Denver on eastbound trains.  
+As we stand on the **cusp** of a new era of unprecedented growth.  
 
 Those were very long and **dismal** winter evenings!
 The singer gave a **dismal** performance of some old songs.  
