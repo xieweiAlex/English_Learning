@@ -33,9 +33,24 @@ atelier
 
 gloat? 
 
+slug?? different meanings
+mange 
+dominatrix . 
+perfidy  
+
 --------------------  
 
-He's a first-class dolt who insists on doing things his way.   
+**speakeasy, bootleg, moonshine** 
+**contraption, contraception**. 
+**runny nose**.  
+
+
+You can quote them, disagree with them, glorify or **vilify** them.  
+**acne vulgaris**.  
+The bandage gradually **unwound** and fell off.  
+She really could not **touch upon** such an **indelicate** subject.  
+
+He's a first-class **dolt** who insists on doing things his way. -   
 
 They **deadhead** back to Denver on eastbound trains.  
 As we stand on the **cusp** of a new era of unprecedented growth.  
