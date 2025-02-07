@@ -1,4 +1,7 @@
 
+**appease**
+> Allies will not appease Donald Trump for ever
+
 **hasten**
 
 ## Dec 

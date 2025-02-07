@@ -40,6 +40,13 @@ perfidy
 
 --------------------  
 
+Fighting the war in Ukraine on the **electromagnetic** spectrum. - Drone operators and **jammers** are in a high-tech **arms race**.  
+
+
+RFK junior and Tulsi Gabbard should **sail through** a **cowed** Senate.  
+As adoptions collapse, demand for international **surrogacy** is soaring.  
+It’s **spellbinding**! **Riveting**! A **triumphant** **tour de force**!  
+
 **speakeasy, bootleg, moonshine** 
 **contraption, contraception**. 
 **runny nose**.  
