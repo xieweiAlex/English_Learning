@@ -27,7 +27,6 @@ Layaway
 **Jubilant**  
 
 Whisk the cream into the mixture to **emulsify** it. ??  
-**redoubt**??  
 islet
 atelier 
 
@@ -38,7 +37,14 @@ mange
 dominatrix . 
 perfidy  
 
+esperanto
+
 --------------------  
+
+in a pinch.  
+
+
+> A "redoubt" refers to a temporary or supplementary fortification, usually an enclosed defensive emplacement outside a larger fort. It can also be used metaphorically to describe a stronghold or refuge.
 
 Fighting the war in Ukraine on the **electromagnetic** spectrum. - Drone operators and **jammers** are in a high-tech **arms race**.  
 
