@@ -85,7 +85,7 @@ His elegance is a living **reproach** to our **slovenly** habits. -
 **Mental anguish** and trauma.  
 How is your story **coming along**?  
 Haley's **coming along** really well, Mrs. Dunphy.  
-I thought you must be a **humbug** **all along**, from the **conceited** way you talked. -  
+I thought you must be a **humbug** **all along**, from the **conceited** way you talked.   
 
 **coquette**.  
 **intercede**.  
@@ -175,7 +175,7 @@ Marcus Aurelius said that what mattered was that we did the right thing, whether
 
 
 **harmonious**.  
-Her fellow teachers greeted her proposal with **scorn**. -  
+Her fellow teachers greeted her proposal with **scorn**.   
 He was **scornful** of such 'female' activities as cooking.  
 
 They learned to **rappel** down a cliff.  

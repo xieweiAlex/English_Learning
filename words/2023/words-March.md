@@ -266,7 +266,6 @@ Will the court **acquit** him of the crime?
 **Enthral**  
 **Petulant**  
 
-**pavilion**, gazebo, courtyard, atrium, gaxxx?  
 
 See **where I'm coming from**?  
 

@@ -15,7 +15,7 @@ indigent
 indigenous  
 wampum??  
 delude, delusive.  
-delude, deceive, dishonest, fool
+delude, deceive, dishonest, fool  
 **bootleg, moonshine**??  
 **supine**??  
 tutelage??  
@@ -27,24 +27,52 @@ Layaway
 **Jubilant**  
 
 Whisk the cream into the mixture to **emulsify** it. ??  
-islet
-atelier 
+islet  
+atelier  
 
-gloat? 
+gloat?  
 
-slug?? different meanings
-mange 
-dominatrix . 
+slug?? different meanings  
+mange  
+dominatrix .  
 perfidy  
 
-esperanto
+esperanto  
+
+coterie  
+
+**sputum, mucus, phlegm**. ??  
+
+### Ambiguous words  
+
+**reproach, reprehend, reproof, reprimand, rebuke**  
+**peevish, cranky, irritable, whiny, snarky, obnoxious**.  
+
+**turmeric, cardamon, ghee, saffron, dill, thyme**.  
 
 --------------------  
 
-in a pinch.  
+### Week 6
+
+Alan took the **reins** and the small horse started trotting.  
+
+We **vent our spleen on** drug **barons**.  
+
+Scholars have **weighed in on** the narrative too.  
+But it would **weigh on** consumer demand all the same.  
+
+She was very thin, almost to the point of **emaciation**.  
+They were caught up in a **whirling vortex** of emotion.  
+
+**pavilion**, gazebo, courtyard, atrium?  
+**patio, porch, awning, canopy**.  
+
+Health does not consist with **intemperance**.  
+
+**in a pinch**.  
 
 
-> A "redoubt" refers to a temporary or supplementary fortification, usually an enclosed defensive emplacement outside a larger fort. It can also be used metaphorically to describe a stronghold or refuge.
+> A "redoubt" refers to a temporary or supplementary fortification, usually an enclosed defensive emplacement outside a larger fort. It can also be used metaphorically to describe a stronghold or refuge.  
 
 Fighting the war in Ukraine on the **electromagnetic** spectrum. - Drone operators and **jammers** are in a high-tech **arms race**.  
 
@@ -53,8 +81,8 @@ RFK junior and Tulsi Gabbard should **sail through** a **cowed** Senate.
 As adoptions collapse, demand for international **surrogacy** is soaring.  
 It’s **spellbinding**! **Riveting**! A **triumphant** **tour de force**!  
 
-**speakeasy, bootleg, moonshine** 
-**contraption, contraception**. 
+**speakeasy, bootleg, moonshine**  
+**contraption, contraception**.  
 **runny nose**.  
 
 
@@ -63,12 +91,12 @@ You can quote them, disagree with them, glorify or **vilify** them.
 The bandage gradually **unwound** and fell off.  
 She really could not **touch upon** such an **indelicate** subject.  
 
-He's a first-class **dolt** who insists on doing things his way. -   
+He's a first-class **dolt** who insists on doing things his way. -  
 
 They **deadhead** back to Denver on eastbound trains.  
 As we stand on the **cusp** of a new era of unprecedented growth.  
 
-Those were very long and **dismal** winter evenings!
+Those were very long and **dismal** winter evenings!  
 The singer gave a **dismal** performance of some old songs.  
 
 Don't **suck up** to me, you **suck-up**.  
@@ -77,7 +105,7 @@ Instead of a **slug** creature, I have a cute little scarf.
 **Apparel**.  
 **spruce up**.  
 
-**indifference, nonchalance**.   
+**indifference, nonchalance**.  
 Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah.  
 
 
@@ -95,27 +123,27 @@ I was only a **gnat** in the affair.
 **Strain at a gnat and swallow a camel**.  
 
 He **parried** the unwelcome question very skilfully.  
-**Budapest** **lies astride** the river.   
+**Budapest** **lies astride** the river.  
 She settled herself **astride** and leaned forward, whispering things in its ear.  
 
 TVL became a critical metric in cryptocurrency because it gave investors a **measuring stick** to help define the risks and potential benefits of investing in a particular DeFi platform.  
 
 
-### Week 5
+### Week 5  
 
 
-**needless** to say I was wrong about that... 
-> the measurement of youth. 
+**needless** to say I was wrong about that...  
+> the measurement of youth.  
 
 
 
 
-The audience cheered and clapped **in delight**.   
+The audience cheered and clapped **in delight**.  
 > But, at least where I sat, no one felt obliged to get to their feet and offer a standing ovation.  
 
 Our Back Story columnist **grumbled** recently that the standing ovation has become far too routine—and that evidently struck a nerve with many readers.  
 
-Trump’s brutal tariffs far **outstrip** any he has imposed before.   
+Trump’s brutal tariffs far **outstrip** any he has imposed before.  
 
 Female Helicopter Pilot’s Entire Social Media **Scrubbed** Before Army Finally Released Her Name.  
 
@@ -294,7 +322,7 @@ Biden uses extraordinary executive **prerogative** as a shield against revenge b
 The empire had for years been falling into **decadence**.  
 **indigenous**.  
 **blood viscosity**, **oil viscosity**.  
-The old gentleman was as **spry** as ever. -  
+The old gentleman was as **spry** as ever.   
 **crate**.  
 
 ### Week 3  
@@ -332,12 +360,9 @@ He was **subservient** and **servile**.
 The press was accused of being **subservient** to the government. -  
 I know why you **hung up on** the toxic Exes.  
 
-**reproach, reprehend, reproof, reprimand, rebuke**  
-**peevish, cranky, irritable, whiny, snarky, obnoxious**.  
-
 
 **Donkey Doug**.  
-One main functionality of men is to produce **semens**, but we already have banks for that nowadays. -  
+One main functionality of men is to produce **semens**, but we already have banks for that nowadays.   
 
 **vermin, pest**  
 **Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**.  
@@ -365,7 +390,7 @@ The **placard** on the wall listed the safety instructions.
 
 **self-involved, self-absorbed, self-centered, egoist**.  
 **lob**.  
-The announcer was fired for taking **payola**. -  
+The announcer was fired for taking **payola**.   
 **fishing vessel, cargo vessel, container vessel**.  
 **capillary vessel**.  
 
@@ -418,7 +443,7 @@ What I'm testing with this question is your business **acumen**.
 The women **swoon over** him.  
 Such Numbers should make strategists **swoon**.  
 **dawn-to-dusk**.  
-The beauty of a sunset is **ineffable**.   
+The beauty of a sunset is **ineffable**.  
 
 Some people have an **antipathy** to cats.  
 a deep **antipathy** to social pretension.  
@@ -440,7 +465,7 @@ The police moved quickly to **dispel** the rumors.
 Not everyone is a fan of monk fruit’s **fruity** taste. Some people report an unpleasant **aftertaste**.  
 
 How Ukraine’s new tech **foils** Russian aerial attacks. -  It is **pioneering** **acoustic** detection, with surprising success.  
-America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades. -  
+America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades.   
 China is **itching** to mine the ocean floor.  
 **military junta**.  
 Myanmar’s rapidly changing civil war, in maps and charts. -  Ethnic **militias** and pro-democracy groups are scoring victories against the **governing junta**.  
@@ -461,7 +486,7 @@ The fishes **thrashed** around in the net.
 **ascetic, monastic**.  
 The monks lived a very **ascetic** life.  
 They live in the same **rarefied** world of global fame.  
-Fear is a major **impediment** to thinking like an **iconoclast** and stops the average person in his tracks.   
+Fear is a major **impediment** to thinking like an **iconoclast** and stops the average person in his tracks.  
 **Lyricism**.  
 The leaves started to **shrivel up**.  
 **wizen, shrivel, wilt**.  
@@ -484,7 +509,7 @@ In fact, my mother wanted her children to see themselves much like the **gardeni
 **ovary**  
 She gazed at the serene landscape, a picture of perfect **repose**. -  
 
-the warm **turquoise** sea.   
+the warm **turquoise** sea.  
 the sky shaded from **turquoise** to night blue.  
 
 **overbearing, supercilious, conceited, condescending**  
@@ -538,7 +563,7 @@ An **expectant** crowd gathered.
 **desiccative preservation**.  
 Violence was **anathema** to them.  
 The aim was to **bludgeon** speculators and impress creditors. -  
-Roses grew in **profusion** against the old wall. -  
+Roses grew in **profusion** against the old wall.   
 
 I did not have any **intimation** that he was going to resign.  
 There was no **intimation** from his doctor that his condition was serious.  
