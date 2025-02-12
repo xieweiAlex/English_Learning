@@ -42,7 +42,13 @@ coterie
 
 **sputum, mucus, phlegm**. ??  
 
+cavalcade.  
+plumage.  
+
 ### Ambiguous words  
+**chump, klutz, knucklehead, lubber, dweeb** vv  
+
+orate, spiel 
 
 **reproach, reprehend, reproof, reprimand, rebuke**  
 **peevish, cranky, irritable, whiny, snarky, obnoxious**.  
@@ -63,6 +69,18 @@ manure, dung, compost, mulch
 It's fended off bearish headlines, over and over again.   
 
 
+Chairman Musk and his young acolytes bring a Mao-like cultural revolution to Washington.  
+They can only furrow their brows at it.  
+John's face was furrowed with tears.  
+The deep furrows made it difficult to walk across the field.  
+
+
+We came to a picturesque cottage.  
+Anaerobic.  
+He was effusive in his praise for the general.  
+
+Most storage providers, including storage coin projects, charge monthly or yearly fees. Arweave turns the model on its head by charging one up-front fee for permanent storage.  
+To temper expectations, Arweave is still a high-risk project that's currently in the early stages.  
 
 You have no reason to be apprehensive of the future.  
 spittle, lickspittle.  
@@ -70,6 +88,7 @@ I can't even wrap my head around it.
 
 The court granted an injunction against the defendants.  
 green manure, animal manure.  
+
 
 ### Week 2  
 
@@ -159,8 +178,7 @@ Female Helicopter Pilot’s Entire Social Media **Scrubbed** Before Army Finally
 
 > Humbug is not commonly used in everyday conversation, but it is still recognized, especially in literary or historical contexts. It means deceptive talk or behavior or nonsense.  
 
-**chump, klutz, knucklehead, lubber, dweeb** vv  
-The engineer at my office is a real **dweeb**.  
+The engineer at my office is a real **dweeb**. -  
 
 **flora and fauna**.  
 **intestinal flora, microbial flora**.  
