@@ -60,6 +60,10 @@ manure, dung, compost, mulch
 
 --------------------  
 
+It's fended off bearish headlines, over and over again.   
+
+
+
 You have no reason to be apprehensive of the future.  
 spittle, lickspittle.  
 I can't even wrap my head around it.  
