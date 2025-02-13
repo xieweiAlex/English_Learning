@@ -66,28 +66,26 @@ manure, dung, compost, mulch
 
 --------------------  
 
-It's fended off bearish headlines, over and over again.   
+It's **fended off** bearish headlines, over and over again.   
 
+Chairman Musk and his young **acolytes** bring a Mao-like cultural revolution to Washington. -  
+They can only **furrow** their brows at it.  
+John's face was **furrowed** with tears.  
+The deep **furrows** made it difficult to walk across the field.  
 
-Chairman Musk and his young acolytes bring a Mao-like cultural revolution to Washington.  
-They can only furrow their brows at it.  
-John's face was furrowed with tears.  
-The deep furrows made it difficult to walk across the field.  
+We came to a **picturesque** cottage.  
+**Anaerobic**.  
+He was **effusive** in his praise for the general.  
 
+Most storage providers, including storage coin projects, charge monthly or yearly fees. Arweave **turns the model on its head** by charging one **up-front** fee for permanent storage.  
+To **temper** expectations, Arweave is still a high-risk project that's currently in the early stages.  
 
-We came to a picturesque cottage.  
-Anaerobic.  
-He was effusive in his praise for the general.  
+You have no reason to be **apprehensive** of the future.  
+**spittle, lickspittle**.  
+I can't even **wrap my head around it**.  
 
-Most storage providers, including storage coin projects, charge monthly or yearly fees. Arweave turns the model on its head by charging one up-front fee for permanent storage.  
-To temper expectations, Arweave is still a high-risk project that's currently in the early stages.  
-
-You have no reason to be apprehensive of the future.  
-spittle, lickspittle.  
-I can't even wrap my head around it.  
-
-The court granted an injunction against the defendants.  
-green manure, animal manure.  
+The court granted an **injunction** against the defendants. -  
+**green manure, animal manure**.  
 
 
 ### Week 2  
