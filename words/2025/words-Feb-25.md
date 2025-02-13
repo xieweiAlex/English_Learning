@@ -48,7 +48,7 @@ plumage.
 ### Ambiguous words  
 **chump, klutz, knucklehead, lubber, dweeb** vv  
 
-orate, spiel 
+orate, spiel  
 
 **reproach, reprehend, reproof, reprimand, rebuke**  
 **peevish, cranky, irritable, whiny, snarky, obnoxious**.  
@@ -66,8 +66,17 @@ manure, dung, compost, mulch
 
 --------------------  
 
-It's **fended off** bearish headlines, over and over again.   
+The lawful **rescission** of contract is an important institution in contract law.  
+Britain is a constitutional **monarchy**.  
 
+**flippant**: showing inappropriate **levity**. -  
+Some complain: Oh, that's **flippant**. You're a **flip flopper**.  
+**indecorous**.  
+A colony of seals lay **basking** in the sun.  
+
+You may be able to reduce their appearance with **topical creams** and other products and procedures.  
+
+It's **fended off** bearish headlines, over and over again.  
 Chairman Musk and his young **acolytes** bring a Mao-like cultural revolution to Washington. -  
 They can only **furrow** their brows at it.  
 John's face was **furrowed** with tears.  

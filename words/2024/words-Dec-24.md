@@ -53,7 +53,7 @@ If the Europeans did not reduce subsidies, a trade war would **ensue**.
 The team is trying to **ferret** out missing details.  
 she had the ability to **ferret out** the facts.  
 **contracept, contraception**.  
-Frank ran errands for a **seedy** local villain. -  
+Frank ran errands for a **seedy** local villain.   
 It's a **spot check**. There's no system for it.  
 He can be **intransigent** and **pig-headed** at times.   
 
