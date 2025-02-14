@@ -66,6 +66,8 @@ manure, dung, compost, mulch
 
 --------------------  
 
+I am sure foreigners must think our **levity** is **baffling**.  
+
 The lawful **rescission** of contract is an important institution in contract law.  
 Britain is a constitutional **monarchy**.  
 
