@@ -45,6 +45,8 @@ coterie
 cavalcade.  
 plumage.  
 
+irenic.  
+
 ### Ambiguous words  
 **chump, klutz, knucklehead, lubber, dweeb** vv  
 
@@ -64,8 +66,11 @@ manure, dung, compost, mulch
 **pavilion**, gazebo, courtyard, atrium?  
 **patio, porch, awning, canopy**.  
 
+idyllic, bucolic, serene 
+
 --------------------  
 
+Economics is an **inexact** science.  
 I am sure foreigners must think our **levity** is **baffling**.  
 
 The lawful **rescission** of contract is an important institution in contract law.  
