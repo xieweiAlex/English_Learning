@@ -51,24 +51,22 @@ irenic.
 
 ## Week 3
 
-There's too much crime and gratuitous violence on TV.  
-Britain can't afford this amount of gratuitous waste.  
-cameo role, cameo appearance.  
+There's too much crime and **gratuitous** violence on TV.  
+Britain can't afford this amount of **gratuitous** waste.  
+**cameo role, cameo appearance**.  
 
-
-
-It's probably a can of worms, probably worth opening, but it's sitll a can of worms.  
+It's probably **a can of worms**, probably worth opening, but it's still a can of worms.  
 **play chicken, throw steering wheel out of window**. 
 
 **Food adjuncts**.  
 **derogatory, commendatory**.  
 **bronze age, glacial epoch**.  
 
-The stockmarket rout may not be over.  
+The stockmarket **rout** may not be over.  
 
-meat-cleaver.  
-Elon Musk’s $97bn offer is a nuisance for Sam Altman’s OpenAI -   Tesla’s boss is willing to use whatever means he can to hobble his opponent.  
-aeroplane boneyard.  
+**meat-cleaver**.  
+Elon Musk’s $97bn offer is a **nuisance** for Sam Altman’s OpenAI -   Tesla’s boss is willing to use whatever means he can to **hobble** his opponent.  
+aeroplane **boneyard**.  
 
 
 You know, if we **pooled** our resources, we could be done in two shakes of a lamb's Derek.
