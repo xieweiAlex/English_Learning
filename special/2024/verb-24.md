@@ -3,6 +3,7 @@
 > Allies will not appease Donald Trump for ever
 
 **hasten**
+> America recreates a **warfighting** command in Japan. -  The threat from China **hastens** the biggest military transformation in the Pacific in decades.   
 
 ## Dec 
 

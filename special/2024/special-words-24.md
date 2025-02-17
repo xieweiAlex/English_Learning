@@ -1,4 +1,8 @@
 
+**momentary**
+> We have me, who had a **momentary** setback, but I'm feeling great now.  
+
+## Jan
 
 **attuned**
 > The dollar is once again looking **overextended**. And Trump, ever **attuned** to the dollar’s impact, hasn't **shied away** from the issue.  
