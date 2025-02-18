@@ -49,7 +49,24 @@ plumage.
 
 irenic.  
 
+--------------------------
+square footage.  
+The police replayed footage of the accident over and over again.  
+His choice of subject matter has been regarded as lowbrow.  
+deviant behavior.  
+Explore the most popular works of art on sites such as Deviant art.  
+stratospheric ozone.  
+vindictive.  
+The writer feigns many a myth.  
+feign death.  
+Charles is a dyed-in-the-wool Republican.  
+
+
+
 ## Week 3
+
+**Soapy**: unpleasantly and excessively **suave** or **ingratiating** in manner or speech. 
+**soapy compliments**.
 
 There's too much crime and **gratuitous** violence on TV.  
 Britain can't afford this amount of **gratuitous** waste.  
@@ -63,11 +80,9 @@ It's probably **a can of worms**, probably worth opening, but it's still a can o
 **bronze age, glacial epoch**.  
 
 The stockmarket **rout** may not be over.  
-
 **meat-cleaver**.  
 Elon Musk’s $97bn offer is a **nuisance** for Sam Altman’s OpenAI -   Tesla’s boss is willing to use whatever means he can to **hobble** his opponent.  
 aeroplane **boneyard**.  
-
 
 You know, if we **pooled** our resources, we could be done in two shakes of a lamb's Derek.
 I can **summon** philosophy books like **Thor's hammer**.  

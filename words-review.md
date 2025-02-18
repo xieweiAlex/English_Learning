@@ -50,7 +50,7 @@ The volume tends to **jive** fairly reasonably well with the pricing. -
 
 ## words-Nov-24.md ##  
 words/2024/words-Nov-24.md  
-And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is. -  
+And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is.  
 
 ## words-Jun-24.md ##  
 words/2024/words-Jun-24.md  

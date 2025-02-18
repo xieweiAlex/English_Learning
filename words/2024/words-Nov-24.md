@@ -14,7 +14,7 @@ But imagine that, with Western backing, Ukraine used the **lull** to rebuild its
 Inside China’s **disciplinary centres** for **“deviant” youth**.  
 What happens when young Chinese challenge the **social conservatism** of their parents?  
 
-And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is. -  
+And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is.  
 
 a **mordant** sense of humour.  
 However sad, however **mordant**, however terrible, we must know it.  
