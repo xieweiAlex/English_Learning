@@ -11,6 +11,9 @@
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md) 
 
 
+Snapper. 
+hobble 
+
 ### Question  
 indigent  
 indigenous  
@@ -48,8 +51,17 @@ cavalcade.
 plumage.  
 
 irenic.  
+sallow
 
 --------------------------
+
+if I wanted to rummage through random personal shit, I could have done that at PAYPAL. Hello???  
+
+
+Stop romanticizing your grubby little fling.  
+Downtown Manhattan was a grubby Mecca for the artist, the musician, and the filmmaker.  
+
+
 square footage.  
 The police replayed footage of the accident over and over again.  
 His choice of subject matter has been regarded as lowbrow.  
@@ -328,6 +340,10 @@ What process turns liquid cake into **poofy** **air-filled** solid cake?
 **precinct**  
 
 ## Words Gallery 
+
+**Montreal, Monterrey**  
+
+**colander, sieve, strainer, mesh** 
 
 **chump, klutz, knucklehead, lubber, dweeb** vv  
 **orate, spiel**  
