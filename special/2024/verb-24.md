@@ -1,4 +1,10 @@
 
+**hobble** 
+> Tesla’s boss is willing to use whatever means he can to **hobble** his opponent.  
+
+
+## Jan 
+
 **appease**
 > Allies will not appease Donald Trump for ever
 
