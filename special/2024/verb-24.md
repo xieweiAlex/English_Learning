@@ -1,4 +1,8 @@
 
+**sidetrack**.  
+> Don't let changing jobs **sidetrack** your retirement  
+
+
 **hobble** 
 > Tesla’s boss is willing to use whatever means he can to **hobble** his opponent.  
 

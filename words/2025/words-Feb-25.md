@@ -10,12 +10,10 @@
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md) 
 
-
-Snapper. 
-hobble. 
-sidetrack.  
-
 ### Question  
+
+palter
+
 indigent  
 indigenous  
 wampum??  
@@ -25,7 +23,6 @@ delude, deceive, dishonest, fool
 **supine**??  
 tutelage??  
 enamored??  
-poofy??  
 fetid??  
 elide??  
 Layaway  
@@ -57,6 +54,16 @@ sallow
 **volition**.  
 
 --------------------------
+
+Pursuit of happiness is unalienable right for everyone.  
+We are endowed by our Creator with certain unalienable rights.  
+
+
+This flapper, Fort Knox.  
+
+
+The man was brutish and **coarse**.  
+improper comment/handling.  
 
 The office is a **pigsty**.  
 **jumble sale**.  
@@ -352,11 +359,21 @@ What process turns liquid cake into **poofy** **air-filled** solid cake?
 
 ## Words Gallery 
 
+
+
+**diameter, diametrical, antithesis, antithetical, antipode** 
+
+**skinflint, tightwad, miser**
+
+**aloof, indifferent, disinterested, oblivious, callous, heartless**   
+**crass, coarse, vulgar, low brow**.  
+
 **Montreal, Monterrey**  
 
 **colander, sieve, strainer, mesh** 
 
 **chump, klutz, knucklehead, lubber, dweeb** vv  
+**jackass**
 **orate, spiel**  
 
 **reproach, reprehend, reproof, reprimand, rebuke**  
