@@ -12,7 +12,8 @@
 
 
 Snapper. 
-hobble 
+hobble. 
+sidetrack.  
 
 ### Question  
 indigent  
@@ -53,26 +54,36 @@ plumage.
 irenic.  
 sallow
 
+**volition**.  
+
 --------------------------
 
-if I wanted to rummage through random personal shit, I could have done that at PAYPAL. Hello???  
+The office is a **pigsty**.  
+**jumble sale**.  
+The essay was a meaningless **jumble of ideas**.  
+**stop short of**.  
+Her expression **bespoke** sobriety and saneness of soul.
+Today’s events **bespeak** future tragedy.  
+**affirmative vs negatory** 
+a **gossamer** justification  
+**Gossamer** is floating in calm air.  
+
+if I wanted to **rummage** through random personal shit, I could have done that at PAYPAL. Hello??? -  
+
+Stop romanticizing your **grubby** little fling. -  
+Downtown Manhattan was a **grubby** **Mecca** for the artist, the musician, and the filmmaker.  
 
 
-Stop romanticizing your grubby little fling.  
-Downtown Manhattan was a grubby Mecca for the artist, the musician, and the filmmaker.  
-
-
-square footage.  
-The police replayed footage of the accident over and over again.  
-His choice of subject matter has been regarded as lowbrow.  
-deviant behavior.  
-Explore the most popular works of art on sites such as Deviant art.  
-stratospheric ozone.  
-vindictive.  
-The writer feigns many a myth.  
-feign death.  
-Charles is a dyed-in-the-wool Republican.  
-
+**square footage**.  
+The police replayed **footage** of the accident over and over again.  
+His choice of **subject matter** has been regarded as **lowbrow**. -  
+**deviant** behavior.  
+Explore the most popular works of art on sites such as **Deviant art**.  
+**stratospheric ozone**.  
+**vindictive**.  
+The writer **feigns** many a myth.  
+**feign death**.  
+Charles is a **dyed-in-the-wool** Republican.  
 
 
 ## Week 3
