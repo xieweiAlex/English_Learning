@@ -61,6 +61,8 @@ sallow
 
 --------------------------
 
+A busker is someone who performs music or an act on the street.   
+
 Pursuit of happiness is unalienable right for everyone.  
 We are endowed by our Creator with certain unalienable rights.  
 
