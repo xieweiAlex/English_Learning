@@ -10,6 +10,12 @@
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md) 
 
+augments.  
+> He augments his income by teaching in the evening.
+
+bog down, bog off.  
+somatic, semantics 
+
 ### Question  
 
 palter
@@ -372,8 +378,8 @@ What process turns liquid cake into **poofy** **air-filled** solid cake?
 
 **colander, sieve, strainer, mesh** 
 
-**chump, klutz, knucklehead, lubber, dweeb** vv  
-**jackass**
+**chump, klutz, knucklehead, lubber**   
+**jackass**, **dolt**, **dweeb**
 **orate, spiel**  
 
 **reproach, reprehend, reproof, reprimand, rebuke**  
