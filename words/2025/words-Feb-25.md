@@ -19,6 +19,7 @@ somatic, semantics
 ### Question  
 
 palter
+hapless 
 
 indigent  
 indigenous  
@@ -61,17 +62,23 @@ sallow
 
 --------------------------
 
-A busker is someone who performs music or an act on the street.   
+rhinitis.  
+berate, excoriate.  
+He proceeded to excoriate me in front of the nurses.  
+calumny.  
+The skin graft failed to take.  
+Her burns were treated with skin grafts.  
+Apples are easily grafted.  
 
-Pursuit of happiness is unalienable right for everyone.  
-We are endowed by our Creator with certain unalienable rights.  
 
+A **busker** is someone who performs music or an act on the street. -     
 
-This flapper, Fort Knox.  
+Pursuit of happiness is **unalienable right** for everyone.  
+We are **endowed** by our Creator with certain **unalienable rights**.  
 
-
+**This flapper, Fort Knox**.  
 The man was brutish and **coarse**.  
-improper comment/handling.  
+**improper** comment/handling.  
 
 The office is a **pigsty**.  
 **jumble sale**.  

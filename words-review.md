@@ -21,7 +21,7 @@ The concessions did little to **placate** the students. -
 words/2025/words-Jan-25.md  
 A technological **tour de force**. -  
 His **scruffy** appearance does not reflect his character. -  
-She felt like an **interloper** in her own family. -  
+She felt like an **interloper** in her own family.   
 This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
 She is **disconsolate** at the death of her cat. -  
 **Recumbent** bicycle equipped with very comfortable office chair. -  
