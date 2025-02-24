@@ -1,27 +1,21 @@
 ## words-Feb-25.md ##  
 words/2025/words-Feb-25.md  
-While exact cases are often **shrouded** in secrecy, these tech giants receive hundreds, sometimes thousands, of NSLs a year. -  
 Rauxa is reminiscent of our words "**raucous**" and "**ruckus**". -  
 **flippant**: showing inappropriate **levity**. -  
 Chairman Musk and his young **acolytes** bring a Mao-like cultural revolution to Washington. -  
 The court granted an **injunction** against the defendants. -  
 He's a first-class **dolt** who insists on doing things his way. -  
 Those were very long and **dismal** winter evenings! -  
-Building a portfolio that looks diversified has become a **cinch**. Building one that is actually diversified, in the sense that its components offset each other’s risk, has become much harder. -  
 The engineer at my office is a real **dweeb**. -  
-It’s even more **galling** because Coca-Cola don’t actually make the Coke themselves - that is outsourced to “bottling companies”. They literally just sell it. -  
 TikTok is an **ingenious** propaganda platform. A mass audience — which skews very young — finds it addictively entertaining. -  
 The **fusty** old establishment refused to recognize the demand for popular music. -  
-Donald Trump and Joe Biden have both made **indefensible** decisions. -  
 She is very **touchy** about her past. -  
 The noise that trunks and ambulances made in the street **rankles** me every day. -  
 The concessions did little to **placate** the students. -  
 
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
-A technological **tour de force**. -  
 His **scruffy** appearance does not reflect his character. -  
-She felt like an **interloper** in her own family.   
 This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
 She is **disconsolate** at the death of her cat. -  
 **Recumbent** bicycle equipped with very comfortable office chair. -  
@@ -48,11 +42,7 @@ But the Russian **detente** didn't last long. -
 The numbers don't **jibe**. -  
 The volume tends to **jive** fairly reasonably well with the pricing. -  
 
-## words-Nov-24.md ##  
-words/2024/words-Nov-24.md  
-And the more **parsimonious** you are, the more economically dense each byte that everyone has to retain on the ledger is.  
 
 ## words-Jun-24.md ##  
 words/2024/words-Jun-24.md  
-His elegance is a living **reproach** to our **slovenly** habits. -  
 What does all this **portend** for the near future?  -  

@@ -38,7 +38,6 @@ Regardless of where you work, be sure to also give yourself a specific time fram
 **omission**
 > Here’s how he once explained the omission... 
 
-
 ## Nov
 
 **salient** 

@@ -11,7 +11,7 @@
 
 ## Week 4  
 
-A technological **tour de force**. -  
+A technological **tour de force**.   
 
 Why global bond markets are **convulsing**.  
 Baby-bommers are **loaded**. Why are they so stingy?  

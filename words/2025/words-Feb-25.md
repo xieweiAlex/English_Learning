@@ -4,22 +4,19 @@
 [Seinfeld](../../media/seinfeld.md)  
 
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
-[Convo](#conversation) | [Interesting](#interesting) | 
+[Convo](#conversation) | [Interesting](#interesting) |  
 
-[Words Gallery](#words-gallery)
+[Words Gallery](#words-gallery)  
 
-[Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md) 
+[Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
-augments.  
-> He augments his income by teaching in the evening.
-
-bog down, bog off.  
-somatic, semantics 
 
 ### Question  
 
-palter
-hapless 
+truant  
+
+palter  
+hapless  
 
 indigent  
 indigenous  
@@ -56,22 +53,64 @@ cavalcade.
 plumage.  
 
 irenic.  
-sallow
+sallow  
 
 **volition**.  
+**calumny**.  
 
---------------------------
+-------------------------  
 
-rhinitis.  
-berate, excoriate.  
-He proceeded to excoriate me in front of the nurses.  
-calumny.  
-The skin graft failed to take.  
-Her burns were treated with skin grafts.  
-Apples are easily grafted.  
+He has been on death row for 11 years.  
 
 
-A **busker** is someone who performs music or an act on the street. -     
+Countering China’s diplomatic coup. -  China has turned much of the global south against Taiwan. That could be laying the ground for forced unification.  
+Xi’s rehabilitation of Jack Ma may be the most lucrative ever.  
+Instead of luxury condos, Gaza faces a resumption of war.  
+
+
+curmudgeon, snapper, grummpy  
+
+And I hope could spend commonness and treacly life with you.  
+I sat quietly, musing on the events of the day.  
+
+muse, ruminate, reflect, 
+
+The country is free to adopt policies to bolster its economy.  
+Pillars bolster the roof.  
+He bolstered his plea with new evidence.  
+
+bile, gall, gallbladder, spleen, pancreas, renal.  
+pancreatic, pancreatic, hepatic, pulmonary, cardiac, 
+
+## Week 4
+
+Retinol is often **touted** as a miracle skin care ingredient. But alongside the good stories come plenty of bad ones.  
+Retinol has multiple uses. It can be used to combat conditions like acne and can target areas of **pigmentation**.  
+As you age, “your skin cell **turnover** and collagen production slows,” explains Christopher Panzica, a licensed aesthetician from Brentwood, Tennessee.  
+
+If the majority were based on one IP address one vote, it could be **subverted** by anyone able to allocate many IPs. -  
+
+She uttered a cry of **despair**.  
+He **deserted** from his **regiment**.  
+In a modern army, **cavalry regiments** use armored vehicles and ride horses only on special public occasions.  
+A few jokes add **leaven** to a boring speech.  
+This is an English muffin and it is a small round, slightly **leavened** bread.  
+
+They must **retrench** their expenditure for the purpose of making up the deficit. -  
+
+**augments**.  
+> He augments his income by teaching in the evening.  
+
+**rhinitis**.  
+**berate, excoriate**.  
+He proceeded to **excoriate** me in front of the nurses. -  
+**calumny**.  
+The **skin graft** failed to take.  
+Her burns were treated with **skin grafts**.  
+Apples are easily **grafted**.  
+
+
+A **busker** is someone who performs music or an act on the street.  
 
 Pursuit of happiness is **unalienable right** for everyone.  
 We are **endowed** by our Creator with certain **unalienable rights**.  
@@ -84,21 +123,21 @@ The office is a **pigsty**.
 **jumble sale**.  
 The essay was a meaningless **jumble of ideas**.  
 **stop short of**.  
-Her expression **bespoke** sobriety and saneness of soul.
+Her expression **bespoke** sobriety and saneness of soul.  
 Today’s events **bespeak** future tragedy.  
-**affirmative vs negatory** 
+**affirmative vs negatory**  
 a **gossamer** justification  
 **Gossamer** is floating in calm air.  
 
-if I wanted to **rummage** through random personal shit, I could have done that at PAYPAL. Hello??? -  
+if I wanted to **rummage** through random personal shit, I could have done that at PAYPAL. Hello???  
 
-Stop romanticizing your **grubby** little fling. -  
+Stop romanticizing your **grubby** little fling.  
 Downtown Manhattan was a **grubby** **Mecca** for the artist, the musician, and the filmmaker.  
 
 
 **square footage**.  
 The police replayed **footage** of the accident over and over again.  
-His choice of **subject matter** has been regarded as **lowbrow**. -  
+His choice of **subject matter** has been regarded as **lowbrow**.  
 **deviant** behavior.  
 Explore the most popular works of art on sites such as **Deviant art**.  
 **stratospheric ozone**.  
@@ -108,17 +147,17 @@ The writer **feigns** many a myth.
 Charles is a **dyed-in-the-wool** Republican.  
 
 
-## Week 3
+## Week 3  
 
-**Soapy**: unpleasantly and excessively **suave** or **ingratiating** in manner or speech. 
-**soapy compliments**.
+**Soapy**: unpleasantly and excessively **suave** or **ingratiating** in manner or speech.  
+**soapy compliments**.  
 
 There's too much crime and **gratuitous** violence on TV.  
 Britain can't afford this amount of **gratuitous** waste.  
 **cameo role, cameo appearance**.  
 
 It's probably **a can of worms**, probably worth opening, but it's still a can of worms.  
-**play chicken, throw steering wheel out of window**. 
+**play chicken, throw steering wheel out of window**.  
 
 **Food adjuncts**.  
 **derogatory, commendatory**.  
@@ -129,43 +168,43 @@ The stockmarket **rout** may not be over.
 Elon Musk’s $97bn offer is a **nuisance** for Sam Altman’s OpenAI -   Tesla’s boss is willing to use whatever means he can to **hobble** his opponent.  
 aeroplane **boneyard**.  
 
-You know, if we **pooled** our resources, we could be done in two shakes of a lamb's Derek.
+You know, if we **pooled** our resources, we could be done in two shakes of a lamb's Derek.  
 I can **summon** philosophy books like **Thor's hammer**.  
 I know this seems **bleak** and it feels like we're all **doomed** and therefore humanity is doomed.  
 The point is, I believe that we're **destined** to succeed.  
 We have me, who had a **momentary** setback, but I'm feeling great now.  
 **dead weight**.  
-My dentist was a black woman. - I just think people need to **loosen up**.
+My dentist was a black woman. - I just think people need to **loosen up**.  
 What if one of our new humans sees you and starts asking questions about the weirdo in the **tux**?  
 Try to gauge their reactions, you know? - The subtlest **glances**, the tiniest **flinches**.  
 See you later, **figments** of my imagination!  
 Well... we're **off to a fantastic start**.  
 
-Before you leave, I want to call a **truce**.
+Before you leave, I want to call a **truce**.  
 Feel like you're trying to **get under my skin**, but it's okay.  
 I've decided to **rise above** it.  
 Are you still **muttering**?  
 Nice to meet you too, cute guy generated by my rapidly **decaying** **temporal lobe**.  
 We ought to be able to figure her out if we can just **liven her up** a bit.  
 
-**glucose spike** 
+**glucose spike**  
 
 Big Tech companies, like Google(new window), Meta(new window), Apple(new window), and Microsoft(new window), have been **compelled** to hand over user data in response to NSLs.  
-While exact cases are often **shrouded** in **secrecy**, these tech giants receive hundreds, sometimes thousands, of NSLs a year. -  
+While exact cases are often **shrouded** in **secrecy**, these tech giants receive hundreds, sometimes thousands, of NSLs a year.  
 
 The giant Chinese **river sturgeon**.  
-Rauxa is reminiscent of our words "**raucous**" and "**ruckus**". -  
+Rauxa is reminiscent of our words "**raucous**" and "**ruckus**".  
 The rabbits **burrowed** into the hillside.  
 The turtle hibernates in a shallow **burrow** for six months of the year.  
-Don't let him **mend** your bike. He's sure to **bungle** the job. -  
+Don't let him **mend** your bike. He's sure to **bungle** the job.  
 
 Economics is an **inexact** science.  
-I am sure foreigners must think our **levity** is **baffling**. -  
+I am sure foreigners must think our **levity** is **baffling**.  
 
 The lawful **rescission** of contract is an important institution in contract law.  
 Britain is a **constitutional monarchy**.  
 
-**flippant**: showing inappropriate **levity**. -  
+**flippant**: showing inappropriate **levity**.  
 Some complain: Oh, that's **flippant**. You're a **flip flopper**.  
 **indecorous**.  
 A colony of seals lay **basking** in the sun.  
@@ -173,7 +212,7 @@ A colony of seals lay **basking** in the sun.
 You may be able to reduce their appearance with **topical creams** and other products and procedures.  
 
 It's **fended off** bearish headlines, over and over again.  
-Chairman Musk and his young **acolytes** bring a Mao-like cultural revolution to Washington. -  
+Chairman Musk and his young **acolytes** bring a Mao-like cultural revolution to Washington.  
 They can only **furrow** their brows at it.  
 John's face was **furrowed** with tears.  
 The deep **furrows** made it difficult to walk across the field.  
@@ -189,7 +228,7 @@ You have no reason to be **apprehensive** of the future.
 **spittle, lickspittle**.  
 I can't even **wrap my head around it**.  
 
-The court granted an **injunction** against the defendants. -  
+The court granted an **injunction** against the defendants.  
 **green manure, animal manure**.  
 
 ### Week 2  
@@ -225,12 +264,12 @@ You can quote them, disagree with them, glorify or **vilify** them.
 The bandage gradually **unwound** and fell off.  
 She really could not **touch upon** such an **indelicate** subject.  
 
-He's a first-class **dolt** who insists on doing things his way. -  
+He's a first-class **dolt** who insists on doing things his way.  
 
 They **deadhead** back to Denver on eastbound trains.  
 As we stand on the **cusp** of a new era of unprecedented growth.  
 
-Those were very long and **dismal** winter evenings! -  
+Those were very long and **dismal** winter evenings!  
 The singer gave a **dismal** performance of some old songs.  
 
 Don't **suck up** to me, you **suck-up**.  
@@ -245,7 +284,7 @@ Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sa
 In fact, Cortical Labs’ most **heralded** project to date is DishBrain, a system that combines living brain cells with computing devices to create machines with biological intelligence.  
 In England the **cuckoo** is the **herald** of spring.  
 
-Building a portfolio that looks diversified has become a **cinch**. Building one that is actually diversified, in the sense that its components offset each other’s risk, has become much harder. -  
+Building a portfolio that looks diversified has become a **cinch**. Building one that is actually diversified, in the sense that its components offset each other’s risk, has become much harder.  
 What **stings even more** is that diversification across asset classes has become more difficult, too.  
 
 **Aphid**.  
@@ -280,7 +319,7 @@ Female Helicopter Pilot’s Entire Social Media **Scrubbed** Before Army Finally
 
 > Humbug is not commonly used in everyday conversation, but it is still recognized, especially in literary or historical contexts. It means deceptive talk or behavior or nonsense.  
 
-The engineer at my office is a real **dweeb**. -  
+The engineer at my office is a real **dweeb**.  
 
 **flora and fauna**.  
 **intestinal flora, microbial flora**.  
@@ -292,10 +331,10 @@ The Michelin Guide is no longer the only **tastemaker** **in town**.
 
 Of course, this will be attacked as a conflict of interest. But Biden took 10% for the big guy, and Pelosi traded her stocks, and Hillary monetized her speeches, and Podesta had his $300B climate **slush fund**, and Obama got his Netflix deal. All became millionaires via various deniable forms of **payola** for Democrats.  
 This is such a **crackerjack** essay. Clear, concise, and uncomplicated. I find it hard to argue with.  
-It’s even more **galling** because Coca-Cola don’t actually make the Coke themselves - that is outsourced to “bottling companies”. They literally just sell it. -  
+It’s even more **galling** because Coca-Cola don’t actually make the Coke themselves - that is outsourced to “bottling companies”. They literally just sell it.  
 Crypto prices **seesaw** as inflation picture continues to evolve.  
 Elon Musk, the billionaire CEO of Tesla Inc. who has quickly become one of Trump’s **foremost** supporters and financial backers, are all also expected to attend.  
-TikTok is an **ingenious** propaganda platform. A mass audience — which skews very young — finds it addictively entertaining. -  
+TikTok is an **ingenious** propaganda platform. A mass audience — which skews very young — finds it addictively entertaining.  
 **Notwithstanding** those pressures, Illumina retains a **stronghold** in clinical markets with applications in cancer diagnostics.  
 And the notion that mobile web apps are closing the gap with native apps is laughable. The **gulf** between them is **widening**, not **narrowing**.  
 It turns out, that brief **blurb** I wrote about Due 14 years ago was meaningful to the success of Due.  
@@ -313,7 +352,7 @@ we're gonna **get to the bottom** of this.
 Specifically, they are having an absolute **brain hemorrhage** right now as they confront the possibility of Tulsi at DNI, Kash at FBI and Bobby Kennedy at HHS.  
 
 Host Raoul Pal navigates a **myriad** of topics from wine preferences and **culinary tips** to macroeconomic trends and AI developments.  
-The **fusty** old establishment refused to recognize the demand for popular music. -  
+The **fusty** old establishment refused to recognize the demand for popular music.  
 
 **mace, malice**.  
 **mace**: a liquid that temporarily disables a person; prepared as an aerosol and sprayed in the face, it irritates the eyes and causes dizziness and immobilization  
@@ -336,7 +375,7 @@ They managed to **extricate** the pilot from the tangled control panel.
 The global rate of debasement is around 8% per annum plus 3% inflation while bond yields are 4.5% (that is financial **repression** in a nutshell).  
 The dollar is once again looking **overextended**. And Trump, ever **attuned** to the dollar’s impact, hasn't **shied away** from the issue.  
 
-Donald Trump and Joe Biden have both made **indefensible** decisions. -  
+Donald Trump and Joe Biden have both made **indefensible** decisions.  
 What an arcane piece of aviation law says about Britain’s government. - The **parable** of the slots  
 David Lynch **mesmerised** **filmgoers** with mystery, beauty and horror.  
 The **pomp** is mostly over. Donald Trump, once America’s 45th president, has now been sworn in as the 47th.  
@@ -349,7 +388,7 @@ Why has Donald Trump **held fire on** tariffs?
 “Made in China 2025” has been a success, but at what cost?  
 How (un)popular is China’s Communist Party? -- As the economy **falters** and the social compact **frays**, Xi Jinping wants to know.  
 
-She is very **touchy** about her past. -  
+She is very **touchy** about her past.  
 
 **inane**, **asinine**, **idiotic**, **nonsensical**  
 **imbecile, moron, lunatic, retard, delusional**.  
@@ -360,9 +399,9 @@ She is very **touchy** about her past. -
 
 **abscess, pus, hemorrhage, obscene**  
 
-The noise that trunks and ambulances made in the street **rankles** me every day. -  
+The noise that trunks and ambulances made in the street **rankles** me every day.  
 Lisa was **rankled** by his assertion.  
-The concessions did little to **placate** the students. -  
+The concessions did little to **placate** the students.  
 
 What process turns liquid cake into **poofy** **air-filled** solid cake?  
 > Thus, disaffected originally meant “alienated in feeling” or “not inclined toward,” particularly in the sense of losing loyalty or affection. It was first used in English in the 17th century, often referring to subjects or citizens who had become dissatisfied with authority or governance.  
@@ -372,23 +411,31 @@ What process turns liquid cake into **poofy** **air-filled** solid cake?
 **precept, commandment, principle, tenets, axiom, motto**  
 **precinct**  
 
-## Words Gallery 
+## Words Gallery  
 
+**Legume, lentil, beans**.  
 
+**bog down, bog off**.  
+**somatic, semantics**  
 
-**diameter, diametrical, antithesis, antithetical, antipode** 
+**squeal, shriek**  
 
-**skinflint, tightwad, miser**
+**portend, bode, signify, foresee, impending**.  
+**herald, harbinger, usher**.  
 
-**aloof, indifferent, disinterested, oblivious, callous, heartless**   
+**diameter, diametrical, antithesis, antithetical, antipode**  
+
+**skinflint, tightwad, miser**  
+
+**aloof, indifferent, disinterested, oblivious, callous, heartless**  
 **crass, coarse, vulgar, low brow**.  
 
 **Montreal, Monterrey**  
 
-**colander, sieve, strainer, mesh** 
+**colander, sieve, strainer, mesh**  
 
-**chump, klutz, knucklehead, lubber**   
-**jackass**, **dolt**, **dweeb**
+**chump, klutz, knucklehead, lubber**  
+**jackass**, **dolt**, **dweeb**  
 **orate, spiel**  
 
 **reproach, reprehend, reproof, reprimand, rebuke**  
@@ -422,10 +469,10 @@ I can't even **wrap my head around it**.
 
 Economics is an **inexact** science.  
 Britain is a **constitutional monarchy**.  
-Chairman Musk and his young **acolytes** bring a Mao-like cultural revolution to Washington.   
+Chairman Musk and his young **acolytes** bring a Mao-like cultural revolution to Washington.  
 Most storage providers, including storage coin projects, charge monthly or yearly fees. Arweave **turns the model on its head** by charging one **up-front** fee for permanent storage.  
 
-While exact cases are often **shrouded** in **secrecy**, these tech giants receive hundreds, sometimes thousands, of NSLs a year.   
+While exact cases are often **shrouded** in **secrecy**, these tech giants receive hundreds, sometimes thousands, of NSLs a year.  
 
 She was very thin, almost to the point of **emaciation**.  
 

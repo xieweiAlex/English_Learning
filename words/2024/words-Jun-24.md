@@ -80,7 +80,7 @@ He was **affable** at one moment, **choleric** the next.
 **cuddly**.  
 **sewer**, **sewerage**.  
 **Amalgam**.  
-His elegance is a living **reproach** to our **slovenly** habits. -  
+His elegance is a living **reproach** to our **slovenly** habits.   
 
 **Mental anguish** and trauma.  
 How is your story **coming along**?  
