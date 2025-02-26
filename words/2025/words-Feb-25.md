@@ -60,27 +60,40 @@ sallow
 
 -------------------------  
 
-He has been on death row for 11 years.  
+cardamom. 
+addle.  
+whipsaw, sawtooth.   
 
 
-Countering China’s diplomatic coup. -  China has turned much of the global south against Taiwan. That could be laying the ground for forced unification.  
-Xi’s rehabilitation of Jack Ma may be the most lucrative ever.  
-Instead of luxury condos, Gaza faces a resumption of war.  
+**medic, comic**.  
+**progeny, offspring** 
+German nationalism was the **offspring** of military ambition.  
+I tried **in vain** to dispel her **misgivings**.  
+I had some momentary **misgivings** that were quickly resolved.  
+
+**Masticate** the Ordeal Life is like the olive in every way, I have to savour its flavour everyday.   
+
+He has been on **death row** for 11 years.  
+
+Countering China’s **diplomatic coup**. -  China has turned much of the **global south** against Taiwan. That could be **laying the ground** for forced unification.  
+Xi’s **rehabilitation** of Jack Ma may be the most lucrative ever.  
+Instead of luxury condos, Gaza faces a **resumption** of war. -  
 
 
-curmudgeon, snapper, grummpy  
+**curmudgeon, snapper, grummpy**  
 
-And I hope could spend commonness and treacly life with you.  
-I sat quietly, musing on the events of the day.  
+And I hope could spend commonness and **treacly** life with you. -  
+I sat quietly, **musing** on the events of the day.  
 
-muse, ruminate, reflect, 
+**muse, ruminate, reflect** 
 
-The country is free to adopt policies to bolster its economy.  
-Pillars bolster the roof.  
-He bolstered his plea with new evidence.  
+The country is free to adopt policies to **bolster** its economy.  
+Pillars **bolster** the roof.  
+He **bolstered** his plea with new evidence.  
 
-bile, gall, gallbladder, spleen, pancreas, renal.  
-pancreatic, pancreatic, hepatic, pulmonary, cardiac, 
+**bile, gall, gallbladder, spleen, pancreas, renal**.  
+**pancreatic, pancreatic, hepatic, pulmonary, cardiac**  
+
 
 ## Week 4
 
@@ -444,7 +457,7 @@ What process turns liquid cake into **poofy** **air-filled** solid cake?
 
 **exult, extoll**  
 **Marlin, caplin, cod**  
-manure, dung, compost, mulch  
+**manure, dung, compost, mulch**  
 
 **pavilion**, gazebo, courtyard, atrium?  
 **patio, porch, awning, canopy**.  
