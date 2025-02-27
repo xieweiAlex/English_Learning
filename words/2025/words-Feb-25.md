@@ -10,6 +10,16 @@
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
+We ended up in an abandoned quarry.  
+depression may be a precipitant in many cases.  
+the immediate precipitants of the conflict were a succession of undisciplined actions.  
+mangy  
+Did you not pour me out like milk and curdle me like cheese?  
+She passed me a skein of wool.  
+skein, yarn, hank, bunch, 
+Some men are aroused when their partner says erotic words to them.
+
+
 
 ### Question  
 
@@ -63,6 +73,8 @@ addle.
 cavil
 
 -------------------------  
+
+unerring, impeccable, masterful, knack
 
 flash-point.  
 

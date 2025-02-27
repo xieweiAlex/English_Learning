@@ -33,7 +33,7 @@ She gazed at the serene landscape, a picture of perfect **repose**. -
 They live in a **palatial** mansion with sprawling gardens. -  
 The aim was to **bludgeon** speculators and impress creditors. -  
 I had a terrible opening hand, so I used my **mulligan** to **redraw**. -  
-And I think it's just totally **gratuitous**. It's **mindless**. -  
+And I think it's just totally **gratuitous**. It's **mindless**.   
 I was **distraught** and **let out** a **bellow** of tearful rage. -  
 
 ## words-Dec-24.md ##  
