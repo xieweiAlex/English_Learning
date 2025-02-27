@@ -19,6 +19,15 @@ She passed me a skein of wool.
 skein, yarn, hank, bunch, 
 Some men are aroused when their partner says erotic words to them.
 
+Their warheads are enough to obliterate the world several times over.  
+gluteus, glute.  
+pudgy xxx.  
+These exercises will help to keep you supple.  
+This mask leaves your complexion feeling soft and supple.
+**supple: as verb** - make pliant and flexible.  
+
+The craftsman burnished the brass plates until they glowed.  
+He spoke in a haughty tone.  
 
 
 ### Question  
