@@ -82,6 +82,18 @@ addle.
 cavil
 
 -------------------------  
+**muse, ruminate, reflect** 
+**stooge, acolyte, puppet, goons**   
+**curmudgeon, snapper, grummpy, old codger**  
+**bile, gall, gallbladder, spleen, pancreas, renal**.  
+**pancreatic, pancreatic, hepatic, pulmonary, cardiac**  
+
+Team Trump claims that its dealmaking will bring peace and that, after 80 years of **being taken for a ride**, America will turn its superpower status into profit.  
+Why so many children in America have ADHD. - Not for the reasons **espoused** by Robert F. Kennedy junior.  
+Donald Trump should not replace us with his stooges, warns a fired inspector-general.  
+
+
+Two entrepreneurs spot the same opportunity. One builds elaborate plans; the other tests crude prototypes. The planner is still planning when the tester sells their company.  
 
 unerring, impeccable, masterful, knack
 
@@ -119,19 +131,15 @@ Xi’s **rehabilitation** of Jack Ma may be the most lucrative ever.
 Instead of luxury condos, Gaza faces a **resumption** of war. -  
 
 
-**curmudgeon, snapper, grummpy**  
 
 And I hope could spend commonness and **treacly** life with you. -  
 I sat quietly, **musing** on the events of the day.  
 
-**muse, ruminate, reflect** 
 
 The country is free to adopt policies to **bolster** its economy.  
 Pillars **bolster** the roof.  
 He **bolstered** his plea with new evidence.  
 
-**bile, gall, gallbladder, spleen, pancreas, renal**.  
-**pancreatic, pancreatic, hepatic, pulmonary, cardiac**  
 
 
 ## Week 4
