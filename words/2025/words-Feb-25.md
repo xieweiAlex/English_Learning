@@ -10,25 +10,34 @@
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
-We ended up in an abandoned quarry.  
-depression may be a precipitant in many cases.  
-the immediate precipitants of the conflict were a succession of undisciplined actions.  
-mangy  
-Did you not pour me out like milk and curdle me like cheese?  
-She passed me a skein of wool.  
-skein, yarn, hank, bunch, 
-Some men are aroused when their partner says erotic words to them.
+> Root beer ferment
 
-Their warheads are enough to obliterate the world several times over.  
-gluteus, glute.  
-pudgy xxx.  
-These exercises will help to keep you supple.  
-This mask leaves your complexion feeling soft and supple.
+Pugnacious, combative, feisty
+revolt, rebellion, uprising, insurrection.  
+barefaced.  
+
+
+
+**objurgation** 
+
+We ended up in an abandoned **quarry**.  
+Depression may be a **precipitant** in many cases.  
+the immediate **precipitants** of the conflict were a succession of undisciplined actions.  
+**mangy**  
+Did you not pour me out like milk and **curdle** me like cheese?  
+She passed me **a skein of wool**.  
+**skein, yarn, hank, bunch** 
+Some men are aroused when their partner says **erotic** words to them.
+
+Their warheads are enough to **obliterate** the world several times over.  
+**gluteus, glute**.  
+**pudgy** xxx.  
+These exercises will help to keep you **supple**.  
+This mask leaves your complexion feeling **soft and supple**.
 **supple: as verb** - make pliant and flexible.  
 
-The craftsman burnished the brass plates until they glowed.  
-He spoke in a haughty tone.  
-
+The craftsman **burnished** the **brass plates** until they glowed.  
+He spoke in a **haughty** tone.  
 
 ### Question  
 
@@ -108,13 +117,15 @@ My eye **alighted** on an old book.
 
 **whipsaw, sawtooth**.   
 
-Consulting firms like McKinsey and Accenture ought to be feeling cheery.  
-Mining multinationals are learning to do business with juntas.  
+Consulting firms like McKinsey and Accenture **ought to be** feeling **cheery**.  
+Mining multinationals are learning to do business with **juntas**. -  
 
-unqualified: In older English usage, “qualified” often meant restricted in scope or extent. For example, “a qualified approval” meant an approval with some reservations or conditions.
-Elon Musk finally consummated his $44bn deal to buy the social media site Twitter.  
-I know I sound like a consummate optimist, but I'm really not.  
-Later, she asserted that the marriage, it was never consummated.  
+**unqualified**: In older English usage, “qualified” often meant restricted in scope or extent. For example, “a qualified approval” meant an approval with some reservations or conditions.
+Elon Musk finally **consummated** his $44bn deal to buy the social media site Twitter.  
+I know I sound like a **consummate** optimist, but I'm really not. -  
+Later, she asserted that the marriage, it was never **consummated**.  
+
+**assert, aver, allege**, **claim** 
 
 **medic, comic**.  
 **progeny, offspring** 
