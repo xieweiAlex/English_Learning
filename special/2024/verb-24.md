@@ -1,4 +1,13 @@
 
+
+**impale**, **transfix**
+**razorsharp**, design to **impale** and **next to impossible** to remove  
+
+**Reassure** 
+He **reassures** readers that his trademark **candor** will continue under future CEO Greg Abel and reflects on past mistakes and successes.  
+
+## Feb 
+
 **sidetrack**.  
 > Don't let changing jobs **sidetrack** your retirement  
 
