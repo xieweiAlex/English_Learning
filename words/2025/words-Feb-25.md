@@ -69,6 +69,19 @@ cavil
 
 -------------------------  
 
+His **cornball** jokes put me off.  
+**corny**
+I know it's a **cornball** thing.  
+**Palaver**?? 
+**untidy** **tenements** sprawling toward the river.  
+The faster you trade, the more you **fritter** away that advantage. -  
+His manual **dexterity** and fine spatial skills were wasted on routine tasks.
+**dowry** 
+**spindle motor**, **wheel spindle**.  
+
+She **works herself up** about the most trivial things.  
+**effable, affable**.  
+
 **doodad, bauble, brooch**.  
 North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African & Asian porcupine quills are more smooth like **bumblebee** quills.  
 Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓  
