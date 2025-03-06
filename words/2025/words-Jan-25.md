@@ -179,7 +179,7 @@ The water was **sloshing** around in the bucket.
 **vinyl**.  
 **cushy**.  
 In his job, patience is an **invaluable** asset.  
-I can **aver** that he is telling the truth. -  
+I can **aver** that he is telling the truth.   
 
 **matte finish**.  
 **headphone, earpiece, earbuds**  
@@ -217,7 +217,7 @@ I'm **parched** — I'll die without a drink.
 The **silver coinage** was repeatedly debased with **copper** vellon.  
 Her face was **careworn** with anxiety. -  
 **gaffe machine**.  
-She had an **unerring** instinct for a good business deal. -  
+She had an **unerring** instinct for a good business deal.   
 The police moved quickly to **dispel** the rumors.  
 **immaculate**.  
 **stricken**.  
@@ -352,7 +352,7 @@ China’s firms are **taking flight**, worrying its rulers. - Policymakers at ho
 World **Exhibition or Exposition**.  
 **Aristotle** was valued because of his clear **exposition** of rational thought.  
 
-And I think it's just totally **gratuitous**. It's **mindless**. -  
+And I think it's just totally **gratuitous**. It's **mindless**.   
 **bobsled**.  
 
 

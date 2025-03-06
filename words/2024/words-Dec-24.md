@@ -30,8 +30,8 @@ Three geese **waddled** across the road.
 The floor was **dappled** with pale moonlight.  
 **sumo wrestling**.  
 **shoptalk, lingo, jargon, trade talk**.  
-But the Russian **detente** didn't last long. -  
-The numbers don't **jibe**. -  
+But the Russian **detente** didn't last long.   
+The numbers don't **jibe**.   
 Your statement doesn't **jibe with** the facts.  
 **feckless, wimpy, lame, feeble.**  
 his voice sounded **feeble** and far away.  
@@ -134,7 +134,7 @@ People were so fearful that Mr Assad’s spies and **informers** were everywhere
 The West, while generally backing Kurds who dominate the east of Syria, is watching **warily**.  
 The earthling’s guide to building a Moon base. - **One-armed robots** are being trained in lunar construction.  
 
-The volume tends to **jive** fairly reasonably well with the pricing. -  
+The volume tends to **jive** fairly reasonably well with the pricing.   
 
 But to further encapsulate the business a little more, I think it's a glass of Lemonade that at the start of the parade, it's going to be full of **theatrics**.  
 At the start of the parade, it is fully **shrouded** by **fog machines**.   

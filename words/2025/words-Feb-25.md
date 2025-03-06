@@ -60,41 +60,42 @@ sallow
 
 
 addle.  
-cavil
+cavil  
 
-**calumny**
+**calumny**  
 **lambaste**  
 
+**venality**.  
 
 -------------------------  
 
-doodad, bauble, brooch. 
-North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African & Asian porcupine quills are more smooth like **bumblebee** quills. 
+**doodad, bauble, brooch**.  
+North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African & Asian porcupine quills are more smooth like **bumblebee** quills.  
 Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓  
 
 **razorsharp**, design to **impale** and **next to impossible** to remove  
-**tipple, spirit**  
-A **pestilence** overhangs the country.  
+**tipple, spirit, liquor**  
+A **pestilence** **overhangs** the country.  
 
-## Week 5
+## Week 5  
 
 This is no doubt going to be the most **crotchety**, old-man-yells-at-cloud video I've ever released.  
 I had this intuitively wrong for decades, I think due to a pervasive cultural **veneration** of intelligence, various entertainment/media, obsession with IQ etc. **Agency** is significantly more powerful and significantly more **scarce**.  
 He **reassures** readers that his trademark **candor** will continue under future CEO Greg Abel and reflects on past mistakes and successes.  
 
-**burnish, varnish, polish, gloss** 
-All over the world, open-air markets are being **supplanted** by supermarket shopping.  
-**sludge disposal, sludge treatment**
+**burnish, varnish, polish, gloss**  
+All over the world, **open-air markets** are being **supplanted** by supermarket shopping. -  
+**sludge disposal, sludge treatment**  
 The sun appeared through a **rift** in the clouds.  
 Hope it doesn't cause a **rift** between us.  
 We are making little **headway** with the negotiations.  
-**auspicious omen** 
+**auspicious omen**  
 
-**Pugnacious, combative, feisty**
+**Pugnacious, combative, feisty**  
 **revolt, rebellion, uprising, insurrection**.  
 **barefaced**.  
 
-**objurgation** 
+**objurgation**  
 
 We ended up in an abandoned **quarry**.  
 Depression may be a **precipitant** in many cases.  
@@ -102,37 +103,34 @@ the immediate **precipitants** of the conflict were a succession of undiscipline
 **mangy**  
 Did you not pour me out like milk and **curdle** me like cheese?  
 She passed me **a skein of wool**.  
-**skein, yarn, hank, bunch** 
-Some men are aroused when their partner says **erotic** words to them.
+**skein, yarn, hank, bunch**  
+Some men are aroused when their partner says **erotic** words to them.  
 
 Their warheads are enough to **obliterate** the world several times over.  
 **gluteus, glute**.  
 **pudgy** xxx.  
 These exercises will help to keep you **supple**.  
-This mask leaves your complexion feeling **soft and supple**.
+This mask leaves your complexion feeling **soft and supple**.  
 **supple: as verb** - make pliant and flexible.  
 
 The craftsman **burnished** the **brass plates** until they glowed.  
 He spoke in a **haughty** tone.  
 
-Thumping our chest and pretending that we can solve this problem with words rather than action.  
+**Thumping** on our chest and pretending that we can solve this problem with words rather than action.  
 
+He wanted to make his critics **eat crow**.  
+The altcoin **apocalypse** continues to **wreak havoc** on the average crypto-punter’s portfolio, and it seriously shows.  
 
-He wanted to make his critics eat crow.  
-The altcoin apocalypse continues to wreak havoc on the average crypto-punter’s portfolio, and it seriously shows.  
-
-
-This restaurant serves very mingy portions.  
-You're mingy to give me such a small piece of cake.  
-stricture, scripture.  
-venality.  
+This restaurant serves very **mingy** portions.  
+You're **mingy** to give me such a small piece of cake.  
+**stricture, scripture**.  
 
 
 J.D. Vance set a trap for the Ukrainian president, who declined to **flatter** Donald Trump.  
 Ukraine, Gaza and China will all test his **self-interested** approach to diplomacy.  
 
-**muse, ruminate, reflect** 
-**stooge, acolyte, puppet, goons**   
+**muse, ruminate, reflect**  
+**stooge, acolyte, puppet, goons**  
 **curmudgeon, snapper, grummpy, old codger**  
 **bile, gall, gallbladder, spleen, pancreas, renal**.  
 **pancreatic, pancreatic, hepatic, pulmonary, cardiac**  
@@ -143,36 +141,36 @@ Donald Trump should not replace us with his **stooges**, warns a fired inspector
 
 Two entrepreneurs spot the same opportunity. One builds elaborate plans; the other tests **crude prototypes**. The planner is still planning when the tester sells their company.  
 
-**unerring, infallible, impeccable, masterful, knack**
+**unerring, infallible, impeccable, masterful, knack**  
 
 **flash-point**.  
 
-**furl the sails**. 
-**furl the tents/umbrella**. 
+**furl the sails**.  
+**furl the tents/umbrella**.  
 
-The bird **alighted** on the branch. -
-He finally **alighted** on a solution. -
+The bird **alighted** on the branch. -  
+He finally **alighted** on a solution. -  
 My eye **alighted** on an old book.  
 
-**whipsaw, sawtooth**.   
+**whipsaw, sawtooth**.  
 
 Consulting firms like McKinsey and Accenture **ought to be** feeling **cheery**.  
 Mining multinationals are learning to do business with **juntas**. -  
 
-**unqualified**: In older English usage, “qualified” often meant restricted in scope or extent. For example, “a qualified approval” meant an approval with some reservations or conditions.
+**unqualified**: In older English usage, “qualified” often meant restricted in scope or extent. For example, “a qualified approval” meant an approval with some reservations or conditions.  
 Elon Musk finally **consummated** his $44bn deal to buy the social media site Twitter.  
 I know I sound like a **consummate** optimist, but I'm really not. -  
 Later, she asserted that the marriage, it was never **consummated**.  
 
-**assert, aver, allege**, **claim** 
+**assert, aver, allege**, **claim**  
 
 **medic, comic**.  
-**progeny, offspring** 
+**progeny, offspring**  
 German nationalism was the **offspring** of military ambition.  
 I tried **in vain** to dispel her **misgivings**.  
 I had some momentary **misgivings** that were quickly resolved.  
 
-**Masticate** the Ordeal Life is like the olive in every way, I have to savour its flavour everyday.   
+**Masticate** the Ordeal Life is like the olive in every way, I have to savour its flavour everyday.  
 
 He has been on **death row** for 11 years.  
 
@@ -192,7 +190,7 @@ He **bolstered** his plea with new evidence.
 
 
 
-## Week 4
+## Week 4  
 
 Retinol is often **touted** as a miracle skin care ingredient. But alongside the good stories come plenty of bad ones.  
 Retinol has multiple uses. It can be used to combat conditions like acne and can target areas of **pigmentation**.  
@@ -523,9 +521,9 @@ What process turns liquid cake into **poofy** **air-filled** solid cake?
 
 ## Words Gallery  
 
-**gruesome, gloom, grim, bleak, dismal** 
-**ghastly, dire, dreary, ominous**
-**low life, lowbrow, crass** 
+**gruesome, gloom, grim, bleak, dismal**  
+**ghastly, dire, dreary, ominous**  
+**low life, lowbrow, crass**  
 
 **Legume, lentil, beans**.  
 
