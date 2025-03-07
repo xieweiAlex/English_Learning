@@ -69,6 +69,29 @@ cavil
 
 -------------------------  
 
+portentous, portent 
+pretentious  
+Oil the griddle with butter, or spray it with non-stick cooking spray.  
+The acting was deplorable.  
+deplorable conditions.  
+He caught a whiff of her perfume.  
+alimentary tract, alimentary canal.  
+
+
+Jack is an ambidextrous hitter; he can bat right - handed or left - handed.  
+You need manual dexterity to be good at video games.   
+Police refused to divulge the identity of the suspect.  
+
+stricture.  
+**stricture, scripture**.  
+
+
+I picked up her wrist. It was limp and flaccid.  
+The wounded soldier tottered to his feet.  
+You'd better commiserate John on his recent misfortunes.  
+aloof, standoffish, indifferent.  
+chuffed.  
+
 His **cornball** jokes put me off.  
 **corny**
 I know it's a **cornball** thing.  
@@ -136,7 +159,6 @@ The altcoin **apocalypse** continues to **wreak havoc** on the average crypto-pu
 
 This restaurant serves very **mingy** portions.  
 You're **mingy** to give me such a small piece of cake.  
-**stricture, scripture**.  
 
 
 J.D. Vance set a trap for the Ukrainian president, who declined to **flatter** Donald Trump.  
