@@ -69,6 +69,9 @@ cavil
 
 -------------------------  
 
+crimson, scarlet, maroon, burgundy, violet, reddish, pale.  
+quagmire, mire, muddy, swamp 
+
 portentous, portent 
 pretentious  
 Oil the griddle with butter, or spray it with non-stick cooking spray.  
