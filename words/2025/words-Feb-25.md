@@ -70,9 +70,9 @@ cavil
 
 **venality**.  
 
-stricture. <br>
-**chuffed**.<br>
-**commiserate**<br>
+stricture. 
+**chuffed**.
+**commiserate**
 
 -------------------------  
 
