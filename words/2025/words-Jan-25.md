@@ -189,7 +189,7 @@ String flossing is better for: Removing **sticky plaque** and **tartar** buildup
 
 **Bludgeon, browbeat, coerce, compel**  
 
-He had an **aptitude** for journalism. -  
+He had an **aptitude** for journalism.   
 The assessment center helps determine different **aptitudes and interests**.  
 He lacked the judgment and **political acumen** for the post of chairman.  
 What I'm testing with this question is your business **acumen**.  
@@ -298,7 +298,7 @@ His debts were a **noose** around his neck.
 **urban sprawl**.  
 I tripped and went **sprawling**.  
 The city is a **sprawling** **behemoth** with no heart.  
-They live in a **palatial** mansion with sprawling gardens. -  
+They live in a **palatial** mansion with sprawling gardens.   
 
 Two players were **ejected** after a **tussle** on the field.  
 

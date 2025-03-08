@@ -67,42 +67,63 @@ cavil
 
 **venality**.  
 
+stricture.
+**chuffed**.
+**commiserate**
+
 -------------------------  
+```
+ **Stricture**
+  >   • The word is more formal and is mainly used in legal, medical, or academic contexts. You might see it in news articles or official reports, but it’s not something people say in casual conversations.
+  >   • Instead of “stricture,” people often use words like restriction, rule, or limitation in daily speech.
+  
+  **Chuffed**
+  >  • If you’re in the UK, you’ll hear this word quite often, especially in informal settings. Brits say things like “I’m chuffed to bits!” (meaning “I’m really happy!”).
+  >  • In the US, this word is rarely used. Americans would probably say “I’m thrilled”, “I’m so happy”, or “I’m proud” instead.
+  
+  **Commiserate** – Moderately common
+  >  • You’ll hear this word in slightly formal or polite conversations, especially when people want to express sympathy or shared disappointment.
+  >  • In casual speech, people might just say “I feel for you”, “That sucks”, or “I’m sorry to hear that” instead of “I commiserate with you.”
+```
 
-crimson, scarlet, maroon, burgundy, violet, reddish, pale.  
-quagmire, mire, muddy, swamp 
+**gypsum, mortar, limestone, plaster, drywall**  
+**granite, sedimentary, marble, masonry, quartz**  
 
-portentous, portent 
-pretentious  
-Oil the griddle with butter, or spray it with non-stick cooking spray.  
-The acting was deplorable.  
-deplorable conditions.  
-He caught a whiff of her perfume.  
-alimentary tract, alimentary canal.  
+**quartz, sapphire, opal, gemstone, emerald, jade**, **turquoise**  
 
+You shouldn't treat your stay as a luxury resort where the staff is at your **beck and call**, but as a startup society which we’re building together.  
 
-Jack is an ambidextrous hitter; he can bat right - handed or left - handed.  
-You need manual dexterity to be good at video games.   
-Police refused to divulge the identity of the suspect.  
+**crimson, scarlet, maroon, burgundy, violet, reddish, pale**.  
+**quagmire, mire, muddy, swamp**  
 
-stricture.  
+**portentous, portent**  
+**pretentious**  
+Oil the **griddle** with butter, or spray it with non-stick cooking spray.  
+The acting was **deplorable**. -  
+**deplorable conditions**.  
+He caught a **whiff** of her perfume.  
+**alimentary tract, alimentary canal**.  
+
+Jack is an **ambidextrous** hitter; he can bat right - handed or left - handed.  
+You need manual **dexterity** to be good at video games.  
+Police refused to **divulge** the identity of the suspect. -  
+
 **stricture, scripture**.  
 
+I picked up her wrist. It was **limp and flaccid**.  
+The wounded soldier **tottered** to his feet. -  
+You'd better **commiserate** John on his recent misfortunes.  
+**aloof, standoffish, indifferent**.  
 
-I picked up her wrist. It was limp and flaccid.  
-The wounded soldier tottered to his feet.  
-You'd better commiserate John on his recent misfortunes.  
-aloof, standoffish, indifferent.  
-chuffed.  
+**corny, cornball, formulaic**  
 
 His **cornball** jokes put me off.  
-**corny**
 I know it's a **cornball** thing.  
-**Palaver**?? 
+**Palaver**??  
 **untidy** **tenements** sprawling toward the river.  
 The faster you trade, the more you **fritter** away that advantage. -  
-His manual **dexterity** and fine spatial skills were wasted on routine tasks.
-**dowry** 
+His manual **dexterity** and fine spatial skills were wasted on routine tasks.  
+**dowry**  
 **spindle motor**, **wheel spindle**.  
 
 She **works herself up** about the most trivial things.  
