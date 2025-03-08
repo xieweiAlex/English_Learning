@@ -1,3 +1,6 @@
+---
+hard_wrap: true
+---
 
 [Word Review](../../words-review.md)  
 
@@ -67,12 +70,12 @@ cavil
 
 **venality**.  
 
-stricture.
-**chuffed**.
-**commiserate**
+stricture. <br>
+**chuffed**.<br>
+**commiserate**<br>
 
 -------------------------  
-```
+
  **Stricture**
   >   • The word is more formal and is mainly used in legal, medical, or academic contexts. You might see it in news articles or official reports, but it’s not something people say in casual conversations.
   >   • Instead of “stricture,” people often use words like restriction, rule, or limitation in daily speech.
@@ -84,7 +87,7 @@ stricture.
   **Commiserate** – Moderately common
   >  • You’ll hear this word in slightly formal or polite conversations, especially when people want to express sympathy or shared disappointment.
   >  • In casual speech, people might just say “I feel for you”, “That sucks”, or “I’m sorry to hear that” instead of “I commiserate with you.”
-```
+
 
 **gypsum, mortar, limestone, plaster, drywall**  
 **granite, sedimentary, marble, masonry, quartz**  
