@@ -1,9 +1,3 @@
----
-hard_wrap: true
----
-Line one
-Line two
-Line three
 
 [Word Review](../../words-review.md)  
 
@@ -74,22 +68,22 @@ cavil
 **venality**.  
 
 stricture. 
-**chuffed**.
-**commiserate**
+**chuffed**.  
+**commiserate**  
 
 -------------------------  
 
- **Stricture**
-  >   • The word is more formal and is mainly used in legal, medical, or academic contexts. You might see it in news articles or official reports, but it’s not something people say in casual conversations.
-  >   • Instead of “stricture,” people often use words like restriction, rule, or limitation in daily speech.
+ **Stricture**  
+  >   • The word is more formal and is mainly used in legal, medical, or academic contexts. You might see it in news articles or official reports, but it’s not something people say in casual conversations.  
+  >   • Instead of “stricture,” people often use words like restriction, rule, or limitation in daily speech.  
   
-  **Chuffed**
-  >  • If you’re in the UK, you’ll hear this word quite often, especially in informal settings. Brits say things like “I’m chuffed to bits!” (meaning “I’m really happy!”).
-  >  • In the US, this word is rarely used. Americans would probably say “I’m thrilled”, “I’m so happy”, or “I’m proud” instead.
+  **Chuffed**  
+  >  • If you’re in the UK, you’ll hear this word quite often, especially in informal settings. Brits say things like “I’m chuffed to bits!” (meaning “I’m really happy!”).  
+  >  • In the US, this word is rarely used. Americans would probably say “I’m thrilled”, “I’m so happy”, or “I’m proud” instead.  
   
-  **Commiserate** – Moderately common
-  >  • You’ll hear this word in slightly formal or polite conversations, especially when people want to express sympathy or shared disappointment.
-  >  • In casual speech, people might just say “I feel for you”, “That sucks”, or “I’m sorry to hear that” instead of “I commiserate with you.”
+  **Commiserate** – Moderately common  
+  >  • You’ll hear this word in slightly formal or polite conversations, especially when people want to express sympathy or shared disappointment.  
+  >  • In casual speech, people might just say “I feel for you”, “That sucks”, or “I’m sorry to hear that” instead of “I commiserate with you.”  
 
 
 **gypsum, mortar, limestone, plaster, drywall**  
