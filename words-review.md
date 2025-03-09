@@ -1,9 +1,12 @@
-## words-Feb-25.md ##  
-words/2025/words-Feb-25.md  
+## words-Mar-25.md ##  
+words/2025/words-Mar-25.md  
 The acting was **deplorable**. -  
 Police refused to **divulge** the identity of the suspect. -  
 The wounded soldier **tottered** to his feet. -  
 The faster you trade, the more you **fritter** away that advantage. -  
+
+## words-Feb-25.md ##  
+words/2025/words-Feb-25.md  
 All over the world, **open-air markets** are being **supplanted** by supermarket shopping. -  
 The bird **alighted** on the branch. -  
 He finally **alighted** on a solution. -  

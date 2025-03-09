@@ -11,132 +11,6 @@
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
 
-### Question  
-
-truant  
-
-palter  
-hapless  
-
-indigent  
-indigenous  
-wampum??  
-delude, delusive.  
-delude, deceive, dishonest, fool  
-**bootleg, moonshine**??  
-**supine**??  
-tutelage??  
-enamored??  
-fetid??  
-elide??  
-Layaway  
-**Jubilant**  
-
-Whisk the cream into the mixture to **emulsify** it. ??  
-islet  
-atelier  
-
-gloat?  
-
-slug?? different meanings  
-mange  
-dominatrix .  
-perfidy  
-
-esperanto  
-
-coterie  
-
-**sputum, mucus, phlegm**. ??  
-
-cavalcade.  
-plumage.  
-
-irenic.  
-sallow  
-
-**volition**.  
-**calumny**.  
-
-
-addle.  
-cavil  
-
-**calumny**  
-**lambaste**  
-
-**venality**.  
-
-stricture. 
-**chuffed**.  
-**commiserate**  
-
--------------------------  
-
- **Stricture**  
-  >   • The word is more formal and is mainly used in legal, medical, or academic contexts. You might see it in news articles or official reports, but it’s not something people say in casual conversations.  
-  >   • Instead of “stricture,” people often use words like restriction, rule, or limitation in daily speech.  
-  
-  **Chuffed**  
-  >  • If you’re in the UK, you’ll hear this word quite often, especially in informal settings. Brits say things like “I’m chuffed to bits!” (meaning “I’m really happy!”).  
-  >  • In the US, this word is rarely used. Americans would probably say “I’m thrilled”, “I’m so happy”, or “I’m proud” instead.  
-  
-  **Commiserate** – Moderately common  
-  >  • You’ll hear this word in slightly formal or polite conversations, especially when people want to express sympathy or shared disappointment.  
-  >  • In casual speech, people might just say “I feel for you”, “That sucks”, or “I’m sorry to hear that” instead of “I commiserate with you.”  
-
-
-**gypsum, mortar, limestone, plaster, drywall**  
-**granite, sedimentary, marble, masonry, quartz**  
-
-**quartz, sapphire, opal, gemstone, emerald, jade**, **turquoise**  
-
-You shouldn't treat your stay as a luxury resort where the staff is at your **beck and call**, but as a startup society which we’re building together.  
-
-**crimson, scarlet, maroon, burgundy, violet, reddish, pale**.  
-**quagmire, mire, muddy, swamp**  
-
-**portentous, portent**  
-**pretentious**  
-Oil the **griddle** with butter, or spray it with non-stick cooking spray.  
-The acting was **deplorable**. -  
-**deplorable conditions**.  
-He caught a **whiff** of her perfume.  
-**alimentary tract, alimentary canal**.  
-
-Jack is an **ambidextrous** hitter; he can bat right - handed or left - handed.  
-You need manual **dexterity** to be good at video games.  
-Police refused to **divulge** the identity of the suspect. -  
-
-**stricture, scripture**.  
-
-I picked up her wrist. It was **limp and flaccid**.  
-The wounded soldier **tottered** to his feet. -  
-You'd better **commiserate** John on his recent misfortunes.  
-**aloof, standoffish, indifferent**.  
-
-**corny, cornball, formulaic**  
-
-His **cornball** jokes put me off.  
-I know it's a **cornball** thing.  
-**Palaver**??  
-**untidy** **tenements** sprawling toward the river.  
-The faster you trade, the more you **fritter** away that advantage. -  
-His manual **dexterity** and fine spatial skills were wasted on routine tasks.  
-**dowry**  
-**spindle motor**, **wheel spindle**.  
-
-She **works herself up** about the most trivial things.  
-**effable, affable**.  
-
-**doodad, bauble, brooch**.  
-North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African North American **porcupine** **quills** are **barbed** **at the end** like **honeybee** **stings**, but African & Asian porcupine quills are more smooth like **bumblebee** quills.  
-Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓  
-
-**razorsharp**, design to **impale** and **next to impossible** to remove  
-**tipple, spirit, liquor**  
-A **pestilence** **overhangs** the country.  
-
 ## Week 5  
 
 This is no doubt going to be the most **crotchety**, old-man-yells-at-cloud video I've ever released.  
@@ -584,16 +458,6 @@ What process turns liquid cake into **poofy** **air-filled** solid cake?
 **ghastly, dire, dreary, ominous**  
 **low life, lowbrow, crass**  
 
-**Legume, lentil, beans**.  
-
-**bog down, bog off**.  
-**somatic, semantics**  
-
-**squeal, shriek**  
-
-**portend, bode, signify, foresee, impending**.  
-**herald, harbinger, usher**.  
-
 **diameter, diametrical, antithesis, antithetical, antipode**  
 
 **skinflint, tightwad, miser**  
@@ -602,25 +466,17 @@ What process turns liquid cake into **poofy** **air-filled** solid cake?
 **crass, coarse, vulgar, low brow**.  
 
 **Montreal, Monterrey**  
-
-**colander, sieve, strainer, mesh**  
-
-**chump, klutz, knucklehead, lubber**  
-**jackass**, **dolt**, **dweeb**  
 **orate, spiel**  
 
 **reproach, reprehend, reproof, reprimand, rebuke**  
 **peevish, cranky, irritable, whiny, snarky, obnoxious**.  
 **turmeric, cardamon, ghee, saffron, dill, thyme**.  
 
-**exult, extoll**  
-**Marlin, caplin, cod**  
 **manure, dung, compost, mulch**  
 
 **pavilion**, gazebo, courtyard, atrium?  
 **patio, porch, awning, canopy**.  
 
-**idyllic, bucolic, serene**  
 
 
 ## Conversation  

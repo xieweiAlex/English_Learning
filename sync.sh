@@ -151,7 +151,7 @@ if [[ "$#" -ne 1 ]]; then
 fi
 
 echo ".."
-ensure_trailing_spaces "./words/2025/words-Feb-25.md"
+# ensure_trailing_spaces "./words/2025/words-Feb-25.md"
 
 echo "..."
 
