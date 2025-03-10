@@ -13,6 +13,8 @@
 
 ### Question  
 
+frieze  
+
 truant  
 
 palter  
@@ -69,13 +71,34 @@ cavil
 
 -------------------------  
 
-marina, pier, wharf, harbor, jetty, dock, barge, mast, 
-waterfront, lagoon, shipyard, ferry, mooring.  
+This is awfully close, you could've perhaps been talked into it.    
 
 
-renegade, defector, turncoat, snitch 
-The Russians have never ever trusted a defector, ever.  
-I'm a renegade, a turncoat, a Scalawag.   
+
+For context, a single whale, a disgruntled competitor, or a state actor could afford this without breaking a sweat.  
+so calling it unrelated to "ADA scaling" oversimplifies—its isomorphic design leverages L1 security, making it a tailored extension, not a generic L2.  
+
+France has become too effeminate, etc., etc.  
+flora and fauna.  
+
+## Week 1 
+
+**embryo, embryonic, fetal, fetus, ovary, uterus, womb, IVF**  
+
+**pilaf, risotto** 
+
+**doodle, scrabble. scramble**.  
+Iran is the **fulcrum** of an unstable region. -   
+
+from **stem to stern**.  
+He cast a **stern glance** at the two men.  
+
+**marina, pier, wharf, harbor, jetty, dock, barge, mast**,  
+**waterfront, lagoon, shipyard, ferry, mooring**.  
+
+**renegade, defector, turncoat, snitch** 
+The Russians have never ever trusted a **defector**, ever.  
+I'm a **renegade, a turncoat, a Scalawag**.   
 
 
 
@@ -92,25 +115,25 @@ I'm a renegade, a turncoat, a Scalawag.
 >  • In casual speech, people might just say “I feel for you”, “That sucks”, or “I’m sorry to hear that” instead of “I commiserate with you.”  
 
 
-1. Calumny (noun) – Rare
+1. **Calumny** (noun) – Rare  
 
-> Meaning: A false and malicious statement meant to damage someone’s reputation (basically, slander or defamation).
-> Example: The politician sued his opponent for calumny after the false accusations spread.
-> Usage: This word is quite formal and old-fashioned. In daily speech, people usually say “slander,” “defamation,” or “smear campaign” instead.
+> Meaning: A false and malicious statement meant to damage someone’s reputation (basically, slander or defamation).  
+> Example: The politician sued his opponent for calumny after the false accusations spread.  
+> Usage: This word is quite formal and old-fashioned. In daily speech, people usually say “slander,” “defamation,” or “smear campaign” instead.  
 
-2. Lambaste (verb) – Moderately common
-> Meaning: To criticize someone harshly, often in public or in writing.
-> •	xample: The journalist lambasted the company for its unethical business practices.
-> Usage: This word is more common in news, journalism, and political discussions. In casual speech, people might say “tear into,” “bash,” or “go off on” instead.
+2. **Lambaste** (verb) – Moderately common  
+> Meaning: To criticize someone harshly, often in public or in writing.  
+> •	xample: The journalist lambasted the company for its unethical business practices.  
+> Usage: This word is more common in news, journalism, and political discussions. In casual speech, people might say “tear into,” “bash,” or “go off on” instead.  
 
-3. Venality (noun) – Rare
-> Meaning: The quality of being corrupt or open to bribery.
-> Example: The venality of the officials led to widespread distrust in the government.
-> Usage: This word is mainly used in formal writing or discussions about corruption. In everyday speech, people usually say “corruption,” “bribery,” or “dishonesty.”
+3. **Venality** (noun) – Rare  
+> Meaning: The quality of being corrupt or open to bribery.  
+> Example: The venality of the officials led to widespread distrust in the government.  
+> Usage: This word is mainly used in formal writing or discussions about corruption. In everyday speech, people usually say “corruption,” “bribery,” or “dishonesty.”  
 
-Practical Takeaway:
-> “Calumny” and “venality” are uncommon and mostly seen in formal writing.
-> “Lambaste” is more common, especially in media and politics.
+**Practical Takeaway**:  
+> “Calumny” and “venality” are uncommon and mostly seen in formal writing.  
+> “Lambaste” is more common, especially in media and politics.  
 
 **gypsum, mortar, limestone, plaster, drywall**  
 **granite, sedimentary, marble, masonry, quartz**  

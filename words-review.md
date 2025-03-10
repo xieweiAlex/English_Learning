@@ -39,4 +39,4 @@ I was **distraught** and **let out** a **bellow** of tearful rage. -
 
 ## words-Jun-24.md ##  
 words/2024/words-Jun-24.md  
-What does all this **portend** for the near future?  -  
+What does all this **portend** for the near future?    
