@@ -76,22 +76,26 @@ Davy had finished ravelling out his herring net.
 rift.  
 Don't worry, we won't belabor this topic. -  
 We would not belabor this point but only wish each to ponder it.  
+> In general usage, if someone is belaboring a point, it usually carries a negative connotation, suggesting that the person is overdoing their explanation or criticism.  
+
+
+mandamus, admonition.  
+Squirrels are arboreal creatures.  
+zeal, zest, zesty 
+enjoin  
+dissuade, persuade.  
+
 
 
 **Propitiate** the gods with a **sacrifice**. -  
 Bees gather **nectar** and make it into honey.  
 > Nectar: a sweet liquid **secretion** that is attractive to **pollinators**  
 
-pertinent, impertinent.  
+**pertinent, impertinent**.  
 After the impertinent way you acted, who could like you?  
 Don’t you get impertinent with me!  
-We have to ravel the matter out.   
-
-
 
 This is **awfully** close, you could've perhaps been talked into it.    
-
-
 For context, a single whale, a disgruntled competitor, or a state actor could afford this without breaking a sweat.  
 so calling it unrelated to "ADA scaling" oversimplifies—its isomorphic design leverages L1 security, making it a tailored extension, not a generic L2.  
 
