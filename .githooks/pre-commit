@@ -1,4 +1,4 @@
-for file in $(git diff --cached --name-only --diff-filter=ACM | grep '\.md$'); do
+for file in $(git diff --cached --name-only --diff-filter=ACM | grep '\.md$' | grep -v 'README.md'); do
   sed -i '' -e 's/\([^ ]\)$/\1  /' "$file"
   git add "$file"
 done
