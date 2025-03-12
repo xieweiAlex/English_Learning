@@ -60,18 +60,25 @@ sallow
 **volition**.  
 **calumny**.  
 
-
 addle.  
 cavil  
 
-**calumny**  
-**lambaste**  
-
-**venality**.  
-
 -------------------------  
 
-We have to ravel the matter out.  
+
+A stiff collar may chafe your neck.  
+I see him chafe and fret at every pore.  
+She was not privy to any information contained in the letters.   
+I'm not privy to any pending announcement, so calm down. 
+
+I cover up, slather on the SPF50 and avoid the midday sun.  
+I can't eat bagels without slathering them with cream cheese. 
+I like to putter around in the garden.  
+闲荡?? 
+Aloe Vera gel is anti-pyretic as it reduces heat.  
+
+
+We have to **ravel** the matter out. -  
 Davy had finished ravelling out his herring net.  
 rift.  
 Don't worry, we won't belabor this topic. -  
@@ -84,8 +91,6 @@ Squirrels are arboreal creatures.
 zeal, zest, zesty 
 enjoin  
 dissuade, persuade.  
-
-
 
 **Propitiate** the gods with a **sacrifice**. -  
 Bees gather **nectar** and make it into honey.  
