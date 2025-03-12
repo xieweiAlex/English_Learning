@@ -1,3 +1,7 @@
+
+# Loop through staged files that are added, copied, or modified, ending with .md, excluding README.md
+# Add two spaces at the end of each line that doesn't already end with a space
+# Stage the modified file again
 for file in $(git diff --cached --name-only --diff-filter=ACM | grep '\.md$' | grep -v 'README.md'); do
   sed -i '' -e 's/\([^ ]\)$/\1  /' "$file"
   git add "$file"

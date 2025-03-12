@@ -6,19 +6,12 @@
 [Week 5](#week-5) | [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
 [Convo](#conversation) | [Interesting](#interesting) |  
 
-[Words Gallery](#words-gallery)  
+[Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
 
 ### Question  
-
-frieze  
-
-truant  
-
-palter  
-hapless  
 
 indigent  
 indigenous  
@@ -34,7 +27,6 @@ elide??
 Layaway  
 **Jubilant**  
 
-Whisk the cream into the mixture to **emulsify** it. ??  
 islet  
 atelier  
 
@@ -62,9 +54,25 @@ sallow
 
 addle.  
 cavil  
+milieu  
+carouse  
 
 -------------------------  
 
+**kerosene lamp**  
+**Cyan**: it is a greenish-blue color, a primary color in the subtractive color model (CMYK), and it's often associated with calm, clarity, and the refreshing qualities of water and the sky  
+
+**Magenta**: Magenta is considered a vibrant purplish-red or reddish-purple hue  
+I've got a **booger** stuck in my nose.  
+This soap **lathers** so nicely.  
+**sudsy**.  
+**locust, grasshopper**. 
+**conjugal, marital, spousal, intercourse, coitus,  matrimonial**.  
+A symbol appears in the left upper **quadrant** of the screen.  
+
+He talked with the **magisterial** authority of the head of the family. -  
+Whisk the cream into the mixture to **emulsify** it. ??  
+I replaced the vase carefully on its **pedestal**.  
 
 A stiff collar may **chafe** your neck.  
 I see him **chafe** and fret at every pore. -  
@@ -155,6 +163,29 @@ Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓
 A **pestilence** **overhangs** the country.  
 
 ## Words Explain 
+
+
+**Frieze**: A decorative horizontal band, often found on walls or buildings.  
+**Truant**: A person who stays away from school or work without permission.  
+**Palter**: To act insincerely or deceitfully; to equivocate.  
+**Hapless**: Unfortunate or unlucky.  
+
+1. **Frieze**  
+   - In architecture, a frieze is a decorative band, usually found near the ceiling. For example: "The ancient Greek temple was adorned with a beautifully carved frieze depicting scenes of mythology."  
+   - It can also refer to a heavy woolen fabric with a nap, often used in coats.  
+
+2. **Truant**  
+   - This word is commonly used to describe a student who stays away from school without permission. For example: "The school has a policy to report students who are frequently truant to ensure they don't fall behind."  
+   - It can also be used to describe anyone who neglects their duties, e.g., "He was a truant from his responsibilities at home."  
+
+3. **Palter**  
+   - This word is less commonly used today but refers to acting insincerely or misleadingly. For example: "The politician was known to palter on the campaign trail, making promises he never intended to keep."  
+   - Another use might be: "Rather than giving a straightforward answer, he began to palter with trivial excuses."  
+
+4. **Hapless**  
+   - This refers to someone who is unfortunate or unlucky. For example: "The hapless traveler lost his passport right before his flight."  
+   - Another example could be: "In the story, the hapless hero faced one misfortune after another."  
+
 
 Don't worry, we won't **belabor** this topic. -  
 We would not **belabor** this point but only wish each to ponder it.  
