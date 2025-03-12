@@ -66,110 +66,52 @@ cavil
 -------------------------  
 
 
-A stiff collar may chafe your neck.  
-I see him chafe and fret at every pore.  
-She was not privy to any information contained in the letters.   
-I'm not privy to any pending announcement, so calm down. 
+A stiff collar may **chafe** your neck.  
+I see him **chafe** and fret at every pore. -  
+She was not **privy to** any information contained in the letters.   
+I'm not **privy** to any pending announcement, so calm down. 
 
-I cover up, slather on the SPF50 and avoid the midday sun.  
-I can't eat bagels without slathering them with cream cheese. 
-I like to putter around in the garden.  
-闲荡?? 
-Aloe Vera gel is anti-pyretic as it reduces heat.  
-
+I cover up, **slather** on the SPF50 and avoid the midday sun.  
+I can't eat bagels without **slathering** them with cream cheese. 
+I like to **putter around** in the garden.  
+**putter, stroll, loaf, saunter, loiter** 
+Aloe Vera gel is **anti-pyretic** as it reduces heat.  
 
 We have to **ravel** the matter out. -  
-Davy had finished ravelling out his herring net.  
-rift.  
-Don't worry, we won't belabor this topic. -  
-We would not belabor this point but only wish each to ponder it.  
-> In general usage, if someone is belaboring a point, it usually carries a negative connotation, suggesting that the person is overdoing their explanation or criticism.  
+Davy had finished **ravelling** out his herring net.  
+**rift**.  
 
-
-mandamus, admonition.  
-Squirrels are arboreal creatures.  
-zeal, zest, zesty 
-enjoin  
-dissuade, persuade.  
+Squirrels are **arboreal** creatures.  
+**zeal, zest, zesty** 
+**enjoin**  
+**dissuade, persuade**.  
 
 **Propitiate** the gods with a **sacrifice**. -  
 Bees gather **nectar** and make it into honey.  
 > Nectar: a sweet liquid **secretion** that is attractive to **pollinators**  
 
 **pertinent, impertinent**.  
-After the impertinent way you acted, who could like you?  
-Don’t you get impertinent with me!  
+After the **impertinent** way you acted, who could like you?  
+Don’t you get **impertinent** with me!  
 
 This is **awfully** close, you could've perhaps been talked into it.    
-For context, a single whale, a disgruntled competitor, or a state actor could afford this without breaking a sweat.  
-so calling it unrelated to "ADA scaling" oversimplifies—its isomorphic design leverages L1 security, making it a tailored extension, not a generic L2.  
+For context, a single whale, a **disgruntled** competitor, or a state actor could afford this without **breaking a sweat**.  
+so calling it unrelated to "ADA scaling" oversimplifies—its **isomorphic** design leverages L1 security, making it a tailored extension, not a generic L2.  
 
 France has become too **effeminate**, etc., etc.  
 **flora and fauna**.  
 
 ## Week 1 
 
-**embryo, embryonic, fetal, fetus, ovary, uterus, womb, IVF**  
-
-**pilaf, risotto** 
-
-**doodle, scrabble. scramble**.  
 Iran is the **fulcrum** of an unstable region. -   
 
 from **stem to stern**.  
 He cast a **stern glance** at the two men.  
 
-**marina, pier, wharf, harbor, jetty, dock, barge, mast**,  
-**waterfront, lagoon, shipyard, ferry, mooring**.  
-
-**renegade, defector, turncoat, snitch** 
 The Russians have never ever trusted a **defector**, ever.  
 I'm a **renegade, a turncoat, a Scalawag**.   
 
-
-
-**Stricture**  
->   • The word is more formal and is mainly used in legal, medical, or academic contexts. You might see it in news articles or official reports, but it’s not something people say in casual conversations.  
->   • Instead of “stricture,” people often use words like restriction, rule, or limitation in daily speech.  
-  
-**Chuffed**  
->  • If you’re in the UK, you’ll hear this word quite often, especially in informal settings. Brits say things like “I’m chuffed to bits!” (meaning “I’m really happy!”).  
->  • In the US, this word is rarely used. Americans would probably say “I’m thrilled”, “I’m so happy”, or “I’m proud” instead.  
-
-**Commiserate** – Moderately common  
->  • You’ll hear this word in slightly formal or polite conversations, especially when people want to express sympathy or shared disappointment.  
->  • In casual speech, people might just say “I feel for you”, “That sucks”, or “I’m sorry to hear that” instead of “I commiserate with you.”  
-
-
-1. **Calumny** (noun) – Rare  
-
-> Meaning: A false and malicious statement meant to damage someone’s reputation (basically, slander or defamation).  
-> Example: The politician sued his opponent for calumny after the false accusations spread.  
-> Usage: This word is quite formal and old-fashioned. In daily speech, people usually say “slander,” “defamation,” or “smear campaign” instead.  
-
-2. **Lambaste** (verb) – Moderately common  
-> Meaning: To criticize someone harshly, often in public or in writing.  
-> •	xample: The journalist lambasted the company for its unethical business practices.  
-> Usage: This word is more common in news, journalism, and political discussions. In casual speech, people might say “tear into,” “bash,” or “go off on” instead.  
-
-3. **Venality** (noun) – Rare  
-> Meaning: The quality of being corrupt or open to bribery.  
-> Example: The venality of the officials led to widespread distrust in the government.  
-> Usage: This word is mainly used in formal writing or discussions about corruption. In everyday speech, people usually say “corruption,” “bribery,” or “dishonesty.”  
-
-**Practical Takeaway**:  
-> “Calumny” and “venality” are uncommon and mostly seen in formal writing.  
-> “Lambaste” is more common, especially in media and politics.  
-
-**gypsum, mortar, limestone, plaster, drywall**  
-**granite, sedimentary, marble, masonry, quartz**  
-
-**quartz, sapphire, opal, gemstone, emerald, jade**, **turquoise**  
-
 You shouldn't treat your stay as a luxury resort where the staff is at your **beck and call**, but as a startup society which we’re building together.  
-
-**crimson, scarlet, maroon, burgundy, violet, reddish, pale**.  
-**quagmire, mire, muddy, swamp**  
 
 **portentous, portent**  
 **pretentious**  
@@ -212,7 +154,70 @@ Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓
 **tipple, spirit, liquor**  
 A **pestilence** **overhangs** the country.  
 
+## Words Explain 
+
+Don't worry, we won't **belabor** this topic. -  
+We would not **belabor** this point but only wish each to ponder it.  
+
+> In general usage, if someone is belaboring a point, it usually carries a negative connotation, suggesting that the person is overdoing their explanation or criticism.  
+
+**Stricture**  
+>   • The word is more formal and is mainly used in legal, medical, or academic contexts. You might see it in news articles or official reports, but it’s not something people say in casual conversations.  
+>   • Instead of “stricture,” people often use words like restriction, rule, or limitation in daily speech.  
+  
+**Chuffed**  
+>  • If you’re in the UK, you’ll hear this word quite often, especially in informal settings. Brits say things like “I’m chuffed to bits!” (meaning “I’m really happy!”).  
+>  • In the US, this word is rarely used. Americans would probably say “I’m thrilled”, “I’m so happy”, or “I’m proud” instead.  
+
+**Commiserate** – Moderately common  
+>  • You’ll hear this word in slightly formal or polite conversations, especially when people want to express sympathy or shared disappointment.  
+>  • In casual speech, people might just say “I feel for you”, “That sucks”, or “I’m sorry to hear that” instead of “I commiserate with you.”  
+
+
+1. **Calumny** (noun) – Rare  
+
+> Meaning: A false and malicious statement meant to damage someone’s reputation (basically, slander or defamation).  
+> Example: The politician sued his opponent for calumny after the false accusations spread.  
+> Usage: This word is quite formal and old-fashioned. In daily speech, people usually say “slander,” “defamation,” or “smear campaign” instead.  
+
+2. **Lambaste** (verb) – Moderately common  
+> Meaning: To criticize someone harshly, often in public or in writing.  
+> •	xample: The journalist lambasted the company for its unethical business practices.  
+> Usage: This word is more common in news, journalism, and political discussions. In casual speech, people might say “tear into,” “bash,” or “go off on” instead.  
+
+3. **Venality** (noun) – Rare  
+> Meaning: The quality of being corrupt or open to bribery.  
+> Example: The venality of the officials led to widespread distrust in the government.  
+> Usage: This word is mainly used in formal writing or discussions about corruption. In everyday speech, people usually say “corruption,” “bribery,” or “dishonesty.”  
+
+**Practical Takeaway**:  
+> “Calumny” and “venality” are uncommon and mostly seen in formal writing.  
+> “Lambaste” is more common, especially in media and politics.  
+
+
 ## Words Gallery  
+**mandamus, admonition**.  
+
+**crimson, scarlet, maroon, burgundy, violet, reddish, pale**.  
+**quagmire, mire, muddy, swamp**  
+
+
+**gypsum, mortar, limestone, plaster, drywall**  
+**granite, sedimentary, marble, masonry, quartz**  
+
+**quartz, sapphire, opal, gemstone, emerald, jade**, **turquoise**  
+
+**embryo, embryonic, fetal, fetus, ovary, uterus, womb, IVF**  
+
+**pilaf, risotto** 
+
+**doodle, scrabble. scramble**.  
+
+**marina, pier, wharf, harbor, jetty, dock, barge, mast**,  
+**waterfront, lagoon, shipyard, ferry, mooring**.  
+
+**renegade, defector, turncoat, snitch** 
+
 **Legume, lentil, beans**.  
 
 **bog down, bog off**.  
@@ -236,9 +241,13 @@ A **pestilence** **overhangs** the country.
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
 
+**pilaf, risotto** 
 
 
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
 
+so calling it unrelated to "ADA scaling" oversimplifies—its **isomorphic** design leverages L1 security, making it a tailored extension, not a generic L2.  
+
+France has become too **effeminate**, etc., etc.  
 
