@@ -59,6 +59,28 @@ carouse
 
 -------------------------  
 
+JERRY: The walking date is a good date. You don't have to look right at the other -person.  
+ELAINE: It's the next best thing to being alone.  
+
+ELAINE: What exactly was that kid?  
+KRAMER: Who, Damien? Nothing, just a mischievous, rambunctious kid.  
+
+JERRY: He's kind of tied up here.  
+
+KRAMER: Well I had been swimming for three hours and I was in a real grove so I decided to keep going.  
+ELAINE: Hey, you're not going to believe what Kramer did to my mattress. . . . I can't talk to you like this. So Kramer completely funked up my mattress.  
+
+ELAINE: Hey, thanks for ruining my mattress. It reeks.  
+
+
+
+
+They tried to persuade her to commit perjury.  
+a fly on the wall.  
+I'm a plainspoken guy.  
+it touches my heart really really hard.  
+
+
 **kerosene lamp**  
 **Cyan**: it is a greenish-blue color, a primary color in the subtractive color model (CMYK), and it's often associated with calm, clarity, and the refreshing qualities of water and the sky  
 
