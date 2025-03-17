@@ -573,7 +573,7 @@ His sense of humour allowed him to face adversaries with **equanimity**.
 
 The rise and fall of empires is an **ineluctable** part of history.  
 Given the poor weather conditions, the cancellation of the outdoor event was **inevitable**.  
-What does all this **portend** for the near future?  -  
+What does all this **portend** for the near future?    
 
 The **cavalry** must immediately **replenish** the new horse.  
 a **portly** belly, a **portly** figure.  

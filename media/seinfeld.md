@@ -1,23 +1,36 @@
 
+## Session 9 
+
+JERRY: The walking date is a good date. You don't have to look right at the other -person.  
+ELAINE: It's **the next best thing** to being alone.  
+
+ELAINE: What exactly was that kid? - KRAMER: Who, Damien? Nothing, just a **mischievous**, **rambunctious** kid.  
+
+JERRY: He's kind of **tied up** here.  
+
+KRAMER: Well I had been swimming for three hours and I was in a real **groove** so I decided to keep going.  
+ELAINE: Hey, you're not going to believe what Kramer did to my mattress. . . . I can't talk to you like this. So Kramer completely **funked up** my mattress.  
+
+ELAINE: Hey, thanks for **ruining** my mattress. It **reeks**.  
 
 ## Season 7, E1 
-> https://www.seinfeldscripts.com/TheEngagement.html
+> https://www.seinfeldscripts.com/TheEngagement.html  
 
 I don't see how I could perform sexually in a situation after something like that. I was completely **emasculated**. Anyway, it's not the only reason.  
 Anyway, look who's talking. You just broke up with with Melanie last week because she "**shuushed you**" while you were watching TV.  
 
-Jerry: I'm glad we had this talk. - Kramer: Oh, **you have no idea**.
+Jerry: I'm glad we had this talk. - Kramer: Oh, **you have no idea**.  
 
 Jerry: You're going to **rub out** the dog? 
-Newman: I see many dogs on my mail route. I'll bet there's not one type of **mutt or mongrel** I haven't run across.
-Newman: If you ask me, they have no business living amongst us. **Vile**, USELESS BEASTS . . .
+Newman: I see many dogs on my mail route. I'll bet there's not one type of **mutt or mongrel** I haven't run across.  
+Newman: If you ask me, they have no business living amongst us. **Vile**, USELESS BEASTS . . .  
 
-Elaine: Yeah. Well um, I was just curious if I were interested in **availing myself of your services**, um, what exactly would you do?
+Elaine: Yeah. Well um, I was just curious if I were interested in **availing myself of your services**, um, what exactly would you do?  
 
-Jerry: Well, you know, we were having dinner the other night, and she's got this strangest habit. She eats her peas one at a time. You've never seen anything like it. It takes her an hour to finish them. I mean, we've had dinner other times. I've seen her eat **Corn Niblets**. But she scooped them.
-George: . . . she scooped her **niblets**? - Jerry: Yes. That's what was so **vexing**.
+Jerry: Well, you know, we were having dinner the other night, and she's got this strangest habit. She eats her peas one at a time. You've never seen anything like it. It takes her an hour to finish them. I mean, we've had dinner other times. I've seen her eat **Corn Niblets**. But she scooped them.  
+George: . . . she scooped her **niblets**? - Jerry: Yes. That's what was so **vexing**.  
 
-Jerry: You **stuck your hand out**, so I shook it. I don't know about a **pact**. Anyway, you should be happy you're engaged. You're getting married.
+Jerry: You **stuck your hand out**, so I shook it. I don't know about a **pact**. Anyway, you should be happy you're engaged. You're getting married.  
 
 
 

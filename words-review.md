@@ -1,9 +1,20 @@
 ## words-Mar-25.md ##  
 words/2025/words-Mar-25.md  
+Books were smuggled on planes, on trains and in baby’s **nappies**. -  
+It is just possible, too, that Ukraine’s front lines could suddenly **buckle** and collapse in the face of Russian attacks. -  
+The city has a **superfluity** of five-star hotels. -  
+The **tadpole** is the **larva** of the frog. -  
+They tried to persuade her to commit **perjury**. -  
+He talked with the **magisterial** authority of the head of the family. -  
+I see him **chafe** and fret at every pore. -  
+We have to **ravel** the matter out. -  
+**Propitiate** the gods with a **sacrifice**. -  
+Iran is the **fulcrum** of an unstable region. -  
 The acting was **deplorable**. -  
 Police refused to **divulge** the identity of the suspect. -  
 The wounded soldier **tottered** to his feet. -  
 The faster you trade, the more you **fritter** away that advantage. -  
+Don't worry, we won't **belabor** this topic. -  
 
 ## words-Feb-25.md ##  
 words/2025/words-Feb-25.md  
@@ -36,7 +47,3 @@ She gazed at the serene landscape, a picture of perfect **repose**. -
 The aim was to **bludgeon** speculators and impress creditors. -  
 I had a terrible opening hand, so I used my **mulligan** to **redraw**. -  
 I was **distraught** and **let out** a **bellow** of tearful rage. -  
-
-## words-Jun-24.md ##  
-words/2024/words-Jun-24.md  
-What does all this **portend** for the near future?    

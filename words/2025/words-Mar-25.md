@@ -57,28 +57,65 @@ cavil
 milieu  
 carouse  
 
+adumbrate?? 
+sordid 
+
 -------------------------  
 
-JERRY: The walking date is a good date. You don't have to look right at the other -person.  
-ELAINE: It's the next best thing to being alone.  
 
-ELAINE: What exactly was that kid?  
-KRAMER: Who, Damien? Nothing, just a mischievous, rambunctious kid.  
+## Week 2 
 
-JERRY: He's kind of tied up here.  
+he **riffled through** the pages.  
+there was a slight breeze that **riffled** her hair.  
+Our client is unable to appear due to **extenuating** circumstances.  
 
-KRAMER: Well I had been swimming for three hours and I was in a real grove so I decided to keep going.  
-ELAINE: Hey, you're not going to believe what Kramer did to my mattress. . . . I can't talk to you like this. So Kramer completely funked up my mattress.  
+Why everyone is **harping on** about Guinness. - How the Irish **stout** has drafted in new fans  
+In F. Scott Fitzgerald’s **immortal novel**, America’s graft and glory are **entwined**.  
+Books were smuggled on planes, on trains and in baby’s **nappies**. -    
+It is just possible, too, that Ukraine’s front lines could suddenly **buckle** and collapse in the face of Russian attacks. -    
+Even by his standards the **wallops** that Donald Trump has thrown over the past day are **colossal** ones.  
+Israel’s army adopts a **high-stakes** new strategy: **more terrain**. It remains present inside Syria, Lebanon, Gaza and the West Bank. 
 
-ELAINE: Hey, thanks for ruining my mattress. It reeks.  
+**shopping trolley**.  
+**mar**.  
+The city has a **superfluity** of five-star hotels. -  
+**superfluity, superfluous, gratuitous, excessive**  
+steamed beef **tripe**: **lining** of the stomach of a **ruminant** (especially a **bovine**) used as food.  
 
+He is bullying his closest allies and **cozying up** to the West’s enemies.  
+A new, more **parsimonious** era of aid is beginning. It brings with it agonising choices. But it also offers an opportunity to rethink an inefficient system that has long needed an overhaul.  
+The country is **probing** Nvidia customers Dell and Super Micro Computer for allegedly shipping Blackwell-powered servers to Malaysia, a known **gateway** for chips into China.  
+The decision comes days after the public **spat** between Trump and Ukrainian President Volodymyr Zelensky at the White House.  
+Nvidia is **fighting off** two threats. - Both of them involve China.  
+My favorite gluten-free meals to eat when I'm **short on time**.  
+"Dangerous Ideas" is an engrossing history of censorship. - The quarrel over free speech will never be resolved, says Eric Berkowitz.  
 
+The word “**blandish**” is a verb that means to persuade or influence someone using flattery, smooth talk, or gentle coaxing. It often implies excessive or insincere praise meant to manipulate or win favor.  
+> The salesman tried to blandish the customer into buying the expensive car by complimenting his taste.  
+> She blandished her boss with praise, hoping to get a promotion. 
+> It’s similar to words like coax, cajole, or flatter, but it often has a slightly manipulative or insincere tone.  
 
+“revel” is a verb that means to take great pleasure or delight in something, often in an energetic or enthusiastic way. It can also refer to lively festivities or partying.  
+> He revels in the challenge of solving complex problems.  
+> The crowd revelled in the music and danced all night. 
+> The New Year’s Eve revels lasted until dawn.  
 
-They tried to persuade her to commit perjury.  
-a fly on the wall.  
-I'm a plainspoken guy.  
-it touches my heart really really hard.  
+**deadbeat, bum** 
+The bird **perched** on a big branch.  
+**courtier, attender, acolyte**, 
+The question is **in abeyance** until we know more about it.  
+Tabloid newspapers **pander to** the lowest **common denominator**.  
+
+His attendance record was **spotty**.  
+The **tadpole** is the **larva** of the frog. -  
+**blackguard, rogue, villain, scoundrel** 
+I wasn't too **keen on** physics and chemistry.  
+He deserted from his **regiment**.  
+
+They tried to persuade her to commit **perjury**. -  
+**a fly on the wall**.  
+I'm a **plainspoken** guy.  
+it **touches my heart** really really hard.  
 
 
 **kerosene lamp**  
