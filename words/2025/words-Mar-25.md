@@ -62,6 +62,18 @@ sordid
 
 -------------------------  
 
+**make a fuss about/over**.  
+My wife was **fussing over** the food and clothing we were going to take.  
+"**Stop fussing**," he **snapped**.  
+He was **aptly** described as 'tall, dark, and handsome'. -  
+It was near the **junction** of City Road and Old Street.  
+This **junction** is a well-known accident **black spot**.  
+**Lunar rover, range rover**  
+**Satan, devil, demon, serpent**  
+Then you were still **infatuated** with Italy.  
+The village seemed deserted, and when she looked out, the **corral** was empty.  
+**corral**: a pen for cattle.  
+The horses were swiftly **corralled**.  
 
 ## Week 2 
 
