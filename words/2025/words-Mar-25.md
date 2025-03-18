@@ -62,6 +62,10 @@ sordid
 
 -------------------------  
 
+The door was pulled open with a **creak**.  
+**hombre**.  
+**warble, chirping, beep, whistling, hum, screeching** 
+
 **make a fuss about/over**.  
 My wife was **fussing over** the food and clothing we were going to take.  
 "**Stop fussing**," he **snapped**.  
