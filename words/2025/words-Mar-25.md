@@ -62,6 +62,15 @@ sordid
 
 -------------------------  
 
+The new tax provoked a public outcry.  
+He thrashed the boy with a stick.  
+She started to blubber like a child.  
+
+
+**propitiate, appease, sacrifice, penance, repent, repentance, atonement, confession**. 
+
+**loin, sirloin**  
+
 The door was pulled open with a **creak**.  
 **hombre**.  
 **warble, chirping, beep, whistling, hum, screeching** 
