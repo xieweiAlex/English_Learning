@@ -109,7 +109,7 @@ He has been on **death row** for 11 years.
 
 Countering China’s **diplomatic coup**. -  China has turned much of the **global south** against Taiwan. That could be **laying the ground** for forced unification.  
 Xi’s **rehabilitation** of Jack Ma may be the most lucrative ever.  
-Instead of luxury condos, Gaza faces a **resumption** of war. -  
+Instead of luxury condos, Gaza faces a **resumption** of war.   
 
 
 
@@ -129,7 +129,7 @@ Retinol is often **touted** as a miracle skin care ingredient. But alongside the
 Retinol has multiple uses. It can be used to combat conditions like acne and can target areas of **pigmentation**.  
 As you age, “your skin cell **turnover** and collagen production slows,” explains Christopher Panzica, a licensed aesthetician from Brentwood, Tennessee.  
 
-If the majority were based on one IP address one vote, it could be **subverted** by anyone able to allocate many IPs. -  
+If the majority were based on one IP address one vote, it could be **subverted** by anyone able to allocate many IPs.   
 
 She uttered a cry of **despair**.  
 He **deserted** from his **regiment**.  
@@ -137,7 +137,7 @@ In a modern army, **cavalry regiments** use armored vehicles and ride horses onl
 A few jokes add **leaven** to a boring speech.  
 This is an English muffin and it is a small round, slightly **leavened** bread.  
 
-They must **retrench** their expenditure for the purpose of making up the deficit. -  
+They must **retrench** their expenditure for the purpose of making up the deficit.   
 
 **augments**.  
 > He augments his income by teaching in the evening.  

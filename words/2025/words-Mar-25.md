@@ -258,7 +258,7 @@ A **pestilence** **overhangs** the country.
    - Another example could be: "In the story, the hapless hero faced one misfortune after another."  
 
 
-Don't worry, we won't **belabor** this topic. -  
+Don't worry, we won't **belabor** this topic.   
 We would not **belabor** this point but only wish each to ponder it.  
 
 > In general usage, if someone is belaboring a point, it usually carries a negative connotation, suggesting that the person is overdoing their explanation or criticism.  

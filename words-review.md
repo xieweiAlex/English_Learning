@@ -14,7 +14,6 @@ The acting was **deplorable**. -
 Police refused to **divulge** the identity of the suspect. -  
 The wounded soldier **tottered** to his feet. -  
 The faster you trade, the more you **fritter** away that advantage. -  
-Don't worry, we won't **belabor** this topic. -  
 
 ## words-Feb-25.md ##  
 words/2025/words-Feb-25.md  
@@ -23,10 +22,7 @@ The bird **alighted** on the branch. -
 He finally **alighted** on a solution. -  
 Mining multinationals are learning to do business with **juntas**. -  
 I know I sound like a **consummate** optimist, but I'm really not. -  
-Instead of luxury condos, Gaza faces a **resumption** of war. -  
 And I hope could spend commonness and **treacly** life with you. -  
-If the majority were based on one IP address one vote, it could be **subverted** by anyone able to allocate many IPs. -  
-They must **retrench** their expenditure for the purpose of making up the deficit. -  
 He proceeded to **excoriate** me in front of the nurses. -  
 
 ## words-Jan-25.md ##  
