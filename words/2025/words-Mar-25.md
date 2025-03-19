@@ -62,10 +62,14 @@ sordid
 
 -------------------------  
 
-The new tax provoked a public outcry.  
-He thrashed the boy with a stick.  
-She started to blubber like a child.  
+His **remoteness** made her feel **unloved**.  
+**congenital heart disease**, **congenital malformation**.  
+He wasn't the paragon of virtue she had expected.  
 
+
+The new tax provoked a public **outcry**.  
+He **thrashed** the boy with a stick.  
+She started to **blubber** like a child.  
 
 **propitiate, appease, sacrifice, penance, repent, repentance, atonement, confession**. 
 
