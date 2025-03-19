@@ -62,9 +62,26 @@ sordid
 
 -------------------------  
 
+threat modal, threat detection. 
+
+microbiological **assay**, colorimetric **assay**.  
+
+**erroneous, unsubstantiated, bogus, dubious, unfounded, untrue** 
+**unwarranted, misleading, baseless, spurious**.  
+
+These movies seem to **epitomize** the 1950s. -   
+Hot steel is **quenched** to harden it.  
+**quench, quell**, 
+Who holds the **purse strings** in your house? -  
+
+**wacko, lunatic, psycho, loony**, 
+With my **lusty** knowledge of computers, I am learned and able.  
+All lawyers have a responsibility to assist in providing **pro bono** public service.  
+
+
 His **remoteness** made her feel **unloved**.  
 **congenital heart disease**, **congenital malformation**.  
-He wasn't the paragon of virtue she had expected.  
+He wasn't the **paragon** of virtue she had expected. -   
 
 
 The new tax provoked a public **outcry**.  
