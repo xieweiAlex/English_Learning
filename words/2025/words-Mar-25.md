@@ -4,53 +4,15 @@
 [Seinfeld](../../media/seinfeld.md)  
 
 [Week 5](#week-5) | [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
+
 [Convo](#conversation) | [Interesting](#interesting) |  
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
+[Questions](#Question) 
+
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
-
-### Question  
-
-indigent  
-indigenous  
-wampum??  
-delude, delusive.  
-delude, deceive, dishonest, fool  
-**bootleg, moonshine**??  
-**supine**??  
-tutelage??  
-enamored??  
-fetid??  
-elide??  
-Layaway  
-**Jubilant**  
-
-islet  
-atelier  
-
-gloat?  
-
-slug?? different meanings  
-mange  
-dominatrix .  
-perfidy  
-
-esperanto  
-
-coterie  
-
-**sputum, mucus, phlegm**. ??  
-
-cavalcade.  
-plumage.  
-
-irenic.  
-sallow  
-
-**volition**.  
-**calumny**.  
 
 addle.  
 cavil  
@@ -61,6 +23,8 @@ adumbrate??
 sordid 
 
 -------------------------  
+
+And yes, for months of dark mornings and early sunsets, trudging through slush and scraping ice off windshields, it's perfectly reasonable to seek shelter in these ways.  
 
 threat modal, threat detection. 
 
@@ -269,6 +233,8 @@ A **pestilence** **overhangs** the country.
 
 ## Words Explain 
 
+**blotto**  
+> No, blotto is not a commonly used word in everyday conversation. It’s a slang term meaning very drunk and was more popular in the early to mid-20th century. Nowadays, people are more likely to say wasted, hammered, smashed, or plastered instead.  
 
 **Frieze**: A decorative horizontal band, often found on walls or buildings.  
 **Truant**: A person who stays away from school or work without permission.  
@@ -335,8 +301,8 @@ We would not **belabor** this point but only wish each to ponder it.
 **mandamus, admonition**.  
 
 **crimson, scarlet, maroon, burgundy, violet, reddish, pale**.  
-**quagmire, mire, muddy, swamp**  
 
+**quagmire, mire, muddy, swamp**  
 
 **gypsum, mortar, limestone, plaster, drywall**  
 **granite, sedimentary, marble, masonry, quartz**  
@@ -369,10 +335,49 @@ We would not **belabor** this point but only wish each to ponder it.
 **jackass**, **dolt**, **dweeb**  
 
 **exult, extoll**  
-**Marlin, caplin, cod**  
+**Marlin, caplin, cod, barracuda**  
 
 **idyllic, bucolic, serene**  
 
+### Question  
+
+indigent  
+indigenous  
+wampum??  
+delude, delusive.  
+delude, deceive, dishonest, fool  
+**bootleg, moonshine**??  
+**supine**??  
+tutelage??  
+enamored??  
+fetid??  
+elide??  
+Layaway  
+**Jubilant**  
+
+islet  
+atelier  
+
+gloat?  
+
+slug?? different meanings  
+mange  
+dominatrix .  
+perfidy  
+
+esperanto  
+
+coterie  
+
+**sputum, mucus, phlegm**. ??  
+
+cavalcade.  
+plumage.  
+
+irenic.  
+sallow  
+
+**volition**.  
 
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
