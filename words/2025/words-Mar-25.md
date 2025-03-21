@@ -22,7 +22,21 @@ carouse
 adumbrate?? 
 sordid 
 
+kitsch  
+
 -------------------------  
+
+Currently the club is on **probationary status**.  
+
+morgue, corpse, autopsy, cemetery, 
+
+Homeless to Lawyer to **Stoic Martinet**.  
+
+**pallet, pellet**.  
+Or it may go all the way just to sit in Asia or Africa, **blighting** the landscape, clogging rivers, entering the ocean, being swallowed by **marine life**.  
+Some exports are **well-meaning** and welcomed.  
+It is based on a survey by **Gallup**, a **pollster**, where participants are asked to rate their lives out of ten. **Finns** are not known to **gloat** (or, for that matter, smile much).  
+
 
 You have no reason to **bamboozle** me!  
 **bamboozle, deceive, mislead, ruse, ploy**. 
@@ -303,7 +317,9 @@ We would not **belabor** this point but only wish each to ponder it.
 
 
 ## Words Gallery  
-**mandamus, admonition**.  
+
+
+**mandamus, admonition, exhortation**  
 
 **crimson, scarlet, maroon, burgundy, violet, reddish, pale**.  
 
