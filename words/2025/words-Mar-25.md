@@ -24,9 +24,14 @@ sordid
 
 -------------------------  
 
-And yes, for months of dark mornings and early sunsets, trudging through slush and scraping ice off windshields, it's perfectly reasonable to seek shelter in these ways.  
+You have no reason to **bamboozle** me!  
+**bamboozle, deceive, mislead, ruse, ploy**. 
+How her **silken** robe is rustling!  
+**ominous, portent, portentous**.  
 
-threat modal, threat detection. 
+And yes, for months of dark mornings and early sunsets, trudging through **slush** and scraping ice off windshields, it's perfectly reasonable to seek shelter in these ways.  
+
+**threat modal, threat detection**. 
 
 microbiological **assay**, colorimetric **assay**.  
 
