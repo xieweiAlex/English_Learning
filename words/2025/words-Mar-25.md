@@ -212,7 +212,7 @@ You shouldn't treat your stay as a luxury resort where the staff is at your **be
 **portentous, portent**  
 **pretentious**  
 Oil the **griddle** with butter, or spray it with non-stick cooking spray.  
-The acting was **deplorable**. -  
+The acting was **deplorable**.   
 **deplorable conditions**.  
 He caught a **whiff** of her perfume.  
 **alimentary tract, alimentary canal**.  

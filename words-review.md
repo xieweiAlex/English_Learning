@@ -10,7 +10,6 @@ I see him **chafe** and fret at every pore. -
 We have to **ravel** the matter out. -  
 **Propitiate** the gods with a **sacrifice**. -  
 Iran is the **fulcrum** of an unstable region. -  
-The acting was **deplorable**. -  
 Police refused to **divulge** the identity of the suspect. -  
 The wounded soldier **tottered** to his feet. -  
 The faster you trade, the more you **fritter** away that advantage. -  
@@ -18,7 +17,6 @@ The faster you trade, the more you **fritter** away that advantage. -
 ## words-Feb-25.md ##  
 words/2025/words-Feb-25.md  
 All over the world, **open-air markets** are being **supplanted** by supermarket shopping. -  
-The bird **alighted** on the branch. -  
 He finally **alighted** on a solution. -  
 Mining multinationals are learning to do business with **juntas**. -  
 I know I sound like a **consummate** optimist, but I'm really not. -  
@@ -28,7 +26,6 @@ He proceeded to **excoriate** me in front of the nurses. -
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
 His **scruffy** appearance does not reflect his character. -  
-She felt like an **interloper** in her own family. -  
 This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
 She is **disconsolate** at the death of her cat. -  
 **Recumbent** bicycle equipped with very comfortable office chair. -  
@@ -42,4 +39,3 @@ Her face was **careworn** with anxiety. -
 She gazed at the serene landscape, a picture of perfect **repose**. -  
 The aim was to **bludgeon** speculators and impress creditors. -  
 I had a terrible opening hand, so I used my **mulligan** to **redraw**. -  
-I was **distraught** and **let out** a **bellow** of tearful rage. -  

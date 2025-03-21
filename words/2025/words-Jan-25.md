@@ -374,7 +374,7 @@ He's not his usual **blithe** and **festive** self, is he?
 **spendthrift, profligate, squander**  
 
 I became a **distraught**, worried mother, a useless role if ever there was one.  
-I was **distraught** and **let out** a **bellow** of tearful rage. -  
+I was **distraught** and **let out** a **bellow** of tearful rage.   
 
 The times are good. The living is easy. The vibes are **zingy**.  
 A wine with a **zingy**, peachy **palate**.  

@@ -81,7 +81,7 @@ Two entrepreneurs spot the same opportunity. One builds elaborate plans; the oth
 **furl the sails**.  
 **furl the tents/umbrella**.  
 
-The bird **alighted** on the branch. -  
+The bird **alighted** on the branch.   
 He finally **alighted** on a solution. -  
 My eye **alighted** on an old book.  
 
