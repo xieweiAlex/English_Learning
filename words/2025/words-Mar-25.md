@@ -26,6 +26,17 @@ kitsch
 
 -------------------------  
 
+flippant.  
+crotchety, ill-natured.  
+
+
+Would you really **stoop** this low, Ford?  
+Thanks but I don't want to **stoop** to her level. If I can't win with the quality of my ideas, I'd rather lose with my **head held high**.  
+piston rod, piston ring.  
+
+
+### Week 3  
+
 Swing and trend traders tend to work most closely with price action, **eschewing** any fundamental analysis to focus solely on support and resistance levels to predict breakouts and consolidation.  
 
 **all walks of life**  
