@@ -1,4 +1,9 @@
 
+**concretize**  
+> In everyday conversation, people might use words like materialize, concretize, or make real instead.  
+
+**stunt**  
+> Texas may not get much of a wildflower show this season as drought conditions threaten to **stunt** the seasonal bloom.  
 
 **impale**, **transfix**  
 **razorsharp**, design to **impale** and **next to impossible** to remove  

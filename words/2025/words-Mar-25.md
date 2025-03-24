@@ -26,9 +26,45 @@ kitsch
 
 -------------------------  
 
+Swing and trend traders tend to work most closely with price action, **eschewing** any fundamental analysis to focus solely on support and resistance levels to predict breakouts and consolidation.  
+
+**all walks of life**  
+
+**wheeze, whiz**.  
+They're **wheezing**, they have shortness of breath or difficulty breathing.  
+I'm not **wheezing**. I'm just a little **short of breath**.  
+I don’t want to sell the house, but if **push comes to shove**, I might have to.  
+Once the project was approved, things were **off to the races**.  
+The tourists were **off to the races** after they left the cruise ship.  
+**concretize**  
+
+Jaqen's like some **slimy** army recruiter, he manipulates Arya into joining the Faceless Men.  
+**sabbath, Shabbat**  
+**synagogue, rabbi, mosque, congregation**.  
+**Jerusalem, temple**  
+**Nigh**: nigh is quite rare in modern English. It means “near” or “almost” and is mostly found in poetic, literary, or archaic contexts. You might see it in phrases like “the end is nigh” (meaning “the end is near”), but in everyday speech, people usually just say near or almost instead.  
+To decline to vote is a **cop-out**.   
+**sheetrock**: a kind of plasterboard.  
+The names of the dead were **inscribed** on the wall.  
+
+Her **prose** style is not always **felicitous**; she tends to repetition.  
+His first **sortie** into politics was unsuccessful.  
+Her presence was just one more goad to Joanna's **unravelling** nerves.  
+**con artist**.  
+**thud, thump, goad, slam, stomp**, 
+**Prima facie**, there is a strong case against him.  
+There was a **prima facie** case that a contempt of court had been committed.  
+**spinster, spindle**.  
+The painting is **imbued** with energy and life.  
+**contrive**  
+
+He uses a **hydraulic hoist** to unload two empty barrels.  
+
+Texas may not get much of a wildflower show this season as drought conditions threaten to **stunt** the seasonal bloom.  
+
 Currently the club is on **probationary status**.  
 
-morgue, corpse, autopsy, cemetery, 
+**morgue, corpse, autopsy, cemetery**, 
 
 Homeless to Lawyer to **Stoic Martinet**.  
 
@@ -37,17 +73,18 @@ Or it may go all the way just to sit in Asia or Africa, **blighting** the landsc
 Some exports are **well-meaning** and welcomed.  
 It is based on a survey by **Gallup**, a **pollster**, where participants are asked to rate their lives out of ten. **Finns** are not known to **gloat** (or, for that matter, smile much).  
 
-
 You have no reason to **bamboozle** me!  
 **bamboozle, deceive, mislead, ruse, ploy**. 
 How her **silken** robe is rustling!  
 **ominous, portent, portentous**.  
 
-And yes, for months of dark mornings and early sunsets, trudging through **slush** and scraping ice off windshields, it's perfectly reasonable to seek shelter in these ways.  
+And yes, for months of dark mornings and early sunsets, **trudging through** **slush** and scraping ice off windshields, it's perfectly reasonable to seek shelter in these ways.  
+
+**trudge, trek, slog, wade**. 
 
 **threat modal, threat detection**. 
 
-microbiological **assay**, colorimetric **assay**.  
+Microbiological **assay**, colorimetric **assay**.  
 
 **erroneous, unsubstantiated, bogus, dubious, unfounded, untrue** 
 **unwarranted, misleading, baseless, spurious**.  
