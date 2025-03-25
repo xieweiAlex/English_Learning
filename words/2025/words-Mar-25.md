@@ -26,9 +26,15 @@ kitsch
 
 -------------------------  
 
-flippant.  
-crotchety, ill-natured.  
+The hotel had always been run in a slipshod way.  
+bewitching, bewilding, 
+finicky, 
+twig, sprouts, bug, 
+loin, sirloin, 
+teeter, totter, 
 
+**flippant**.  
+**crotchety, ill-natured**.  
 
 Would you really **stoop** this low, Ford?  
 Thanks but I don't want to **stoop** to her level. If I can't win with the quality of my ideas, I'd rather lose with my **head held high**.  
