@@ -26,6 +26,16 @@ kitsch
 
 -------------------------  
 
+shimmer, shimmery, glitter, spark, sheen, shiny, 
+matte, glossy, satin, suede, 
+
+Do you think anyone is willing to listen to that malarkey?  
+off-limits.  
+
+
+A shambolic leak reveals Team Trump’s contempt for allies.  
+
+
 The hotel had always been run in a slipshod way.  
 bewitching, bewilding, 
 finicky, 
