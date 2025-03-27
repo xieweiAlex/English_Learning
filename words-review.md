@@ -1,5 +1,9 @@
 ## words-Mar-25.md ##  
 words/2025/words-Mar-25.md  
+These movies seem to **epitomize** the 1950s. -  
+Who holds the **purse strings** in your house? -  
+He wasn't the **paragon** of virtue she had expected. -  
+He was **aptly** described as 'tall, dark, and handsome'. -  
 Books were smuggled on planes, on trains and in baby’s **nappies**. -  
 It is just possible, too, that Ukraine’s front lines could suddenly **buckle** and collapse in the face of Russian attacks. -  
 The city has a **superfluity** of five-star hotels. -  
@@ -26,6 +30,7 @@ He proceeded to **excoriate** me in front of the nurses. -
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
 His **scruffy** appearance does not reflect his character. -  
+She felt like an **interloper** in her own family. -  
 This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
 She is **disconsolate** at the death of her cat. -  
 **Recumbent** bicycle equipped with very comfortable office chair. -  

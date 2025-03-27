@@ -26,6 +26,10 @@ kitsch
 
 -------------------------  
 
+The boy remained as dismal as a hearse.  
+ravine.  
+miff  
+
 The invading troops were guilty of rape and pillage.  
 pillage, plunder, looting  
 
