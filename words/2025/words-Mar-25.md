@@ -26,6 +26,9 @@ kitsch
 
 -------------------------  
 
+The invading troops were guilty of rape and pillage.  
+pillage, plunder, looting  
+
 **doofus**  
 > It’s like calling someone a goofball or dummy in a lighthearted or slightly insulting way.  
 
