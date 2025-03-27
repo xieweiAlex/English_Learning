@@ -26,6 +26,14 @@ kitsch
 
 -------------------------  
 
+**doofus**  
+> It’s like calling someone a goofball or dummy in a lighthearted or slightly insulting way.  
+
+
+Oil the griddle with butter, or spray it with non-stick cooking spray.  
+scorn, spurn, contempt.  
+They have always looked askance at the western notion of democracy.  
+
 shimmer, shimmery, glitter, spark, sheen, shiny, 
 matte, glossy, satin, suede, 
 
@@ -316,6 +324,9 @@ A **pestilence** **overhangs** the country.
 
 ## Words Explain 
 
+**braggart**  
+> braggart isn't commonly used in everyday conversation. People are more likely to say boaster, show-off, or just someone who brags a lot. However, braggart is still understood, especially in written or formal contexts. 
+
 **blotto**  
 > No, blotto is not a commonly used word in everyday conversation. It’s a slang term meaning very drunk and was more popular in the early to mid-20th century. Nowadays, people are more likely to say wasted, hammered, smashed, or plastered instead.  
 
@@ -382,6 +393,7 @@ We would not **belabor** this point but only wish each to ponder it.
 
 ## Words Gallery  
 
+**burnish, varnish, garnish, polish, gloss**  
 
 **mandamus, admonition, exhortation**  
 

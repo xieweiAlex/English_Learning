@@ -17,7 +17,6 @@ This is no doubt going to be the most **crotchety**, **old-man-yells-at-cloud** 
 I had this intuitively wrong for decades, I think due to a **pervasive** cultural **veneration** of intelligence, various entertainment/media, obsession with IQ etc. **Agency** is significantly more powerful and significantly more **scarce**.  
 He **reassures** readers that his trademark **candor** will continue under future CEO Greg Abel and reflects on past mistakes and successes.  
 
-**burnish, varnish, polish, gloss**  
 All over the world, **open-air markets** are being **supplanted** by supermarket shopping. -  
 **sludge disposal, sludge treatment**  
 The sun appeared through a **rift** in the clouds.  
