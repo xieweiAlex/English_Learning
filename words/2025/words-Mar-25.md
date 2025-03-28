@@ -25,45 +25,49 @@ sordid
 kitsch  
 
 -------------------------  
+Why is the fly or bug agaric toadstool so named?  
 
-The boy remained as dismal as a hearse.  
-ravine.  
-miff  
+It's a warning sign for the Trump administration, with aggressive tariffs expected to be unveiled next week that could **stoke** inflation and **crimp demand**.  
 
-The invading troops were guilty of rape and pillage.  
-pillage, plunder, looting  
+**wayside, sideway, sidewalk, curbside**.  
+
+The boy remained as dismal as a **hearse**. -    
+**ravine**.  
+**miff**  
+
+The invading troops were guilty of **rape and pillage**.  
+**pillage, plunder, looting**  
 
 **doofus**  
 > It’s like calling someone a goofball or dummy in a lighthearted or slightly insulting way.  
 
+Oil the **griddle** with butter, or spray it with non-stick cooking spray.  
+**scorn, spurn, contempt**.  
+They have always **looked askance** at the western notion of democracy. -   
 
-Oil the griddle with butter, or spray it with non-stick cooking spray.  
-scorn, spurn, contempt.  
-They have always looked askance at the western notion of democracy.  
+**shimmer, shimmery, glitter, spark, sheen, shiny**, 
+**matte, glossy, satin, suede**  
 
-shimmer, shimmery, glitter, spark, sheen, shiny, 
-matte, glossy, satin, suede, 
-
-Do you think anyone is willing to listen to that malarkey?  
-off-limits.  
-
-
-A shambolic leak reveals Team Trump’s contempt for allies.  
+Do you think anyone is willing to listen to that **malarkey**? -    
+**off-limits**.  
 
 
-The hotel had always been run in a slipshod way.  
-bewitching, bewilding, 
-finicky, 
-twig, sprouts, bug, 
-loin, sirloin, 
-teeter, totter, 
+A **shambolic** leak reveals Team Trump’s contempt for allies. -    
+
+
+The hotel had always been run in a **slipshod** way.  
+**bewitching, bewilding**, 
+**finicky**, 
+**twig, sprouts, bug**, 
+**loin, sirloin**, 
+**teeter, totter** 
 
 **flippant**.  
 **crotchety, ill-natured**.  
 
 Would you really **stoop** this low, Ford?  
 Thanks but I don't want to **stoop** to her level. If I can't win with the quality of my ideas, I'd rather lose with my **head held high**.  
-piston rod, piston ring.  
+**piston rod, piston ring**.  
 
 
 ### Week 3  
