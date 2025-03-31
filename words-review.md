@@ -1,5 +1,18 @@
 ## words-Mar-25.md ##  
 words/2025/words-Mar-25.md  
+DOGE comes for the **data wonks**. America may soon be unable to measure itself properly. -  
+Elsewhere, despite our **favourable view** of immigration, we note that arguments against it, **put forward** by J.D. Vance and his **ilk**, have some merit. -  
+A Dutch angle, also known as a **canted angle** or **oblique angle**, is a camera shot where the camera is **tilted** on its roll axis, creating a sense of unease or disorientation for the viewer. -  
+The surveyor's report didn't highlight anything **untoward**. -  
+He didn't want any further involvement for fear of **retribution**. -  
+He needs to learn to **curb** his temper. -  
+We can **curb** juvenile **delinquency** by education. -  
+The key of modern enterprise system is **property right** **perspicuity**. -  
+Why is the fly or **bug agaric** **toadstool** so named? -  
+The boy remained as dismal as a **hearse**. -  
+They have always **looked askance** at the western notion of democracy. -  
+Do you think anyone is willing to listen to that **malarkey**? -  
+A **shambolic** leak reveals Team Trump’s contempt for allies. -  
 These movies seem to **epitomize** the 1950s. -  
 Who holds the **purse strings** in your house? -  
 He wasn't the **paragon** of virtue she had expected. -  

@@ -24,18 +24,77 @@ sordid
 
 kitsch  
 
+affinity  
+
+rapacity  
+
+sagacious  
+
 -------------------------  
 
+Joseph posits that the Federal Reserve is taking a backseat to fiscal policies set by the White House.  
+Joseph draws parallels between current economic conditions and 2018, where market disruptions led to adjustments in Fed policy.  
 
-Whew.  
-This material frays easily.  
-Tempers began to fray in the hot weather.  
-The electric wire is fraying and could be dangerous to handle.  
-They laughed at my puny efforts.  
-The lamb was a puny little thing.  
+There is a **close affinity** between Italian and Spanish.  
+
+Roads were so empty that I watched rats **skipping along** them, undisturbed, in the evenings.  
+To hear about the repressive politics, I learned to wait on **low stools** in **shabby** tea rooms for monsoon **downpours**.  
+**shoddy, inferior, substandard, sloppy**.  
+DOGE comes for the **data wonks**. America may soon be unable to measure itself properly. -  
+Inside the world of **vigilante** scam-baiters.  
+Ukraine’s army escapes Kursk by **the skin of its teeth**.  
+Elsewhere, despite our **favourable view** of immigration, we note that arguments against it, **put forward** by J.D. Vance and his **ilk**, have some merit. -    
 
 
-Why is the fly or bug agaric toadstool so named?  
+**disquiet, discontent, disaffected, unrest**. 
+She seemed **outwardly** **composed**.  
+**ravine, cliff, hillside, canyon, gorge, creek, valley**.  
+The deal had the **tacit approval** of the President.  
+Your silence implies **tacit consent** to these proposals.  
+**dillydally, fritter, dawdle** 
+
+A Dutch angle, also known as a **canted angle** or **oblique angle**, is a camera shot where the camera is **tilted** on its roll axis, creating a sense of unease or disorientation for the viewer. -    
+
+**rugged charm**.  
+Knowledge is acquired, not **innate**.  
+**innate ability/immunity**.  
+Your statement doesn't **jibe with the facts**.   
+She didn't like to be **beholden** to anyone.  
+**privy**.  
+On this issue he is completely **immovable**.  
+The punch left him **dazed** and bleeding.  
+He looked **dazed** with drugs.  
+The **ball started rolling**.  
+This period of travelling helped McConaughey **comes to terms** with himself.  
+
+American and Japanese alike— endures in history, in sacred ground, and the bonds between our nations. Their **valor** will never fade.  
+
+The surveyor's report didn't highlight anything **untoward**. -  
+He didn't want any further involvement for fear of **retribution**. -   
+He needs to learn to **curb** his temper. -    
+She put a **curb** on her spending.  
+We can **curb** juvenile **delinquency** by education. -    
+
+
+**vindicate**.  
+The key of modern enterprise system is **property right** **perspicuity**. -    
+**apostate**.  
+> apostate, heathen, heretics. 
+> No, apostate isn’t commonly used in everyday conversation. It’s more of a formal or literary word, primarily used in religious, political, or ideological contexts to describe someone who has abandoned a belief or allegiance. You might encounter it in historical discussions, religious texts, or academic writing, but it’s not a word you’d hear often in casual speech.  
+
+**remonstrance**  
+> No, remonstrance is not commonly used in everyday conversation. It’s a formal or literary word that refers to a forceful protest or objection. You might encounter it in legal, historical, or political contexts, but in casual speech, people are more likely to use words like protest, complaint, or objection instead.  
+
+
+**Whew**.  
+This material **frays** easily.  
+Tempers began to **fray** in the hot weather.  
+The electric wire is **fraying** and could be dangerous to handle.  
+They laughed at my **puny efforts**.  
+The lamb was a **puny** little thing.  
+
+
+Why is the fly or **bug agaric** **toadstool** so named? -    
 
 It's a warning sign for the Trump administration, with aggressive tariffs expected to be unveiled next week that could **stoke** inflation and **crimp demand**.  
 
