@@ -30,7 +30,28 @@ rapacity
 
 sagacious  
 
+ebullient 
+
+riptide  
+
+clinch  
+
+
 -------------------------  
+
+**janitor, genitor, progenitor**.  
+The cut began to **scab**.  
+They endured years of suffering and **privation**.  
+Fortunately he soon made friends with an old indigene.  
+She crooked her finger to beckon him.  
+Los Angeles is rife with gossip about the stars' private lives.  
+grimy, slimy, grime, greasy, sleazy, smelly.  
+Property sales have been in the doldrums for some time.  
+He's been in the doldrums ever since she left him.  
+
+
+Once it starts to look clumpy, it’s ready. After you gently strain out the liquid, the original kefir grains are left behind.  
+
 
 Joseph posits that the Federal Reserve is taking a backseat to fiscal policies set by the White House.  
 Joseph draws parallels between current economic conditions and 2018, where market disruptions led to adjustments in Fed policy.  
@@ -98,7 +119,6 @@ Why is the fly or **bug agaric** **toadstool** so named? -
 
 It's a warning sign for the Trump administration, with aggressive tariffs expected to be unveiled next week that could **stoke** inflation and **crimp demand**.  
 
-**wayside, sideway, sidewalk, curbside**.  
 
 The boy remained as dismal as a **hearse**. -    
 **ravine**.  
@@ -472,6 +492,8 @@ We would not **belabor** this point but only wish each to ponder it.
 
 
 ## Words Gallery  
+
+**wayside, sideway, sidewalk, curbside**.  
 
 **burnish, varnish, garnish, polish, gloss**  
 
