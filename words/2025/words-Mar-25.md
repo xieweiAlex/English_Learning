@@ -28,33 +28,28 @@ affinity
 
 rapacity  
 
-sagacious  
-
-ebullient 
-
-riptide  
-
-clinch  
-
-
 -------------------------  
+
+The **aquarium** has some interesting **specimens** of unusual tropical fish.  
+These early paintings clearly **prefigure** his Later work. -    
 
 **janitor, genitor, progenitor**.  
 The cut began to **scab**.  
 They endured years of suffering and **privation**.  
-Fortunately he soon made friends with an old indigene.  
-She crooked her finger to beckon him.  
-Los Angeles is rife with gossip about the stars' private lives.  
-grimy, slimy, grime, greasy, sleazy, smelly.  
-Property sales have been in the doldrums for some time.  
-He's been in the doldrums ever since she left him.  
+Fortunately he soon made friends with an old **indigene**.  
+She **crooked** her finger to **beckon** him.  
+Los Angeles is **rife with** gossip about the star's private lives.  
+**grimy, slimy, grime, greasy, sleazy, smelly**.  
+Property sales have been in the **doldrums** for some time. -  
+He's been **in the doldrums** ever since she left him.  
+
+Once it starts to look **clumpy**, it’s ready. After you gently strain out the liquid, the original kefir grains are left behind.  
 
 
-Once it starts to look clumpy, it’s ready. After you gently strain out the liquid, the original kefir grains are left behind.  
+### Week 4 
 
-
-Joseph posits that the Federal Reserve is taking a backseat to fiscal policies set by the White House.  
-Joseph draws parallels between current economic conditions and 2018, where market disruptions led to adjustments in Fed policy.  
+Joseph posits that the Federal Reserve is **taking a backseat** to fiscal policies set by the White House.  
+Joseph **draws parallels** between current economic conditions and 2018, where market disruptions led to adjustments in Fed policy.  
 
 There is a **close affinity** between Italian and Spanish.  
 
@@ -424,6 +419,38 @@ A **pestilence** **overhangs** the country.
 
 ## Words Explain 
 
+1. **Clinch**:  
+   - **Meaning**: To clinch means to settle or confirm a deal or argument. It can also refer to holding something tightly or achieving a decisive victory.  
+   - **Usage**: It is a fairly common word, especially in business or sports contexts. For example, a team might "clinch" a championship by winning a key game.  
+   - **Example Sentence**: The company was able to clinch a multi-million dollar contract with the government.  
+
+2. **Twaddle**:  
+   - **Meaning**: Twaddle refers to trivial or nonsensical talk or writing. It is often used to dismiss something as foolish or insignificant.  
+   - **Usage**: This word is less commonly used in everyday conversation but can still appear in literature or discussion to dismiss someone’s view or statement.  
+   - **Example Sentence**: His explanation was nothing but twaddle.  
+
+3. **Petulant**:  
+   - **Meaning**: Petulant describes someone who is childishly sulky or bad-tempered. It often refers to someone who is irritably or unreasonably upset.  
+   - **Usage**: It is a moderately common word, often used in writing or more formal contexts to describe a person's behavior.  
+   - **Example Sentence**: She became petulant when her demands weren't immediately met.  
+
+
+1. **Sagacious**:  
+   - **Meaning**: Sagacious describes someone who is wise, knowledgeable, and has good judgment or keen perception. It often suggests wisdom derived from experience and insight.  
+   - **Usage**: This word is not extremely common in everyday conversation, but it is used in more formal writing or speech to commend someone's intelligence or decision-making abilities.  
+   - **Example Sentence**: The sagacious leader was admired for her ability to navigate complex situations.  
+
+2. **Ebullient**:  
+   - **Meaning**: Ebullient describes someone who is full of energy, enthusiasm, or cheerful excitement. It can also refer to something that is boiling or bubbling up.  
+   - **Usage**: It's a somewhat less common word but is useful in expressing a high level of liveliness or enthusiasm.  
+   - **Example Sentence**: Her ebullient personality made her popular among her colleagues.  
+
+3. **Riptide**:  
+   - **Meaning**: Riptide, also known as a rip current, is a strong, localized, and narrow current of water that moves directly away from the shore. It can pose a danger to swimmers.  
+   - **Usage**: This word is common in the context of oceanography, beach safety, or when discussing swimming conditions in coastal areas.  
+   - **Example Sentence**: Swimmers are advised to be cautious as there are reports of a strong riptide near the beach.  
+
+
 **braggart**  
 > braggart isn't commonly used in everyday conversation. People are more likely to say boaster, show-off, or just someone who brags a lot. However, braggart is still understood, especially in written or formal contexts. 
 
@@ -451,7 +478,7 @@ A **pestilence** **overhangs** the country.
    - This refers to someone who is unfortunate or unlucky. For example: "The hapless traveler lost his passport right before his flight."  
    - Another example could be: "In the story, the hapless hero faced one misfortune after another."  
 
-
+**belabor**  
 Don't worry, we won't **belabor** this topic.   
 We would not **belabor** this point but only wish each to ponder it.  
 
