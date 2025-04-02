@@ -30,6 +30,10 @@ rapacity
 
 -------------------------  
 
+Racial strife is tearing our country apart.  
+strife, dispute, quarrel.  
+
+
 The **aquarium** has some interesting **specimens** of unusual tropical fish.  
 These early paintings clearly **prefigure** his Later work. -    
 
