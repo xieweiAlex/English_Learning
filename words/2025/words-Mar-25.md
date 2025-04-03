@@ -33,10 +33,25 @@ morose
 
 grunge.  
 
+comportment, demeanor, manners 
+
 -------------------------  
 aloof, indifferent, standoffish 
 acetic, acidic, ascetic.  
 
+He has put forward new peace proposals.  
+She put forward some cogent reasons for abandoning the plan.  
+
+midget, dwarf. 
+wrangle, clash, quarrel, strife.  
+
+Yet building projects continue apace.  
+The weeds grow apace.  
+He bellows, rends the air with anguish.  
+Release does not exonerate the offender. -  
+
+The White House Correspondents Association Speaks Cowardice to Power.  
+So eight weeks ago this obsequious bootlicker Daniels thought Amber Ruffin “would be a perfect fit for the dinner this year” but now, four weeks before the show, he’s trying to claim with a straight face that “For the past couple of weeks, I have been planning a re-envisioning of our dinner tradition for this year”?  
 
 **hatchet job**, **bury the hatchet**.   
 The press did a very effective **hatchet job** on her last movie.  
