@@ -27,12 +27,26 @@ kitsch
 affinity  
 
 rapacity  
+cataclysm  
+
+morose  
+
+grunge.  
 
 -------------------------  
+aloof, indifferent, standoffish 
+acetic, acidic, ascetic.  
 
-Racial strife is tearing our country apart.  
-strife, dispute, quarrel.  
 
+**hatchet job**, **bury the hatchet**.   
+The press did a very effective **hatchet job** on her last movie.  
+It is time to **bury the hatchet** and forget about what has happened in the past.   
+She was **seized** by a sudden **pang** of conscience.   
+**magnetic resonance**, **magnetic resonance imaging**.  
+The walls were plain and **unadorned**.  
+
+**Racial strife** is tearing our country apart.  
+**strife, dispute, quarrel**.  
 
 The **aquarium** has some interesting **specimens** of unusual tropical fish.  
 These early paintings clearly **prefigure** his Later work. -    
