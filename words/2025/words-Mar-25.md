@@ -13,7 +13,6 @@
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
-
 addle.  
 cavil  
 milieu  
@@ -35,23 +34,67 @@ grunge.
 
 comportment, demeanor, manners 
 
+perfervid 
+
+jettison, jetty  
+
+excoriate, exonerate   
+
+crapper  
+
 -------------------------  
-aloof, indifferent, standoffish 
-acetic, acidic, ascetic.  
 
-He has put forward new peace proposals.  
-She put forward some cogent reasons for abandoning the plan.  
 
-midget, dwarf. 
-wrangle, clash, quarrel, strife.  
+Any country that can’t manufacture its own drones will be a **vassal state**.  
 
-Yet building projects continue apace.  
-The weeds grow apace.  
-He bellows, rends the air with anguish.  
-Release does not exonerate the offender. -  
+To remove the intestines or entrails of; eviscerate. -  
+His scruffy appearance does not reflect his character. -  
 
-The White House Correspondents Association Speaks Cowardice to Power.  
-So eight weeks ago this obsequious bootlicker Daniels thought Amber Ruffin “would be a perfect fit for the dinner this year” but now, four weeks before the show, he’s trying to claim with a straight face that “For the past couple of weeks, I have been planning a re-envisioning of our dinner tradition for this year”?  
+torque, torsion  
+skimp, skimpy.  
+Aloe Vera gel is anti-pyretic as it reduces heat. -  
+His father was a drunken brute.  
+
+
+### week 1 
+It turned out to be his last **dalliance** with the education system. -  
+His sharp **retort** clearly made an impact. -    
+Spicy **tahini** sauce on brown rice, kale, black beans. -     
+
+**spurious, bogus, unsubstantiated, baseless, dubious, unfounded, untrue**.  
+**harem**.  
+**spiel, intro, litany, monologue**.  
+**tumult, tumultuous, turmoil, upheaval, strife, commotion, uproar**.  
+
+
+AI enables a greater degree of digital **autarky**. So long as you’re connected to the global Internet. -    
+
+Yet not everyone is **running for the exits**. Fool analyst Matt Argersinger said he was actively buying stocks on Friday, acknowledging that while the long-term effects of tariffs remain uncertain, his confidence in the future of U.S. businesses hasn’t **wavered**.   
+In the late 1990s, Nortel Networks was the **crown jewel** of Canada's technology sector.  
+It's a **stark** reminder that passive investing isn't without its risks; when a single stock dominates an index, both direct and indirect exposures can lead to significant financial setbacks.  
+
+**wonk, geek, pundit**, 
+
+**In the eyes of** the public, a divorced man is **footloose** and **fancy-free**.  
+**carefree, fancy-free, scot-free, unscathed**.  
+**teeter, totter**.  
+
+**aloof, indifferent, standoffish** 
+**acetic, acidic, ascetic**.  
+
+He has **put forward** new peace proposals.  
+She **put forward** some **cogent reasons** for abandoning the plan.  
+
+**midget, dwarf**. 
+**wrangle, clash, quarrel, strife**.  
+
+Yet building projects continue **apace**. -    
+The weeds grow **apace**.  
+He **bellows**, **rends the air with anguish**.  
+Release does not **exonerate** the offender. -  
+
+The White House Correspondents Association Speaks **Cowardice** to Power.  
+So eight weeks ago this **obsequious** **bootlicker** Daniels thought Amber Ruffin “would be a perfect fit for the dinner this year” but now, four weeks before the show, he’s trying to claim with a **straight face** that “For the past couple of weeks, I have been planning a re-envisioning of our dinner tradition for this year”?  
 
 **hatchet job**, **bury the hatchet**.   
 The press did a very effective **hatchet job** on her last movie.  
@@ -100,7 +143,6 @@ She seemed **outwardly** **composed**.
 **ravine, cliff, hillside, canyon, gorge, creek, valley**.  
 The deal had the **tacit approval** of the President.  
 Your silence implies **tacit consent** to these proposals.  
-**dillydally, fritter, dawdle** 
 
 A Dutch angle, also known as a **canted angle** or **oblique angle**, is a camera shot where the camera is **tilted** on its roll axis, creating a sense of unease or disorientation for the viewer. -    
 
@@ -552,6 +594,7 @@ We would not **belabor** this point but only wish each to ponder it.
 
 
 ## Words Gallery  
+**dillydally, fritter, dawdle, bum, deadbeat** 
 
 **wayside, sideway, sidewalk, curbside**.  
 
