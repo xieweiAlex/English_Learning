@@ -119,7 +119,7 @@ She is **disconsolate** at the death of her cat. -
 **Recumbent** bicycle equipped with very comfortable office chair. -  
 He was **subservient** and **servile**.  
 
-The press was accused of being **subservient** to the government. -  
+The press was accused of being **subservient** to the government.   
 I know why you **hung up on** the toxic Exes.  
 
 

@@ -87,11 +87,11 @@ My eye **alighted** on an old book.
 **whipsaw, sawtooth**.  
 
 Consulting firms like McKinsey and Accenture **ought to be** feeling **cheery**.  
-Mining multinationals are learning to do business with **juntas**. -  
+Mining multinationals are learning to do business with **juntas**.   
 
 **unqualified**: In older English usage, “qualified” often meant restricted in scope or extent. For example, “a qualified approval” meant an approval with some reservations or conditions.  
 Elon Musk finally **consummated** his $44bn deal to buy the social media site Twitter.  
-I know I sound like a **consummate** optimist, but I'm really not. -  
+I know I sound like a **consummate** optimist, but I'm really not.   
 Later, she asserted that the marriage, it was never **consummated**.  
 
 **assert, aver, allege**, **claim**  
