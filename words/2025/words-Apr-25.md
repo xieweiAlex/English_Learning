@@ -48,7 +48,25 @@ turgid
 
 corpulent 
 
+**brandish**  
+
+sallow  
+
 -------------------------  
+
+hovel, hut, shack, shed.  
+He wore an expensive, dark blue **pinstripe** suit. -  
+
+
+diuretic 
+debauch, depraved.  
+garment, apparel, 
+hoodlum, thug, goons, hoodlum, lad.  
+distend, swell, dilate.  
+You won't have to shell out a fortune for it.   
+Water seethed in the caldron.  
+
+peevish, cranky, irritable, snarky.  
 
 The economy still faces **intractable** problems.  
 **dirk, dagger** 
@@ -57,7 +75,6 @@ It's **borderline** reasonable.
 
 This was a **thunderbolt** out of a clear sky.  
 **impassible**??  
-**brandish**  
 He used to make extremely dull, **turgid** and **frankly** awful speeches.  
 a **menial** job.  
 
