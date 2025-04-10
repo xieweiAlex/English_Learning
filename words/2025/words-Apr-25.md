@@ -54,19 +54,27 @@ sallow
 
 -------------------------  
 
-hovel, hut, shack, shed.  
+FDA "prepared to act" on RFK's request to remove **fluoride** from drinking water  
+Trump’s tariffs will **pummel** Vietnam.  
+**For the sake of** those without good dental hygiene and, **therefore**, who are most at risk of tooth decay, this **safety net** should be **dismantled** with caution.  
+
+She was released **on parole**.  
+The blue dye is obtained from the **indigo** plant.  
+**cyan, indigo**, 
+**klutz, clumsy** 
+
+**hovel, hut, shack, shed**.  
 He wore an expensive, dark blue **pinstripe** suit. -  
 
+**diuretic** 
+**debauch, depraved**.  
+**garment, apparel**, 
+**hoodlum, thug, goons, hoodlum, lad**.  
+**distend, swell, dilate**.  
+You won't have to **shell out** a fortune for it.   
+Water **seethed** in the **caldron**.  
 
-diuretic 
-debauch, depraved.  
-garment, apparel, 
-hoodlum, thug, goons, hoodlum, lad.  
-distend, swell, dilate.  
-You won't have to shell out a fortune for it.   
-Water seethed in the caldron.  
-
-peevish, cranky, irritable, snarky.  
+**peevish, cranky, irritable, snarky**.  
 
 The economy still faces **intractable** problems.  
 **dirk, dagger** 
