@@ -58,7 +58,7 @@ The artist exploring the new is liable to **derision** and hostility.
 
 **blurt out**.  
 We had roasted **pheasant** for dinner.  
-His **scruffy** appearance does not reflect his character. -  
+His **scruffy** appearance does not reflect his character.   
 **dolorous**.  
 The curtains were **fluttering** in the breeze.  
 Little sparrows **fluttered** among the branches.  
@@ -269,7 +269,7 @@ In fact, my mother wanted her children to see themselves much like the **gardeni
 **Eczema**.  
 **purgatory**.  
 **ovary**  
-She gazed at the serene landscape, a picture of perfect **repose**. -  
+She gazed at the serene landscape, a picture of perfect **repose**.   
 
 the warm **turquoise** sea.  
 the sky shaded from **turquoise** to night blue.  
@@ -334,7 +334,7 @@ There was no **intimation** from his doctor that his condition was serious.
 I haven't felt inclined to **avail myself of** your kind offer.  
 
 Can I take a **mulligan** on that decision?  
-I had a terrible opening hand, so I used my **mulligan** to **redraw**. -  
+I had a terrible opening hand, so I used my **mulligan** to **redraw**.   
 That meeting didn't go as planned—can we call it a **mulligan** and start fresh tomorrow?  
 
 

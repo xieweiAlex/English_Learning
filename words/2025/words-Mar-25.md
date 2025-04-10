@@ -104,7 +104,7 @@ Do you think anyone is willing to listen to that **malarkey**? -
 **off-limits**.  
 
 
-A **shambolic** leak reveals Team Trump’s contempt for allies. -    
+A **shambolic** leak reveals Team Trump’s contempt for allies.   
 
 
 The hotel had always been run in a **slipshod** way.  
@@ -236,7 +236,7 @@ Our client is unable to appear due to **extenuating** circumstances.
 Why everyone is **harping on** about Guinness. - How the Irish **stout** has drafted in new fans  
 In F. Scott Fitzgerald’s **immortal novel**, America’s graft and glory are **entwined**.  
 Books were smuggled on planes, on trains and in baby’s **nappies**. -    
-It is just possible, too, that Ukraine’s front lines could suddenly **buckle** and collapse in the face of Russian attacks. -    
+It is just possible, too, that Ukraine’s front lines could suddenly **buckle** and collapse in the face of Russian attacks.   
 Even by his standards the **wallops** that Donald Trump has thrown over the past day are **colossal** ones.  
 Israel’s army adopts a **high-stakes** new strategy: **more terrain**. It remains present inside Syria, Lebanon, Gaza and the West Bank. 
 
