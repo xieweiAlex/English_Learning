@@ -1,5 +1,9 @@
 ## words-Apr-25.md ##  
 words/2025/words-Apr-25.md  
+He wore an expensive, dark blue **pinstripe** suit. -  
+To remove the intestines or **entrails** of; **eviscerate**. -  
+His **scruffy** appearance does not reflect his character. -  
+**Aloe Vera** gel is **anti-pyretic** as it reduces heat. -  
 It turned out to be his last **dalliance** with the education system. -  
 His sharp **retort** clearly made an impact. -  
 Spicy **tahini** sauce on brown rice, kale, black beans. -  
@@ -44,6 +48,7 @@ He proceeded to **excoriate** me in front of the nurses. -
 
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
+She felt like an **interloper** in her own family. -  
 This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
 She is **disconsolate** at the death of her cat. -  
 **Recumbent** bicycle equipped with very comfortable office chair. -  

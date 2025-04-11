@@ -54,6 +54,9 @@ sallow
 
 -------------------------  
 
+deleterious effect.  
+
+
 FDA "prepared to act" on RFK's request to remove **fluoride** from drinking water  
 Trump’s tariffs will **pummel** Vietnam.  
 **For the sake of** those without good dental hygiene and, **therefore**, who are most at risk of tooth decay, this **safety net** should be **dismantled** with caution.  
