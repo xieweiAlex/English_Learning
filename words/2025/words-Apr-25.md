@@ -52,10 +52,30 @@ corpulent
 
 sallow  
 
+**impassible**  
+
+halcyon  
+
+pastiche  
+
+fetid??  
+
+And you can bestow love upon things.  
+sycophant  
+He is a fervid orator.  
+
+fervid, fervent, ardent, zealous, fanatical, 
+
+I was appalled by the **loutish** behaviour.  
+
+stoop, swoop, swoon 
 -------------------------  
 
-deleterious effect.  
+Allen is a wiseacre who hears the grass grow.  
+I’ve been mulling over what you said last night.  
 
+
+deleterious effect.  
 
 FDA "prepared to act" on RFK's request to remove **fluoride** from drinking water  
 Trump’s tariffs will **pummel** Vietnam.  
@@ -79,13 +99,12 @@ Water **seethed** in the **caldron**.
 
 **peevish, cranky, irritable, snarky**.  
 
-The economy still faces **intractable** problems.  
+The economy still faces **intractable** problems. -  
 **dirk, dagger** 
 
 It's **borderline** reasonable.  
 
 This was a **thunderbolt** out of a clear sky.  
-**impassible**??  
 He used to make extremely dull, **turgid** and **frankly** awful speeches.  
 a **menial** job.  
 
@@ -99,17 +118,12 @@ His **scruffy** appearance does not reflect his character. -
 **Aloe Vera** gel is **anti-pyretic** as it reduces heat. -  
 His father was a drunken **brute**.  
 
-
 ### week 1 
 It turned out to be his last **dalliance** with the education system. -  
 His sharp **retort** clearly made an impact. -    
 Spicy **tahini** sauce on brown rice, kale, black beans. -     
 
-**spurious, bogus, unsubstantiated, baseless, dubious, unfounded, untrue**.  
 **harem**.  
-**spiel, intro, litany, monologue**.  
-**tumult, tumultuous, turmoil, upheaval, strife, commotion, uproar**.  
-
 
 AI enables a greater degree of digital **autarky**. So long as you’re connected to the global Internet. -    
 
@@ -117,20 +131,11 @@ Yet not everyone is **running for the exits**. Fool analyst Matt Argersinger sai
 In the late 1990s, Nortel Networks was the **crown jewel** of Canada's technology sector.  
 It's a **stark** reminder that passive investing isn't without its risks; when a single stock dominates an index, both direct and indirect exposures can lead to significant financial setbacks.  
 
-**wonk, geek, pundit**, 
-
 **In the eyes of** the public, a divorced man is **footloose** and **fancy-free**.  
-**carefree, fancy-free, scot-free, unscathed**.  
 **teeter, totter**.  
-
-**aloof, indifferent, standoffish** 
-**acetic, acidic, ascetic**.  
 
 He has **put forward** new peace proposals.  
 She **put forward** some **cogent reasons** for abandoning the plan.  
-
-**midget, dwarf**. 
-**wrangle, clash, quarrel, strife**.  
 
 Yet building projects continue **apace**. -    
 The weeds grow **apace**.  
@@ -140,7 +145,6 @@ Release does not **exonerate** the offender. -
 The White House Correspondents Association Speaks **Cowardice** to Power.  
 So eight weeks ago this **obsequious** **bootlicker** Daniels thought Amber Ruffin “would be a perfect fit for the dinner this year” but now, four weeks before the show, he’s trying to claim with a **straight face** that “For the past couple of weeks, I have been planning a re-envisioning of our dinner tradition for this year”?  
 
-**hatchet job**, **bury the hatchet**.   
 The press did a very effective **hatchet job** on her last movie.  
 It is time to **bury the hatchet** and forget about what has happened in the past.   
 She was **seized** by a sudden **pang** of conscience.   
@@ -159,7 +163,6 @@ They endured years of suffering and **privation**.
 Fortunately he soon made friends with an old **indigene**.  
 She **crooked** her finger to **beckon** him.  
 Los Angeles is **rife with** gossip about the star's private lives.  
-**grimy, slimy, grime, greasy, sleazy, smelly**.  
 Property sales have been in the **doldrums** for some time. -  
 He's been **in the doldrums** ever since she left him.  
 
@@ -168,6 +171,21 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 ## Words Explain 
 
 ## Words Gallery  
+**wonk, geek, pundit**, 
+**carefree, fancy-free, scot-free, unscathed**.  
+**aloof, indifferent, standoffish** 
+**acetic, acidic, ascetic**.  
+**midget, dwarf**. 
+**wrangle, clash, quarrel, strife**.  
+**hatchet job**, **bury the hatchet**.   
+
+**grimy, slimy, grime, greasy, sleazy, smelly**.  
+**strife, dispute, quarrel**.  
+**spurious, bogus, unsubstantiated, baseless, dubious, unfounded, untrue**.  
+**spiel, intro, litany, monologue**.  
+**tumult, tumultuous, turmoil, upheaval, strife, commotion, uproar**.  
+
+
 **dillydally, fritter, dawdle, bum, deadbeat** 
 
 **wayside, byway, sideway, sidewalk, curbside**.  
@@ -185,7 +203,6 @@ delude, deceive, dishonest, fool
 **supine**??  
 tutelage??  
 enamored??  
-fetid??  
 elide??  
 Layaway  
 **Jubilant**  
@@ -218,7 +235,24 @@ sallow
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
 
 
+
+
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
+
+**In the eyes of** the public, a divorced man is **footloose** and **fancy-free**.  
+Los Angeles is **rife with** gossip about the star's private lives.  
+
+
+His **scruffy** appearance does not reflect his character.  
+**Aloe Vera** gel is **anti-pyretic** as it reduces heat. -  
+**harem**.  
+
+In the late 1990s, Nortel Networks was the **crown jewel** of Canada's technology sector.  
+
+He **bellows**, **rends the air with anguish**.  
+So eight weeks ago this **obsequious** **bootlicker** Daniels thought Amber Ruffin “would be a perfect fit for the dinner this year” but now, four weeks before the show, he’s trying to claim with a **straight face** that “For the past couple of weeks, I have been planning a re-envisioning of our dinner tradition for this year”?  
+
+They endured years of suffering and **privation**.  
 
 
