@@ -19,6 +19,8 @@ milieu
 carouse  
 
 adumbrate?? 
+umbrage.  
+
 sordid 
 
 kitsch  
@@ -60,18 +62,33 @@ pastiche
 
 fetid??  
 
-And you can bestow love upon things.  
 sycophant  
-He is a fervid orator.  
 
-fervid, fervent, ardent, zealous, fanatical, 
-
-
-stoop, swoop, swoon 
+stoop, swoop, swoon  
 
 sagacious, cagey  
 
 -------------------------  
+
+palisade  
+
+
+
+
+
+**fervid, fervent, ardent, zealous, fanatical** 
+
+Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**. -  
+The next issue is that reviewing is generally dull and **vapid**. -  
+And you can **bestow** love upon things.  
+He is a **fervid** **orator**.  
+**sycophant, obsequence, supplicant**.   
+
+
+Blood was beginning to **seep** through the bandages.  
+**parrot, parakeet**.  
+I began to **nauseate** the place I was in.  
+
 
 He wasn’t what we see in public. I find that fascinating. Not **exculpatory**. Just interesting.  
 Maher interviewed total nutjob Steve Bannon and literally shoved a copy of the Constitution in Bannon’s face when Bannon started **blathering** about Trump running for a third term in 2028.  
@@ -79,7 +96,6 @@ He will always want more: more **supplicants** to obey his next command, more di
 What he’s saying is what he said the last time: he’s instructing Attorney General Pam Bondi not to enforce the law, and **pinky-swearing** that U.S. companies that are breaking the law to keep TikTok available (Akamai, Oracle, Google, Apple) won’t be held responsible for it. It’s just a complete **abdication** of the rule of law.  
 
 He was an **insufferable** **bore**. -   
-
 I was appalled by the **loutish** behaviour.  
 
 The water was full of **flotsam** and **refuse**.  
