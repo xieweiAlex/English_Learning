@@ -66,16 +66,34 @@ He is a fervid orator.
 
 fervid, fervent, ardent, zealous, fanatical, 
 
-I was appalled by the **loutish** behaviour.  
 
 stoop, swoop, swoon 
+
+sagacious, cagey  
+
 -------------------------  
 
-Allen is a wiseacre who hears the grass grow.  
-I’ve been mulling over what you said last night.  
+He wasn’t what we see in public. I find that fascinating. Not **exculpatory**. Just interesting.  
+Maher interviewed total nutjob Steve Bannon and literally shoved a copy of the Constitution in Bannon’s face when Bannon started **blathering** about Trump running for a third term in 2028.  
+He will always want more: more **supplicants** to obey his next command, more displays of his power and authority and more opportunities to trample over those who don’t belong in his America.  
+What he’s saying is what he said the last time: he’s instructing Attorney General Pam Bondi not to enforce the law, and **pinky-swearing** that U.S. companies that are breaking the law to keep TikTok available (Akamai, Oracle, Google, Apple) won’t be held responsible for it. It’s just a complete **abdication** of the rule of law.  
+
+He was an **insufferable** **bore**. -   
+
+I was appalled by the **loutish** behaviour.  
+
+The water was full of **flotsam** and **refuse**.  
+A retrofit may involve putting in new door **jambs**.  
+
+**Stowage** is provided in lined lockers beneath the berths.  
+The court **absolved** him of guilt in her death.  
+He **absolved** me from further obligation.  
 
 
-deleterious effect.  
+Allen is a **wiseacre** who hears the grass grow.  
+I’ve been **mulling over** what you said last night.  
+
+**deleterious effect**.  
 
 FDA "prepared to act" on RFK's request to remove **fluoride** from drinking water  
 Trump’s tariffs will **pummel** Vietnam.  
