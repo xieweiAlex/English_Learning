@@ -72,9 +72,8 @@ sagacious, cagey
 
 palisade  
 
-
-
-
+twaddle, dawdle, drivel, 
+grubby  
 
 **fervid, fervent, ardent, zealous, fanatical** 
 
