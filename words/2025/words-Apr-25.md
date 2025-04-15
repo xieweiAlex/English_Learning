@@ -68,12 +68,27 @@ stoop, swoop, swoon
 
 sagacious, cagey  
 
+somber, umbrage, 
+
 -------------------------  
 
 palisade  
 
 twaddle, dawdle, drivel, 
 grubby  
+
+The tinsel and the holly were decorating the drug store.  
+his taste for the tinsel of the art world.  
+Credulous people are easily misled by false advertisements.  
+Brian took a swig of his beer.  
+glut, gluttonous.  
+concubine.  
+hearse, coffin, casket, corpse, limo  
+
+aperture.  
+
+gurgle, giggle, chuckle, smirk, grin, 
+
 
 **fervid, fervent, ardent, zealous, fanatical** 
 
