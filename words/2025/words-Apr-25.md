@@ -73,9 +73,21 @@ somber, umbrage,
 -------------------------  
 
 palisade  
+grubby  
+
+The takeaway is simple: impatience impedes learning. Whether teaching a child, a colleague, or a stranger, patience is the gift of genuine improvement.  
+> “It is not happiness that makes us grateful. It’s gratefulness that makes us happy.”  
+
+I'm petrified by some of those issues. 
+We are misers about money and property, Seneca writes in On The Shortness of Life but often so careless with the one thing we can’t get back: time.  
+That flutter in your stomach before meeting new people, that's your ancestor's survivial instinct still protecting you.  
+Why the IMF should **bail out** a serial **deadbeat**.  
+The apostle paul.  
+Overripe: The skin may be discolored, wrinkled, or have blemishes  
+It's hard to imagine what reason there could be for the university to scrub its website as if he never worked there.  
+
 
 twaddle, dawdle, drivel, 
-grubby  
 
 The tinsel and the holly were decorating the drug store.  
 his taste for the tinsel of the art world.  
