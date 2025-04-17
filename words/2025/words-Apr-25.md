@@ -61,23 +61,24 @@ pastiche
 
 fetid??  
 
-sycophant  
+crass.  
 
 -------------------------  
 
+**sycophant, supplicant, suck-up**. 
 
-stoop, swoop, swoon  
 
+**stoop, swoop, swoon**  
 
-The disciples were absorbed in a discussion of Lao-tzu's dictum.  
-Overcome with shame and grief, they tried to cry and bemoan their fate.  
+The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -    
+Overcome with shame and grief, they tried to cry and **bemoan** their fate. -    
 
-askew, askance, canted, slant, tilted. 
-outlast, outgrow, outfox, outsmart, outrank,  
+**askew, askance, canted, slant, tilted**. 
+**outlast, outgrow, outfox, outsmart, outrank**,  
 Most religions **posit** the existence of life after death. -  
-We couldn't stay out there in that desolation another day.  
+We couldn't stay out there in that **desolation** another day.  
 **Apostrophe** 
-wimpy, meek, lame, 
+**wimpy, meek, lame**, 
 
 The takeaway is simple: impatience **impedes** learning. Whether teaching a child, a colleague, or a stranger, patience is the gift of genuine improvement.  
 > “It is not happiness that makes us grateful. It’s gratefulness that makes us happy.”  
@@ -254,12 +255,12 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 
 
 ## Words Gallery  
-**wonk, geek, pundit**, 
+**wonk, geek, pundit**  
 **carefree, fancy-free, scot-free, unscathed**.  
 **aloof, indifferent, standoffish** 
 **acetic, acidic, ascetic**.  
 **midget, dwarf**. 
-**wrangle, clash, quarrel, strife**.  
+**wrangle, clash, quarrel, strife**.    
 **hatchet job**, **bury the hatchet**.   
 
 **grimy, slimy, grime, greasy, sleazy, smelly**.  
@@ -268,8 +269,7 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 **spiel, intro, litany, monologue**.  
 **tumult, tumultuous, turmoil, upheaval, strife, commotion, uproar**.  
 
-
-**dillydally, fritter, dawdle, bum, deadbeat** 
+**dillydally, fritter, dawdle, putter, bum, deadbeat** 
 
 **wayside, byway, sideway, sidewalk, curbside**.  
 
