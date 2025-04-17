@@ -19,7 +19,6 @@ milieu
 carouse  
 
 adumbrate?? 
-umbrage.  
 
 sordid 
 
@@ -64,42 +63,47 @@ fetid??
 
 sycophant  
 
-stoop, swoop, swoon  
-
-sagacious, cagey  
-
-somber, umbrage, 
-
 -------------------------  
 
-palisade  
-grubby  
 
-The takeaway is simple: impatience impedes learning. Whether teaching a child, a colleague, or a stranger, patience is the gift of genuine improvement.  
+stoop, swoop, swoon  
+
+
+The disciples were absorbed in a discussion of Lao-tzu's dictum.  
+Overcome with shame and grief, they tried to cry and bemoan their fate.  
+
+askew, askance, canted, slant, tilted. 
+outlast, outgrow, outfox, outsmart, outrank,  
+Most religions **posit** the existence of life after death. -  
+We couldn't stay out there in that desolation another day.  
+**Apostrophe** 
+wimpy, meek, lame, 
+
+The takeaway is simple: impatience **impedes** learning. Whether teaching a child, a colleague, or a stranger, patience is the gift of genuine improvement.  
 > “It is not happiness that makes us grateful. It’s gratefulness that makes us happy.”  
 
-I'm petrified by some of those issues. 
-We are misers about money and property, Seneca writes in On The Shortness of Life but often so careless with the one thing we can’t get back: time.  
-That flutter in your stomach before meeting new people, that's your ancestor's survivial instinct still protecting you.  
+I'm **petrified** by some of those issues. 
+We are **misers** about money and property, Seneca writes in On The Shortness of Life but often so careless with the one thing we can’t get back: time.  
+That **flutter** in your stomach before meeting new people, that's your ancestor's survival instinct still protecting you.  
 Why the IMF should **bail out** a serial **deadbeat**.  
-The apostle paul.  
-Overripe: The skin may be discolored, wrinkled, or have blemishes  
-It's hard to imagine what reason there could be for the university to scrub its website as if he never worked there.  
+The **apostle** Paul.  
+**Overripe**: The skin may be **discolored**, wrinkled, or have **blemishes**  
+It's hard to imagine what reason there could be for the university to **scrub** its website as if he never worked there.  
 
 
-twaddle, dawdle, drivel, 
+**twaddle, dawdle, drivel**, 
 
-The tinsel and the holly were decorating the drug store.  
-his taste for the tinsel of the art world.  
-Credulous people are easily misled by false advertisements.  
-Brian took a swig of his beer.  
-glut, gluttonous.  
-concubine.  
-hearse, coffin, casket, corpse, limo  
+The **tinsel and the holly** were decorating the drug store.  
+his taste for the **tinsel** of the art world.  
+**Credulous** people are easily misled by false advertisements.  
+Brian took a **swig** of his beer. -    
+**glut, gluttonous**.  
+**concubine**.  
 
-aperture.  
+**hearse, coffin, casket, corpse, **sepulcher**, limo**  
+deft, apt  
 
-gurgle, giggle, chuckle, smirk, grin, 
+**gurgle, giggle, chuckle, smirk, grin**, 
 
 
 **fervid, fervent, ardent, zealous, fanatical** 
@@ -229,6 +233,25 @@ He's been **in the doldrums** ever since she left him.
 Once it starts to look **clumpy**, it’s ready. After you gently strain out the liquid, the original kefir grains are left behind.  
 
 ## Words Explain 
+
+1. **Sagacious**: This means having or showing keen mental discernment and good judgment; wise or shrewd. It's more formal and less commonly used in everyday conversation, but it's common in literary and academic contexts.  
+
+2. **Cagey**: This describes someone who is cautious, reserved, or shrewd. It’s a fairly common term, particularly in conversation, to describe someone who is being careful about sharing information.  
+
+3. **Somber**: This means dark or dull in color or tone; gloomy, or having a serious, solemn mood. It's moderately common and used in both everyday and literary contexts.  
+
+4. **Umbrage**: This means offense or annoyance. It's less commonly used in daily conversation but is still recognized, especially in more formal or literary contexts.  
+
+5. **Aperture**: This term refers to an opening, hole, or gap, often used in the context of photography to describe the opening in a camera lens. It's commonly used in technical, artistic, or scientific contexts.  
+
+6. **Edifice**: This refers to a large, imposing building. It's moderately common, especially in written language or when discussing architecture.  
+
+7. **Palisade**: This is a fence of wooden stakes or iron railings fixed in the ground, typically for defense. It’s not very common in everyday language and is mostly used in historical or military contexts.  
+
+8. **Grubby**: This means dirty or grimy. It’s a common and informal term used to describe something that is not clean.  
+
+> In summary, words like "grubby," "somber," and "cagey" are more commonly used in everyday language, whereas words like "sagacious," "umbrage," "aperture," "edifice," and "palisade" might be more frequently encountered in specific contexts or more formal writing.  
+
 
 ## Words Gallery  
 **wonk, geek, pundit**, 
