@@ -25,7 +25,7 @@ There is a **close affinity** between Italian and Spanish.
 Roads were so empty that I watched rats **skipping along** them, undisturbed, in the evenings.  
 To hear about the repressive politics, I learned to wait on **low stools** in **shabby** tea rooms for monsoon **downpours**.  
 **shoddy, inferior, substandard, sloppy**.  
-DOGE comes for the **data wonks**. America may soon be unable to measure itself properly. -  
+DOGE comes for the **data wonks**. America may soon be unable to measure itself properly.   
 Inside the world of **vigilante** scam-baiters.  
 Ukraine’s army escapes Kursk by **the skin of its teeth**.  
 Elsewhere, despite our **favourable view** of immigration, we note that arguments against it, **put forward** by J.D. Vance and his **ilk**, have some merit. -    
@@ -95,12 +95,12 @@ The invading troops were guilty of **rape and pillage**.
 
 Oil the **griddle** with butter, or spray it with non-stick cooking spray.  
 **scorn, spurn, contempt**.  
-They have always **looked askance** at the western notion of democracy. -   
+They have always **looked askance** at the western notion of democracy.   
 
 **shimmer, shimmery, glitter, spark, sheen, shiny**, 
 **matte, glossy, satin, suede**  
 
-Do you think anyone is willing to listen to that **malarkey**? -    
+Do you think anyone is willing to listen to that **malarkey**?   
 **off-limits**.  
 
 
@@ -187,7 +187,7 @@ Microbiological **assay**, colorimetric **assay**.
 **erroneous, unsubstantiated, bogus, dubious, unfounded, untrue** 
 **unwarranted, misleading, baseless, spurious**.  
 
-These movies seem to **epitomize** the 1950s. -   
+These movies seem to **epitomize** the 1950s.   
 Hot steel is **quenched** to harden it.  
 **quench, quell**, 
 Who holds the **purse strings** in your house?   

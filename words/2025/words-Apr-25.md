@@ -55,19 +55,15 @@ sallow
 
 **impassible**  
 
-halcyon  
-
-pastiche  
-
-fetid??  
-
-crass.  
-
 -------------------------  
 
+**congee, porridge**  
+
+The next president could abrogate the treaty.  
+**ink jet, printing ink**.  
+
+**teensy, teensy-weensy, teeny, puny** 
 **sycophant, supplicant, suck-up**. 
-
-
 **stoop, swoop, swoon**  
 
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -    
@@ -186,11 +182,11 @@ His father was a drunken **brute**.
 ### week 1 
 It turned out to be his last **dalliance** with the education system. -  
 His sharp **retort** clearly made an impact. -    
-Spicy **tahini** sauce on brown rice, kale, black beans. -     
+Spicy **tahini** sauce on brown rice, kale, black beans.   
 
 **harem**.  
 
-AI enables a greater degree of digital **autarky**. So long as you’re connected to the global Internet. -    
+AI enables a greater degree of digital **autarky**. So long as you’re connected to the global Internet.   
 
 Yet not everyone is **running for the exits**. Fool analyst Matt Argersinger said he was actively buying stocks on Friday, acknowledging that while the long-term effects of tariffs remain uncertain, his confidence in the future of U.S. businesses hasn’t **wavered**.   
 In the late 1990s, Nortel Networks was the **crown jewel** of Canada's technology sector.  
@@ -234,6 +230,35 @@ He's been **in the doldrums** ever since she left him.
 Once it starts to look **clumpy**, it’s ready. After you gently strain out the liquid, the original kefir grains are left behind.  
 
 ## Words Explain 
+
+> Can you help me understand the words below? Are they commonly used in daily conversation or writing?  
+
+1. **Halcyon**  
+   - **Meaning:** Calm, peaceful, or tranquil; often used to describe an idyllic period in the past.  
+   - **Usage:** This is not commonly used in casual conversation but might appear in more formal writing, literature, or when someone nostalgically refers to a peaceful time.  
+   - **Example:** "He often reminisces about the halcyon days of his youth."  
+
+2. **Pastiche**  
+   - **Meaning:** A work of art, literature, music, or architecture that imitates the style of previous works, often in a way that combines different inspirations for creative effect.  
+   - **Usage:** More common in artistic or academic discussions when talking about styles or influences in creative works.  
+   - **Example:** "The movie is a pastiche of 1980s science fiction films."  
+
+3. **Fetid**  
+   - **Meaning:** Having a strong, unpleasant smell.  
+   - **Usage:** Not commonly used in everyday conversation; more likely to appear in descriptive writing or when vividly describing a bad smell.  
+   - **Example:** "The fetid odor coming from the garbage can was unbearable."  
+
+4. **Crass**  
+   - **Meaning:** Lacking sensitivity, refinement, or intelligence; crude or vulgar.  
+   - **Usage:** This word is somewhat common in both conversation and writing, especially when criticizing someone's behavior or comments.  
+   - **Example:** "Making such a crass joke at the dinner table was completely inappropriate."  
+
+5. **Diatribe**  
+   - **Meaning:** A forceful and bitter verbal attack against someone or something.  
+   - **Usage:** Often used in writing or formal speech, particularly in contexts involving criticism or debate.  
+   - **Example:** "The editorial was a diatribe against the current political leadership."  
+
+-------------------  
 
 1. **Sagacious**: This means having or showing keen mental discernment and good judgment; wise or shrewd. It's more formal and less commonly used in everyday conversation, but it's common in literary and academic contexts.  
 

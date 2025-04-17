@@ -2,12 +2,9 @@
 words/2025/words-Apr-25.md  
 He wore an expensive, dark blue **pinstripe** suit. -  
 To remove the intestines or **entrails** of; **eviscerate**. -  
-His **scruffy** appearance does not reflect his character. -  
 **Aloe Vera** gel is **anti-pyretic** as it reduces heat. -  
 It turned out to be his last **dalliance** with the education system. -  
 His sharp **retort** clearly made an impact. -  
-Spicy **tahini** sauce on brown rice, kale, black beans. -  
-AI enables a greater degree of digital **autarky**. So long as you’re connected to the global Internet. -  
 Yet building projects continue **apace**. -  
 Release does not **exonerate** the offender. -  
 These early paintings clearly **prefigure** his Later work. -  
@@ -15,7 +12,6 @@ Property sales have been in the **doldrums** for some time. -
 
 ## words-Mar-25.md ##  
 words/2025/words-Mar-25.md  
-DOGE comes for the **data wonks**. America may soon be unable to measure itself properly. -  
 Elsewhere, despite our **favourable view** of immigration, we note that arguments against it, **put forward** by J.D. Vance and his **ilk**, have some merit. -  
 A Dutch angle, also known as a **canted angle** or **oblique angle**, is a camera shot where the camera is **tilted** on its roll axis, creating a sense of unease or disorientation for the viewer. -  
 The surveyor's report didn't highlight anything **untoward**. -  
@@ -24,9 +20,6 @@ We can **curb** juvenile **delinquency** by education. -
 The key of modern enterprise system is **property right** **perspicuity**. -  
 Why is the fly or **bug agaric** **toadstool** so named? -  
 The boy remained as dismal as a **hearse**. -  
-They have always **looked askance** at the western notion of democracy. -  
-Do you think anyone is willing to listen to that **malarkey**? -  
-These movies seem to **epitomize** the 1950s. -  
 He wasn't the **paragon** of virtue she had expected. -  
 He was **aptly** described as 'tall, dark, and handsome'. -  
 Books were smuggled on planes, on trains and in baby’s **nappies**. -  
