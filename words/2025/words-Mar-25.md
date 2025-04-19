@@ -217,7 +217,7 @@ The door was pulled open with a **creak**.
 **make a fuss about/over**.  
 My wife was **fussing over** the food and clothing we were going to take.  
 "**Stop fussing**," he **snapped**.  
-He was **aptly** described as 'tall, dark, and handsome'. -  
+He was **aptly** described as 'tall, dark, and handsome'.   
 It was near the **junction** of City Road and Old Street.  
 This **junction** is a well-known accident **black spot**.  
 **Lunar rover, range rover**  
@@ -235,7 +235,7 @@ Our client is unable to appear due to **extenuating** circumstances.
 
 Why everyone is **harping on** about Guinness. - How the Irish **stout** has drafted in new fans  
 In F. Scott Fitzgerald’s **immortal novel**, America’s graft and glory are **entwined**.  
-Books were smuggled on planes, on trains and in baby’s **nappies**. -    
+Books were smuggled on planes, on trains and in baby’s **nappies**.   
 It is just possible, too, that Ukraine’s front lines could suddenly **buckle** and collapse in the face of Russian attacks.   
 Even by his standards the **wallops** that Donald Trump has thrown over the past day are **colossal** ones.  
 Israel’s army adopts a **high-stakes** new strategy: **more terrain**. It remains present inside Syria, Lebanon, Gaza and the West Bank. 
@@ -276,7 +276,7 @@ The **tadpole** is the **larva** of the frog. -
 I wasn't too **keen on** physics and chemistry.  
 He deserted from his **regiment**.  
 
-They tried to persuade her to commit **perjury**. -  
+They tried to persuade her to commit **perjury**.   
 **a fly on the wall**.  
 I'm a **plainspoken** guy.  
 it **touches my heart** really really hard.  
@@ -308,7 +308,7 @@ I like to **putter around** in the garden.
 **putter, stroll, loaf, saunter, loiter** 
 Aloe Vera gel is **anti-pyretic** as it reduces heat.  
 
-We have to **ravel** the matter out. -  
+We have to **ravel** the matter out.   
 Davy had finished **ravelling** out his herring net.  
 **rift**.  
 

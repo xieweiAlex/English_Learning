@@ -116,7 +116,7 @@ If left **unchecked**, weeds will **flourish**.
 
 I can **console** myself with the fact that I'm not alone.  
 She is **disconsolate** at the death of her cat. -  
-**Recumbent** bicycle equipped with very comfortable office chair. -  
+**Recumbent** bicycle equipped with very comfortable office chair.   
 He was **subservient** and **servile**.  
 
 The press was accused of being **subservient** to the government.   
@@ -185,7 +185,7 @@ I can **aver** that he is telling the truth.
 **headphone, earpiece, earbuds**  
 
 string flossing: Requires manual **dexterity** and precision.  
-String flossing is better for: Removing **sticky plaque** and **tartar** buildup. -  
+String flossing is better for: Removing **sticky plaque** and **tartar** buildup.   
 
 **Bludgeon, browbeat, coerce, compel**  
 

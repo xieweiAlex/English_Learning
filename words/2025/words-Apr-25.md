@@ -49,20 +49,32 @@ turgid
 
 corpulent 
 
-**brandish**  
+poltroon  
 
-sallow  
-
-**impassible**  
+skedaddle  
 
 -------------------------  
 
-**congee, porridge**  
+decrepit, dilapidated, antiquated, tattered, decaying 
 
-The next president could abrogate the treaty.  
+
+
+**doctrine, dogma, precepts**, 
+His skin felt cold and **clammy**. -   
+
+He had attempted to **abduct** the three boys. -  
+The hotel has a lovely **homely** feel to it.   
+**booby** 
+**perjury, perfidy**.  
+**supine, recumbent, incumbent**  
+
+**congee, porridge**.  
+
+The next president could **abrogate** the treaty. -  
 **ink jet, printing ink**.  
 
 **teensy, teensy-weensy, teeny, puny** 
+
 **sycophant, supplicant, suck-up**. 
 **stoop, swoop, swoon**  
 
@@ -232,6 +244,23 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 ## Words Explain 
 
 > Can you help me understand the words below? Are they commonly used in daily conversation or writing?  
+
+1. **Brandish**: This verb means to wave or flourish something, especially a weapon, in a menacing or vigorous way. It is somewhat common in both conversation and writing, particularly in contexts involving action or drama.  
+
+2. **Sallow**: This adjective describes a person's complexion as having an unhealthy yellow or pale brown color. It is not very commonly used in daily conversation but might appear in descriptive writing, especially literature.  
+
+3. **Impassible**: Though it resembles "impassable," meaning something that cannot be passed or overcome, "impassible" is less commonly used and typically refers to someone who is unable to feel pain or emotion. This term is more likely found in specialized, philosophical, or religious contexts rather than in everyday speech.  
+
+4. **Avaricious**: This adjective describes someone who is excessively greedy or has an intense desire for wealth. It is more common in writing, especially in formal or literary contexts, than in everyday conversation.  
+miser, scraper 
+
+5. **Illuminati**: Originally referring to people claiming to possess special enlightenment or knowledge, it often now refers to various real or fictitious secret societies. Discussions about the "Illuminati" can appear in both casual and formal contexts but are often associated with conspiracy theories.  
+> wiseacre  
+
+In summary, **brandish** and **avaricious** are more common in both conversation and writing, while **sallow**, **impassible**, and **illuminati** are less frequently used, typically appearing in more specific contexts.  
+
+
+--------  
 
 1. **Halcyon**  
    - **Meaning:** Calm, peaceful, or tranquil; often used to describe an idyllic period in the past.  
