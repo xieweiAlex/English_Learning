@@ -39,19 +39,9 @@ perfervid
 
 jettison, jetty  
 
-excoriate, exonerate   
+excoriate  
 
-crapper  
-
-idiopathic 
-
-turgid 
-
-corpulent 
-
-poltroon  
-
-skedaddle  
+exonerate   
 
 -------------------------  
 
@@ -65,7 +55,7 @@ A hot climate **enervate** people who are not used to it.
 **assay, assailant**.  
 **apathy, apolitical**. 
 
-**doofus, goof, lubber, dweeb, bozo, dummy**.   
+**doofus, goof, lubber, dweeb, bozo, dummy, loggerhead**.   
 
 **decrepit, dilapidated, antiquated, tattered, decaying**. 
 
@@ -83,7 +73,7 @@ The hotel has a lovely **homely** feel to it.
 The next president could **abrogate** the treaty. -  
 **ink jet, printing ink**.  
 
-**teensy, teensy-weensy, teeny, puny** 
+**teensy, teensy-weensy, itsy-bitsy, teeny, puny** 
 
 **sycophant, supplicant, suck-up**. 
 **stoop, swoop, swoon**  
@@ -253,7 +243,68 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 
 ## Words Explain 
 
-> Can you help me understand the words below? Are they commonly used in daily conversation or writing?  
+> Can you help me understand the words below? Are they commonly used? If they are not common, please provide some common alternatives.  
+
+1. **Crapper**  
+   - **Meaning:** This is a slang term referring to a toilet.  
+   - **Commonality:** It's not as commonly used today, and it can be considered informal or vulgar.  
+   - **Alternative:** "Toilet" or "restroom" are more commonly used and acceptable.  
+
+2. **Idiopathic**  
+   - **Meaning:** This is a medical term used to describe a disease or condition whose cause is unknown.  
+   - **Commonality:** It is commonly used in the medical field but not typically in everyday conversation.  
+   - **Alternative:** In casual settings, you might say the cause is "unknown" or "unexplained."  
+
+3. **Turgid**  
+   - **Meaning:** This can mean swollen or distended, but it is often used metaphorically to describe something overly complex or pompous, particularly in writing or speech.  
+   - **Commonality:** It is used but more in formal contexts or literature.  
+   - **Alternative:** If referring to writing, you might use "overblown," "pompous," or "flowery." If referring to physical swelling, "swollen" is a common alternative.  
+
+4. **Corpulent**  
+   - **Meaning:** A formal or literary term for someone who is overweight.  
+   - **Commonality:** Not commonly used in everyday conversation; often seen in literary contexts.  
+   - **Alternative:** "Overweight" or "heavyset" are more commonly used.  
+
+5. **Poltroon**  
+   - **Meaning:** An old-fashioned term for a coward.  
+   - **Commonality:** Rarely used in modern language.  
+   - **Alternative:** "Coward" is the common term used today.  
+
+6. **Skedaddle**  
+   - **Meaning:** A slang or informal term meaning to leave quickly or run away.  
+   - **Commonality:** It's somewhat outdated, but still understood and sometimes used humorously.  
+   - **Alternative:** "Leave quickly," "dash," or "run off" are more straightforward alternatives.  
+
+In summary, some of these words are more commonly found in specific fields like medicine or literature, while others are a bit archaic or informal. For modern usage, the provided alternatives will likely be more suitable in everyday conversation.  
+
+------  
+
+1. **Bootleg**: 
+   - **Definition**: This term originally referred to the illegal production, distribution, or sale of goods, typically alcoholic beverages. Now, it can mean any unauthorized or unlicensed product.  
+   - **Usage**: It's fairly common in discussions about illegal activities or piracy. 
+
+2. **Moonshine**:  
+   - **Definition**: Historically, this refers to homemade, illegally produced liquor. It particularly referred to high-proof distilled spirits produced without government authorization.  
+   - **Usage**: While it's a specific term, it's widely recognized and sometimes used more generically to describe any illicit alcohol.  
+
+3. **Supine**:  
+   - **Definition**: It means lying on one's back, face upward. It can also metaphorically describe a person who is passive or inactive in situations where action is needed.  
+   - **Usage**: This word is less common in everyday conversation and more likely to be used in formal writing or medical contexts.  
+
+4. **Sputum, Mucus, Phlegm**:  
+   - **Sputum**: It is a mixture of saliva and mucus coughed up from the respiratory tract, usually during an illness.  
+   - **Mucus**: A slippery secretion produced by mucous membranes that acts as a lubricant and protective barrier.  
+   - **Phlegm**: A type of mucus produced in the respiratory tract, often during colds or other illnesses.  
+
+   - **Usage**: "Mucus" and "phlegm" are fairly common when talking about cold symptoms or in medical contexts, while "sputum" is more clinical and specific, mostly used in medical settings.  
+
+In summary:  
+- **Bootleg** and **moonshine** may come up in discussions about alcohol or illicit activities.  
+- **Supine** is rare in daily conversation but might be encountered in more formal or descriptive language.  
+- **Sputum**, **mucus**, and **phlegm** are commonly used in medical contexts and sometimes in everyday discussions about health.  
+
+
+---------  
 
 1. **Brandish**: This verb means to wave or flourish something, especially a weapon, in a menacing or vigorous way. It is somewhat common in both conversation and writing, particularly in contexts involving action or drama.  
 
@@ -319,6 +370,7 @@ In summary, **brandish** and **avaricious** are more common in both conversation
 
 
 ## Words Gallery  
+
 **wonk, geek, pundit**  
 **carefree, fancy-free, scot-free, unscathed**.  
 **aloof, indifferent, standoffish** 
@@ -346,8 +398,6 @@ indigenous
 wampum??  
 delude, delusive.  
 delude, deceive, dishonest, fool  
-**bootleg, moonshine**??  
-**supine**??  
 tutelage??  
 enamored??  
 elide??  
@@ -368,7 +418,6 @@ esperanto
 
 coterie  
 
-**sputum, mucus, phlegm**. ??  
 
 cavalcade.  
 plumage.  
