@@ -55,9 +55,19 @@ skedaddle
 
 -------------------------  
 
-decrepit, dilapidated, antiquated, tattered, decaying 
+He pushed the church left during his tenure, often to the **dismay** of traditionalist believers.   
 
+**imbecile**  
 
+To **sap** the strength or energy of; **enervate**.  
+A hot climate **enervate** people who are not used to it.  
+**indigen, indigo**.  
+**assay, assailant**.  
+**apathy, apolitical**. 
+
+**doofus, goof, lubber, dweeb, bozo, dummy**.   
+
+**decrepit, dilapidated, antiquated, tattered, decaying**. 
 
 **doctrine, dogma, precepts**, 
 His skin felt cold and **clammy**. -   
