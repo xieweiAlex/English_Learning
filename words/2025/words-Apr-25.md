@@ -45,7 +45,17 @@ exonerate
 
 palaver  
 
+couth  
+
 -------------------------  
+
+The minister preached a sermon on the parable of the lost sheep.  
+wacko, psycho, paranoid.  
+stopgap, interim, makeshift, workaround.  
+
+Squirrel: a kind of arboreal rodent having a long bushy tail  
+He was tall and delicately shaped; strong in nerve and sinew, and most dextrous in arms.  
+
 
 He pushed the church left during his tenure, often to the **dismay** of traditionalist believers.   
 
