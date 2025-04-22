@@ -43,6 +43,8 @@ excoriate
 
 exonerate   
 
+palaver  
+
 -------------------------  
 
 He pushed the church left during his tenure, often to the **dismay** of traditionalist believers.   
@@ -58,6 +60,9 @@ A hot climate **enervate** people who are not used to it.
 **doofus, goof, lubber, dweeb, bozo, dummy, loggerhead**.   
 
 **decrepit, dilapidated, antiquated, tattered, decaying**. 
+**teensy, teensy-weensy, itsy-bitsy, teeny, puny** 
+
+**sycophant, supplicant, , bootlicker, lickspittle, suck-up**. 
 
 **doctrine, dogma, precepts**, 
 His skin felt cold and **clammy**. -   
@@ -73,9 +78,7 @@ The hotel has a lovely **homely** feel to it.
 The next president could **abrogate** the treaty. -  
 **ink jet, printing ink**.  
 
-**teensy, teensy-weensy, itsy-bitsy, teeny, puny** 
 
-**sycophant, supplicant, suck-up**. 
 **stoop, swoop, swoon**  
 
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -    
