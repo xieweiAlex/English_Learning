@@ -317,7 +317,7 @@ Squirrels are **arboreal** creatures.
 **enjoin**  
 **dissuade, persuade**.  
 
-**Propitiate** the gods with a **sacrifice**. -  
+**Propitiate** the gods with a **sacrifice**.   
 Bees gather **nectar** and make it into honey.  
 > Nectar: a sweet liquid **secretion** that is attractive to **pollinators**  
 

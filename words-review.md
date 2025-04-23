@@ -1,7 +1,19 @@
 ## words-Apr-25.md ##  
 words/2025/words-Apr-25.md  
+His skin felt cold and **clammy**. -  
+He had attempted to **abduct** the three boys. -  
+The next president could **abrogate** the treaty. -  
+The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -  
+Overcome with shame and grief, they tried to cry and **bemoan** their fate. -  
+Most religions **posit** the existence of life after death. -  
+Brian took a **swig** of his beer. -  
+Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**. -  
+The next issue is that reviewing is generally dull and **vapid**. -  
+He was an **insufferable** **bore**. -  
 He wore an expensive, dark blue **pinstripe** suit. -  
+The economy still faces **intractable** problems. -  
 To remove the intestines or **entrails** of; **eviscerate**. -  
+His **scruffy** appearance does not reflect his character. -  
 **Aloe Vera** gel is **anti-pyretic** as it reduces heat. -  
 It turned out to be his last **dalliance** with the education system. -  
 His sharp **retort** clearly made an impact. -  
@@ -9,6 +21,7 @@ Yet building projects continue **apace**. -
 Release does not **exonerate** the offender. -  
 These early paintings clearly **prefigure** his Later work. -  
 Property sales have been in the **doldrums** for some time. -  
+**Aloe Vera** gel is **anti-pyretic** as it reduces heat. -  
 
 ## words-Mar-25.md ##  
 words/2025/words-Mar-25.md  
@@ -23,7 +36,6 @@ The boy remained as dismal as a **hearse**. -
 He wasn't the **paragon** of virtue she had expected. -  
 The **tadpole** is the **larva** of the frog. -  
 I see him **chafe** and fret at every pore. -  
-**Propitiate** the gods with a **sacrifice**.   
 Iran is the **fulcrum** of an unstable region. -  
 Police refused to **divulge** the identity of the suspect. -  
 The wounded soldier **tottered** to his feet. -  
@@ -37,6 +49,7 @@ He proceeded to **excoriate** me in front of the nurses. -
 
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
+She felt like an **interloper** in her own family. -  
 This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
 She is **disconsolate** at the death of her cat. -  
 He was handsome, **upright**, and **chivalrous**. -  

@@ -47,7 +47,11 @@ palaver
 
 couth  
 
+propitiate  
+
 -------------------------  
+
+Weary, wary.  
 
 The minister preached a sermon on the parable of the lost sheep.  
 wacko, psycho, paranoid.  
