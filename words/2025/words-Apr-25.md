@@ -49,9 +49,14 @@ couth
 
 propitiate  
 
+commensurate  
+
 -------------------------  
 
 Weary, wary.  
+
+So my salary does not commensurate with my effort.  
+if you don't know what commensurate means, it basically means makes up for.  
 
 The minister preached a sermon on the parable of the lost sheep.  
 wacko, psycho, paranoid.  
@@ -261,6 +266,25 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 ## Words Explain 
 
 > Can you help me understand the words below? Are they commonly used? If they are not common, please provide some common alternatives.  
+
+----------------  
+
+1. **Couth**:  
+   - **Meaning**: If someone is described as "couth," they are polite, cultured, and well-mannered. 
+   - **Common Usage**: The word "couth" is less commonly used as an adjective today, and is more often encountered in its negative form, "uncouth," which means lacking good manners or refinement.  
+   - **Common Alternatives**: Polished, refined, cultured, well-mannered.  
+
+2. **Propitiate**:  
+   - **Meaning**: To propitiate means to appease or make favorable; to win or regain the favor of someone, often by doing something to please them.  
+   - **Common Usage**: This word isn't commonly used in everyday conversation and is often found in literary or formal contexts.  
+   - **Common Alternatives**: Appease, placate, mollify, pacify.  
+
+3. **Commensurate**:  
+   - **Meaning**: Commensurate means corresponding in size, degree, or extent; proportional.  
+   - **Common Usage**: This word is relatively common in formal contexts, such as in business or academic settings.  
+   - **Common Alternatives**: Proportional, corresponding, equivalent, matching.  
+
+------------  
 
 1. **Crapper**  
    - **Meaning:** This is a slang term referring to a toilet.  
