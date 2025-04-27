@@ -51,22 +51,38 @@ propitiate
 
 commensurate  
 
+fettle  
+
+mutuel  
+
+garrulous  
+
+garish  
+
 -------------------------  
 
-Weary, wary.  
+## Week 4  
 
-So my salary does not commensurate with my effort.  
-if you don't know what commensurate means, it basically means makes up for.  
+He is **apt** to get angry over **trifles**.  
+Congress is **inert**, but a **deft** Supreme Court might contain him. -  
+Donald Trump’s **antics** mean new boldness is needed in UK-EU links.  
+Taiwan **flogs** America drones “not made in China”.  
+The **Mauritius** miracle is losing its **sheen**.  
+Even Republicans are **falling out of love** with Tesla.  
+Just as people often stop to stare at an accident, investors are **transfixed** by the car crash occurring at Tesla. 
 
-The minister preached a sermon on the parable of the lost sheep.  
-wacko, psycho, paranoid.  
-stopgap, interim, makeshift, workaround.  
+They can determine if icing your face is appropriate for your current health condition and any medications, especially **topical**, that you've been prescribed.  
 
-Squirrel: a kind of arboreal rodent having a long bushy tail  
-He was tall and delicately shaped; strong in nerve and sinew, and most dextrous in arms.  
+So my salary does not **commensurate** with my effort. -    
+if you don't know what **commensurate** means, it basically means **makes up** for.  
 
+The minister preached a **sermon** on the **parable** of the lost sheep. -    
+**wacko, psycho, paranoid**.  
 
-He pushed the church left during his tenure, often to the **dismay** of traditionalist believers.   
+Squirrel: a kind of **arboreal** **rodent** having a long **bushy** tail.  
+He was tall and delicately shaped; strong in nerve and **sinew**, and most **dextrous** in arms.  
+
+He pushed the church left during his tenure, often to the **dismay** of traditionalist believers. -     
 
 **imbecile**  
 
@@ -76,39 +92,22 @@ A hot climate **enervate** people who are not used to it.
 **assay, assailant**.  
 **apathy, apolitical**. 
 
-**doofus, goof, lubber, dweeb, bozo, dummy, loggerhead**.   
-
-**decrepit, dilapidated, antiquated, tattered, decaying**. 
-**teensy, teensy-weensy, itsy-bitsy, teeny, puny** 
-
-**sycophant, supplicant, , bootlicker, lickspittle, suck-up**. 
-
-**doctrine, dogma, precepts**, 
 His skin felt cold and **clammy**. -   
 
 He had attempted to **abduct** the three boys. -  
 The hotel has a lovely **homely** feel to it.   
-**booby** 
-**perjury, perfidy**.  
-**supine, recumbent, incumbent**  
 
-**congee, porridge**.  
+**booby** 
+It would be **folly** to turn the offer down. -    
 
 The next president could **abrogate** the treaty. -  
 **ink jet, printing ink**.  
 
-
-**stoop, swoop, swoon**  
-
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -    
 Overcome with shame and grief, they tried to cry and **bemoan** their fate. -    
 
-**askew, askance, canted, slant, tilted**. 
-**outlast, outgrow, outfox, outsmart, outrank**,  
-Most religions **posit** the existence of life after death. -  
-We couldn't stay out there in that **desolation** another day.  
-**Apostrophe** 
-**wimpy, meek, lame**, 
+### week 3  
+
 
 The takeaway is simple: impatience **impedes** learning. Whether teaching a child, a colleague, or a stranger, patience is the gift of genuine improvement.  
 > “It is not happiness that makes us grateful. It’s gratefulness that makes us happy.”  
@@ -118,11 +117,8 @@ We are **misers** about money and property, Seneca writes in On The Shortness of
 That **flutter** in your stomach before meeting new people, that's your ancestor's survival instinct still protecting you.  
 Why the IMF should **bail out** a serial **deadbeat**.  
 The **apostle** Paul.  
-**Overripe**: The skin may be **discolored**, wrinkled, or have **blemishes**  
+**Overripe**: The skin may be **discolored**, wrinkled, or have **blemishes**. -    
 It's hard to imagine what reason there could be for the university to **scrub** its website as if he never worked there.  
-
-
-**twaddle, dawdle, drivel**, 
 
 The **tinsel and the holly** were decorating the drug store.  
 his taste for the **tinsel** of the art world.  
@@ -131,25 +127,14 @@ Brian took a **swig** of his beer. -
 **glut, gluttonous**.  
 **concubine**.  
 
-**hearse, coffin, casket, corpse, **sepulcher**, limo**  
-deft, apt  
-
-**gurgle, giggle, chuckle, smirk, grin**, 
-
-
-**fervid, fervent, ardent, zealous, fanatical** 
-
 Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**. -  
 The next issue is that reviewing is generally dull and **vapid**. -  
 And you can **bestow** love upon things.  
 He is a **fervid** **orator**.  
-**sycophant, obsequence, supplicant**.   
 
 
 Blood was beginning to **seep** through the bandages.  
-**parrot, parakeet**.  
 I began to **nauseate** the place I was in.  
-
 
 He wasn’t what we see in public. I find that fascinating. Not **exculpatory**. Just interesting.  
 Maher interviewed total nutjob Steve Bannon and literally shoved a copy of the Constitution in Bannon’s face when Bannon started **blathering** about Trump running for a third term in 2028.  
@@ -162,7 +147,7 @@ I was appalled by the **loutish** behaviour.
 The water was full of **flotsam** and **refuse**.  
 A retrofit may involve putting in new door **jambs**.  
 
-**Stowage** is provided in lined lockers beneath the berths.  
+**Stowage** is provided in lined lockers beneath the berths. -   
 The court **absolved** him of guilt in her death.  
 He **absolved** me from further obligation.  
 
@@ -178,24 +163,14 @@ Trump’s tariffs will **pummel** Vietnam.
 
 She was released **on parole**.  
 The blue dye is obtained from the **indigo** plant.  
-**cyan, indigo**, 
-**klutz, clumsy** 
 
-**hovel, hut, shack, shed**.  
 He wore an expensive, dark blue **pinstripe** suit. -  
 
 **diuretic** 
-**debauch, depraved**.  
-**garment, apparel**, 
-**hoodlum, thug, goons, hoodlum, lad**.  
-**distend, swell, dilate**.  
 You won't have to **shell out** a fortune for it.   
 Water **seethed** in the **caldron**.  
 
-**peevish, cranky, irritable, snarky**.  
-
 The economy still faces **intractable** problems. -  
-**dirk, dagger** 
 
 It's **borderline** reasonable.  
 
@@ -316,7 +291,7 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
    - **Commonality:** It's somewhat outdated, but still understood and sometimes used humorously.  
    - **Alternative:** "Leave quickly," "dash," or "run off" are more straightforward alternatives.  
 
-In summary, some of these words are more commonly found in specific fields like medicine or literature, while others are a bit archaic or informal. For modern usage, the provided alternatives will likely be more suitable in everyday conversation.  
+> In summary, some of these words are more commonly found in specific fields like medicine or literature, while others are a bit archaic or informal. For modern usage, the provided alternatives will likely be more suitable in everyday conversation.  
 
 ------  
 
@@ -354,7 +329,7 @@ In summary:
 3. **Impassible**: Though it resembles "impassable," meaning something that cannot be passed or overcome, "impassible" is less commonly used and typically refers to someone who is unable to feel pain or emotion. This term is more likely found in specialized, philosophical, or religious contexts rather than in everyday speech.  
 
 4. **Avaricious**: This adjective describes someone who is excessively greedy or has an intense desire for wealth. It is more common in writing, especially in formal or literary contexts, than in everyday conversation.  
-miser, scraper 
+> miser, scraper 
 
 5. **Illuminati**: Originally referring to people claiming to possess special enlightenment or knowledge, it often now refers to various real or fictitious secret societies. Discussions about the "Illuminati" can appear in both casual and formal contexts but are often associated with conspiracy theories.  
 > wiseacre  
@@ -412,6 +387,64 @@ In summary, **brandish** and **avaricious** are more common in both conversation
 
 ## Words Gallery  
 
+
+Week 1-4  
+------------ 
+
+**sycophant, obsequence, supplicant**.   
+**cyan, indigo**, 
+**klutz, clumsy** 
+**hovel, hut, shack, shed**.  
+**debauch, depraved**.  
+**garment, apparel**, 
+**hoodlum, thug, goons, hoodlum, lad**.  
+**distend, swell, dilate**.  
+**dirk, dagger** 
+
+
+**twaddle, dawdle, loaf, drivel**, 
+**hearse, coffin, casket, corpse, **sepulcher**, limo**  
+
+**stopgap, interim, makeshift, workaround**.  
+
+**parrot, parakeet**.  
+
+**peevish, cranky, irritable, snarky**.  
+
+**doctrine, dogma, precepts**, 
+
+**flog, flagellate, whip, lash, slash, strap**.  
+**wistful, melancholy, nostalgic, sentimental, soulful**.  
+**tryout, shortlist, run-off, audition, scrimmage**, 
+**revery, reverie, reveler**. 
+**mycology, mycologist, mycelial, mycelium**.   
+**pretext, pretense, guise, ruse**.  
+**galvanize, mobilize, incite, inspire** 
+
+**Weary, wary**.  
+**bemoan, lament, mourn, grieve** 
+
+**perjury, perfidy**.  
+**supine, recumbent, incumbent**  
+**congee, porridge**.  
+
+**doofus, goof, lubber, dweeb, bozo, dummy**.   
+**decrepit, dilapidated, antiquated, tattered, decaying**. 
+**teensy, teensy-weensy, itsy-bitsy, teeny, puny** 
+
+**sycophant, supplicant, , bootlicker, lickspittle, suck-up**. 
+
+**deft, apt**  
+**gurgle, giggle, chuckle, smirk, grin**, 
+**fervid, fervent, ardent, zealous, fanatical** 
+**stoop, swoop, swoon**  
+**askew, askance, canted, slant, tilted**. 
+**outlast, outgrow, outfox, outsmart, outrank**,  
+Most religions **posit** the existence of life after death. -  
+We couldn't stay out there in that **desolation** another day.  
+**Apostrophe** 
+**wimpy, meek, lame**, 
+
 **wonk, geek, pundit**  
 **carefree, fancy-free, scot-free, unscathed**.  
 **aloof, indifferent, standoffish** 
@@ -468,14 +501,50 @@ sallow
 
 **volition**.  
 
+
+
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
 
+> “It is not happiness that makes us grateful. It’s gratefulness that makes us happy.”  
+We are **misers** about money and property, Seneca writes in On The Shortness of Life but often so careless with the one thing we can’t get back: time.  
+That **flutter** in your stomach before meeting new people, that's your ancestor's survival instinct still protecting you.  
 
 
 
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
+
+His father was a drunken **brute**.  
+
+He wasn’t what we see in public. I find that fascinating. Not **exculpatory**. Just interesting.  
+He will always want more: more **supplicants** to obey his next command, more displays of his power and authority and more opportunities to trample over those who don’t belong in his America.  
+
+What he’s saying is what he said the last time: he’s instructing Attorney General Pam Bondi not to enforce the law, and **pinky-swearing** that U.S. companies that are breaking the law to keep TikTok available (Akamai, Oracle, Google, Apple) won’t be held responsible for it. It’s just a complete **abdication** of the rule of law.  
+
+The court **absolved** him of guilt in her death.  
+Trump’s tariffs will **pummel** Vietnam.  
+
+The **tinsel and the holly** were decorating the drug store.  
+
+He is **apt** to get angry over **trifles**.  
+Congress is **inert**, but a **deft** Supreme Court might contain him. -  
+Donald Trump’s **antics** mean new boldness is needed in UK-EU links.  
+Taiwan **flogs** America drones “not made in China”.  
+The **Mauritius** miracle is losing its **sheen**.  
+Even Republicans are **falling out of love** with Tesla.  
+Just as people often stop to stare at an accident, investors are **transfixed** by the car crash occurring at Tesla. 
+So my salary does not **commensurate** with my effort.    
+
+**booby** 
+The takeaway is simple: impatience **impedes** learning. Whether teaching a child, a colleague, or a stranger, patience is the gift of genuine improvement.  
+
+I'm **petrified** by some of those issues. 
+Why the IMF should **bail out** a serial **deadbeat**.  
+The **apostle** Paul.  
+
+
+----------  
 
 **In the eyes of** the public, a divorced man is **footloose** and **fancy-free**.  
 Los Angeles is **rife with** gossip about the star's private lives.  
