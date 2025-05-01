@@ -59,9 +59,61 @@ garrulous
 
 garish  
 
+torpor  
+
+ribald  
+
+demur 
+
+parochial  
+
+pyrelic 
+
+Special or Verb 
+------------ 
+
+antics 
+charm 
+fall out of love. 
+hideous 
+
+
 -------------------------  
 
+Trump revamps "Schedule F," making it easier to cut federal workers.  
+
+
+resin, raisin, apricot.  
+zine, fanzine, magazine.  
+ambit, armpit.  
+unbraid, unbridled, unfettered.  
+
+
 ## Week 4  
+
+The script is actually a **predicate**. It's just an equation that evaluates to true or false. Predicate is a long and unfamiliar word so I called it script. 
+
+My only **gripe** about the hotel was the food. -  
+
+the country’s already **dire** public finances.   
+Britain’s rushed, **muddled** intervention in the steel industry.  
+Investors realise Trump’s pause was not the **salvation** it appeared. -    
+Russia’s army is being **subordinated** to its security services.  
+To **see off** the Trump challenge, Canada must fix its productivity problem, says Michael Ignatieff.  
+**Pity** American firms in China. Xi Jinping is **hitting back**. ---- From Apple and Boeing to Nike and Starbucks, there is a lot of money **at stake**.  
+
+Two economic **apex predators** are playing a **game of chicken**, to see which great power **backs down** first.  
+Sadly, the stability of the global economy and financial markets are likely to be **pawns** in this **game of chess**.  
+The bond market is the one that calls **time out** on everything in finance, so I am taking moves like this one very seriously.  
+I don’t think Xi is ready at this point to compromise simply because he thinks China has the advantage, and that Trump’s **feckless** “Liberation Day” tariffs will ultimately **hasten** what he sees as an American decline already underway. -    
+Ahead of anticipated talks, China is **corralling** allies and pressuring trade partners not to make a separate peace with Trump. -    
+
+North Korea’s **plunder** is the pay off from a decades-long effort.  
+Talented maths students were put into special schools and given **reprieves** from mandatory annual countryside labour. -    
+Says Thae Yong Ho, a senior North Korean diplomat who **defected** in 2016.  
+Originally **envisaged** as a tool for espionage and sabotage, North Korea’s cyber-forces began to focus on cybercrime in the mid-2010s.  
+Fees and **interdictions** by law enforcement reduce the overall take, but North Korea can expect to receive “definitely 80%, maybe 90%” of the funds it steals. -    
+the country is **desperately** poor  
 
 He is **apt** to get angry over **trifles**.  
 Congress is **inert**, but a **deft** Supreme Court might contain him. -  
@@ -403,7 +455,7 @@ Week 1-4
 
 
 **twaddle, dawdle, loaf, drivel**, 
-**hearse, coffin, casket, corpse, **sepulcher**, limo**  
+**hearse, coffin, casket, corpse, morgues, **sepulcher**, limo**  
 
 **stopgap, interim, makeshift, workaround**.  
 
