@@ -56,6 +56,8 @@ kerosene
 Special or Verb 
 ------------ 
 
+martyr  
+
 affinity  
 
 antics 
@@ -66,20 +68,19 @@ hideous
 
 -------------------------  
 
-allay, assail, assailant.  
-solder, weld.  
-girdle, griddle.  
-doodad, bauble, gadget, widget, 
-prognosticator, prognosis, 
+**allay, assail, assailant**.  
+**solder, weld**.  
+**girdle, griddle**.  
+**doodad, bauble, gadget, widget** 
+**prognosticator, prognosis**, 
 
 
-Trump revamps "Schedule F," making it easier to cut federal workers.  
+Trump **revamps** "Schedule F," making it easier to cut federal workers.  
 
-
-resin, raisin, apricot.  
-zine, fanzine, magazine.  
-ambit, armpit.  
-unbraid, unbridled, unfettered.  
+**resin, raisin, apricot**.  
+**zine, fanzine, magazine**.  
+**ambit, armpit**.  
+**unbraid, unbridled, unfettered**.  
 
 
 ## Week 4  
@@ -295,9 +296,9 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
    - **Alternatives**: Talkative, chatty, loquacious.  
 
 2. **Garish**:  
-   - **Meaning**: Obtrusively bright and showy; lurid.  
+   - **Meaning**: **Obtrusively bright** and showy; **lurid**.  
    - **Usage**: This word is fairly common, often used to describe something that is overly vivid or tasteless.  
-   - **Alternatives**: Gaudy, flashy, ostentatious.  
+   - **Alternatives**: **Gaudy, flashy, ostentatious**.  
 
 3. **Torpor**:  
    - **Meaning**: A state of physical or mental inactivity; lethargy.  
@@ -305,7 +306,7 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
    - **Alternatives**: Lethargy, sluggishness, inactivity.  
 
 4. **Ribald**:  
-   - **Meaning**: Referring to sexual matters in an amusingly rude or irreverent way.  
+   - **Meaning**: Referring to sexual matters in an amusingly rude or **irreverent** way.  
    - **Usage**: This word is less common, usually reserved for explicit or vulgar humor.  
    - **Alternatives**: Coarse, bawdy, crude.  
 
