@@ -24,8 +24,6 @@ sordid
 
 kitsch  
 
-affinity  
-
 rapacity  
 cataclysm  
 
@@ -45,8 +43,6 @@ exonerate
 
 palaver  
 
-couth  
-
 propitiate  
 
 commensurate  
@@ -55,22 +51,12 @@ fettle
 
 mutuel  
 
-garrulous  
-
-garish  
-
-torpor  
-
-ribald  
-
-demur 
-
-parochial  
-
-pyrelic 
+kerosene  
 
 Special or Verb 
 ------------ 
+
+affinity  
 
 antics 
 charm 
@@ -79,6 +65,13 @@ hideous
 
 
 -------------------------  
+
+allay, assail, assailant.  
+solder, weld.  
+girdle, griddle.  
+doodad, bauble, gadget, widget, 
+prognosticator, prognosis, 
+
 
 Trump revamps "Schedule F," making it easier to cut federal workers.  
 
@@ -292,7 +285,45 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 
 ## Words Explain 
 
-> Can you help me understand the words below? Are they commonly used? If they are not common, please provide some common alternatives.  
+> Can you help me understand the words below? Are they commonly used? If they are not, please provide some alternatives which are.  
+
+-------------- 
+
+1. **Garrulous**:  
+   - **Meaning**: Excessively talkative, especially on trivial matters.  
+   - **Usage**: This word is somewhat common, particularly in formal or literary contexts.  
+   - **Alternatives**: Talkative, chatty, loquacious.  
+
+2. **Garish**:  
+   - **Meaning**: Obtrusively bright and showy; lurid.  
+   - **Usage**: This word is fairly common, often used to describe something that is overly vivid or tasteless.  
+   - **Alternatives**: Gaudy, flashy, ostentatious.  
+
+3. **Torpor**:  
+   - **Meaning**: A state of physical or mental inactivity; lethargy.  
+   - **Usage**: This word is not uncommon, especially in formal writing or discussions about biology or behavior.  
+   - **Alternatives**: Lethargy, sluggishness, inactivity.  
+
+4. **Ribald**:  
+   - **Meaning**: Referring to sexual matters in an amusingly rude or irreverent way.  
+   - **Usage**: This word is less common, usually reserved for explicit or vulgar humor.  
+   - **Alternatives**: Coarse, bawdy, crude.  
+
+5. **Demur**:  
+   - **Meaning**: To raise doubts or objections or show reluctance.  
+   - **Usage**: This is somewhat common, especially in legal or formal discourse.  
+   - **Alternatives**: Object, protest, hesitate.  
+
+6. **Parochial**:  
+   - **Meaning**: Having a limited or narrow outlook or scope.  
+   - **Usage**: This word is fairly common, often used in discussions about narrow-mindedness.  
+   - **Alternatives**: Narrow-minded, provincial, insular.  
+
+7. **pyretic**  
+   - **Meaning**: Relating to or producing fever.  
+   - **Usage**: This is a specialized term often used in medical contexts.  
+   - **Alternatives**: Feverish, febrile.  
+
 
 ----------------  
 
