@@ -61,7 +61,7 @@ We can **curb** juvenile **delinquency** by education. -
 
 
 **vindicate**.  
-The key of modern enterprise system is **property right** **perspicuity**. -    
+The key of modern enterprise system is **property right** **perspicuity**.   
 **apostate**.  
 > apostate, heathen, heretics. 
 > No, apostate isn’t commonly used in everyday conversation. It’s more of a formal or literary word, primarily used in religious, political, or ideological contexts to describe someone who has abandoned a belief or allegiance. You might encounter it in historical discussions, religious texts, or academic writing, but it’s not a word you’d hear often in casual speech.  
@@ -83,7 +83,7 @@ Why is the fly or **bug agaric** **toadstool** so named? -
 It's a warning sign for the Trump administration, with aggressive tariffs expected to be unveiled next week that could **stoke** inflation and **crimp demand**.  
 
 
-The boy remained as dismal as a **hearse**. -    
+The boy remained as dismal as a **hearse**.   
 **ravine**.  
 **miff**  
 
@@ -298,7 +298,7 @@ Whisk the cream into the mixture to **emulsify** it. ??
 I replaced the vase carefully on its **pedestal**.  
 
 A stiff collar may **chafe** your neck.  
-I see him **chafe** and fret at every pore. -  
+I see him **chafe** and fret at every pore.   
 She was not **privy to** any information contained in the letters.   
 I'm not **privy** to any pending announcement, so calm down. 
 
@@ -359,7 +359,7 @@ Police refused to **divulge** the identity of the suspect. -
 **stricture, scripture**.  
 
 I picked up her wrist. It was **limp and flaccid**.  
-The wounded soldier **tottered** to his feet. -  
+The wounded soldier **tottered** to his feet.   
 You'd better **commiserate** John on his recent misfortunes.  
 **aloof, standoffish, indifferent**.  
 

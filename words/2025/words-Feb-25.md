@@ -17,7 +17,7 @@ This is no doubt going to be the most **crotchety**, **old-man-yells-at-cloud** 
 I had this intuitively wrong for decades, I think due to a **pervasive** cultural **veneration** of intelligence, various entertainment/media, obsession with IQ etc. **Agency** is significantly more powerful and significantly more **scarce**.  
 He **reassures** readers that his trademark **candor** will continue under future CEO Greg Abel and reflects on past mistakes and successes.  
 
-All over the world, **open-air markets** are being **supplanted** by supermarket shopping. -  
+All over the world, **open-air markets** are being **supplanted** by supermarket shopping.   
 **sludge disposal, sludge treatment**  
 The sun appeared through a **rift** in the clouds.  
 Hope it doesn't cause a **rift** between us.  
@@ -81,7 +81,7 @@ Two entrepreneurs spot the same opportunity. One builds elaborate plans; the oth
 **furl the tents/umbrella**.  
 
 The bird **alighted** on the branch.   
-He finally **alighted** on a solution. -  
+He finally **alighted** on a solution.   
 My eye **alighted** on an old book.  
 
 **whipsaw, sawtooth**.  

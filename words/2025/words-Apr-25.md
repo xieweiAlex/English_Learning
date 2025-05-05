@@ -53,6 +53,8 @@ mutuel
 
 kerosene  
 
+leery  
+
 Special or Verb 
 ------------ 
 
@@ -61,12 +63,23 @@ martyr
 affinity  
 
 antics 
-charm 
 fall out of love. 
 hideous 
 
+reckless, feckless 
+
+
+### Verb 
+corral 
+charm 
 
 -------------------------  
+
+Thus, the dummy element was a vector for transaction malleability.  
+
+
+Their affection for her soon increased almost to **idolatry**.  
+I was **spoon over** Miss Talmadge to the point of **idolatry**.  
 
 **allay, assail, assailant**.  
 **solder, weld**.  
@@ -144,7 +157,7 @@ He had attempted to **abduct** the three boys. -
 The hotel has a lovely **homely** feel to it.   
 
 **booby** 
-It would be **folly** to turn the offer down. -    
+It would be **folly** to turn the offer down.   
 
 The next president could **abrogate** the treaty. -  
 **ink jet, printing ink**.  

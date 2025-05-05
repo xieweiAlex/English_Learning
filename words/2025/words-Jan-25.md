@@ -129,7 +129,7 @@ One main functionality of men is to produce **semens**, but we already have bank
 **vermin, pest**  
 **Grey worm**, **red flea**, black rat, Names that remind them what they are -- **Vermin**.  
 A **cavalcade** processed through town.  
-He was handsome, **upright**, and **chivalrous**. -  
+He was handsome, **upright**, and **chivalrous**.   
 **stakeout**: surveillance of some place or some person by the police (as in anticipation of a crime)  
 He is a **proverbially** dour **New England Puritan**.  
 The woman is **proverbially** stupid.  
@@ -215,7 +215,7 @@ He has paid a visit to Australian **Premier**.
 
 I'm **parched** — I'll die without a drink.  
 The **silver coinage** was repeatedly debased with **copper** vellon.  
-Her face was **careworn** with anxiety. -  
+Her face was **careworn** with anxiety.   
 **gaffe machine**.  
 She had an **unerring** instinct for a good business deal.   
 The police moved quickly to **dispel** the rumors.  
@@ -324,7 +324,7 @@ An **expectant** crowd gathered.
 
 **desiccative preservation**.  
 Violence was **anathema** to them.  
-The aim was to **bludgeon** speculators and impress creditors. -  
+The aim was to **bludgeon** speculators and impress creditors.   
 Roses grew in **profusion** against the old wall.   
 
 I did not have any **intimation** that he was going to resign.  
