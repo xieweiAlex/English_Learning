@@ -76,7 +76,7 @@ charm
 -------------------------  
 
 Thus, the dummy element was a vector for transaction malleability.  
-
+If we see no inflation, we see growth scare, possibly set him (Jerome Powel) up as a fall guy.  
 
 Their affection for her soon increased almost to **idolatry**.  
 I was **spoon over** Miss Talmadge to the point of **idolatry**.  
