@@ -244,7 +244,7 @@ His **scruffy** appearance does not reflect his character. -
 
 **torque, torsion**  
 **skimp, skimpy**.  
-**Aloe Vera** gel is **anti-pyretic** as it reduces heat. -  
+**Aloe Vera** gel is **anti-pyretic** as it reduces heat.  
 His father was a drunken **brute**.  
 
 ### week 1 
@@ -648,7 +648,7 @@ Los Angeles is **rife with** gossip about the star's private lives.
 
 
 His **scruffy** appearance does not reflect his character.  
-**Aloe Vera** gel is **anti-pyretic** as it reduces heat. -  
+**Aloe Vera** gel is **anti-pyretic** as it reduces heat.  
 **harem**.  
 
 In the late 1990s, Nortel Networks was the **crown jewel** of Canada's technology sector.  
