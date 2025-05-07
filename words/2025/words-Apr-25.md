@@ -24,36 +24,10 @@ sordid
 
 kitsch  
 
-rapacity  
-cataclysm  
-
-morose  
-
-grunge.  
-
-comportment, demeanor, manners 
-
 perfervid 
-
 jettison, jetty  
 
 excoriate  
-
-exonerate   
-
-palaver  
-
-propitiate  
-
-commensurate  
-
-fettle  
-
-mutuel  
-
-kerosene  
-
-leery  
 
 Special or Verb 
 ------------ 
@@ -68,12 +42,16 @@ hideous
 
 reckless, feckless 
 
-
 ### Verb 
 corral 
 charm 
 
 -------------------------  
+
+comportment, demeanor, manners 
+
+**pergola, gazebo, patio, awning, pavilion, atrium**.  
+emasculate, incapacitate, cripple, neutralize, 
 
 Thus, the dummy element was a vector for transaction malleability.  
 If we see no inflation, we see growth scare, possibly set him (Jerome Powel) up as a fall guy.  
@@ -86,7 +64,6 @@ I was **spoon over** Miss Talmadge to the point of **idolatry**.
 **girdle, griddle**.  
 **doodad, bauble, gadget, widget** 
 **prognosticator, prognosis**, 
-
 
 Trump **revamps** "Schedule F," making it easier to cut federal workers.  
 
@@ -299,7 +276,85 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 
 ## Words Explain 
 
-> Can you help me understand the words below? Are they commonly used? If they are not, please provide some alternatives which are.  
+> Can you help me understand the words below? Are they commonly used? If they are, please give me a few examples, otherwise give me some alternatives, thanks!  
+
+1. **Rapacity**  
+   - **Meaning:** Extreme greed for wealth or material gain.  
+   - **Common Use:** "Rapacity" is not commonly used in everyday conversation. It's more often found in literature or discussions about economics and ethics.  
+   - **Examples:**  
+     - The rapacity of the corporation led to the exploitation of local resources.  
+     - Historically, rapacity has driven many conflicts over land and resources.  
+   - **Alternatives:** Greed, avarice, cupidity.  
+
+2. **Cataclysm**  
+   - **Meaning:** A large-scale and violent event in the natural world or a sudden and significant upheaval or disaster.  
+   - **Common Use:** More common in discussions about natural disasters or large impactful changes.  
+   - **Examples:**  
+     - The earthquake was a cataclysm that changed the city forever.  
+     - The financial crisis was considered an economic cataclysm.  
+   - **Alternatives:** Disaster, catastrophe, upheaval.  
+
+3. **Morose**  
+   - **Meaning:** Sullen, gloomy, or ill-tempered.  
+   - **Common Use:** It's moderately common to describe someone’s mood or attitude.  
+   - **Examples:**  
+     - He became morose after hearing the bad news.  
+     - The morose weather matched her mood.  
+   - **Alternatives:** Sullen, sulky, gloomy.  
+
+4. **Grunge**  
+   - **Meaning:** A style or genre that emerged in the late 1980s associated with a messy or dirty look, and a music style typified by bands like Nirvana.  
+   - **Common Use:** Fairly common, especially related to fashion or music.  
+   - **Examples:**  
+     - Her grunge look consisted of ripped jeans and an old flannel.  
+     - Grunge music often features heavy guitar riffs and raw vocals.  
+
+5. **Palaver**  
+   - **Meaning:** Lengthy and idle discussion; unnecessary or elaborate talk.  
+   - **Common Use:** Less common in everyday speech, sometimes used humorously or critically.  
+   - **Examples:**  
+     - After hours of palaver, the committee still hadn't reached a decision.  
+     - There was a lot of palaver before the ceremony actually began.  
+   - **Alternatives:** Chatter, talk, blather.  
+
+6. **Fettle**  
+   - **Meaning:** State or condition, particularly of physical health.  
+   - **Common Use:** Not very common, but sometimes used in phrases like "in fine fettle."  
+   - **Examples:**  
+     - She was in fine fettle after her recovery.  
+     - The car is in excellent fettle for its age.  
+   - **Alternatives:** Condition, shape.  
+
+7. **Mutuel**  
+   - **Meaning:** Typically refers to a betting system, especially as used in horse racing, where the total amount staked is divided among the winners.  
+   - **Common Use:** Specific to gambling and horse racing contexts.  
+   - **Examples:**  
+     - They placed their bets at the mutuel window.  
+     - The pari-mutuel system ensures all bets are fairly distributed.  
+   - **Alternatives:** Pari-mutuel, wagering system.  
+
+8. **Kerosene**  
+   - **Meaning:** A flammable liquid used as fuel, especially in lamps and heaters.  
+   - **Common Use:** Common when discussing types of fuel or traditional lighting methods.  
+   - **Examples:**  
+     - They used kerosene lanterns during the power outage.  
+     - Kerosene heaters are effective in rural areas.  
+
+9. **Leery**  
+   - **Meaning:** Cautious or wary due to realistic suspicions.  
+   - **Common Use:** Fairly common, used to describe skepticism or caution.  
+   - **Examples:**  
+     - She was leery of accepting offers that seemed too good to be true.  
+     - He remained leery of the new business partner's intentions.  
+   - **Alternatives:** Wary, suspicious, cautious.  
+
+10. **Crass**  
+    - **Meaning:** Lacking sensitivity, refinement, or intelligence.  
+    - **Common Use:** Moderately common in describing someone’s actions or behavior as thoughtless or rude.  
+    - **Examples:**  
+      - His crass comments offended everyone at the party.  
+      - It was crass to ask such a personal question.  
+    - **Alternatives:** Insensitive, tactless, boorish.  
 
 -------------- 
 
