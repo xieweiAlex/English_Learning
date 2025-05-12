@@ -143,7 +143,7 @@ They must **retrench** their expenditure for the purpose of making up the defici
 
 **rhinitis**.  
 **berate, excoriate**.  
-He proceeded to **excoriate** me in front of the nurses. -  
+He proceeded to **excoriate** me in front of the nurses.   
 **calumny**.  
 The **skin graft** failed to take.  
 Her burns were treated with **skin grafts**.  

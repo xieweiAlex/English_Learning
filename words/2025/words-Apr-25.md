@@ -13,91 +13,24 @@
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
-addle.  
-cavil  
-milieu  
-carouse  
-
-adumbrate?? 
-
-sordid 
-
-kitsch  
-
-perfervid 
-jettison, jetty  
-
-excoriate  
 
 Special or Verb 
 ------------ 
 
-martyr  
-affinity  
+**martyr**  
+**affinity**  
 
-antics 
-fall out of love. 
-hideous 
+**antics** 
+**fall out of love**. 
+**hideous** 
 
-reckless, feckless 
+**reckless, feckless** 
 
 ### Verb 
-corral 
-charm 
+**corral** 
+**charm** 
 
 -------------------------  
-
-The US can run larger fiscal deficits than its peers without running into bond market repudiation.  
-> In political messaging, it’s always easier to blame some outsider, especially when there’s some degree of truth to it.  
-
-America’s status as reserve currency **confers** the burden of an overvalued currency eroding the competitiveness of our export sector.  
-
-Apple’s **obstinance** on this has created nothing but friction, confusion, and hassle for users for 15 years.  
-
-Sam Altman is **in a bind** over his company’s non-profit status.  
-Decision time in the **Vatican**.  
-Intrigue and attacks as the **papal** **conclave** begins. - God only knows when the **white smoke** will emerge.  
-
-Meta also announced its new Llama API, a **turnkey platform** for inference and end-to-end fine-tuning with open-weight models enabling customization.  
-Instead, money has a strong network effect, where liquidity **begets** more liquidity, and acceptability **begets** more acceptability, leading to one or two major salable monies rather than countless of them.  
-For example, when I bought a **villa** in Egypt in 2023, I exchanged dollars for Egyptian pounds, and used those to buy the property.  
-which represent **inflexible demand** for dollars.  
-Thus, in the case of the United States, the trade deficit and global reserve currency status are **inexorably** linked. -    
-This was the first wave of it, back in the 1980s and 1990s when Japan, Germany, and Mexico were the trade **bogeymen** rather than China.  
-It’s **destined** for both friction and pushback since it’s not targeting the root, since the root is 1) **optically** hard to go after, 2) extremely hard to explain, and 3) comes with real **trade-offs**.  
-the foreign sector will **term out** their holdings of US debt and accept debasement of their reserve holdings to stay in the **good graces** of the US government.  
-The rest of the world would view such propositions as “**paying tribute** to the empire”, and that’s a **non-starter** for many nations, especially large ones like China and other BRICS nations.  
-The Painful **Nuance**.  
-One of the reasons why **optics** around the trade balance are so confusing is that if it’s phrased directly, then addressing it is unlikely to be popular. -   
-Even back when I wrote my 2020 article it was gradually **underway**, but some things since then kicked it into **high-gear**.  
-
-> The status quo is painful for those on the wrong side of the huge imbalance. But the change itself would likely be stagflationary and long-lasting, with no guarantee of success.  
-
-
-**comportment, demeanor, manners** 
-
-**pergola, gazebo, patio, awning, pavilion, atrium**.  
-**emasculate, incapacitate, cripple, neutralize**, 
-
-Thus, the dummy element was a **vector** for transaction malleability.  
-If we see no inflation, we see growth scare, possibly set him (Jerome Powel) up as a **fall guy**.  
-
-Their affection for her soon increased almost to **idolatry**.  
-I was **spoon over** Miss Talmadge to the point of **idolatry**.  
-
-**allay, assail, assailant**.  
-**solder, weld**.  
-**girdle, griddle**.  
-**doodad, bauble, gadget, widget** 
-**prognosticator, prognosis**, 
-
-Trump **revamps** "Schedule F," making it easier to cut federal workers.  
-
-**resin, raisin, apricot**.  
-**zine, fanzine, magazine**.  
-**ambit, armpit**.  
-**unbraid, unbridled, unfettered**.  
-
 
 ## Week 4  
 
@@ -154,7 +87,7 @@ A hot climate **enervate** people who are not used to it.
 **assay, assailant**.  
 **apathy, apolitical**. 
 
-His skin felt cold and **clammy**. -   
+His skin felt cold and **clammy**.   
 
 He had attempted to **abduct** the three boys. -  
 The hotel has a lovely **homely** feel to it.   
@@ -203,7 +136,7 @@ Maher interviewed total nutjob Steve Bannon and literally shoved a copy of the C
 He will always want more: more **supplicants** to obey his next command, more displays of his power and authority and more opportunities to trample over those who don’t belong in his America.  
 What he’s saying is what he said the last time: he’s instructing Attorney General Pam Bondi not to enforce the law, and **pinky-swearing** that U.S. companies that are breaking the law to keep TikTok available (Akamai, Oracle, Google, Apple) won’t be held responsible for it. It’s just a complete **abdication** of the rule of law.  
 
-He was an **insufferable** **bore**. -   
+He was an **insufferable** **bore**.   
 I was appalled by the **loutish** behaviour.  
 
 The water was full of **flotsam** and **refuse**.  
@@ -226,13 +159,13 @@ Trump’s tariffs will **pummel** Vietnam.
 She was released **on parole**.  
 The blue dye is obtained from the **indigo** plant.  
 
-He wore an expensive, dark blue **pinstripe** suit. -  
+He wore an expensive, dark blue **pinstripe** suit.   
 
 **diuretic** 
 You won't have to **shell out** a fortune for it.   
 Water **seethed** in the **caldron**.  
 
-The economy still faces **intractable** problems. -  
+The economy still faces **intractable** problems.   
 
 It's **borderline** reasonable.  
 

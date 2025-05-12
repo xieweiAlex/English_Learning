@@ -354,7 +354,7 @@ He caught a **whiff** of her perfume.
 
 Jack is an **ambidextrous** hitter; he can bat right - handed or left - handed.  
 You need manual **dexterity** to be good at video games.  
-Police refused to **divulge** the identity of the suspect. -  
+Police refused to **divulge** the identity of the suspect.   
 
 **stricture, scripture**.  
 

@@ -29,23 +29,65 @@ jettison, jetty
 
 excoriate  
 
+olfactory  
+
 Special or Verb 
 ------------ 
 
-martyr  
-affinity  
+**martyr**  
+**affinity**  
 
-antics 
-fall out of love. 
-hideous 
+**antics** 
+**fall out of love**. 
+**hideous** 
 
-reckless, feckless 
+**reckless, feckless** 
 
 ### Verb 
-corral 
-charm 
+**corral** 
+**charm** 
 
 -------------------------  
+
+Aphorism, axiom, theorem, adage, proverb.  
+desolate, desolation.  
+
+
+This **garment** should be washed carefully.  
+**Colorfast** **garments** are not supposed to run.  
+
+Even biology undergraduates may **balk at** animal experiments.  
+
+**mores, morose, morass**. 
+**miff, chafe, quarrel, strife** 
+**sieve, sift**. 
+
+The US can run larger fiscal deficits than its peers without running into bond market **repudiation**.  
+> In political messaging, it’s always easier to blame some outsider, especially when there’s some degree of truth to it.  
+
+America’s status as reserve currency **confers** the burden of an overvalued currency eroding the competitiveness of our export sector.  
+
+Apple’s **obstinance** on this has created nothing but friction, confusion, and hassle for users for 15 years.  
+
+Sam Altman is **in a bind** over his company’s non-profit status.  
+Decision time in the **Vatican**.  
+Intrigue and attacks as the **papal** **conclave** begins. - God only knows when the **white smoke** will emerge.  
+
+Meta also announced its new Llama API, a **turnkey platform** for inference and end-to-end fine-tuning with open-weight models enabling customization.  
+Instead, money has a strong network effect, where liquidity **begets** more liquidity, and acceptability **begets** more acceptability, leading to one or two major salable monies rather than countless of them.  
+For example, when I bought a **villa** in Egypt in 2023, I exchanged dollars for Egyptian pounds, and used those to buy the property.  
+which represent **inflexible demand** for dollars.  
+Thus, in the case of the United States, the trade deficit and global reserve currency status are **inexorably** linked. -    
+This was the first wave of it, back in the 1980s and 1990s when Japan, Germany, and Mexico were the trade **bogeymen** rather than China.  
+It’s **destined** for both friction and pushback since it’s not targeting the root, since the root is 1) **optically** hard to go after, 2) extremely hard to explain, and 3) comes with real **trade-offs**.  
+the foreign sector will **term out** their holdings of US debt and accept debasement of their reserve holdings to stay in the **good graces** of the US government.  
+The rest of the world would view such propositions as “**paying tribute** to the empire”, and that’s a **non-starter** for many nations, especially large ones like China and other BRICS nations.  
+The Painful **Nuance**.  
+One of the reasons why **optics** around the trade balance are so confusing is that if it’s phrased directly, then addressing it is unlikely to be popular. -   
+Even back when I wrote my 2020 article it was gradually **underway**, but some things since then kicked it into **high-gear**.  
+
+> The status quo is painful for those on the wrong side of the huge imbalance. But the change itself would likely be stagflationary and long-lasting, with no guarantee of success.  
+
 
 **comportment, demeanor, manners** 
 
