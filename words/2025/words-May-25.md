@@ -101,6 +101,54 @@ Trump **revamps** "Schedule F," making it easier to cut federal workers.
 
 --------------------  
 
+1. **Kitsch**  
+   - **Meaning**: Art, objects, or design considered to be in poor taste because of excessive garishness or sentimentality, but sometimes appreciated in an ironic or knowing way.  
+   - **Common Use**: It's used fairly frequently in discussions about art, design, and culture.  
+   - **Examples**:  
+     - "The room was decorated with kitsch memorabilia from the 1980s."  
+     - "His love for kitsch art was evident in his collection of velvet Elvis paintings."  
+   - **Alternatives**: Tacky, gaudy, camp.  
+
+2. **Perfervid**  
+   - **Meaning**: Intensely passionate or fervent.  
+   - **Common Use**: This word is not commonly used in everyday conversation but may appear in literary or formal contexts.  
+   - **Examples**:  
+     - "She delivered a perfervid speech that moved the audience to tears."  
+   - **Alternatives**: passionate, fervent, ardent.  
+
+3. **Jettison / Jetty**  
+   - **Jettison**: 
+     - **Meaning**: To throw or drop something from an aircraft or ship.  
+     - **Common Use**: Used in both literal and metaphorical contexts to describe getting rid of something unwanted.  
+     - **Examples**:  
+       - "The crew had to jettison some cargo to lighten the ship."  
+       - "The company decided to jettison its unprofitable division."  
+     - **Alternatives**: discard, dump, eject.  
+   - **Jetty**: 
+     - **Meaning**: A structure that projects from the land out into water, often used as a docking place for boats.  
+     - **Common Use**: Commonly used in discussions related to marine or coastal contexts.  
+     - **Examples**:  
+       - "Fishermen were busy securing their boats to the jetty."  
+     - **Alternatives**: pier, dock, wharf.  
+
+4. **Excoriate**  
+   - **Meaning**: To criticize severely; in a medical context, it can also mean to remove part of the surface of the skin.  
+   - **Common Use**: More often used in formal contexts, particularly in critiques or reviews.  
+   - **Examples**:  
+     - "The critic did not hesitate to excoriate the movie for its lackluster plot."  
+     - "The doctor treated the excoriated skin with a soothing ointment."  
+   - **Alternatives**: denounce, berate, condemn.  
+
+5. **Olfactory**  
+   - **Meaning**: Relating to the sense of smell.  
+   - **Common Use**: Commonly used, especially in contexts involving senses, aroma, or scientific discussions.  
+   - **Examples**:  
+     - "The olfactory senses are closely linked to memory and mood."  
+     - "The chef's kitchen was an olfactory delight with the aroma of herbs and spices."  
+   - **Alternatives**: scent-related, aromatic (contextual synonyms). 
+
+--------------------  
+
 1. **Rapacity**  
    - **Meaning:** Extreme greed for wealth or material gain.  
    - **Common Use:** "Rapacity" is not commonly used in everyday conversation. It's more often found in literature or discussions about economics and ethics.  
@@ -291,3 +339,5 @@ The **Mauritius** miracle is losing its **sheen**.
 I'm **petrified** by some of those issues. 
 The **apostle** Paul.  
 It's **borderline** reasonable.  
+
+
