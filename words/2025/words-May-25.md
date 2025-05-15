@@ -22,14 +22,7 @@ adumbrate??
 
 sordid 
 
-kitsch  
-
-perfervid 
-jettison, jetty  
-
-excoriate  
-
-olfactory  
+atrium  
 
 Special or Verb 
 ------------ 
@@ -48,6 +41,9 @@ Special or Verb
 **charm** 
 
 -------------------------  
+
+dweeb, bozo, doofus.  
+Behind the **vertiginous** rise of Palantir  
 
 ## Week 1  
 > 2025-05-12  
