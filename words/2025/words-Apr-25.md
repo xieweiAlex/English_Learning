@@ -36,7 +36,7 @@ Special or Verb
 
 The script is actually a **predicate**. It's just an equation that evaluates to true or false. Predicate is a long and unfamiliar word so I called it script. 
 
-My only **gripe** about the hotel was the food. -  
+My only **gripe** about the hotel was the food.   
 
 the country’s already **dire** public finances.   
 Britain’s rushed, **muddled** intervention in the steel industry.  
@@ -49,10 +49,10 @@ Two economic **apex predators** are playing a **game of chicken**, to see which 
 Sadly, the stability of the global economy and financial markets are likely to be **pawns** in this **game of chess**.  
 The bond market is the one that calls **time out** on everything in finance, so I am taking moves like this one very seriously.  
 I don’t think Xi is ready at this point to compromise simply because he thinks China has the advantage, and that Trump’s **feckless** “Liberation Day” tariffs will ultimately **hasten** what he sees as an American decline already underway. -    
-Ahead of anticipated talks, China is **corralling** allies and pressuring trade partners not to make a separate peace with Trump. -    
+Ahead of anticipated talks, China is **corralling** allies and pressuring trade partners not to make a separate peace with Trump.   
 
 North Korea’s **plunder** is the pay off from a decades-long effort.  
-Talented maths students were put into special schools and given **reprieves** from mandatory annual countryside labour. -    
+Talented maths students were put into special schools and given **reprieves** from mandatory annual countryside labour.   
 Says Thae Yong Ho, a senior North Korean diplomat who **defected** in 2016.  
 Originally **envisaged** as a tool for espionage and sabotage, North Korea’s cyber-forces began to focus on cybercrime in the mid-2010s.  
 Fees and **interdictions** by law enforcement reduce the overall take, but North Korea can expect to receive “definitely 80%, maybe 90%” of the funds it steals. -    
@@ -205,7 +205,7 @@ She **put forward** some **cogent reasons** for abandoning the plan.
 Yet building projects continue **apace**. -    
 The weeds grow **apace**.  
 He **bellows**, **rends the air with anguish**.  
-Release does not **exonerate** the offender. -  
+Release does not **exonerate** the offender.   
 
 The White House Correspondents Association Speaks **Cowardice** to Power.  
 So eight weeks ago this **obsequious** **bootlicker** Daniels thought Amber Ruffin “would be a perfect fit for the dinner this year” but now, four weeks before the show, he’s trying to claim with a **straight face** that “For the past couple of weeks, I have been planning a re-envisioning of our dinner tradition for this year”?  
@@ -551,7 +551,7 @@ Week 1-4
 **stoop, swoop, swoon**  
 **askew, askance, canted, slant, tilted**. 
 **outlast, outgrow, outfox, outsmart, outrank**,  
-Most religions **posit** the existence of life after death. -  
+Most religions **posit** the existence of life after death.   
 We couldn't stay out there in that **desolation** another day.  
 **Apostrophe** 
 **wimpy, meek, lame**, 
@@ -639,7 +639,7 @@ Trump’s tariffs will **pummel** Vietnam.
 The **tinsel and the holly** were decorating the drug store.  
 
 He is **apt** to get angry over **trifles**.  
-Congress is **inert**, but a **deft** Supreme Court might contain him. -  
+Congress is **inert**, but a **deft** Supreme Court might contain him.  
 Donald Trump’s **antics** mean new boldness is needed in UK-EU links.  
 Taiwan **flogs** America drones “not made in China”.  
 The **Mauritius** miracle is losing its **sheen**.  

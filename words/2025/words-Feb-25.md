@@ -112,7 +112,7 @@ Instead of luxury condos, Gaza faces a **resumption** of war.
 
 
 
-And I hope could spend commonness and **treacly** life with you. -  
+And I hope could spend commonness and **treacly** life with you.   
 I sat quietly, **musing** on the events of the day.  
 
 

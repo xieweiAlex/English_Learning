@@ -24,6 +24,10 @@ sordid
 
 atrium  
 
+treacly  
+
+bedevil  
+
 Special or Verb 
 ------------ 
 
@@ -42,6 +46,8 @@ Special or Verb
 
 -------------------------  
 
+exonerate, exorable,  
+
 dweeb, bozo, doofus.  
 Behind the **vertiginous** rise of Palantir  
 
@@ -49,7 +55,7 @@ Behind the **vertiginous** rise of Palantir
 > 2025-05-12  
 
 Aphorism, axiom, theorem, adage, proverb.  
-desolate, desolation.  
+desolate, desolation, consolate, disconsolate, .  
 
 
 This **garment** should be washed carefully.  
@@ -98,15 +104,15 @@ Trump **revamps** "Schedule F," making it easier to cut federal workers.
 --------------------  
 
 1. **Kitsch**  
-   - **Meaning**: Art, objects, or design considered to be in poor taste because of excessive garishness or sentimentality, but sometimes appreciated in an ironic or knowing way.  
+   - **Meaning**: Art, objects, or design considered to be in poor taste because of excessive **garishness** or sentimentality, but sometimes appreciated in an ironic or knowing way.  
    - **Common Use**: It's used fairly frequently in discussions about art, design, and culture.  
    - **Examples**:  
      - "The room was decorated with kitsch memorabilia from the 1980s."  
      - "His love for kitsch art was evident in his collection of velvet Elvis paintings."  
-   - **Alternatives**: Tacky, gaudy, camp.  
+   - **Alternatives**: **Tacky, gaudy, camp**.  
 
 2. **Perfervid**  
-   - **Meaning**: Intensely passionate or fervent.  
+   - **Meaning**: Intensely passionate or **fervent**.  
    - **Common Use**: This word is not commonly used in everyday conversation but may appear in literary or formal contexts.  
    - **Examples**:  
      - "She delivered a perfervid speech that moved the audience to tears."  

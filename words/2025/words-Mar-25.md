@@ -57,7 +57,7 @@ The surveyor's report didn't highlight anything **untoward**. -
 He didn't want any further involvement for fear of **retribution**. -   
 He needs to learn to **curb** his temper.   
 She put a **curb** on her spending.  
-We can **curb** juvenile **delinquency** by education. -    
+We can **curb** juvenile **delinquency** by education.   
 
 
 **vindicate**.  
@@ -334,7 +334,7 @@ France has become too **effeminate**, etc., etc.
 
 ## Week 1 
 
-Iran is the **fulcrum** of an unstable region. -   
+Iran is the **fulcrum** of an unstable region.   
 
 from **stem to stern**.  
 He cast a **stern glance** at the two men.  

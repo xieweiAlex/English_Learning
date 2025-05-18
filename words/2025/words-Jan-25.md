@@ -100,7 +100,7 @@ This **tardiness** is a symptom of two deeper problems.
 
 He said this with an **ingratiating** smile.  
 He is **bedeviled** by his mistaken ideas.  
-This polarisation is Mrs May's legacy-and it will **bedevil** her successor. -  
+This polarisation is Mrs May's legacy-and it will **bedevil** her successor.   
 
 **bedevil, beset, plague**  
 I was **beset** by clouds of flies.  
