@@ -28,34 +28,123 @@ treacly
 
 bedevil  
 
-Special or Verb 
+craven  
+
+cloture  
+
+presage  
+
+putrid 
+
+scrounge  
+
+libel  
+
+clinch  
+
+homolog 
+
+preordain  
+
+de jure 
+
+garrulous  
+
+
+Special Words  
 ------------ 
 
-**martyr**  
-**affinity**  
+**Crosscurrents**  
 
-**antics** 
-**fall out of love**. 
-**hideous** 
+**aptitude**  
 
-**reckless, feckless** 
+parasitic  
 
-### Verb 
-**corral** 
-**charm** 
+heuristic  
+
+### Verb Words  
+
+beset  
 
 -------------------------  
 
-exonerate, exorable,  
+dumpy, chunky, shrimpy, 
+die-hard, staunch, zealot, ardent, fervent, fanatic, 
 
-dweeb, bozo, doofus.  
-Behind the **vertiginous** rise of Palantir  
+Jovial, jubilant, joyous, rejoice, elated, thrilled, ecstatic, delighted.  
+
+
+They wear simple clothes and shun modern **contrivances**. 
+
+
+Despite all this, Tesla remains in an enviable financial position.  
+Bugs and identity theft, to snaffle the $30 of bitcoin for signing up, were rife.  
+stake-out ops.  
+
+
+You **mulish** guy, what the hell are you seeking?  
+But countries will be even more **queasy** about being dragged into a fight over Taiwan.  
+International criticism of one may be less **strident**, following a Chinese diplomatic campaign since 2023 that has led 70 countries to support “all” efforts at **reunification**, creating cover for anything from inspections to invasion.  
+These factors could power a harmful feedback loop inside Taiwan, even if Mr Trump climbs down over trade.  
+If America weakens its commitment to defending Taiwan, then Taiwan may lose the resolve to resist.  
+Not long ago it made sense for Mr Xi to think he should wait to wrest control of Taiwan.  
+He may now conclude that he has an opportunity upon which he must act soon, before it goes to waste.  
+
+hawker, busker.  
+
+spurious, dubious, bogus, unwarranted, 
+
+Ask if the funds have been escheated (turned over to the state) due to inactivity.  
+
+
+**Non-disparagement**.  
+The capital, Willemstad, has **pastel-colored** **colonial** architecture.  
+
+
+Few cities serve as a more **poignant** marker of national decline than modern-day Birmingham—a predictable casualty of Britain’s economic **mismanagement**.  
+Now, the **beleaguered** residents of Birmingham are quite literally being **overrun** by rats.  
+Now, **mounds** rubbish bags are **strewn around** the city, sparking public health concerns and a rodent infestation that's made global headlines.  
+Every **gust of wind** carries the **pungent** reminder of a crisis for which there's **no end in sight**.  
+The root cause of Britain’s decline to **rump-state** status is as easy to identify as it is difficult for most legacy media **outlets** to admit.  
+The steel industry, whose decades-long **slide into** irrelevance now appears headed for an imminent and **inglorious** conclusion. 
+After **scouring** the world for new buyers, an agreement was reached to sell the company to the Jingye Group in November of 2019.  
+A **deciding factor** in favor of Jingye was its commitment to invest £1.2 billion to revive the company’s competitiveness.  
+While we are certainly no fans of how the Chinese conduct business, the **sheer audacity** here is **staggering**.  
+Steel production fundamentally requires three inputs: **iron ore**, **coking coal**, and cheap energy.  
+Britain, in its **climate crusade**, now proudly mines none of the first two and just celebrated the closure of its last coal-fired power plant.  
+Not only would it mark one of the greatest **addition-by-subtraction** trades in British political history, but it would also give Miliband a rare opportunity to **grapple with** the practical consequences of the **very policies he has long espoused**.  
+
+
+**scour**. 
+
+**strew, scatter, sprinkle, lay**.  
+**fiasco, debacle, blunder, mishap**  
+
+
+MicroStrategy is one of the best performing assets in the world right now, and this has caught many Bitcoiners (including myself) **flat footed**.  
+So I decided to ignore my **instinctual** **repulsion** to this parabolic price chart, and instead try to build a case for how I might need to think differently about MSTR.  
+
+**Crosscurrents** Of Inflation, Sentiment, And Taxes.  
+Australia is no longer lucky. - It needs to get its **mojo** back. 
+Nigeria has more people without electricity than any other country. -  Fixing that will be **fiendishly** difficult.  
+
+**Lumbar, lumber, slumber**. 
+
+Fact-checkers forecast which **dodgy** claims will do most damage.  
+How to distinguish between **weapons-grade disinformation** and everyday **codswallop**. -    
+
+**jamb, doorway, hallway, entryway** 
+
+**exonerate, exorable, exculpate, exculpatory**.  
+
+**dweeb, bozo, doofus**.  
+Behind the **vertiginous** rise of Palantir.  
 
 ## Week 1  
 > 2025-05-12  
 
-Aphorism, axiom, theorem, adage, proverb.  
-desolate, desolation, consolate, disconsolate, .  
+**Aphorism, axiom, commandment theorem, adage, proverb**.  
+**desolate, desolation, consolate, disconsolate**.  
 
 
 This **garment** should be washed carefully.  
