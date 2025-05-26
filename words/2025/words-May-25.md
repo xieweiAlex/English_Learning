@@ -51,6 +51,8 @@ de jure
 garrulous  
 
 
+bloviate  
+
 Special Words  
 ------------ 
 
@@ -62,13 +64,18 @@ parasitic
 
 heuristic  
 
+divulge  
+
+
+
 ### Verb Words  
 
 beset  
 
 -------------------------  
 
-dumpy, chunky, shrimpy, 
+dumpy, chunky, shrimpy, podgy.  
+
 die-hard, staunch, zealot, ardent, fervent, fanatic, 
 
 Jovial, jubilant, joyous, rejoice, elated, thrilled, ecstatic, delighted.  
