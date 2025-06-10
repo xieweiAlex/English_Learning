@@ -66,47 +66,72 @@ heuristic
 
 divulge  
 
-
-
 ### Verb Words  
 
 beset  
 
 -------------------------  
 
-dumpy, chunky, shrimpy, podgy.  
+Turns your memory into **velcro** (information just STICKS)  
+My best guess is that the American will increasingly **look away**.  
 
-die-hard, staunch, zealot, ardent, fervent, fanatic, 
+**inseam, insole**. 
 
-Jovial, jubilant, joyous, rejoice, elated, thrilled, ecstatic, delighted.  
+Trump admits **rupture** with Musk: "Elon and I had a great relationship".  
+Why it matters: The tight relationship between Trump and the Tesla CEO has been **fracturing** after Musk has repeatedly **blasted** Trump's signature bill.  
+**kook, hippie, wacko, psycho, lunatic**.  
 
+
+Why AI hasn’t taken your job. - And any jobs-pocalypse seems **a long way off**.  
+France’s **improbable** adult **baptism** boom.  
+
+Bukit Bintang is known for Jalan Bukit Bintang, a busy **thoroughfare** with **upscale malls** and **luxe** fashion **boutiques**.  
+
+**didactic, autodidact, pedagogy, exposition/expo**, 
+
+The response from the Bitcoin community is to either endlessly argue over the above points[3] or to find their inner **Bitcoin Jonah** with **platitudes**.  
+They see the price crash a few times, due to bubbles bursting or just **garden-variety** panic sales – it entices them to buy more, “a bargain”.  
+Everyone **admonishes** people to not borrow in order to buy bitcoins.  
+
+It will rapidly escalate into **Class IV hemorrhaging** due to speculative attacks on weak fiat currencies.  
+
+Speculators are unsure of the **amplitude** or **wavelength** of adoption, and **amateurish punters** let their excitement as well as subsequent fear overwhelm them.  
+
+> The reality is that money is fungible: if you buy bitcoins instead of paying down your mortgage’s principal, you are a leveraged bitcoin investor. 
+> The BCB does not intervene to stabilize these intermittent hype-cycles because steady appreciation of the exchange rate would allow for an even greater buildup of speculative excesses and the BCB would lose the confidence that AMST gives to long-term holders of bitcoins.  
+
+The blue **dye** is obtained from the **indigo plant**.  
+
+
+### Week 2  
+
+Birds with feathers **flock** together.  
+
+**dumpy, chunky, shrimpy, podgy**.  
+
+**die-hard, staunch, zealot, ardent, fervent, fanatic**, 
+
+**Jovial, jubilant, joyous, rejoice, elated, thrilled, ecstatic, delighted**.  
 
 They wear simple clothes and shun modern **contrivances**. 
-
-
-Despite all this, Tesla remains in an enviable financial position.  
-Bugs and identity theft, to snaffle the $30 of bitcoin for signing up, were rife.  
-stake-out ops.  
+Despite all this, Tesla remains in an **enviable** financial position.  
+Bugs and identity theft, to **snaffle** the $30 of bitcoin for signing up, were rife.  
+**stake-out ops**.  
 
 
 You **mulish** guy, what the hell are you seeking?  
 But countries will be even more **queasy** about being dragged into a fight over Taiwan.  
 International criticism of one may be less **strident**, following a Chinese diplomatic campaign since 2023 that has led 70 countries to support “all” efforts at **reunification**, creating cover for anything from inspections to invasion.  
-These factors could power a harmful feedback loop inside Taiwan, even if Mr Trump climbs down over trade.  
-If America weakens its commitment to defending Taiwan, then Taiwan may lose the resolve to resist.  
-Not long ago it made sense for Mr Xi to think he should wait to wrest control of Taiwan.  
-He may now conclude that he has an opportunity upon which he must act soon, before it goes to waste.  
+These factors could power a harmful feedback loop inside Taiwan, even if Mr Trump **climbs down** over trade.  
+If America weakens its commitment to defending Taiwan, then Taiwan may lose the **resolve** to resist.  
+Not long ago it made sense for Mr Xi to think he should wait to **wrest control** of Taiwan.  
+He may now **conclude** that he has an opportunity upon which he must **act soon**, before it **goes to waste**.  
+**hawker, busker**.  
+**spurious, dubious, bogus, unwarranted**, 
 
-hawker, busker.  
-
-spurious, dubious, bogus, unwarranted, 
-
-Ask if the funds have been escheated (turned over to the state) due to inactivity.  
-
-
+Ask if the funds have been **escheated** (turned over to the state) due to inactivity. -    
 **Non-disparagement**.  
 The capital, Willemstad, has **pastel-colored** **colonial** architecture.  
-
 
 Few cities serve as a more **poignant** marker of national decline than modern-day Birmingham—a predictable casualty of Britain’s economic **mismanagement**.  
 Now, the **beleaguered** residents of Birmingham are quite literally being **overrun** by rats.  
@@ -121,12 +146,10 @@ Steel production fundamentally requires three inputs: **iron ore**, **coking coa
 Britain, in its **climate crusade**, now proudly mines none of the first two and just celebrated the closure of its last coal-fired power plant.  
 Not only would it mark one of the greatest **addition-by-subtraction** trades in British political history, but it would also give Miliband a rare opportunity to **grapple with** the practical consequences of the **very policies he has long espoused**.  
 
-
 **scour**. 
 
 **strew, scatter, sprinkle, lay**.  
 **fiasco, debacle, blunder, mishap**  
-
 
 MicroStrategy is one of the best performing assets in the world right now, and this has caught many Bitcoiners (including myself) **flat footed**.  
 So I decided to ignore my **instinctual** **repulsion** to this parabolic price chart, and instead try to build a case for how I might need to think differently about MSTR.  
