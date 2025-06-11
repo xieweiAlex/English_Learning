@@ -3,7 +3,7 @@
 
 [Seinfeld](../../media/seinfeld.md)  
 
-[Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
+[Week 2](#week-2)| [Week 1](#week-1) |  
 
 [Convo](#conversation) | [Interesting](#interesting) |  
 
@@ -13,45 +13,6 @@
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
-addle.  
-cavil  
-milieu  
-carouse  
-
-adumbrate?? 
-
-sordid 
-
-atrium  
-
-treacly  
-
-bedevil  
-
-craven  
-
-cloture  
-
-presage  
-
-putrid 
-
-scrounge  
-
-libel  
-
-clinch  
-
-homolog 
-
-preordain  
-
-de jure 
-
-garrulous  
-
-
-bloviate  
 
 Special Words  
 ------------ 
@@ -71,37 +32,6 @@ divulge
 beset  
 
 -------------------------  
-
-Turns your memory into **velcro** (information just STICKS)  
-My best guess is that the American will increasingly **look away**.  
-
-**inseam, insole**. 
-
-Trump admits **rupture** with Musk: "Elon and I had a great relationship".  
-Why it matters: The tight relationship between Trump and the Tesla CEO has been **fracturing** after Musk has repeatedly **blasted** Trump's signature bill.  
-**kook, hippie, wacko, psycho, lunatic**.  
-
-
-Why AI hasn’t taken your job. - And any jobs-pocalypse seems **a long way off**.  
-France’s **improbable** adult **baptism** boom.  
-
-Bukit Bintang is known for Jalan Bukit Bintang, a busy **thoroughfare** with **upscale malls** and **luxe** fashion **boutiques**.  
-
-**didactic, autodidact, pedagogy, exposition/expo**, 
-
-The response from the Bitcoin community is to either endlessly argue over the above points[3] or to find their inner **Bitcoin Jonah** with **platitudes**.  
-They see the price crash a few times, due to bubbles bursting or just **garden-variety** panic sales – it entices them to buy more, “a bargain”.  
-Everyone **admonishes** people to not borrow in order to buy bitcoins.  
-
-It will rapidly escalate into **Class IV hemorrhaging** due to speculative attacks on weak fiat currencies.  
-
-Speculators are unsure of the **amplitude** or **wavelength** of adoption, and **amateurish punters** let their excitement as well as subsequent fear overwhelm them.  
-
-> The reality is that money is fungible: if you buy bitcoins instead of paying down your mortgage’s principal, you are a leveraged bitcoin investor. 
-> The BCB does not intervene to stabilize these intermittent hype-cycles because steady appreciation of the exchange rate would allow for an even greater buildup of speculative excesses and the BCB would lose the confidence that AMST gives to long-term holders of bitcoins.  
-
-The blue **dye** is obtained from the **indigo plant**.  
-
 
 ### Week 2  
 
@@ -350,9 +280,6 @@ Trump **revamps** "Schedule F," making it easier to cut federal workers.
 
 
 ## Words Gallery  
-
-**vilify, discredit, undermine** 
-**sycophant, supplicant, obsequious, bootlicker, lickspittle, suck-up**. 
 
 **indigen, indigo**.  
 **assay, assailant**.  

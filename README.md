@@ -12,7 +12,7 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 
 ### 2025 
 
- [May](./words/2025/words-May-25.md) | [April](./words/2025/words-Apr-25.md) |
+[June](./words/2025/words-Jun-25.md)  | [May](./words/2025/words-May-25.md) | [April](./words/2025/words-Apr-25.md) |
 
 [March](./words/2025/words-Mar-25.md) |
 [Feb Words](./words/2025/words-Feb-25.md) |
