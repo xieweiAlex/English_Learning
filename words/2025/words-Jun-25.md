@@ -39,21 +39,56 @@ garrulous
 
 bloviate  
 
+mangy  
+
+fulminate  
+
+bunkum  
+
+abdicate  
+
 Special Words  
+
+**rupture**  
+
+**hemorrhage**  
+
+**thoroughfare**  
+
+**amplitude**, **punter**  
 
 ------------ 
 
 
 ### Verb Words  
 
+**salve** 
+
+**lament**  
+
 -------------------------  
 
+
+
+## Week 2, week 1  
+
+They all lament the world is an imperfect place, the money is broken, and government policy intervention doesn't work.  
+
+
+Lightning fees are very very **minuscule**.  
+
+You guys get **acquainted**, we got move the show.  
+
+**daze, dazzle** 
+
+His regime uses **payouts** to **salve** Russian families' grief.  
+The 11-year-old Ukrainian YouTuber. - **snapping at MrBeast's heels**.  
 
 Turns your memory into **velcro** (information just STICKS)  
 My best guess is that the American will increasingly **look away**.  
 
 Trump admits **rupture** with Musk: "Elon and I had a great relationship".  
-Why it matters: The tight relationship between Trump and the Tesla CEO has been **fracturing** after Musk has repeatedly **blasted** Trump's signature bill.  
+Why it matters: The tight relationship between Trump and the Tesla CEO has been **fracturing** after Musk has repeatedly **blasted** Trump's signature bill. -    
 
 Why AI hasn’t taken your job. - And any jobs-pocalypse seems **a long way off**.  
 France’s **improbable** adult **baptism** boom.  
@@ -73,6 +108,8 @@ Speculators are unsure of the **amplitude** or **wavelength** of adoption, and *
 
 The blue **dye** is obtained from the **indigo plant**. -    
 
+HQEBEC  
+
 ## Words Explain 
 
 > Can you help me understand the words below? Are they commonly used? If possible, give out few examples and alternatives, thanks!  
@@ -80,7 +117,7 @@ The blue **dye** is obtained from the **indigo plant**. -
 --------------------  
 
 1. **Treacly**  
-   - **Meaning**: Overly sentimental or sweet, sometimes to the point of being cloying.  
+   - **Meaning**: Overly **sentimental** or sweet, sometimes to the point of being **cloying**.  
    - **Examples**: 
      - "The movie was so treacly that it felt like watching a soap opera."  
      - "Her treacly smile made him suspicious of her intentions."  
@@ -131,7 +168,9 @@ The blue **dye** is obtained from the **indigo plant**. -
 
 ## Words Gallery  
 
-**vilify, discredit, undermine** 
+**scour, scrounge, scape, scrap**  
+**peruse, cursive**  
+**vilify, discredit, undermine**  
 **sycophant, supplicant, obsequious, bootlicker, lickspittle, suck-up**. 
 
 **fiery, incendiary, inflammatory, flammable**.  
@@ -147,10 +186,20 @@ The blue **dye** is obtained from the **indigo plant**. -
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
 
+You guys get **acquainted**, we got move the show.  
 
 
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
+
+The 11-year-old Ukrainian YouTuber. - **snapping at MrBeast's heels**.  
+Turns your memory into **velcro** (information just STICKS)  
+My best guess is that the American will increasingly **look away**.  
+Bukit Bintang is known for Jalan Bukit Bintang, a busy **thoroughfare** with **upscale malls** and **luxe** fashion **boutiques**.  
+The response from the Bitcoin community is to either endlessly argue over the above points[3] or to find their inner **Bitcoin Jonah** with **platitudes**.  
+It will rapidly escalate into **Class IV hemorrhaging** due to speculative attacks on weak fiat currencies.  
+Speculators are unsure of the **amplitude** or **wavelength** of adoption, and **amateurish punters** let their excitement as well as subsequent fear overwhelm them.  
+
 
 Sam Altman is **in a bind** over his company’s non-profit status.  
 Instead, money has a strong network effect, where liquidity **begets** more liquidity, and acceptability **begets** more acceptability, leading to one or two major salable monies rather than countless of them.  
