@@ -48,7 +48,7 @@ To **see off** the Trump challenge, Canada must fix its productivity problem, sa
 Two economic **apex predators** are playing a **game of chicken**, to see which great power **backs down** first.  
 Sadly, the stability of the global economy and financial markets are likely to be **pawns** in this **game of chess**.  
 The bond market is the one that calls **time out** on everything in finance, so I am taking moves like this one very seriously.  
-I don’t think Xi is ready at this point to compromise simply because he thinks China has the advantage, and that Trump’s **feckless** “Liberation Day” tariffs will ultimately **hasten** what he sees as an American decline already underway. -    
+I don’t think Xi is ready at this point to compromise simply because he thinks China has the advantage, and that Trump’s **feckless** “Liberation Day” tariffs will ultimately **hasten** what he sees as an American decline already underway.   
 Ahead of anticipated talks, China is **corralling** allies and pressuring trade partners not to make a separate peace with Trump.   
 
 North Korea’s **plunder** is the pay off from a decades-long effort.  

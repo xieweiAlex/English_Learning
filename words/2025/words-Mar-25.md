@@ -28,7 +28,7 @@ To hear about the repressive politics, I learned to wait on **low stools** in **
 DOGE comes for the **data wonks**. America may soon be unable to measure itself properly.   
 Inside the world of **vigilante** scam-baiters.  
 Ukraine’s army escapes Kursk by **the skin of its teeth**.  
-Elsewhere, despite our **favourable view** of immigration, we note that arguments against it, **put forward** by J.D. Vance and his **ilk**, have some merit. -    
+Elsewhere, despite our **favourable view** of immigration, we note that arguments against it, **put forward** by J.D. Vance and his **ilk**, have some merit.   
 
 
 **disquiet, discontent, disaffected, unrest**. 
@@ -54,7 +54,7 @@ This period of travelling helped McConaughey **comes to terms** with himself.
 American and Japanese alike— endures in history, in sacred ground, and the bonds between our nations. Their **valor** will never fade.  
 
 The surveyor's report didn't highlight anything **untoward**. -  
-He didn't want any further involvement for fear of **retribution**. -   
+He didn't want any further involvement for fear of **retribution**.   
 He needs to learn to **curb** his temper.   
 She put a **curb** on her spending.  
 We can **curb** juvenile **delinquency** by education.   
@@ -199,7 +199,7 @@ All lawyers have a responsibility to assist in providing **pro bono** public ser
 
 His **remoteness** made her feel **unloved**.  
 **congenital heart disease**, **congenital malformation**.  
-He wasn't the **paragon** of virtue she had expected. -   
+He wasn't the **paragon** of virtue she had expected.   
 
 
 The new tax provoked a public **outcry**.  

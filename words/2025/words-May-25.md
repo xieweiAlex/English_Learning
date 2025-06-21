@@ -134,7 +134,7 @@ It’s **destined** for both friction and pushback since it’s not targeting th
 the foreign sector will **term out** their holdings of US debt and accept debasement of their reserve holdings to stay in the **good graces** of the US government.  
 The rest of the world would view such propositions as “**paying tribute** to the empire”, and that’s a **non-starter** for many nations, especially large ones like China and other BRICS nations.  
 The Painful **Nuance**.  
-One of the reasons why **optics** around the trade balance are so confusing is that if it’s phrased directly, then addressing it is unlikely to be popular. -   
+One of the reasons why **optics** around the trade balance are so confusing is that if it’s phrased directly, then addressing it is unlikely to be popular.   
 Even back when I wrote my 2020 article it was gradually **underway**, but some things since then kicked it into **high-gear**.  
 
 > The status quo is painful for those on the wrong side of the huge imbalance. But the change itself would likely be stagflationary and long-lasting, with no guarantee of success.  

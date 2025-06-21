@@ -399,7 +399,6 @@ pork-barrel: a **legislative** **appropriation** designed to **ingratiate** legi
 She was **incandescent** with rage.  
 His performance was **incandescent**.  
 
-**doodad, gadget, bauble, trinket, ornament**. vv  
 
 “Hold on to that,” Marcus says, “and you won’t **be tempted to** aim at anything else.”  
 > Imagine how it would feel to be **driven** from within like that. To do what you were designed to do day in, day out, without needing to **look over your shoulder** for outside approval or reward.  

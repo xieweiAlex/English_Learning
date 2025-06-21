@@ -47,7 +47,13 @@ bunkum
 
 abdicate  
 
-Special Words  
+swig 
+
+berserk 
+
+do-si-do  
+
+### Special Words  
 
 **rupture**  
 
@@ -66,7 +72,31 @@ Special Words
 
 **lament**  
 
+sprain  
+
 -------------------------  
+
+parable, paragon.  
+
+desolate, desolation, disconsolate, consoling, consolation.  
+
+Mr Trump, who tends to **vacillate**, has been easily swept along Israel’s preferred path.  
+Meanwhile, Israel **yearns** for America itself to bomb Iran’s nuclear sites, rather than leave the job partially done.  
+
+locus, locust  
+
+**flaccid, placid, serene, tranquil, contented** 
+
+**boisterous, raucous, rowdy, feisty, rousing**.  
+
+> It's not that the quickie doesn't do anything, it's just that it is wildly suboptimal if you actually care to learn.  
+
+Hijab, hajib, jihad, 
+
+**doodad, gadget, bauble, trinket, ornament**. vv  
+
+Mr Trump, who tends to vacillate, has been easily swept along Israel’s preferred path.  
+Meanwhile, Israel yearns for America itself to bomb Iran’s nuclear sites, rather than leave the job partially done.  
 
 
 
