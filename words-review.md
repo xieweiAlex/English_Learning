@@ -11,7 +11,6 @@ Thus, in the case of the United States, the trade deficit and global reserve cur
 
 ## words-Apr-25.md ##  
 words/2025/words-Apr-25.md  
-Investors realise Trump’s pause was not the **salvation** it appeared. -  
 Fees and **interdictions** by law enforcement reduce the overall take, but North Korea can expect to receive “definitely 80%, maybe 90%” of the funds it steals. -  
 Congress is **inert**, but a **deft** Supreme Court might contain him. -  
 The minister preached a **sermon** on the **parable** of the lost sheep. -  
@@ -19,9 +18,6 @@ He pushed the church left during his tenure, often to the **dismay** of traditio
 He had attempted to **abduct** the three boys. -  
 The next president could **abrogate** the treaty. -  
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -  
-Overcome with shame and grief, they tried to cry and **bemoan** their fate. -   
-**Overripe**: The skin may be **discolored**, wrinkled, or have **blemishes**. -  
-Brian took a **swig** of his beer. -   
 Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**. -  
 The next issue is that reviewing is generally dull and **vapid**. -  
 **Stowage** is provided in lined lockers beneath the berths. -  

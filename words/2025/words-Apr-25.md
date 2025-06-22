@@ -40,7 +40,7 @@ My only **gripe** about the hotel was the food.
 
 the country’s already **dire** public finances.   
 Britain’s rushed, **muddled** intervention in the steel industry.  
-Investors realise Trump’s pause was not the **salvation** it appeared. -    
+Investors realise Trump’s pause was not the **salvation** it appeared.   
 Russia’s army is being **subordinated** to its security services.  
 To **see off** the Trump challenge, Canada must fix its productivity problem, says Michael Ignatieff.  
 **Pity** American firms in China. Xi Jinping is **hitting back**. ---- From Apple and Boeing to Nike and Starbucks, there is a lot of money **at stake**.  
@@ -99,7 +99,7 @@ The next president could **abrogate** the treaty. -
 **ink jet, printing ink**.  
 
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -    
-Overcome with shame and grief, they tried to cry and **bemoan** their fate. -    
+Overcome with shame and grief, they tried to cry and **bemoan** their fate.   
 
 ### week 3  
 
@@ -112,13 +112,13 @@ We are **misers** about money and property, Seneca writes in On The Shortness of
 That **flutter** in your stomach before meeting new people, that's your ancestor's survival instinct still protecting you.  
 Why the IMF should **bail out** a serial **deadbeat**.  
 The **apostle** Paul.  
-**Overripe**: The skin may be **discolored**, wrinkled, or have **blemishes**. -    
+**Overripe**: The skin may be **discolored**, wrinkled, or have **blemishes**.   
 It's hard to imagine what reason there could be for the university to **scrub** its website as if he never worked there.  
 
 The **tinsel and the holly** were decorating the drug store.  
 his taste for the **tinsel** of the art world.  
 **Credulous** people are easily misled by false advertisements.  
-Brian took a **swig** of his beer. -    
+Brian took a **swig** of his beer.   
 **glut, gluttonous**.  
 **concubine**.  
 

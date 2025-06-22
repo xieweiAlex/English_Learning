@@ -17,8 +17,7 @@ addle.
 cavil  
 milieu  
 carouse  
-
-adumbrate?? 
+adumbrate  
 
 sordid 
 
@@ -29,29 +28,9 @@ libel
 
 clinch  
 
-homolog 
+homolog  
 
-preordain  
-
-de jure 
-
-garrulous  
-
-bloviate  
-
-mangy  
-
-fulminate  
-
-bunkum  
-
-abdicate  
-
-swig 
-
-berserk 
-
-do-si-do  
+wallop  
 
 ### Special Words  
 
@@ -63,18 +42,31 @@ do-si-do
 
 **amplitude**, **punter**  
 
------------- 
 
 
 ### Verb Words  
 
-**salve** 
+**salve**  
 
 **lament**  
 
 sprain  
 
 -------------------------  
+
+codswallop, baloney, crap, drivel.  
+abduct, abdicate, abrogate  
+prefigure, prelude, prologue, foretell, foresee, prophetic, 
+
+
+The year’s chicest shade is good enough to eat. - Yet wearing it is not for the yellow-bellied.  
+
+
+Exclusive: inside the spy dossier that led Israel to war. -  We review its secret intelligence on Iranian nukes.   
+
+Israel’s blitz on Iran is fraught with uncertainty. - Much hinges on the stubborn supreme leader and America’s mercurial president.  
+The grooming-gangs scandal is a stain on the British state.  
+
 
 parable, paragon.  
 
@@ -145,6 +137,80 @@ HQEBEC
 > Can you help me understand the words below? Are they commonly used? If possible, give out few examples and alternatives, thanks!  
 
 --------------------  
+
+1. **Preordain**  
+   - **Meaning**: To decide or determine an outcome in advance.  
+   - **Common Usage**: Not very common in everyday conversation.  
+   - **Example**: "Some believe that their lives are preordained by fate."  
+   - **Alternatives**: Predestine, foreordain.  
+
+2. **De jure**  
+   - **Meaning**: According to rightful entitlement or claim; by law.  
+   - **Common Usage**: Often used in legal and formal contexts.  
+   - **Example**: "He is the de jure leader of the country."  
+   - **Alternatives**: By right, legally.  
+
+3. **Garrulous**  
+   - **Meaning**: Excessively talkative, especially on trivial matters.  
+   - **Common Usage**: Moderately common to describe talkative individuals.  
+   - **Example**: "The garrulous neighbor could chat for hours."  
+   - **Alternatives**: Talkative, loquacious.  
+
+4. **Bloviate**  
+   - **Meaning**: To speak pompously or boastfully.  
+   - **Common Usage**: Somewhat rare and often used humorously or critically.  
+   - **Example**: "The politician tended to bloviate rather than offer real solutions."  
+   - **Alternatives**: Rant, boast.  
+
+5. **Mangy**  
+   - **Meaning**: In poor condition; shabby.  
+   - **Common Usage**: Common to describe animals with skin disease or something in poor condition.  
+   - **Example**: "The mangy cat wandered the alleys."  
+   - **Alternatives**: Shabby, scruffy.  
+
+6. **Fulminate**  
+   - **Meaning**: To express vehement protest.  
+   - **Common Usage**: Sometimes used in formal writing.  
+   - **Example**: "The coach fulminated against the referees."  
+   - **Alternatives**: Rail, rant, denounce.  
+
+7. **Bunkum**  
+   - **Meaning**: Nonsense.  
+   - **Common Usage**: Colloquial and informal.  
+   - **Example**: "His explanation was sheer bunkum."  
+   - **Alternatives**: Hogwash, baloney.  
+
+8. **Abdicate**  
+   - **Meaning**: To renounce one's throne or to fail to fulfill a responsibility.  
+   - **Common Usage**: Common in discussions related to monarchy or responsibilities.  
+   - **Example**: "The king decided to abdicate in favor of his son."  
+   - **Alternatives**: Relinquish, resign.  
+
+9. **Swig**  
+   - **Meaning**: A large gulp of a drink.  
+   - **Common Usage**: Informal, often related to alcohol.  
+   - **Example**: "He took a swig from his water bottle."  
+   - **Alternatives**: Gulp, drink.  
+
+10. **Berserk**  
+    - **Meaning**: Out of control with anger or excitement.  
+    - **Common Usage**: Quite common, often used metaphorically.  
+    - **Example**: "The fans went berserk when their team won."  
+    - **Alternatives**: Frenzied, wild.  
+
+11. **Do-si-do**  
+    - **Meaning**: A square dance move.  
+    - **Common Usage**: Primarily found in the context of dancing.  
+    - **Example**: "The dancers do-si-doed around the circle."  
+    - **Alternatives**: Square dance, promenade (in dance context).  
+
+12. **Dissolute**  
+    - **Meaning**: Lax in morals; licentious.  
+    - **Common Usage**: Less common, often literary.  
+    - **Example**: "His dissolute lifestyle led to his downfall."  
+    - **Alternatives**: Debauched, immoral.  
+
+--------------  
 
 1. **Treacly**  
    - **Meaning**: Overly **sentimental** or sweet, sometimes to the point of being **cloying**.  
