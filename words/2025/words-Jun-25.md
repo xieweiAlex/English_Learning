@@ -24,14 +24,6 @@ sordid
 atrium  
 
 
-libel  
-
-clinch  
-
-homolog  
-
-wallop  
-
 ### Special Words  
 
 **rupture**  
@@ -42,7 +34,9 @@ wallop
 
 **amplitude**, **punter**  
 
+**extensive**  
 
+**meteoric**  
 
 ### Verb Words  
 
@@ -50,47 +44,43 @@ wallop
 
 **lament**  
 
-sprain  
+**sprain**  
+
+**dread**  
 
 -------------------------  
 
-codswallop, baloney, crap, drivel.  
-abduct, abdicate, abrogate  
-prefigure, prelude, prologue, foretell, foresee, prophetic, 
+He took that money and parlayed it into his trading business, whole trading.  
+
+sniff, sniffle, snuffle.  
 
 
-The year’s chicest shade is good enough to eat. - Yet wearing it is not for the yellow-bellied.  
+Shower strength is not strong enough 
+
+The shower pressure is insufficient.  
+
+huckster, hawker  
+Bitcoin as a commodity, something I discussed extensively in both of my books. 
+
+When it's time to leave your vacation, you start to dread it. It's like Sunday scary, but a lot of stronger.    
 
 
-Exclusive: inside the spy dossier that led Israel to war. -  We review its secret intelligence on Iranian nukes.   
+## Week 3  
 
-Israel’s blitz on Iran is fraught with uncertainty. - Much hinges on the stubborn supreme leader and America’s mercurial president.  
+
+The year’s **chicest** shade is good enough to eat. - Yet wearing it is not for the yellow-bellied.  
+Exclusive: inside the spy **dossier** that led Israel to war. -  We review its secret intelligence on Iranian nukes.   
+
+Israel’s **blitz** on Iran is **fraught with** uncertainty. - Much **hinges on** the stubborn supreme leader and America’s **mercurial** president.  
 The grooming-gangs scandal is a stain on the British state.  
-
-
-parable, paragon.  
-
-desolate, desolation, disconsolate, consoling, consolation.  
 
 Mr Trump, who tends to **vacillate**, has been easily swept along Israel’s preferred path.  
 Meanwhile, Israel **yearns** for America itself to bomb Iran’s nuclear sites, rather than leave the job partially done.  
 
-locus, locust  
-
-**flaccid, placid, serene, tranquil, contented** 
-
-**boisterous, raucous, rowdy, feisty, rousing**.  
-
 > It's not that the quickie doesn't do anything, it's just that it is wildly suboptimal if you actually care to learn.  
-
-Hijab, hajib, jihad, 
-
-**doodad, gadget, bauble, trinket, ornament**. vv  
 
 Mr Trump, who tends to vacillate, has been easily swept along Israel’s preferred path.  
 Meanwhile, Israel yearns for America itself to bomb Iran’s nuclear sites, rather than leave the job partially done.  
-
-
 
 ## Week 2, week 1  
 
@@ -101,7 +91,6 @@ Lightning fees are very very **minuscule**.
 
 You guys get **acquainted**, we got move the show.  
 
-**daze, dazzle** 
 
 His regime uses **payouts** to **salve** Russian families' grief.  
 The 11-year-old Ukrainian YouTuber. - **snapping at MrBeast's heels**.  
@@ -130,11 +119,54 @@ Speculators are unsure of the **amplitude** or **wavelength** of adoption, and *
 
 The blue **dye** is obtained from the **indigo plant**. -    
 
-HQEBEC  
-
 ## Words Explain 
 
+risqué, racy  
+
+libel  
+
+clinch  
+
+homolog  
+
 > Can you help me understand the words below? Are they commonly used? If possible, give out few examples and alternatives, thanks!  
+
+---------------------  
+
+1. **Wallop**  
+
+   - **Meaning**: To hit something or someone very hard.  
+   - **Usage**: This word is somewhat informal and can be commonly used in everyday conversation.  
+   - **Example**: "The boxer delivered a powerful wallop to his opponent's jaw."  
+   - **Alternatives**: Thump, smack, bash, clobber.  
+
+2. **Lesion**  
+
+   - **Meaning**: An area of damaged tissue on the body, often due to injury or disease.  
+   - **Usage**: This term is used more often in medical contexts.  
+   - **Example**: "The doctor examined the lesion on her skin to determine if it was benign."  
+   - **Alternatives**: Wound, sore, ulcer (though these can have slightly different connotations depending on the context).  
+
+3. **Liaison**  
+
+   - **Meaning**: A person who helps groups to work together and provides information between them; can also refer to the communication or cooperation itself.  
+   - **Usage**: Common in professional and organizational settings.  
+   - **Example**: "She acts as the liaison between the marketing team and the sales department."  
+   - **Alternatives**: Contact, communicator, intermediary, link, go-between.  
+
+4. **Ribald**  
+
+   - **Meaning**: Referring to sexual matters in an amusingly rude or irreverent way.  
+   - **Usage**: Less common in everyday conversation; often used in literary contexts or to describe humor that is a bit risqué.  
+   - **Example**: "The comedian's ribald jokes had the audience both laughing and blushing."  
+   - **Alternatives**: Bawdy, racy, coarse, crude.  
+
+5. **Grubby**  
+
+   - **Meaning**: Dirty or grimy.  
+   - **Usage**: Commonly used in informal speech to describe something or someone that needs cleaning.  
+   - **Example**: "His hands were grubby from working in the garden all day."  
+   - **Alternatives**: Filthy, dirty, grimy, unclean.  
 
 --------------------  
 
@@ -157,7 +189,7 @@ HQEBEC
    - **Alternatives**: Talkative, loquacious.  
 
 4. **Bloviate**  
-   - **Meaning**: To speak pompously or boastfully.  
+   - **Meaning**: To speak **pompously** or **boastfully**.  
    - **Common Usage**: Somewhat rare and often used humorously or critically.  
    - **Example**: "The politician tended to bloviate rather than offer real solutions."  
    - **Alternatives**: Rant, boast.  
@@ -205,7 +237,7 @@ HQEBEC
     - **Alternatives**: Square dance, promenade (in dance context).  
 
 12. **Dissolute**  
-    - **Meaning**: Lax in morals; licentious.  
+    - **Meaning**: Lax in morals; **licentious**.  
     - **Common Usage**: Less common, often literary.  
     - **Example**: "His dissolute lifestyle led to his downfall."  
     - **Alternatives**: Debauched, immoral.  
@@ -263,6 +295,20 @@ HQEBEC
 
 
 ## Words Gallery  
+
+**berserk, rampage, bonkers, enraged, frenzy, furious**.  
+**aptitude, amplitude**. 
+**codswallop, baloney, crap, drivel**.  
+**abduct, abdicate, abrogate**  
+**prefigure, prelude, prologue, foretell, foresee, prophetic**, 
+**parable, paragon**.  
+**desolate, desolation, disconsolate, consoling, consolation**.  
+**locus, locust**  
+**flaccid, placid, serene, tranquil, contented** 
+**boisterous, raucous, rowdy, feisty, rousing**.  
+**Hijab, hajib, jihad** 
+**doodad, gadget, bauble, trinket, ornament**. vv  
+**daze, dazzle** 
 
 **scour, scrounge, scape, scrap**  
 **peruse, cursive**  
