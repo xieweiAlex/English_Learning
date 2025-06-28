@@ -23,6 +23,10 @@ sordid
 
 atrium  
 
+clammy  
+
+enmity  
+
 
 ### Special Words  
 
@@ -38,6 +42,8 @@ atrium
 
 **meteoric**  
 
+**vicissitude**, **promenade**  
+
 ### Verb Words  
 
 **salve**  
@@ -48,21 +54,79 @@ atrium
 
 **dread**  
 
+**shun**  
+
 -------------------------  
 
-He took that money and parlayed it into his trading business, whole trading.  
+decrepit, dilapidated, 
 
-sniff, sniffle, snuffle.  
+**diner, eatery, bistro, cafe, tavern, pub**.  
+
+We're actively investigating, but we wanted to **err on the side of** transparency and send this notice out now, rather than waiting for the investigation to conclude.  
+
+AI valuations are **verging** on the unhinged. - Unless superintelligence is just around the corner.    
+Soft-power Europe is often **bested** by hard-nosed **autocrats**.  
+**Swish** water around your mouth right after drinking coffee or tea to reduce stain buildup.  
+
+Where success brings them fame, joy, tragedy, **duplicity**, and, ultimately, a kind of **immortality**.  
+
+Can Men and Women be friends 
+----------  
+
+Friendships between men and women, which begin with thoughts of **companionship** or **confiding** in one another, drag people into the pit of **adultery**.  
+Clearly men are prone to **wishful thinking**.  
+The **frostiness** between men and women in South Korea affects many things.  
+**Celibate** men are nearly all **involuntarily** so; celibate women are choosing to **shun** men, perhaps because they don’t like their attitudes very much.  
+The idea that positive interactions between different groups can reduce the **prejudice** they feel about one another.  
+
+Economist News 
+-----------  
+
+How OnlyFans transformed porn. - The platform, now **up for sale**, has made a **smutty** business far more lucrative.  
+The **alluring** fantasy of a quick win in Iran.  
+Over in America, opinions on the war are changing almost as quickly as a B-2 can **streak** from Missouri to the Middle East.  
+Do Americans really want war with Iran? - The public is opposed, but Republicans are **falling in line**.  
+This week’s NATO summit will be all about **placating** Donald Trump.  
+Why the **pro-natalist** plans of the right are **ill-conceived**. - Efforts to deliver a baby boom either fail or cost a fortune.  
+How Ireland became the Saudi Arabia of siphoned-off global profits. - The **Emerald** petro-state is riding high off tech and pharma—for now.  
+
+[Bitcoin mining in Iran](https://www.ncr-iran.org/en/publications/special-reports/bitcoin-mining-in-iran-irgc-operations-and-the-power-grid-crisis/) 
+------------  
+Now the government is in a **predicament**. Either cut the subsidies and push out the miners.  
+These **clandestine** or semi-official Bitcoin farms draw **colossal** amounts of power – often at heavily subsidized rates or with no payment at all – effectively diverting energy from the national grid for private gain. -    
+By 2019, the **clerical regime** officially recognized crypto mining as an industry and introduced a licensing regime for miners, offering cheap electricity to attract investment on the condition that all mined Bitcoin be sold to Iran’s central bank.   
+Former president Hassan Rouhani admitted in 2021 that about 85% of mining in Iran was unlicensed – a vast **gray economy** consuming power without **oversight** or payment.  
+IRGC-affiliated media have **sought to** **deflect** blame by highlighting IRGC “crackdowns” on unauthorized miners.  
+Some experts point out that Iran’s power plants are **dilapidated** and fuel supply planning is poor, contributing to seasonal shortages.  
+Many see the situation as **emblematic** of corruption: those connected to power (literally and figuratively) enriching themselves while everyone else suffers rolling blackouts.  
+State media and officials still often blame **ordinary** people for using too much power or point to technical issues, downplaying the role of state-sanctioned mining. This narrative has increasingly **fallen flat**.  
+many of the “illegal” farms being busted are **small fry**, whereas the biggest power thieves operate under IRGC protection.  
+What began as a creative response to sanctions has **morphed into** a homegrown energy crisis.  
+The IRGC’s crypto operations, though **lucrative** for the regime elite, are effectively **parasitic** on Iran’s economy and infrastructure.  
+Each Bitcoin mined under its **aegis** comes at a **steep cost**. -    
+Iran’s case is a **cautionary tale**: when crypto mining serves **opaque** power, it doesn't just undermine energy security—it fuels public resentment and brings a nation closer to **breaking point**.  
 
 
-Shower strength is not strong enough 
+Cypherpunks' Manifesto  
+------------  
 
-The shower pressure is insufficient.  
+In most cases personal identity is not **salient**. When I purchase a magazine at a store and hand cash to the **clerk**, there is no need to know who I am.  
+We cannot expect governments, corporations, or other large, faceless organizations to grant us privacy out of their **beneficence**.  
+Information does not just want to be free, it **longs** to be free.  
+Cypherpunks **deplore** regulations on cryptography, for encryption is fundamentally a private act.   
+We the Cypherpunks seek your questions and your concerns and hope we may **engage** you so that we do not deceive ourselves.  
+The Cypherpunks are actively engaged in making the networks safer for privacy. Let us proceed together **apace**.  
+Bitcoin is the **embodiment** of that idea.  
 
-huckster, hawker  
-Bitcoin as a commodity, something I discussed extensively in both of my books. 
+------------  
 
-When it's time to leave your vacation, you start to dread it. It's like Sunday scary, but a lot of stronger.    
+I delete it out of my own **volition**, out of my own will.  
+It's like **old trope** - if you can't beat them, join them, there is some truth in that.   
+
+He took that money and **parlayed** it into his trading business, whole trading.  
+Bitcoin as a commodity, something I discussed **extensively** in both of my books. 
+
+When it's time to leave your vacation, you start to **dread** it. It's like Sunday scary, but a lot of stronger.    
 
 
 ## Week 3  
@@ -72,21 +136,19 @@ The year’s **chicest** shade is good enough to eat. - Yet wearing it is not fo
 Exclusive: inside the spy **dossier** that led Israel to war. -  We review its secret intelligence on Iranian nukes.   
 
 Israel’s **blitz** on Iran is **fraught with** uncertainty. - Much **hinges on** the stubborn supreme leader and America’s **mercurial** president.  
-The grooming-gangs scandal is a stain on the British state.  
+The **grooming**-gangs scandal is a **stain** on the British state.  
 
 Mr Trump, who tends to **vacillate**, has been easily swept along Israel’s preferred path.  
 Meanwhile, Israel **yearns** for America itself to bomb Iran’s nuclear sites, rather than leave the job partially done.  
 
 > It's not that the quickie doesn't do anything, it's just that it is wildly suboptimal if you actually care to learn.  
 
-Mr Trump, who tends to vacillate, has been easily swept along Israel’s preferred path.  
-Meanwhile, Israel yearns for America itself to bomb Iran’s nuclear sites, rather than leave the job partially done.  
+Mr Trump, who tends to **vacillate**, has been easily **swept along** Israel’s preferred path.  
+Meanwhile, Israel **yearns** for America itself to bomb Iran’s nuclear sites, rather than leave the **job partially done**.  
 
 ## Week 2, week 1  
 
-They all lament the world is an imperfect place, the money is broken, and government policy intervention doesn't work.  
-
-
+They all **lament** the world is an imperfect place, the money is broken, and government policy intervention doesn't work.  
 Lightning fees are very very **minuscule**.  
 
 You guys get **acquainted**, we got move the show.  
@@ -121,15 +183,65 @@ The blue **dye** is obtained from the **indigo plant**. -
 
 ## Words Explain 
 
-risqué, racy  
-
-libel  
-
-clinch  
-
-homolog  
-
 > Can you help me understand the words below? Are they commonly used? If possible, give out few examples and alternatives, thanks!  
+
+-----------------------  
+
+1. **Risqué, Racy**  
+   - **Meaning**: Both words imply something that is slightly indecent or suggestive of sexual content.  
+   - **Usage**: These terms are used when discussing something that might push the boundaries of acceptable propriety, such as in films, humor, or fashion.  
+   - **Examples**: 
+     - "The comedian's jokes were a bit risqué for a family audience."  
+     - "The novel's racy scenes caught the attention of many readers."  
+   - **Alternatives**: Suggestive, provocative, daring.  
+
+2. **Libel**  
+   - **Meaning**: Libel refers to a written defamation, which is the act of damaging someone's reputation through a false written statement.  
+   - **Usage**: Common in legal contexts and discussions about media and journalism.  
+   - **Examples**: 
+     - "The newspaper was sued for libel after publishing false information."  
+     - "He accused the magazine of libel for misrepresenting his actions."  
+   - **Alternatives**: Defamation, slander (spoken defamation).  
+
+3. **Clinch**  
+   - **Meaning**: To secure or settle something decisively, sometimes used in the context of reaching a final agreement.  
+   - **Usage**: Often used in informal discussions about deals or competitions.  
+   - **Examples**: 
+     - "The team clinched the championship with a last-minute goal."  
+     - "They managed to clinch the deal after hours of negotiation."  
+   - **Alternatives**: Secure, confirm, conclude.  
+
+4. **Homolog**  
+   - **Meaning**: In biology, a homolog is an organ, part, or gene that shares a common ancestry with another. It refers to similarity due to shared ancestry.  
+   - **Usage**: Primarily used in scientific contexts like genetics and evolutionary biology.  
+   - **Examples**: 
+     - "The two species have several homologous structures."  
+     - "Gene homologs can help trace evolutionary relationships."  
+   - **Alternatives**: Equivalent (in a non-scientific context).  
+
+5. **Valorize**  
+   - **Meaning**: To give or ascribe value to something; to enhance its worth or status.  
+   - **Usage**: Used in contexts of economics, culture, or academic discussion.  
+   - **Examples**: 
+     - "The government policy aims to valorize the national currency."  
+     - "The museum exhibition seeks to valorize indigenous art forms."  
+   - **Alternatives**: Appreciate, elevate, boost.  
+
+6. **Venerate**  
+   - **Meaning**: To regard with great respect or reverence.  
+   - **Usage**: Commonly used when talking about religious figures, traditions, or historical figures.  
+   - **Examples**: 
+     - "She is venerated as a saint in the community."  
+     - "The ancient texts are venerated for their wisdom."  
+   - **Alternatives**: Reverence, honor, esteem.  
+
+7. **Olfactory**  
+   - **Meaning**: Related to the sense of smell.  
+   - **Usage**: Used in contexts involving biology or discussions about senses and perception.  
+   - **Examples**: 
+     - "The olfactory experience of the flower garden was overwhelming."  
+     - "The chef has an extraordinary olfactory sense."  
+   - **Alternatives**: Aromatic (when talking about smell in a different way).  
 
 ---------------------  
 
@@ -295,6 +407,12 @@ homolog
 
 
 ## Words Gallery  
+
+**heartfelt, heartwarming, emotive**, 
+exonerate, inexorable, exculpurate,  
+frail, senile.  
+**sniff, sniffle, snuffle**.  
+**huckster, hawker**  
 
 **berserk, rampage, bonkers, enraged, frenzy, furious**.  
 **aptitude, amplitude**. 
