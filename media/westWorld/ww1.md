@@ -47,7 +47,7 @@ A man and a woman, **double-crossed** us along with lazo, we were ordered to kil
 Same **ravine** where wee found our stray **woodcutter**  
 **cervical** fracture  
 There are things in me, things I was designed to do, that are just **out of my reach**.they almost seem to be **dormant**.  
-that's a **busy work**  
+That's a **busy work**  
 I know you and she has some weird **interspecies** **simpatico** going on  
 He couldn't **snuff out** of a life just like that  
 **brevity** is the soul of **wit**  

@@ -78,7 +78,7 @@ They laughed at my **puny efforts**.
 The lamb was a **puny** little thing.  
 
 
-Why is the fly or **bug agaric** **toadstool** so named? -    
+Why is the fly or **bug agaric** **toadstool** so named?   
 
 It's a warning sign for the Trump administration, with aggressive tariffs expected to be unveiled next week that could **stoke** inflation and **crimp demand**.  
 

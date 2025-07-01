@@ -27,6 +27,20 @@ clammy
 
 enmity  
 
+petulant  
+
+philippic  
+
+mingy  
+
+trounce  
+
+repose  
+
+simulacrum  
+
+titillate  
+
 
 ### Special Words  
 
@@ -44,6 +58,8 @@ enmity
 
 **vicissitude**, **promenade**  
 
+**prevalence**  
+
 ### Verb Words  
 
 **salve**  
@@ -57,6 +73,10 @@ enmity
 **shun**  
 
 -------------------------  
+
+**askew, askance, canted, slant, tilted**. 
+
+extemporize, improv, improvise, 
 
 decrepit, dilapidated, 
 

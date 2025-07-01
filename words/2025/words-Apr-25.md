@@ -202,7 +202,7 @@ It's a **stark** reminder that passive investing isn't without its risks; when a
 He has **put forward** new peace proposals.  
 She **put forward** some **cogent reasons** for abandoning the plan.  
 
-Yet building projects continue **apace**. -    
+Yet building projects continue **apace**.   
 The weeds grow **apace**.  
 He **bellows**, **rends the air with anguish**.  
 Release does not **exonerate** the offender.   
@@ -549,7 +549,6 @@ Week 1-4
 **gurgle, giggle, chuckle, smirk, grin**, 
 **fervid, fervent, ardent, zealous, fanatical** 
 **stoop, swoop, swoon**  
-**askew, askance, canted, slant, tilted**. 
 **outlast, outgrow, outfox, outsmart, outrank**,  
 Most religions **posit** the existence of life after death.   
 We couldn't stay out there in that **desolation** another day.  

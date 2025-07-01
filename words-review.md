@@ -22,10 +22,8 @@ Music festivals are typically a great excuse for **revellers** to enjoy a bit of
 The next issue is that reviewing is generally dull and **vapid**. -  
 **Stowage** is provided in lined lockers beneath the berths. -  
 To remove the intestines or **entrails** of; **eviscerate**. -  
-His **scruffy** appearance does not reflect his character. -   
 It turned out to be his last **dalliance** with the education system. -  
 His sharp **retort** clearly made an impact. -  
-Yet building projects continue **apace**. -  
 These early paintings clearly **prefigure** his Later work. -  
 Property sales have been in the **doldrums** for some time. -  
 
@@ -33,7 +31,6 @@ Property sales have been in the **doldrums** for some time. -
 words/2025/words-Mar-25.md  
 A Dutch angle, also known as a **canted angle** or **oblique angle**, is a camera shot where the camera is **tilted** on its roll axis, creating a sense of unease or disorientation for the viewer. -  
 The surveyor's report didn't highlight anything **untoward**. -  
-Why is the fly or **bug agaric** **toadstool** so named? -  
 The **tadpole** is the **larva** of the frog. -  
 
 ## words-Jan-25.md ##  
