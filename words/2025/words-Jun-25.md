@@ -41,6 +41,8 @@ simulacrum
 
 titillate  
 
+lackey  
+
 
 ### Special Words  
 
@@ -74,13 +76,25 @@ titillate
 
 -------------------------  
 
-**askew, askance, canted, slant, tilted**. 
+50-50 vote with Vice President JD Vance acting as **tiebreaker**.  
 
-extemporize, improv, improvise, 
+I spent last week in America, partly in **sweltering** New York and partly at the Aspen Ideas Festival.   
+Instead, with markets back at all-time highs, an **insouciance** has set in. -    
+Call me a European grinch, but I felt I had arrived on planet **Pangloss**.  
+Donald Trump plans to mark America’s birthday tomorrow by signing this **profligate** yet **insubstantial** bill into law. -    
+The Big Beautiful Bill is symptomatic of a wider **malaise**.  
+Will bowing to Trump win Paramount its merger? **Coercion** and **corporate expedience** meet in a $16m settlement.  
 
-decrepit, dilapidated, 
+A 10-year JGB yielding a **heartbreaking** 1.43%… aka, a **slow-motion** **euthanasia** for your retirement dreams.  
+Investors are **swarming** right now.  
+As the stack grows, yields compress, cost of capital shrinks, and Metaplanet’s position becomes **reflexively** **unassailable**.   
+The timing is **immaculate**.  
+Jeffries' marathon speech comes after Sen. Cory Booker (D-N.J.) delivered a 25-hour **filibuster** in April that earned him **plaudits** from the Democrats' **grassroots** as a resistance hero.  
 
-**diner, eatery, bistro, cafe, tavern, pub**.  
+This doesn't **preclude** the notion of "commercial" Fedimints existing in the future.  
+A fedimint member is explicitly trusting that the federation guardians will not form a **majority quorum** to **collude** to steal user funds.  
+As an alternative to transacting inside the Fedimint, a user can create contracts (enforced by the Fedimint consensus) that will pay the lightning **gateway persona** to pay LN invoices on their behalf or generate lightning invoices to be paid.  
+This means that the mint is **jointly** owned and operated by multiple people, we refer to as guardians.  
 
 We're actively investigating, but we wanted to **err on the side of** transparency and send this notice out now, rather than waiting for the investigation to conclude.  
 
@@ -89,6 +103,7 @@ Soft-power Europe is often **bested** by hard-nosed **autocrats**.
 **Swish** water around your mouth right after drinking coffee or tea to reduce stain buildup.  
 
 Where success brings them fame, joy, tragedy, **duplicity**, and, ultimately, a kind of **immortality**.  
+
 
 Can Men and Women be friends 
 ----------  
@@ -428,6 +443,13 @@ The blue **dye** is obtained from the **indigo plant**. -
 
 ## Words Gallery  
 
+**prolific, proliferate, profligate**.  
+**thwack, thump, stomp, whack**   
+**askew, askance, canted, slant, tilted**. 
+**extemporize, improv, improvise** 
+**decrepit, dilapidated**  
+**diner, eatery, bistro, cafe, tavern, pub**.  
+
 **heartfelt, heartwarming, emotive**, 
 exonerate, inexorable, exculpurate,  
 frail, senile.  
@@ -471,6 +493,8 @@ You guys get **acquainted**, we got move the show.
 
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
+
+Where success brings them fame, joy, tragedy, **duplicity**, and, ultimately, a kind of **immortality**.  
 
 The 11-year-old Ukrainian YouTuber. - **snapping at MrBeast's heels**.  
 Turns your memory into **velcro** (information just STICKS)  
