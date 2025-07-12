@@ -46,6 +46,10 @@ lackey
 
 ### Special Words  
 
+Best-positioned  
+
+-------  
+
 **rupture**  
 
 **hemorrhage**  
@@ -62,6 +66,10 @@ lackey
 
 **prevalence**  
 
+**luxurious, luxuriant**  
+
+**vital** 
+
 ### Verb Words  
 
 **salve**  
@@ -75,6 +83,11 @@ lackey
 **shun**  
 
 -------------------------  
+
+A trick for generating above market risk-adjusted returns that works for 10 or even 20 years, whereupon it suddenly stops working and you lose the capital.  
+
+
+### Week 4  
 
 50-50 vote with Vice President JD Vance acting as **tiebreaker**.  
 
