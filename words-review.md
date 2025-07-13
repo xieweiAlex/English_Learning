@@ -35,14 +35,14 @@ Property sales have been in the **doldrums** for some time. -
 
 ## words-Mar-25.md ##  
 words/2025/words-Mar-25.md  
-A Dutch angle, also known as a **canted angle** or **oblique angle**, is a camera shot where the camera is **tilted** on its roll axis, creating a sense of unease or disorientation for the viewer. -  
+A Dutch angle, also known as a **canted angle** or **oblique angle**, is a camera shot where the camera is **tilted** on its roll axis, creating a sense of unease or disorientation for the viewer.   
 The surveyor's report didn't highlight anything **untoward**. -  
-The **tadpole** is the **larva** of the frog. -  
+The **tadpole** is the **larva** of the frog.   
 
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
-She felt like an **interloper** in her own family. -  
-She is **disconsolate** at the death of her cat. -  
+She felt like an **interloper** in her own family.   
+She is **disconsolate** at the death of her cat.   
 The pictures were not meant to **titillate** audiences. -  
 The **customs** officials confiscated the **contraband**. -  
 The protesters carried **placards** with bold messages. -  

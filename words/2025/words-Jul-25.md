@@ -47,55 +47,74 @@ icky
 
 ribald  
 
+jeremiad  
+
 ### Special Words  
 
 **best-positioned**  
 
 **prescient**  
 
+**anathema**  
+
+**drowning**  
+
 
 ### Verb Words  
 
+**crest**  
+
+**smite**  
 
 -------------------------  
 
-All levels of government are to marshal the data resources they have. A sweeping project to assess the data piles at state-owned firms is under way.  
+I ate **as if** there was no tomorrow.  
+
+**vial, potion, concoction, canister, nozzle**  
+
+Just saw The Battle at Lake Changjin. **Through-the-looking-glass** experience.  
+You do not want to see the Chinese **drone armada** **cresting** the horizon towards your country in 2035.  
+  
+
+in the 1800s you wouldn't steal because God would **smite** you, in the 1900s you didn't steal because the State would punish you, but in the 2000s you can’t steal because the Network won’t let you.  
+Network-facilitated P2P communication is **anathema** to them, particularly if end-to-end encrypted.  
+
+The CCP’s early action in the 2000s and 2010s to ban foreign social networks looks **farsighted** in retrospect, **as if** they hadn't built their own Weibo and WeChat, then US executives in Silicon Valley would have been able to deplatform (or surveil) anyone from China with a keystroke.   
+a focused yet **all-encompassing** change to every restaurant, grocery store, and meal within a jurisdiction.  
+
+After all, if you know a bit more history, you’ll know that the New York Times Company (which originates so many of these **jeremiads**).  
+History is a **cryptic** epic of **twisting** trajectories.  
+
+All levels of government are to **marshal** the data resources they have. A sweeping project to assess the data piles at state-owned firms is under way.  
 Although the digital-ID scheme may supersede the existing clunkier online surveillance system, in which low-level enforcers abuse their enormous powers, the new approach looks a lot like a paradise for Big Brother.  
 
 
-China will put less weight on such things and could build an efficient and dystopian system of surveillance.  
+China will put less weight on such things and could build an efficient and **dystopian** system of surveillance.  
 
-his summer’s carnage will also be a severe test of Ukraine’s ability to hold out—especially given the vacillations in American support.  
+his summer’s **carnage** will also be a severe test of Ukraine’s ability to **hold out**—especially given the **vacillations** in American support.  
 **left in the lurch**  
-Why so many Chinese are drowning in debt. - Some contemplate suicide. Others vaunt their folly as influencers.  
-If those who are merely in arrears are added, the total could be between 61m and 83m, or 5-7% of the total population aged 15 and older.  
-Regulators are wary of aggressive repossessions involving people’s primary homes.  
+Why so many Chinese are **drowning** in debt. - Some contemplate suicide. Others vaunt their **folly** as influencers.  
+If those who are merely **in arrears** are added, the total could be between 61m and 83m, or 5-7% of the total population aged 15 and older.  
+Regulators are **wary** of aggressive repossessions involving people’s primary homes.  
 Regulations relating to the debt-collecting industry are new and patchily enforced in China.  
 As their numbers rise, the government has tried to show a modicum of sympathy with the plight of debtors.  
 One reform that might help is the introduction of a personal bankruptcy law, of the kind found in rich countries, to protect debtors from claims that would leave them totally destitute.   
 
 **Massacre, carnage, bloodshed, atrocity, mayhem** 
-asteroid, comet, meteor, orbit.  
+**asteroid, comet, meteor, orbit**.  
 
+American men are hungry for injectable testosterone. - A legion of new health clinics are **serving it up**.  
+America’s broken construction industry is a big problem for Trump. - It is **beset** by fragmentation, overregulation and underinvestment.  
 
-
-
-American men are hungry for injectable testosterone. - A legion of new health clinics are serving it up.  
-America’s broken construction industry is a big problem for Trump. - It is beset by fragmentation, overregulation and underinvestment.  
-
-
-
-I’m immensely grateful to him for entrusting me with the responsibility of protecting free speech, turning the company around, and transforming X into the Everything App.  
-And while I agree it’s “hard to pull off”, I vehemently disagree that it’s “the right idea”.  
-If you’re just spitballing wild ideas, it’s easy to get enthralled by such an idea.  
-A coffee enema is exactly what it sounds like: injecting a mixture of brewed, caffeinated coffee and water into the colon through the rectum.  
+I’m **immensely** grateful to him for entrusting me with the responsibility of protecting free speech, turning the company around, and transforming X into the Everything App.  
+And while I agree it’s “hard to pull off”, I **vehemently** disagree that it’s “the right idea”.  
+If you’re just **spitballing** wild ideas, it’s easy to get **enthralled** by such an idea.  
+A coffee **enema** is exactly what it sounds like: injecting a mixture of brewed, caffeinated coffee and water into the colon through the **rectum**.  
 Banger of a post by “tarltontarlton” on Reddit.  
 > Both political parties were, effectively, shades of purple.  
 
-Now we’ve sorted ourselves, and the result is the palpable increase in polarization.  
-An out-and-proud Stupid-American says “I don’t know anything about vaccines either, so I’m going to listen to a kook who admits that a worm ate part of his brain, because I can’t understand the science but I can understand conspiracy theories.”  
-
-
+Now we've sorted ourselves, and the result is the **palpable** increase in polarization.  
+An out-and-proud Stupid-American says “I don’t know anything about vaccines either, so I’m going to listen to a **kook** who admits that a worm ate part of his brain, because I can’t understand the science but I can understand conspiracy theories.”  
 
 
 Studying **canonical** Bitcoin literature.  
