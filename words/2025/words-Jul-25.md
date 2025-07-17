@@ -31,23 +31,6 @@ petulant
 
 philippic  
 
-mingy  
-
-trounce  
-
-repose  
-
-simulacrum  
-
-titillate  
-
-lackey  
-
-icky 
-
-ribald  
-
-jeremiad  
 
 ### Special Words  
 
@@ -59,6 +42,7 @@ jeremiad
 
 **drowning**  
 
+**shapely**  
 
 ### Verb Words  
 
@@ -66,10 +50,55 @@ jeremiad
 
 **smite**  
 
+**commend** 
+
+**leapfrog**  
+
 -------------------------  
 
-I ate **as if** there was no tomorrow.  
+Trump disavows "PAST supporters" who believed "Jeffrey Epstein Hoax".  
 
+
+Out of spite. 
+
+
+It’s the unfolding laboratory of your own life. Its faculty? The people you choose to follow, the ideas you entertain, and the questions you dare to ask.  
+
+
+
+Even when he fumbles, people generally commend him for making an effort. And that motivates him to keep trying.  
+The lesson here is layered. The progress we normally chalk up to working harder may actually be due to working smarter.  
+Sea sponges don’t just expunge toxins. They also produce biochemicals that protect and promote life with anticancer, antibacterial, antiviral, and anti-inflammatory properties.  
+
+
+
+
+The central government’s ardour for lawmaking and punishment is infectious.  
+beach shack.  
+The usual excuse for India’s surfeit of laws and rules is colonialism’s legacy.  
+Why follow the rules when everything is verboten?   
+A growing body of research suggests creatine may be good for brains as well as brawn.  
+The Licence Raj was believed by some to be hindering economic growth and preventing the Indian economy from reaching its full potential.  
+
+**capricious, fickle, mercurial, erratic, whimsical, vacillate** 
+**ureter, urinal**. 
+**Caldron**.  
+Every single one of my recommendations remains profitable, with my earliest ones **trouncing** the market.  
+
+Many writers have **chronicled** the habits of superstars who accomplish great things. This book reveals how anyone can rise to achieve greater things.   
+
+
+**defray vs pay** 
+
+## Week 1  
+
+And given their horrible track record **in aggregate**, I think that’s healthy.  
+
+The Jewish people were once a stateless nation, a **diasporic** group united by common ancestry and tradition without a land or government to call their own.  
+
+
+Active Recall + **Interleaved** Learning.  
+I ate **as if** there was no tomorrow.  
 **vial, potion, concoction, canister, nozzle**  
 
 Just saw The Battle at Lake Changjin. **Through-the-looking-glass** experience.  
@@ -86,19 +115,19 @@ After all, if you know a bit more history, you’ll know that the New York Times
 History is a **cryptic** epic of **twisting** trajectories.  
 
 All levels of government are to **marshal** the data resources they have. A sweeping project to assess the data piles at state-owned firms is under way.  
-Although the digital-ID scheme may supersede the existing clunkier online surveillance system, in which low-level enforcers abuse their enormous powers, the new approach looks a lot like a paradise for Big Brother.  
+Although the digital-ID scheme may supersede the existing **clunkier** online surveillance system, in which low-level enforcers abuse their enormous powers, the new approach looks a lot like a paradise for Big Brother.  
 
 
 China will put less weight on such things and could build an efficient and **dystopian** system of surveillance.  
 
 his summer’s **carnage** will also be a severe test of Ukraine’s ability to **hold out**—especially given the **vacillations** in American support.  
 **left in the lurch**  
-Why so many Chinese are **drowning** in debt. - Some contemplate suicide. Others vaunt their **folly** as influencers.  
+Why so many Chinese are **drowning** in debt. - Some contemplate suicide. Others **vaunt** their **folly** as influencers.  
 If those who are merely **in arrears** are added, the total could be between 61m and 83m, or 5-7% of the total population aged 15 and older.  
 Regulators are **wary** of aggressive repossessions involving people’s primary homes.  
-Regulations relating to the debt-collecting industry are new and patchily enforced in China.  
-As their numbers rise, the government has tried to show a modicum of sympathy with the plight of debtors.  
-One reform that might help is the introduction of a personal bankruptcy law, of the kind found in rich countries, to protect debtors from claims that would leave them totally destitute.   
+Regulations relating to the debt-collecting industry are new and **patchily** enforced in China.  
+As their numbers rise, the government has tried to show a **modicum** of sympathy with the **plight** of debtors.  
+One reform that might help is the introduction of a personal bankruptcy law, of the kind found in rich countries, to protect debtors from claims that would leave them totally **destitute**.   
 
 **Massacre, carnage, bloodshed, atrocity, mayhem** 
 **asteroid, comet, meteor, orbit**.  
@@ -149,6 +178,61 @@ Volatility is not an inherent part of bitcoin, like would be the case if its var
 > Can you help me understand the words below? Are they commonly used? If possible, give out few examples and alternatives, thanks!  
 
 -----------------------  
+
+
+1. **Mingy**  
+   - *Definition*: Stingy or miserly; not willing to spend money.  
+   - *Usage*: "He was too mingy to tip the waiter properly."  
+   - *Alternatives*: Cheap, tightfisted, penny-pinching  
+   - *Commonality*: Less commonly used in conversation today.  
+
+2. **Trounce**  
+   - *Definition*: To defeat someone thoroughly or decisively.  
+   - *Usage*: "Our team managed to trounce the opposition in the finals."  
+   - *Alternatives*: Defeat, crush, conquer  
+   - *Commonality*: Fairly common, especially in competitive contexts.  
+
+3. **Repose**  
+   - *Definition*: A state of rest, sleep, or tranquility.  
+   - *Usage*: "After a long day, she found repose in her cozy armchair."  
+   - *Alternatives*: Rest, relaxation, tranquility  
+   - *Commonality*: Moderately common, often used in literary or formal contexts.  
+
+4. **Simulacrum**  
+   - *Definition*: An image or representation of someone or something; can also mean an unsatisfactory imitation or substitute.  
+   - *Usage*: "The wax museum was full of simulacra of famous historical figures."  
+   - *Alternatives*: Likeness, replica, imitation  
+   - *Commonality*: Less common; usually seen in academic or philosophical discussions.  
+
+5. **Titillate**  
+   - *Definition*: To arouse interest or excitement, often in a slightly sexual way.  
+   - *Usage*: "The novel was intended to titillate its audience with its scandalous plot."  
+   - *Alternatives*: Arouse, excite, tantalize  
+   - *Commonality*: Moderately common, often used in entertainment contexts.  
+
+6. **Lackey**  
+   - *Definition*: A servant, especially a liveried footman or manservant; more generally, a person who is overly subservient.  
+   - *Usage*: "The politician was surrounded by lackeys eager to do his bidding."  
+   - *Alternatives*: Flunky, minion, servant  
+   - *Commonality*: Somewhat common, often used pejoratively.  
+
+7. **Icky**  
+   - *Definition*: Disgustingly unpleasant, often used to describe something sticky or messy.  
+   - *Usage*: "That sauce was really icky and made a mess all over the table."  
+   - *Alternatives*: Gross, yucky, unpleasant  
+   - *Commonality*: Common, especially in informal contexts.  
+
+8. **Ribald**  
+   - *Definition*: Referring to sexual matters in an amusingly rude or irreverent way.  
+   - *Usage*: "The comedian’s ribald humor might not be suitable for all audiences."  
+   - *Alternatives*: Bawdy, lewd, vulgar  
+   - *Commonality*: Moderately common, often in reference to humor or literature.  
+
+9. **Jeremiad**  
+   - *Definition*: A long, mournful complaint or lamentation; a list of woes.  
+   - *Usage*: "His speech turned into a jeremiad about the state of the nation."  
+   - *Alternatives*: Lament, diatribe, harangue  
+   - *Commonality*: Less common, tends to be used in literary or formal contexts.  
 
 
 ## Words Gallery  

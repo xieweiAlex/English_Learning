@@ -37,7 +37,7 @@ She seemed **outwardly** **composed**.
 The deal had the **tacit approval** of the President.  
 Your silence implies **tacit consent** to these proposals.  
 
-A Dutch angle, also known as a **canted angle** or **oblique angle**, is a camera shot where the camera is **tilted** on its roll axis, creating a sense of unease or disorientation for the viewer. -    
+A Dutch angle, also known as a **canted angle** or **oblique angle**, is a camera shot where the camera is **tilted** on its roll axis, creating a sense of unease or disorientation for the viewer.   
 
 **rugged charm**.  
 Knowledge is acquired, not **innate**.  
@@ -271,7 +271,7 @@ The question is **in abeyance** until we know more about it.
 Tabloid newspapers **pander to** the lowest **common denominator**.  
 
 His attendance record was **spotty**.  
-The **tadpole** is the **larva** of the frog. -  
+The **tadpole** is the **larva** of the frog.   
 **blackguard, rogue, villain, scoundrel** 
 I wasn't too **keen on** physics and chemistry.  
 He deserted from his **regiment**.  

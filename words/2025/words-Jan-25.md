@@ -115,7 +115,7 @@ The city was **entombed** in volcanic lava.
 If left **unchecked**, weeds will **flourish**.  
 
 I can **console** myself with the fact that I'm not alone.  
-She is **disconsolate** at the death of her cat. -  
+She is **disconsolate** at the death of her cat.   
 **Recumbent** bicycle equipped with very comfortable office chair.   
 He was **subservient** and **servile**.  
 
@@ -136,7 +136,7 @@ The woman is **proverbially** stupid.
 
 The Indians are the **aboriginal** Americans.  
 **Totemism** is the behaving criterion of Australian **Aboriginal** people, which impenetrate almost every aspect of their life.  
-The pictures were not meant to **titillate** audiences. -  
+The pictures were not meant to **titillate** audiences.   
 
 Biden **jabs** at Trump in farewell address, but pledges peaceful transition.  
 In the **sweltering** haze of summer-noon.  
