@@ -31,7 +31,6 @@ petulant
 
 philippic  
 
-
 ### Special Words  
 
 **best-positioned**  
@@ -54,41 +53,51 @@ philippic
 
 **leapfrog**  
 
+**flinch**  
+
+**exude** 
+
+**fumble**  
+
+**marshal**  
+
 -------------------------  
 
-Trump disavows "PAST supporters" who believed "Jeffrey Epstein Hoax".  
+I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you. -    
 
+Here’s a small example. The Dalai Lama has shown remarkable **agency**. His most **striking** decision was in 1959 when he decided, **dramatically**, to flee Tibet.  
+He may say he is **emanating**—in effect nominating another adult to be recognised as the Tibetans’ leader.  
 
-Out of spite. 
+The coach effect captures how we can **marshal** motivation by offering the encouragement to others that we need for ourselves.  
+After failing to reach the summit of Mount Everest in 2002, Alison couldn't get the **naysayers** **out of her head**.  
 
+Trump sues Wall Street Journal for **libel** over Epstein letter. -    
+In the same way that science fiction is not just about **whiz-bang** **gadgetry** or **swooping** starships but also about engaging with **mind-boggling** ideas and thought experiments.   
 
-It’s the unfolding laboratory of your own life. Its faculty? The people you choose to follow, the ideas you entertain, and the questions you dare to ask.  
+A nearly 10-hour **standoff** over combining a trio of crypto bills into a single package was resolved Wednesday night, putting the GENIUS Act on a **glide** path to President Trump's desk.  
 
+He was always cheering from the bench. And he never **flinched**. That stuck with me.”  
+If you watch Evelyn today, you’ll see that she **exudes** the same joy practicing alone as she expresses performing in front of the entire world.  
 
+Trump **disavows** "PAST supporters" who believed "Jeffrey Epstein Hoax".  
+**Out of spite**. 
+It’s the **unfolding** laboratory of your own life. Its **faculty**? The people you choose to follow, the ideas you entertain, and the questions you dare to ask.  
 
-Even when he fumbles, people generally commend him for making an effort. And that motivates him to keep trying.  
-The lesson here is layered. The progress we normally chalk up to working harder may actually be due to working smarter.  
-Sea sponges don’t just expunge toxins. They also produce biochemicals that protect and promote life with anticancer, antibacterial, antiviral, and anti-inflammatory properties.  
+Even when he **fumbles**, people generally commend him for making an effort. And that motivates him to keep trying.  
+The lesson here is **layered**. The progress we normally **chalk up to** working harder may actually be due to working smarter.  
+Sea sponges don’t just **expunge** toxins. They also produce biochemicals that protect and promote life with anticancer, antibacterial, antiviral, and anti-inflammatory properties.  
 
+The central government’s **ardour** for lawmaking and punishment is **infectious**.  
+**beach shack**.  
+The usual excuse for India’s **surfeit** of laws and rules is colonialism’s legacy. -    
+Why follow the rules when everything is **verboten**? -     
+A growing body of research suggests creatine may be good for brains as well as **brawn**. -   -    
+The Licence Raj was believed by some to be **hindering** economic growth and preventing the Indian economy from reaching its full potential.  
 
-
-
-The central government’s ardour for lawmaking and punishment is infectious.  
-beach shack.  
-The usual excuse for India’s surfeit of laws and rules is colonialism’s legacy.  
-Why follow the rules when everything is verboten?   
-A growing body of research suggests creatine may be good for brains as well as brawn.  
-The Licence Raj was believed by some to be hindering economic growth and preventing the Indian economy from reaching its full potential.  
-
-**capricious, fickle, mercurial, erratic, whimsical, vacillate** 
-**ureter, urinal**. 
 **Caldron**.  
 Every single one of my recommendations remains profitable, with my earliest ones **trouncing** the market.  
 
 Many writers have **chronicled** the habits of superstars who accomplish great things. This book reveals how anyone can rise to achieve greater things.   
-
-
-**defray vs pay** 
 
 ## Week 1  
 
@@ -96,11 +105,8 @@ And given their horrible track record **in aggregate**, I think that’s healthy
 
 The Jewish people were once a stateless nation, a **diasporic** group united by common ancestry and tradition without a land or government to call their own.  
 
-
 Active Recall + **Interleaved** Learning.  
 I ate **as if** there was no tomorrow.  
-**vial, potion, concoction, canister, nozzle**  
-
 Just saw The Battle at Lake Changjin. **Through-the-looking-glass** experience.  
 You do not want to see the Chinese **drone armada** **cresting** the horizon towards your country in 2035.  
   
@@ -129,9 +135,6 @@ Regulations relating to the debt-collecting industry are new and **patchily** en
 As their numbers rise, the government has tried to show a **modicum** of sympathy with the **plight** of debtors.  
 One reform that might help is the introduction of a personal bankruptcy law, of the kind found in rich countries, to protect debtors from claims that would leave them totally **destitute**.   
 
-**Massacre, carnage, bloodshed, atrocity, mayhem** 
-**asteroid, comet, meteor, orbit**.  
-
 American men are hungry for injectable testosterone. - A legion of new health clinics are **serving it up**.  
 America’s broken construction industry is a big problem for Trump. - It is **beset** by fragmentation, overregulation and underinvestment.  
 
@@ -139,7 +142,7 @@ I’m **immensely** grateful to him for entrusting me with the responsibility of
 And while I agree it’s “hard to pull off”, I **vehemently** disagree that it’s “the right idea”.  
 If you’re just **spitballing** wild ideas, it’s easy to get **enthralled** by such an idea.  
 A coffee **enema** is exactly what it sounds like: injecting a mixture of brewed, caffeinated coffee and water into the colon through the **rectum**.  
-Banger of a post by “tarltontarlton” on Reddit.  
+**Banger** of a post by “tarltontarlton” on Reddit.  
 > Both political parties were, effectively, shades of purple.  
 
 Now we've sorted ourselves, and the result is the **palpable** increase in polarization.  
@@ -237,6 +240,17 @@ Volatility is not an inherent part of bitcoin, like would be the case if its var
 
 ## Words Gallery  
 
+**seismic, tectonic, monumental, seminal**.  
+**capricious, fickle, mercurial, erratic, whimsical, vacillate** 
+**ureter, urinal**. 
+
+**defray vs pay** 
+**vial, potion, concoction, canister, nozzle**  
+**Massacre, carnage, bloodshed, atrocity, mayhem** 
+**asteroid, comet, meteor, orbit**.  
+
+-------------  
+
 **prolific, proliferate, profligate**.  
 **thwack, thump, stomp, whack**   
 **askew, askance, canted, slant, tilted**. 
@@ -248,8 +262,20 @@ Volatility is not an inherent part of bitcoin, like would be the case if its var
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
 
+I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you. -    
 
+I ate **as if** there was no tomorrow.  
 
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
+
+Here’s a small example. The Dalai Lama has shown remarkable **agency**. His most **striking** decision was in 1959 when he decided, **dramatically**, to flee Tibet.  
+
+
+Trump sues Wall Street Journal for **libel** over Epstein letter. -    
+He was always cheering from the bench. And he never **flinched**. That stuck with me.”  
+If you watch Evelyn today, you’ll see that she **exudes** the same joy practicing alone as she expresses performing in front of the entire world.  
+
+Even when he **fumbles**, people generally commend him for making an effort. And that motivates him to keep trying.  
+The lesson here is **layered**. The progress we normally **chalk up to** working harder may actually be due to working smarter.  
 

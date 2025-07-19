@@ -1,3 +1,9 @@
+## words-Jul-25.md ##  
+words/2025/words-Jul-25.md  
+The usual excuse for India’s **surfeit** of laws and rules is colonialism’s legacy. -  
+Why follow the rules when everything is **verboten**? -  
+A growing body of research suggests creatine may be good for brains as well as **brawn**. -  
+
 ## words-Jun-25.md ##  
 words/2025/words-Jun-25.md  
 Instead, with markets back at all-time highs, an **insouciance** has set in. -  
@@ -39,5 +45,6 @@ The surveyor's report didn't highlight anything **untoward**. -
 
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
+She felt like an **interloper** in her own family. -  
 The **customs** officials confiscated the **contraband**. -  
 The protesters carried **placards** with bold messages. -  
