@@ -142,7 +142,7 @@ I was appalled by the **loutish** behaviour.
 The water was full of **flotsam** and **refuse**.  
 A retrofit may involve putting in new door **jambs**.  
 
-**Stowage** is provided in lined lockers beneath the berths. -   
+**Stowage** is provided in lined lockers beneath the berths.   
 The court **absolved** him of guilt in her death.  
 He **absolved** me from further obligation.  
 
@@ -185,7 +185,7 @@ His father was a drunken **brute**.
 
 ### week 1 
 It turned out to be his last **dalliance** with the education system. -  
-His sharp **retort** clearly made an impact. -    
+His sharp **retort** clearly made an impact.   
 Spicy **tahini** sauce on brown rice, kale, black beans.   
 
 **harem**.  

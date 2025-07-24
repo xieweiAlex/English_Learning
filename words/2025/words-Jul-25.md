@@ -31,6 +31,12 @@ petulant
 
 philippic  
 
+prefigure  
+
+upbraid  
+
+jejune  
+
 ### Special Words  
 
 **best-positioned**  
@@ -43,7 +49,15 @@ philippic
 
 **shapely**  
 
+**quest**  
+
+**pristine**  
+
+**avenue**  
+
 ### Verb Words  
+
+**condition**, **prime**  
 
 **crest**  
 
@@ -61,7 +75,45 @@ philippic
 
 **marshal**  
 
+**slog** 
+
+**quibble**  
+
 -------------------------  
+
+China and Europe’s savage **squabble**. - Tensions are high ahead of a big summit next week.  
+
+Bitcoin is such a **pristine** asset that its growing value makes it increasingly attractive as collateral against which ever-depreciating fiat can be borrowed.  
+The **slow-motion** collapse of fiat continues, and the **avenues** for directing fiat shorts to Bitcoin longs widen. The speculative attack **lives on**. Season Two begins.  
+
+
+> The opposite of Bitcoin Jesus. Bitcoin **Jonah** is a **defeatist**, **self-sabotaging**, and timid ‘man’ who is on a permanent **quest** to confirm Bitcoin’s weakness.   
+
+A **Tribute** to Bold Assertions  
+
+Quoting Ruchir Sharma, India’s political DNA is fundamentally **socialist** and **statist**, and that this basic outlook defines the worldview of all the leading parties.  
+
+I’d recommend going a little further and say that everyone in the organization loves the new brand, but that’s **quibbling**.  
+What the **Commandeers** and the NFL are doing is **cowardice**.  
+
+We've become **conditioned** to get our dopamine from information gathering.  
+
+Well, buddy, it's like this, **despite** his many of admirable qualities, your uncle Charlie is, **at heart**, a **sleazeball**.  
+
+**Addition, subtraction, multiplication, arithmetic**  
+
+Just a generation earlier, Finland had been known as an education **backwater**—**on par with** Malaysia and Peru...   
+That’s where Finland **goes above and beyond** in offering practices for individualized support.  
+**wreaking havoc** on their lives.  
+
+One of the great failings of English and literature classes is forcing students to **slog through** the “classics” rather than giving them the opportunity to choose books that **pique** their interest.  
+
+## Week 2  
+
+She's a little **precocious**, but that's only because she says what's on her mind. -   -    
+
+He’ll get a bad name for himself if he **ogles at** every girl he meets. -    
+He **ogled at** all the attractive girls in the office.  
 
 I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you. -    
 

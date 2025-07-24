@@ -209,7 +209,7 @@ Turns your memory into **velcro** (information just STICKS)
 My best guess is that the American will increasingly **look away**.  
 
 Trump admits **rupture** with Musk: "Elon and I had a great relationship".  
-Why it matters: The tight relationship between Trump and the Tesla CEO has been **fracturing** after Musk has repeatedly **blasted** Trump's signature bill. -    
+Why it matters: The tight relationship between Trump and the Tesla CEO has been **fracturing** after Musk has repeatedly **blasted** Trump's signature bill.   
 
 Why AI hasn’t taken your job. - And any jobs-pocalypse seems **a long way off**.  
 France’s **improbable** adult **baptism** boom.  

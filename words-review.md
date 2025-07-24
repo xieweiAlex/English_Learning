@@ -10,7 +10,6 @@ Instead, with markets back at all-time highs, an **insouciance** has set in. -
 Donald Trump plans to mark America’s birthday tomorrow by signing this **profligate** yet **insubstantial** bill into law. -  
 These **clandestine** or semi-official Bitcoin farms draw **colossal** amounts of power – often at heavily subsidized rates or with no payment at all – effectively diverting energy from the national grid for private gain. -  
 Each Bitcoin mined under its **aegis** comes at a **steep cost**. -  
-Why it matters: The tight relationship between Trump and the Tesla CEO has been **fracturing** after Musk has repeatedly **blasted** Trump's signature bill. -  
 The blue **dye** is obtained from the **indigo plant**. -  
 
 ## words-May-25.md ##  
@@ -31,11 +30,9 @@ The next president could **abrogate** the treaty. -
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -  
 Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**. -  
 The next issue is that reviewing is generally dull and **vapid**. -  
-**Stowage** is provided in lined lockers beneath the berths. -  
 To remove the intestines or **entrails** of; **eviscerate**. -  
 His **scruffy** appearance does not reflect his character. -  
 It turned out to be his last **dalliance** with the education system. -  
-His sharp **retort** clearly made an impact. -  
 These early paintings clearly **prefigure** his Later work. -  
 Property sales have been in the **doldrums** for some time. -  
 
@@ -45,6 +42,5 @@ The surveyor's report didn't highlight anything **untoward**. -
 
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
-She felt like an **interloper** in her own family. -  
 The **customs** officials confiscated the **contraband**. -  
 The protesters carried **placards** with bold messages. -  
