@@ -37,6 +37,10 @@ upbraid
 
 jejune  
 
+exoteric  
+
+hackneyed  
+
 ### Special Words  
 
 **best-positioned**  
@@ -54,6 +58,14 @@ jejune
 **pristine**  
 
 **avenue**  
+
+**diametrical**  
+
+**coercion**  
+
+**compass**  
+
+**poetic**  
 
 ### Verb Words  
 
@@ -79,8 +91,35 @@ jejune
 
 **quibble**  
 
+**rave**  
+
 -------------------------  
 
+## Week 3  
+
+IKEA’s **prints** have transformed how homes everywhere look.  
+**Chances** are you have come across a “Strix” cushion or a “Rinnig” tea towel.  
+
+
+
+Armies are using lasers to **zap** things out of the sky.  
+These heat **beams** can’t destroy a warship or tank (or alien spacecraft, one presumes). They work pretty well against drones, though. 
+In other news from a rapidly changing world, artificial intelligence, if it **lives up to its promise**, could supercharge global economic growth.  
+
+When economists tracked thousands of people from birth until age 55, the aspirations they formed as adolescents **foreshadowed** how their adult lives would unfold.  
+
+
+### Hidden Brain  
+
+I knew it was a **long shot**—I wasn't sure if I was qualified, and my family couldn't afford out-of-state tuition.  
+If we failed, we’d have to start the year with an extra semester of **remedial** writing.  
+Several colleagues **raved** about a literary agent, Richard Pine, who took me under his wing.  
+
+**ostracize, banish, shun, exile**  
+**hackneyed, cliche, corny, abused/overused, contrived**.  
+**foreshadow, bode, prelude, foresee** 
+
+In fact, you're like a **diamond in the rough**.  
 China and Europe’s savage **squabble**. - Tensions are high ahead of a big summit next week.  
 
 Bitcoin is such a **pristine** asset that its growing value makes it increasingly attractive as collateral against which ever-depreciating fiat can be borrowed.  
@@ -314,7 +353,7 @@ Volatility is not an inherent part of bitcoin, like would be the case if its var
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
 
-I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you. -    
+I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you.     
 
 I ate **as if** there was no tomorrow.  
 
@@ -324,7 +363,7 @@ I ate **as if** there was no tomorrow.
 Here’s a small example. The Dalai Lama has shown remarkable **agency**. His most **striking** decision was in 1959 when he decided, **dramatically**, to flee Tibet.  
 
 
-Trump sues Wall Street Journal for **libel** over Epstein letter. -    
+Trump sues Wall Street Journal for **libel** over Epstein letter.     
 He was always cheering from the bench. And he never **flinched**. That stuck with me.”  
 If you watch Evelyn today, you’ll see that she **exudes** the same joy practicing alone as she expresses performing in front of the entire world.  
 
