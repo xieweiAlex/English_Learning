@@ -41,6 +41,10 @@ exoteric
 
 hackneyed  
 
+somber  
+
+spurious  
+
 ### Special Words  
 
 **best-positioned**  
@@ -66,6 +70,15 @@ hackneyed
 **compass**  
 
 **poetic**  
+
+**baffling**  
+
+**vivid**  
+
+**renowned**  
+
+**feat**  
+
 
 ### Verb Words  
 
@@ -93,14 +106,59 @@ hackneyed
 
 **rave**  
 
+**wallow**  
+
+**foster**  
+
+**erode**  
+
 -------------------------  
+
+Potential nerve **impingement** (if pain radiates to arms or causes tingling).  
+
+When sponges are damaged by strong currents or munched on by predators, they don’t necessarily float away or die.  
+Throwing the javelin is a **feat** of strength.  
+
+Come on, let's **hang back**.  
+The Trump administration’s embrace of cryptocurrency as a means of **shoring up** the dollar builds on arguments made within the post-Scaling War Bitcoin world.  
+
+
+**New entrant**  
+
+**misperceive, misconstrue, misread, misunderstand, mislead**  
+**misstep, blunder, folly**.  
+**scrape, scrap. scrappy**.  
+**alma mater, alumni**  
+
+A **run-down** Edwardian **villa**.  
+He regarded the new job as a distinct **comedown**.  
+
+**Prosocial behavior**.  
+Thanks to stellar coaches, I went from being the worst diver in my school to ranking among the best in the country—  
+
+
+> the empire between your ears  
+
+Many of us **relinquish** this freedom of choice in favor of superficial things. Or we so **wallow** in our unfortunate circumstances  
+The world can **upend** us at any moment.  
+
+In his latest book, Useful Not True, entrepreneur and author Derek Sivers argues that truth is often **elusive** and not always relevant; what's important is choosing perspectives that **foster** agency and empathy.  
+
+Recently some in America have introduced another **baffling** trick: charging solo travellers more than couples.  
+Ukraine’s leader, Volodymyr Zelensky, should **junk** a very bad bill.  
+Donald Trump is suing the Wall Street Journal for reporting that in 2003 he sent a **lewd** birthday message to Jeffrey Epstein. 
+Elsewhere, we look at the **vertiginous** rise of Xiaomi, a Chinese tech giant. Only Apple and Samsung sell more smartphones worldwide.  
+And, with the successful release of its own EVs, the company has **pulled off** a **feat** that **eluded** Apple. Now it has its sights set on world domination. -    
+I’m not usually much **fussed** about pomp and ceremony, but I’m pleased to see relations growing more cordial between these European democracies.   
+Today, crypto is merely the latest **ruse** to persuade the public to surrender democratic freedom and financial sovereignty to **oligarchs**.  
+
 
 ## Week 3  
 
+Critics have accused him of rabble-rousing. -  
+
 IKEA’s **prints** have transformed how homes everywhere look.  
 **Chances** are you have come across a “Strix” cushion or a “Rinnig” tea towel.  
-
-
 
 Armies are using lasers to **zap** things out of the sky.  
 These heat **beams** can’t destroy a warship or tank (or alien spacecraft, one presumes). They work pretty well against drones, though. 
