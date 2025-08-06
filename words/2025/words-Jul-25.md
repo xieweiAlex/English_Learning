@@ -79,6 +79,9 @@ spurious
 
 **feat**  
 
+**logistical**  
+
+**monastic**  
 
 ### Verb Words  
 
@@ -114,9 +117,11 @@ spurious
 
 -------------------------  
 
+A meal with a client where work is discussed (that isn't **lavish**).  
+
 Potential nerve **impingement** (if pain radiates to arms or causes tingling).  
 
-When sponges are damaged by strong currents or munched on by predators, they don’t necessarily float away or die.  
+When sponges are damaged by strong currents or **munched** on by predators, they don’t necessarily float away or die.  
 Throwing the javelin is a **feat** of strength.  
 
 Come on, let's **hang back**.  
@@ -125,7 +130,7 @@ The Trump administration’s embrace of cryptocurrency as a means of **shoring u
 
 **New entrant**  
 
-**misperceive, misconstrue, misread, misunderstand, mislead**  
+**misperceive, misconstrue, misread, misunderstand, misconception, mislead**  
 **misstep, blunder, folly**.  
 **scrape, scrap. scrappy**.  
 **alma mater, alumni**  
