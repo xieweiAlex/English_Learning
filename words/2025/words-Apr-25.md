@@ -71,7 +71,7 @@ They can determine if icing your face is appropriate for your current health con
 So my salary does not **commensurate** with my effort. -    
 if you don't know what **commensurate** means, it basically means **makes up** for.  
 
-The minister preached a **sermon** on the **parable** of the lost sheep. -    
+The minister preached a **sermon** on the **parable** of the lost sheep.   
 **wacko, psycho, paranoid**.  
 
 Squirrel: a kind of **arboreal** **rodent** having a long **bushy** tail.  
@@ -95,7 +95,7 @@ The hotel has a lovely **homely** feel to it.
 **booby** 
 It would be **folly** to turn the offer down.   
 
-The next president could **abrogate** the treaty. -  
+The next president could **abrogate** the treaty.   
 **ink jet, printing ink**.  
 
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -    

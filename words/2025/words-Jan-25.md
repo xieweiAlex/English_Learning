@@ -142,7 +142,7 @@ Biden **jabs** at Trump in farewell address, but pledges peaceful transition.
 In the **sweltering** haze of summer-noon.  
 
 **confiscate, forfeit, seize, plunder**.  
-The **customs** officials confiscated the **contraband**. -  
+The **customs** officials confiscated the **contraband**.   
 "They each covet the other person's life," says Reynolds.  
 A **covetous** man is good to none but worse to himself.  
 

@@ -92,9 +92,9 @@ A trick for generating above market risk-adjusted returns that works for 10 or e
 50-50 vote with Vice President JD Vance acting as **tiebreaker**.  
 
 I spent last week in America, partly in **sweltering** New York and partly at the Aspen Ideas Festival.   
-Instead, with markets back at all-time highs, an **insouciance** has set in. -    
+Instead, with markets back at all-time highs, an **insouciance** has set in.   
 Call me a European grinch, but I felt I had arrived on planet **Pangloss**.  
-Donald Trump plans to mark America’s birthday tomorrow by signing this **profligate** yet **insubstantial** bill into law. -    
+Donald Trump plans to mark America’s birthday tomorrow by signing this **profligate** yet **insubstantial** bill into law.   
 The Big Beautiful Bill is symptomatic of a wider **malaise**.  
 Will bowing to Trump win Paramount its merger? **Coercion** and **corporate expedience** meet in a $16m settlement.  
 

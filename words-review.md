@@ -1,5 +1,10 @@
+## words-Aug-25.md ##  
+words/2025/words-Aug-25.md  
+Swimming pools are **cauldrons** of envy, danger and lust. Holiday-makers love them. So do storytellers. -  
+
 ## words-Jul-25.md ##  
 words/2025/words-Jul-25.md  
+And, with the successful release of its own EVs, the company has **pulled off** a **feat** that **eluded** Apple. Now it has its sights set on world domination. -  
 She's a little **precocious**, but that's only because she says what's on her mind. -   -  
 He’ll get a bad name for himself if he **ogles at** every girl he meets. -  
 I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you. -  
@@ -10,8 +15,6 @@ A growing body of research suggests creatine may be good for brains as well as *
 
 ## words-Jun-25.md ##  
 words/2025/words-Jun-25.md  
-Instead, with markets back at all-time highs, an **insouciance** has set in. -  
-Donald Trump plans to mark America’s birthday tomorrow by signing this **profligate** yet **insubstantial** bill into law. -  
 These **clandestine** or semi-official Bitcoin farms draw **colossal** amounts of power – often at heavily subsidized rates or with no payment at all – effectively diverting energy from the national grid for private gain. -  
 Each Bitcoin mined under its **aegis** comes at a **steep cost**. -  
 The blue **dye** is obtained from the **indigo plant**. -  
@@ -27,10 +30,8 @@ words/2025/words-Apr-25.md
 Fees and **interdictions** by law enforcement reduce the overall take, but North Korea can expect to receive “definitely 80%, maybe 90%” of the funds it steals. -  
 Congress is **inert**, but a **deft** Supreme Court might contain him. -  
 So my salary does not **commensurate** with my effort. -  
-The minister preached a **sermon** on the **parable** of the lost sheep. -  
 He pushed the church left during his tenure, often to the **dismay** of traditionalist believers. -  
 He had attempted to **abduct** the three boys. -  
-The next president could **abrogate** the treaty. -  
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -  
 Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**. -  
 The next issue is that reviewing is generally dull and **vapid**. -  
@@ -47,5 +48,4 @@ The surveyor's report didn't highlight anything **untoward**. -
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
 She felt like an **interloper** in her own family. -  
-The **customs** officials confiscated the **contraband**. -  
 The protesters carried **placards** with bold messages. -  
