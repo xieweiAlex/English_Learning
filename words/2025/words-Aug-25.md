@@ -53,6 +53,10 @@ smudgy
 
 intrepid, tepid  
 
+dominatrix  
+
+coterie  
+
 ### Special Words  
 
 **farfetched**  
@@ -71,15 +75,31 @@ intrepid, tepid
 
 **sacred**  
 
-**enticing**  
+**enticing**, **arresting**, **riveting**  
 
 **soft heart**  
+
+**phony**  
+
+**sneaky**  
+
+**dire**, **dismal**, 
+
+**flippant**  
 
 ### Verb Words  
 
 **croon**  
 
 **dovetail**  
+
+**entail**  
+
+**constitute**  
+
+**fare**  
+
+**complicate**, **implicate**  
 
 **tantalize**, **titillate**  
 
@@ -89,13 +109,90 @@ intrepid, tepid
 
 **liberate, tyranny**  
 
-**entail**  
+**deviate**  
 
-**constitute**  
-
-**fare**  
+**hinge** 
 
 -------------------------  
+
+bungle, botch, fumble, blunder, folly.  
+
+pangolin, rhino, reptile, 
+**Swerve, veer, deflect, drift** 
+**mod, modulo, modulus**.  
+**aseptic, ascetic**. 
+**vindicate, vindicative**.  
+
+Perplexity Is **on the Prowl** to Buy Web Browsers.  
+A few years ago, though, age started catching up to me and I stopped drinking coffee after lunch or so, lest it screw with my sleep.  
+
+
+### Week 33, Sunday Aug 17th  
+
+He was **all too familiar** with the feeling of disappointment after losing a game.  
+
+People flocked to court to heap praise on him (before asking for favors).  
+He also had to put up with their jeers and criticisms.  
+He had to hold himself to his own standard—an inner scorecard—and ignore everything else. The clapping was meaningless. The boos were too. What mattered was his own integrity—he had to be his own witness.  
+
+Is it not true that most people are not very bright, hold regressive or alarming opinions, and generally follow the herd?  
+
+
+The press did a very effective **hatchet job** on her last movie.  
+It is time to **bury the hatchet** and forget about what has happened in the past.  
+
+Harmonious Passion is adaptive. It is chosen. It aligns with your identity, but it does not **supersede** it.  
+In a culture that **glamorizes** obsession, to focus on your harmony feels like an act of rebellion. But interestingly, it is exactly this act of rebellion that leads to the most profound outcomes.  
+
+People **smother** their ideas or proposals with crappy art and **word diarrhea**, then hit repeat for a dozen or more slides.  
+
+The game—now commonly known as Michael Jordan’s “Flu Game”—has gone down in NBA lore as one of the most impressive, **clutch** performances in history.  
+
+> The yield’s sustainability **hinges on** MicroStrategy’s ability to generate cash through its operations and Bitcoin-linked financing, while the variable rate structure provides flexibility to adapt to changing financial conditions.  
+Palantir is an American data-analysis **outfit** named after a **magical orb** in “The Lord of the Rings”.  
+
+Inch by inch, it's a **cinch**. Yard by yard is just too hard.  
+
+But your bottle — yes, the one you're putting to your lips today — could carry harmful levels of bacteria, including **E. coli**.  
+
+Unusual agreements is quite the **euphemism** for a **shakedown**.  
+There are always some users who react emotionally to any sort of change, often **vociferously** so.  
+I’m unsurprised that some people like it, but I am a little **taken aback** by how many people seem to have been fooled by it. It’s not just phony, but to me, transparently **phony**.  
+This whole field is **in nonstop flux**, at least for the **foreseeable** future.  
+
+> A mantra of “we host all views, but don’t promote or endorse all views” 
+
+
+Some Democrats worry that this limited group might be **complicating** his decision-making process.”  
+> **Axioms** are like street signs: They tell you where you are and where you are going.  
+
+Smart Brevity isn't **hocus-pocus**—it can be learned and taught. -    
+Never forget: Most people **tune out** after a few dozen words and skim, **at best**, the rest.  
+
+> As your parting paragraph, just type “Go deeper,” then link to your source material or to a video, podcast, bio, map, excerpts from a book, crosstabs of a poll—anything that lets the reader go down the rabbit hole.  
+
+In a worst-case situation, does the car hit the person in front of it, or does it **veer** and maybe hit someone on the sidewalk?  
+
+Nobody wants to **stare at** a **clump** of words and figures.  
+This should be your **North Star**.  
+
+So to be an Olympic athlete means you have to have a **high caliber**.  
+
+**Whittle down** your list of important points to one or two, if possible.  
+We know that from any given podcast, industry meeting, sermon or Zoom, we’re going to take away one idea, anecdote, tip, hack, **quip**, stat, insight.  
+Berenbaum has found that useful content—tips and training—also helps **amp up** his engagement.  
+
+> Write—then go back and kill at least half the words. It winds up sharper every time.  
+
+Strong words are better than soft and **soggy** ones.  
+> Active verbs ALWAYS.  
+
+Cliff has a writer’s eye and is an A+ storyteller. After he left the government, he could go on for hours with **eye-opening** behind-the-scenes **tales**.  
+  
+He is a **gruff**, grumpy, no BS journalistic **throwback**.  —  
+
+Foxes were traditionally regarded as **vermin**.  
+
 
 ### Economist  
 
@@ -172,3 +269,4 @@ It is important that we **dovetail** our respective interests.
 > vivid, absurd, sensational words and sentences.  
 
 
+It is important that we **dovetail** our respective interests.   

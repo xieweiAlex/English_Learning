@@ -29,7 +29,7 @@ Thus, in the case of the United States, the trade deficit and global reserve cur
 words/2025/words-Apr-25.md  
 Fees and **interdictions** by law enforcement reduce the overall take, but North Korea can expect to receive “definitely 80%, maybe 90%” of the funds it steals. -  
 Congress is **inert**, but a **deft** Supreme Court might contain him. -  
-So my salary does not **commensurate** with my effort. -  
+So my salary does not **commensurate** with my effort.   
 He pushed the church left during his tenure, often to the **dismay** of traditionalist believers. -  
 He had attempted to **abduct** the three boys. -  
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -  
