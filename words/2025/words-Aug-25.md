@@ -57,6 +57,8 @@ dominatrix
 
 coterie  
 
+seer  
+
 ### Special Words  
 
 **farfetched**  
@@ -90,6 +92,8 @@ coterie
 **superfluous**  
 
 **demanding**  
+
+**demeaning**  
 
 ### Verb Words  
 
@@ -125,28 +129,23 @@ coterie
 
 **toss**  
 
+**glamorize** 
+
 -------------------------  
 
-**bungle, botch, fumble, blunder, folly**.  
-**daybreak, nightfall**  
+cyclic vs cyclical ??  
 
-**pangolin, rhino, reptile**, 
-**Swerve, veer, deflect, drift** 
-**mod, modulo, modulus**.  
-**aseptic, ascetic**. 
-**vindicate, vindicative**.  
-**hooligan, hoodlum, thug, lad, mob**  
 
 > In the end, we all fit in the same small **pine box**. Or the same **urn**. Remember that. Let it humble you. Let it put things **in perspective**.  
 
+I don't mean it like a **demeaning** way, it's just a matter of factor.  
 Donald Trump's $465 million civil fraud penalty **tossed out** by New York court.  
 
-Their costly and futile attempt to subjugate the Afghans lasted just 10 years.  
+Their costly and **futile** attempt to **subjugate** the Afghans lasted just 10 years.  
 
 How to be a **demanding** reader.  
 Most of us are **unaccustomed** to doing this. Nevertheless, it can be done, and a person who does it cannot help learning to read much better.  
-If the book has a dust jacket, you look at the publisher’s blurb. These are the signal flags the author waves to let you know which way the wind is blowing.  
-
+If the book has a **dust jacket**, you look at the publisher’s **blurb**. These are the **signal flags** the author waves to let you know which way the wind is blowing.  
 
 We must find **quarters** before **nightfalls**.  
 
@@ -160,14 +159,12 @@ It wasn't until a few months ago that it **dawned on me** as to why she couldn't
 **Home field advantage**.  
 > We allow every employee to ask anything anonymously—absolutely anything—and read the question **verbatim** in a weekly meeting, no matter how blunt or rude, then answer it. Yes, this can be awkward.  
 
-
 If you look closely at the numbers, there’s no real **discernible** pattern to the scalar multiplication.  
 This is not surprising since the points are **discrete**.  
 
 A fascinating **interplay** of psychology and scarcity.  
 
 That is, until one **formative** conversation with my grandmother, when she shared a story that changed my entire perception of identity, uniqueness, and self-worth.  
-
 
 Perplexity Is **on the Prowl** to Buy Web Browsers.  
 A few years ago, though, age started catching up to me and I stopped drinking coffee after lunch or so, **lest** it screw with my sleep.  
@@ -306,11 +303,34 @@ It is important that we **dovetail** our respective interests.
 
 ## Words Gallery  
 
+**bungle, botch, fumble, blunder, folly**.  
+**daybreak, nightfall**  
+
+**pangolin, rhino, reptile**, 
+**Swerve, veer, deflect, drift** 
+**mod, modulo, modulus**.  
+**aseptic, ascetic**. 
+**vindicate, vindicative**.  
+**hooligan, hoodlum, thug, lad, mob**  
+
 
 ## Conversation  
 > Happens in real life or media format that I can vivid recall with an imagery.  
+
+I don't mean it like a **demeaning** way, it's just a matter of factor.  
 
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
 
 It is important that we **dovetail** our respective interests.   
+Donald Trump's $465 million civil fraud penalty **tossed out** by New York court.  
+
+How to be a **demanding** reader.  
+There was a lot of **effing and blinding** going on.  
+A fascinating **interplay** of psychology and scarcity.  
+
+Perplexity Is **on the Prowl** to Buy Web Browsers.  
+
+He also had to **put up with** their **jeers** and criticisms.  
+
+In a culture that **glamorizes** obsession, to focus on your harmony feels like an act of rebellion. But interestingly, it is exactly this act of rebellion that leads to the most profound outcomes.  
