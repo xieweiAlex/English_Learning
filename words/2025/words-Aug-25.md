@@ -87,6 +87,10 @@ coterie
 
 **flippant**  
 
+**superfluous**  
+
+**demanding**  
+
 ### Verb Words  
 
 **croon**  
@@ -113,30 +117,71 @@ coterie
 
 **hinge** 
 
+**oscillate**  
+
+**generalize**, **overgeneralize**  
+
+**pinpoint**  
+
+**toss**  
+
 -------------------------  
 
-bungle, botch, fumble, blunder, folly.  
+**bungle, botch, fumble, blunder, folly**.  
+**daybreak, nightfall**  
 
-pangolin, rhino, reptile, 
+**pangolin, rhino, reptile**, 
 **Swerve, veer, deflect, drift** 
 **mod, modulo, modulus**.  
 **aseptic, ascetic**. 
 **vindicate, vindicative**.  
+**hooligan, hoodlum, thug, lad, mob**  
+
+> In the end, we all fit in the same small **pine box**. Or the same **urn**. Remember that. Let it humble you. Let it put things **in perspective**.  
+
+Donald Trump's $465 million civil fraud penalty **tossed out** by New York court.  
+
+Their costly and futile attempt to subjugate the Afghans lasted just 10 years.  
+
+How to be a **demanding** reader.  
+Most of us are **unaccustomed** to doing this. Nevertheless, it can be done, and a person who does it cannot help learning to read much better.  
+If the book has a dust jacket, you look at the publisher’s blurb. These are the signal flags the author waves to let you know which way the wind is blowing.  
+
+
+We must find **quarters** before **nightfalls**.  
+
+**blinding factor**. 
+There was a lot of **effing and blinding** going on.  
+The reflection of the sun on the glass wall was **blinding**.  
+I woke up with the **blinding** realization that it was time to go.  
+
+It wasn't until a few months ago that it **dawned on me** as to why she couldn't think of reasons of why she loved me.  
+
+**Home field advantage**.  
+> We allow every employee to ask anything anonymously—absolutely anything—and read the question **verbatim** in a weekly meeting, no matter how blunt or rude, then answer it. Yes, this can be awkward.  
+
+
+If you look closely at the numbers, there’s no real **discernible** pattern to the scalar multiplication.  
+This is not surprising since the points are **discrete**.  
+
+A fascinating **interplay** of psychology and scarcity.  
+
+That is, until one **formative** conversation with my grandmother, when she shared a story that changed my entire perception of identity, uniqueness, and self-worth.  
+
 
 Perplexity Is **on the Prowl** to Buy Web Browsers.  
-A few years ago, though, age started catching up to me and I stopped drinking coffee after lunch or so, lest it screw with my sleep.  
+A few years ago, though, age started catching up to me and I stopped drinking coffee after lunch or so, **lest** it screw with my sleep.  
 
 
 ### Week 33, Sunday Aug 17th  
 
 He was **all too familiar** with the feeling of disappointment after losing a game.  
 
-People flocked to court to heap praise on him (before asking for favors).  
-He also had to put up with their jeers and criticisms.  
-He had to hold himself to his own standard—an inner scorecard—and ignore everything else. The clapping was meaningless. The boos were too. What mattered was his own integrity—he had to be his own witness.  
+People **flocked** to court to **heap praise** on him (before asking for favors).  
+He also had to **put up with** their **jeers** and criticisms.  
+He had to hold himself to his own standard—an inner scorecard—and ignore everything else. The clapping was meaningless. The **boos** were too. What mattered was his own integrity—he had to be his own witness.  
 
-Is it not true that most people are not very bright, hold regressive or alarming opinions, and generally follow the herd?  
-
+Is it not true that most people are not very bright, hold **regressive** or alarming opinions, and generally **follow the herd**?  
 
 The press did a very effective **hatchet job** on her last movie.  
 It is time to **bury the hatchet** and forget about what has happened in the past.  
@@ -267,6 +312,5 @@ It is important that we **dovetail** our respective interests.
 
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
-
 
 It is important that we **dovetail** our respective interests.   
