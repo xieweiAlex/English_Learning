@@ -77,7 +77,7 @@ The minister preached a **sermon** on the **parable** of the lost sheep.
 Squirrel: a kind of **arboreal** **rodent** having a long **bushy** tail.  
 He was tall and delicately shaped; strong in nerve and **sinew**, and most **dextrous** in arms.  
 
-He pushed the church left during his tenure, often to the **dismay** of traditionalist believers. -     
+He pushed the church left during his tenure, often to the **dismay** of traditionalist believers.   
 
 **imbecile**  
 
@@ -184,7 +184,7 @@ His **scruffy** appearance does not reflect his character. -
 His father was a drunken **brute**.  
 
 ### week 1 
-It turned out to be his last **dalliance** with the education system. -  
+It turned out to be his last **dalliance** with the education system.   
 His sharp **retort** clearly made an impact.   
 Spicy **tahini** sauce on brown rice, kale, black beans.   
 
@@ -228,7 +228,7 @@ They endured years of suffering and **privation**.
 Fortunately he soon made friends with an old **indigene**.  
 She **crooked** her finger to **beckon** him.  
 Los Angeles is **rife with** gossip about the star's private lives.  
-Property sales have been in the **doldrums** for some time. -  
+Property sales have been in the **doldrums** for some time.   
 He's been **in the doldrums** ever since she left him.  
 
 Once it starts to look **clumpy**, it’s ready. After you gently strain out the liquid, the original kefir grains are left behind.  

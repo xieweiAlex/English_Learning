@@ -59,6 +59,8 @@ coterie
 
 seer  
 
+sleight  
+
 ### Special Words  
 
 **farfetched**  
@@ -94,6 +96,8 @@ seer
 **demanding**  
 
 **demeaning**  
+
+**turnoff**  
 
 ### Verb Words  
 
@@ -134,6 +138,15 @@ seer
 -------------------------  
 
 cyclic vs cyclical ??  
+
+
+So that is the main **turnoff** for a lot of people.  
+The **verdict** in the Tornado Cash developer prosecution: guilty on unlicensed money transmission.  
+
+He issued a fake **mea culpa** and blamed other people for his mistake.   
+Despite **lavish** subsidies, America’s chipmaking champion is in **grave trouble**.  
+Earth’s climate is approaching **irreversible** **tipping points**.  
+Elsewhere, we visit China’s “city of the future”. Xiongan is a **pet initiative** of Xi Jinping. Until now, it has also been a **byword** for costly **vanity projects**.   
 
 
 > In the end, we all fit in the same small **pine box**. Or the same **urn**. Remember that. Let it humble you. Let it put things **in perspective**.  
@@ -241,7 +254,7 @@ Foxes were traditionally regarded as **vermin**.
 America’s housing market is **shuddering**. - For the country’s homeowners, the good times are **coming to an end**.  
 Pakistan’s army chief is **cozying up** to Donald Trump.  
 What does it mean to be rich? It’s not original to observe that there’s more to life than money. When our data journalists tried to find the world’s richest country, however, they had to first **untangle** that **knotty** question.  
-Swimming pools are **cauldrons** of envy, danger and lust. Holiday-makers love them. So do storytellers. -    
+Swimming pools are **cauldrons** of envy, danger and lust. Holiday-makers love them. So do storytellers.   
 How big tech plans to feed AI’s **voracious** appetite for power.  
 That sounds like a **litany** of failure. And compared with the hopes of finding a cure within five to ten years, which Richard Nixon encouraged with his War on Cancer in 1971, it is.  
 **Ever more** Ukrainian women are joining the army. A growing group that is changing society  

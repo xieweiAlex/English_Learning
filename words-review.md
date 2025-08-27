@@ -1,10 +1,8 @@
 ## words-Aug-25.md ##  
 words/2025/words-Aug-25.md  
-Swimming pools are **cauldrons** of envy, danger and lust. Holiday-makers love them. So do storytellers. -  
 
 ## words-Jul-25.md ##  
 words/2025/words-Jul-25.md  
-And, with the successful release of its own EVs, the company has **pulled off** a **feat** that **eluded** Apple. Now it has its sights set on world domination. -  
 She's a little **precocious**, but that's only because she says what's on her mind. -   -  
 He’ll get a bad name for himself if he **ogles at** every girl he meets. -  
 I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you. -  
@@ -29,17 +27,12 @@ Thus, in the case of the United States, the trade deficit and global reserve cur
 words/2025/words-Apr-25.md  
 Fees and **interdictions** by law enforcement reduce the overall take, but North Korea can expect to receive “definitely 80%, maybe 90%” of the funds it steals. -  
 Congress is **inert**, but a **deft** Supreme Court might contain him. -  
-So my salary does not **commensurate** with my effort.   
-He pushed the church left during his tenure, often to the **dismay** of traditionalist believers. -  
 He had attempted to **abduct** the three boys. -  
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -  
 Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**. -  
 The next issue is that reviewing is generally dull and **vapid**. -  
 To remove the intestines or **entrails** of; **eviscerate**. -  
-His **scruffy** appearance does not reflect his character. -  
-It turned out to be his last **dalliance** with the education system. -  
 These early paintings clearly **prefigure** his Later work. -  
-Property sales have been in the **doldrums** for some time. -  
 
 ## words-Mar-25.md ##  
 words/2025/words-Mar-25.md  
@@ -47,5 +40,4 @@ The surveyor's report didn't highlight anything **untoward**. -
 
 ## words-Jan-25.md ##  
 words/2025/words-Jan-25.md  
-She felt like an **interloper** in her own family. -  
 The protesters carried **placards** with bold messages. -  

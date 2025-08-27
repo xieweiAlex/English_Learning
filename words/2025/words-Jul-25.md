@@ -153,7 +153,7 @@ Recently some in America have introduced another **baffling** trick: charging so
 Ukraine’s leader, Volodymyr Zelensky, should **junk** a very bad bill.  
 Donald Trump is suing the Wall Street Journal for reporting that in 2003 he sent a **lewd** birthday message to Jeffrey Epstein. 
 Elsewhere, we look at the **vertiginous** rise of Xiaomi, a Chinese tech giant. Only Apple and Samsung sell more smartphones worldwide.  
-And, with the successful release of its own EVs, the company has **pulled off** a **feat** that **eluded** Apple. Now it has its sights set on world domination. -    
+And, with the successful release of its own EVs, the company has **pulled off** a **feat** that **eluded** Apple. Now it has its sights set on world domination.   
 I’m not usually much **fussed** about pomp and ceremony, but I’m pleased to see relations growing more cordial between these European democracies.   
 Today, crypto is merely the latest **ruse** to persuade the public to surrender democratic freedom and financial sovereignty to **oligarchs**.  
 
