@@ -99,6 +99,13 @@ sleight
 
 **turnoff**  
 
+**crummy**  
+
+**manner**  
+
+
+**diaspora**  
+
 ### Verb Words  
 
 **croon**  
@@ -137,8 +144,27 @@ sleight
 
 -------------------------  
 
-cyclic vs cyclical ??  
+**Haptic** feedback.  
+High voltage money, other proxies for Bitcoin, that you can blast on chain.  
 
+
+They usually **turn a blind eye** to their own weaknesses.   
+
+**extenuate, exonerate, exculpate**.  
+
+Professor Rogoff, we very much appreciated your **remarks**.” I was thinking, “Oh no, they’re going to put me in jail or something at the end of this.”  
+You could either save in a bank account, which gets you a **crummy** interest rate, or in a house. Now they’re going down, so people are **cutting back**.  
+> “austerity” is when you don’t do that. I mean, I think Ezra Klein’s book Abundance actually makes the point that there are costs and benefits to a lot of things.  
+
+By **decrying** this pricing tactic, travel writers may **inadvertently** have done their audiences a **disservice**. 
+It’s fair to say that, right now, Bitcoin appears to be **hurtling towards** a crisis, and a bubble burst is a distinct possibility.  
+Today, Bitcoin is built and programmed by centralized ASIC miners and deployed in a decentralized **manner**, yet it **teeters on** the edge of profitability.  
+So I think the most likely thing will be inflation, which only **lets off** steam.  
+
+**cyclic vs cyclical** ??  
+**ureter, Urinal** 
+
+So why is it that we love to **pucker up**?  
 
 So that is the main **turnoff** for a lot of people.  
 The **verdict** in the Tornado Cash developer prosecution: guilty on unlicensed money transmission.  
@@ -148,6 +174,8 @@ Despite **lavish** subsidies, America’s chipmaking champion is in **grave trou
 Earth’s climate is approaching **irreversible** **tipping points**.  
 Elsewhere, we visit China’s “city of the future”. Xiongan is a **pet initiative** of Xi Jinping. Until now, it has also been a **byword** for costly **vanity projects**.   
 
+
+## Week 34 Aug 24  
 
 > In the end, we all fit in the same small **pine box**. Or the same **urn**. Remember that. Let it humble you. Let it put things **in perspective**.  
 

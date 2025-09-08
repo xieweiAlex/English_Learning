@@ -128,7 +128,7 @@ Meta also announced its new Llama API, a **turnkey platform** for inference and 
 Instead, money has a strong network effect, where liquidity **begets** more liquidity, and acceptability **begets** more acceptability, leading to one or two major salable monies rather than countless of them.  
 For example, when I bought a **villa** in Egypt in 2023, I exchanged dollars for Egyptian pounds, and used those to buy the property.  
 which represent **inflexible demand** for dollars.  
-Thus, in the case of the United States, the trade deficit and global reserve currency status are **inexorably** linked. -    
+Thus, in the case of the United States, the trade deficit and global reserve currency status are **inexorably** linked.   
 This was the first wave of it, back in the 1980s and 1990s when Japan, Germany, and Mexico were the trade **bogeymen** rather than China.  
 It’s **destined** for both friction and pushback since it’s not targeting the root, since the root is 1) **optically** hard to go after, 2) extremely hard to explain, and 3) comes with real **trade-offs**.  
 the foreign sector will **term out** their holdings of US debt and accept debasement of their reserve holdings to stay in the **good graces** of the US government.  
