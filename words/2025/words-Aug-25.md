@@ -15,52 +15,6 @@
 
 ------------------  
 
-addle.  
-cavil  
-milieu  
-carouse  
-adumbrate  
-
-sordid 
-
-atrium  
-
-clammy  
-
-enmity  
-
-petulant  
-
-philippic  
-
-prefigure  
-
-upbraid  
-
-jejune  
-
-exoteric  
-
-hackneyed  
-
-somber  
-
-spurious  
-
-**clammy**  
-
-smudgy  
-
-intrepid, tepid  
-
-dominatrix  
-
-coterie  
-
-seer  
-
-sleight  
-
 ### Special Words  
 
 **farfetched**  
