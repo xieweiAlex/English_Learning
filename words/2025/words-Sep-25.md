@@ -56,9 +56,9 @@ hackneyed
 
 **impart** 
 
--------------------------  
+**weave**  
 
-**solder, weld**, 
+-------------------------  
 
 Why American bondholders are **jumpy** about inflation.  
 No forced **divestiture** of Chrome or Android, and Google is allowed to continue making traffic acquisition cost payments to companies like Apple.  
@@ -84,8 +84,6 @@ Simply believing they had a scar caused the participants to interact with the wo
 
 
 ### Week 36, 2025-09-07  
-
-**extenuate, exonerate, exculpate**.  
 
 > we are ‘distracted from distraction by distraction. -- T. S. Eliot  
 
@@ -200,6 +198,10 @@ E.g.
     - **Alternatives**: Erratic, unruly, unpredictable.  
 
 ## Words Gallery  
+
+**solder, weld**, 
+**extenuate, exonerate, exculpate**.  
+
 
 **daybreak, nightfall**  
 **pangolin, rhino, reptile**, 
