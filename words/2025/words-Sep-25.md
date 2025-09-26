@@ -43,8 +43,14 @@ exoteric
 
 hackneyed  
 
+nitrite  
+
 
 ### Special Words  
+
+opportunistic  
+
+**prosperous**, **prosperity**  
 
 **Pungent** 
 
@@ -52,13 +58,29 @@ hackneyed
 
 **glamorous**  
 
+**menial**  
+
 ### Verb Words  
 
 **impart** 
 
 **weave**  
 
+**invite**  
+
+**cross-verify**  
+
 -------------------------  
+
+**vilify, malign, Revile, defame, slander** 
+**disparage, badmouth, bash, condemn, attack**  
+
+
+kerosine is jet fuel, kerosene lights up your house.  
+
+
+Despite presidential animus, America’s solar industry is buzzing. And investment is on the rise.  
+
 
 Why American bondholders are **jumpy** about inflation.  
 No forced **divestiture** of Chrome or Android, and Google is allowed to continue making traffic acquisition cost payments to companies like Apple.  
