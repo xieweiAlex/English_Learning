@@ -141,7 +141,7 @@ How Ireland became the Saudi Arabia of siphoned-off global profits. - The **Emer
 [Bitcoin mining in Iran](https://www.ncr-iran.org/en/publications/special-reports/bitcoin-mining-in-iran-irgc-operations-and-the-power-grid-crisis/) 
 ------------  
 Now the government is in a **predicament**. Either cut the subsidies and push out the miners.  
-These **clandestine** or semi-official Bitcoin farms draw **colossal** amounts of power – often at heavily subsidized rates or with no payment at all – effectively diverting energy from the national grid for private gain. -    
+These **clandestine** or semi-official Bitcoin farms draw **colossal** amounts of power – often at heavily subsidized rates or with no payment at all – effectively diverting energy from the national grid for private gain.   
 By 2019, the **clerical regime** officially recognized crypto mining as an industry and introduced a licensing regime for miners, offering cheap electricity to attract investment on the condition that all mined Bitcoin be sold to Iran’s central bank.   
 Former president Hassan Rouhani admitted in 2021 that about 85% of mining in Iran was unlicensed – a vast **gray economy** consuming power without **oversight** or payment.  
 IRGC-affiliated media have **sought to** **deflect** blame by highlighting IRGC “crackdowns” on unauthorized miners.  

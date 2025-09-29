@@ -232,7 +232,6 @@ That my dad left for a year with the town **floozy**
 This **specimen** is richly **variegated** in color.  
 **stunted** brush  
 Scans of his chest, **abdomen**, and **pelvis** likewise showed nothing  
-**ureter**, **urethra**  
 proud as a **peacock**  
 
 Apple Has '**Lost Sight of** the Tech Industry's Founding Principles,' Says Epic Games CEO  

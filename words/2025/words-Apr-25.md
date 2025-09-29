@@ -89,7 +89,7 @@ A hot climate **enervate** people who are not used to it.
 
 His skin felt cold and **clammy**.   
 
-He had attempted to **abduct** the three boys. -  
+He had attempted to **abduct** the three boys.   
 The hotel has a lovely **homely** feel to it.   
 
 **booby** 
@@ -220,7 +220,7 @@ The walls were plain and **unadorned**.
 **strife, dispute, quarrel**.  
 
 The **aquarium** has some interesting **specimens** of unusual tropical fish.  
-These early paintings clearly **prefigure** his Later work. -    
+These early paintings clearly **prefigure** his Later work.   
 
 **janitor, genitor, progenitor**.  
 The cut began to **scab**.  

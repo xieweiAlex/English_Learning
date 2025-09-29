@@ -91,7 +91,7 @@ Nigeria has more people without electricity than any other country. -  Fixing th
 **Lumbar, lumber, slumber**. 
 
 Fact-checkers forecast which **dodgy** claims will do most damage.  
-How to distinguish between **weapons-grade disinformation** and everyday **codswallop**. -    
+How to distinguish between **weapons-grade disinformation** and everyday **codswallop**.   
 
 **jamb, doorway, hallway, entryway** 
 

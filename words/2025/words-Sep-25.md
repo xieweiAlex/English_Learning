@@ -45,10 +45,24 @@ hackneyed
 
 nitrite  
 
+**venal**  
+
+**envisage** 
+
+**supercilious**  
+
+**goad**  
+
 
 ### Special Words  
 
-opportunistic  
+**interim**  
+
+**shorthand**  
+
+**vague**  
+
+**opportunistic**  
 
 **prosperous**, **prosperity**  
 
@@ -62,25 +76,48 @@ opportunistic
 
 ### Verb Words  
 
+**swoop**  
+
 **impart** 
 
 **weave**  
 
-**invite**  
+**invite**, **beget**  
 
 **cross-verify**  
+
+**Cancel out**  
 
 -------------------------  
 
 **vilify, malign, Revile, defame, slander** 
 **disparage, badmouth, bash, condemn, attack**  
+**nitrite, nitrogen, ammonia nitrogen**.  
+
+**ureter**, **urethra**  
+
+No great book is written quickly. Few fortunes are made in one **swoop**.  
+Resembling the steady advance of 2015–2017, so far without its late-stage **blow-off** rally.  
+
+While Goddard didn't say it in this piece, the **subtext** should be that building the alternative on Substack or social media is not the answer, either. -  
+
+Like Seneca warned, anger transforms us into something unrecognizable—**contorting** our faces, **tensing** our bodies, and hardening our hearts. The person in the mirror during rage isn't our true self, but a distorted version that has been robbed of grace and dignity.  
+
+That's the thing with anger. It begs to stick around. So it can **fleece** you of your beauty. And leave you spent with now to offer. Makes you hurt the ones who love you. -    
+The **indecorous** fight over a dead president's body. And what it says about African politics.  
+He encountered controversy for using sometimes violent **corporal** punishment on both girls and boys.  
+
+### Economist Newsletter  
+Israeli Prime Minister Benjamin Netanyahu was full of **defiance** and **bluster** today at the UN General Assembly, even as he grows increasingly isolated on the world stage.  
 
 
-kerosine is jet fuel, kerosene lights up your house.  
+### Week 38  
 
+**fess up**.  
 
-Despite presidential animus, America’s solar industry is buzzing. And investment is on the rise.  
+**kerosine** is jet fuel, **kerosene** lights up your house.  
 
+Despite presidential **animus**, America’s solar industry is buzzing. And investment is on the rise.  
 
 Why American bondholders are **jumpy** about inflation.  
 No forced **divestiture** of Chrome or Android, and Google is allowed to continue making traffic acquisition cost payments to companies like Apple.  

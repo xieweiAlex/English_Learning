@@ -53,7 +53,7 @@ This period of travelling helped McConaughey **comes to terms** with himself.
 
 American and Japanese alike— endures in history, in sacred ground, and the bonds between our nations. Their **valor** will never fade.  
 
-The surveyor's report didn't highlight anything **untoward**. -  
+The surveyor's report didn't highlight anything **untoward**.   
 He didn't want any further involvement for fear of **retribution**.   
 He needs to learn to **curb** his temper.   
 She put a **curb** on her spending.  
