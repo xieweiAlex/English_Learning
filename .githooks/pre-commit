@@ -3,6 +3,9 @@
 # Add two spaces at the end of each line that doesn't already end with a space
 # Stage the modified file again
 for file in $(git diff --cached --name-only --diff-filter=ACM | grep '\.md$' | grep -v 'README.md'); do
-  sed -i '' -e 's/\([^ ]\)$/\1  /' "$file"
+  # This `sed` command is used to append two spaces at the end of each line in a file, but only if the line does not already end with a space. The `-i ''` option is for in-place editing on macOS.
+  # sed -i '' -e 's/\([^ ]\)$/\1  /' "$file"
+  # sed -i '' -e 's/\([^ ]\)$/\1  /;t;:a;s/  / /;ta' "$file"
+  sed -i '' -E '/  $/! s/$/  /' "$file"
   git add "$file"
 done
