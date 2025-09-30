@@ -15,7 +15,7 @@
 
 ------------------  
 
-### Special Words  
+## Special Words  
 
 **farfetched**  
 
@@ -60,7 +60,7 @@
 
 **diaspora**  
 
-### Verb Words  
+## Verb Words  
 
 **croon**  
 

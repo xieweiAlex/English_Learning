@@ -76,6 +76,8 @@ nitrite
 
 ### Verb Words  
 
+**juggle**  
+
 **swoop**  
 
 **impart** 
@@ -93,6 +95,10 @@ nitrite
 **vilify, malign, Revile, defame, slander** 
 **disparage, badmouth, bash, condemn, attack**  
 **nitrite, nitrogen, ammonia nitrogen**.  
+
+immaculate, impeccable, spotless, flawless, superb.  
+
+Mr Trump’s critics have often accused him of **buffoonery** and isolationism.  
 
 **ureter**, **urethra**  
 

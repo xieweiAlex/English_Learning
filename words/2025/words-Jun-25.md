@@ -13,38 +13,7 @@
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
-addle.  
-cavil  
-milieu  
-carouse  
-adumbrate  
-
-sordid 
-
-atrium  
-
-clammy  
-
-enmity  
-
-petulant  
-
-philippic  
-
-mingy  
-
-trounce  
-
-repose  
-
-simulacrum  
-
-titillate  
-
-lackey  
-
-
-### Special Words  
+## Special Words  
 
 Best-positioned  
 
@@ -70,7 +39,7 @@ Best-positioned
 
 **vital** 
 
-### Verb Words  
+## Verb Words  
 
 **salve**  
 

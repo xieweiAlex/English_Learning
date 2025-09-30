@@ -13,39 +13,8 @@
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
-addle.  
-cavil  
-milieu  
-carouse  
-adumbrate  
 
-sordid 
-
-atrium  
-
-clammy  
-
-enmity  
-
-petulant  
-
-philippic  
-
-prefigure  
-
-upbraid  
-
-jejune  
-
-exoteric  
-
-hackneyed  
-
-somber  
-
-spurious  
-
-### Special Words  
+## Special Words  
 
 **best-positioned**  
 
@@ -83,7 +52,7 @@ spurious
 
 **monastic**  
 
-### Verb Words  
+## Verb Words  
 
 **condition**, **prime**  
 
