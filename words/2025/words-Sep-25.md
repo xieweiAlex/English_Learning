@@ -9,7 +9,7 @@
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
-[Questions](#Question) 
+[Questions](#Question)   
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
@@ -21,7 +21,7 @@ milieu
 carouse  
 adumbrate  
 
-sordid 
+sordid   
 
 atrium  
 
@@ -47,7 +47,7 @@ nitrite
 
 **venal**  
 
-**envisage** 
+**envisage**   
 
 **supercilious**  
 
@@ -66,7 +66,7 @@ nitrite
 
 **prosperous**, **prosperity**  
 
-**Pungent** 
+**Pungent**   
 
 **crux**  
 
@@ -80,7 +80,7 @@ nitrite
 
 **swoop**  
 
-**impart** 
+**impart**   
 
 **weave**  
 
@@ -92,8 +92,10 @@ nitrite
 
 -------------------------  
 
-**vilify, malign, Revile, defame, slander** 
-**disparage, badmouth, bash, condemn, attack**  
+test   
+
+**vilify, malign, Revile, defame, slander**   
+**disparage, badmouth, bash, condemn, attack**   
 **nitrite, nitrogen, ammonia nitrogen**.  
 
 immaculate, impeccable, spotless, flawless, superb.  
@@ -133,7 +135,7 @@ No forced **divestiture** of Chrome or Android, and Google is allowed to continu
 The crisis helped to **weld** the party together.  
 We were **welded into** a fighting collective. -    
 
-### Economist Newsletter 
+### Economist Newsletter   
 
 Why female pop stars are **lambasting** mediocre men. - The trend may reflect the growing **gulf** between young men and women. -  
 **Buns in ovens**: heatwaves and **maternal** health.  
@@ -157,15 +159,15 @@ The derision we **heap upon** the avid **stamp collector** or train spotter migh
 **Haptic** feedback.  
 **High voltage money**, other proxies for Bitcoin, that you can blast on chain.  
 
-## Words Explain 
+## Words Explain   
 
 > Can you help me understand the words below? Give me a break down of "Definition", "Common usage", one or two "Examples" and Alternatives, thanks!  
-E.g. 
+E.g.   
 
 **Somber**  
    - **Definition**: Dark or dull in tone; gloomy; serious or grave in mood.  
    - **Common Usage**: Fairly common in contexts describing mood, atmosphere, or color.  
-   - **Examples**: 
+   - **Examples**:   
      - The somber atmosphere of the funeral made everyone reflective.  
    - **Alternatives**: Gloomy, solemn, grave.  
 
@@ -174,102 +176,102 @@ E.g.
 1. **Somber**  
    - **Definition**: Dark or dull in tone; gloomy; serious or grave in mood.  
    - **Common Usage**: Fairly common in contexts describing mood, atmosphere, or color.  
-   - **Examples**: 
+   - **Examples**:   
      - The somber atmosphere of the funeral made everyone reflective.  
    - **Alternatives**: Gloomy, solemn, grave.  
 
 2. **Spurious**  
    - **Definition**: Not being what it purports to be; false or fake.  
    - **Common Usage**: Less common in casual conversation; more often in academic or analytical contexts.  
-   - **Examples**: 
+   - **Examples**:   
      - The article was criticized for its spurious claims.  
    - **Alternatives**: False, counterfeit, bogus.  
 
 3. **Clammy**  
    - **Definition**: Unpleasantly damp and sticky or slimy to touch.  
    - **Common Usage**: Moderately common, especially describing touch or weather.  
-   - **Examples**: 
+   - **Examples**:   
      - His handshake was cold and clammy.  
    - **Alternatives**: Sticky, moist, sweaty.  
 
 4. **Smudgy**  
    - **Definition**: Marked with smudges; unclear or hazy.  
    - **Common Usage**: Not very common, but easily understood when discussing cleanliness or visibility.  
-   - **Examples**: 
+   - **Examples**:   
      - The smudgy fingerprints on the glass were evidence of the little hands.  
    - **Alternatives**: Blurred, smeared, blotchy.  
 
 5. **Intrepid**  
    - **Definition**: Fearless or adventurous.  
    - **Common Usage**: Relatively common in narrative or descriptive writing, less so in casual speech.  
-   - **Examples**: 
+   - **Examples**:   
      - The intrepid explorer ventured into the unknown jungles.  
    - **Alternatives**: Brave, bold, daring.  
 
 6. **Tepid**  
    - **Definition**: (Especially of a liquid) only slightly warm; lukewarm; showing little enthusiasm.  
    - **Common Usage**: Somewhat common in contexts discussing temperature or enthusiasm.  
-   - **Examples**: 
+   - **Examples**:   
      - The tea was tepid, lacking the warmth I desired.  
    - **Alternatives**: Lukewarm, indifferent, unenthusiastic.  
 
 7. **Dominatrix**  
    - **Definition**: A woman who takes the dominant role in bondage, discipline, and sadomasochism.  
    - **Common Usage**: Fairly specialized, mainly in discussions related to BDSM or specific cultural contexts.  
-   - **Examples**: 
+   - **Examples**:   
      - The dominatrix commanded the session with authority.  
    - **Alternatives**: Mistress (in specific contexts), disciplinarian.  
 
 8. **Coterie**  
    - **Definition**: A small group of people with shared interests or tastes, especially one that is exclusive.  
    - **Common Usage**: Uncommon in everyday conversation, more likely in literary or formal contexts.  
-   - **Examples**: 
+   - **Examples**:   
      - The writer's coterie gathered to discuss literature over coffee.  
    - **Alternatives**: Clique, circle, club.  
 
 9. **Seer**  
    - **Definition**: A person supposed to be able, through supernatural insight, to see the future.  
    - **Common Usage**: Occasionally used, often in mystical, historical, or fantasy contexts.  
-   - **Examples**: 
+   - **Examples**:   
      - The seer predicted a year of prosperity.  
    - **Alternatives**: Prophet, oracle, visionary.  
 
 10. **Sleight**  
     - **Definition**: The use of dexterity or cunning, particularly to deceive.  
     - **Common Usage**: Not very common, mostly seen in "sleight of hand" in magic contexts.  
-    - **Examples**: 
+    - **Examples**:   
       - The magician's sleight of hand left the audience in awe.  
     - **Alternatives**: Deftness, trickery, dexterity.  
 
 11. **Untoward**  
     - **Definition**: Unexpected and inappropriate or inconvenient.  
     - **Common Usage**: Somewhat archaic, still used in formal or literary contexts.  
-    - **Examples**: 
+    - **Examples**:   
       - There was nothing untoward in his behavior at the party.  
     - **Alternatives**: Inappropriate, inconvenient, unseemly.  
 
 12. **Kitsch**  
     - **Definition**: Art or objects considered in poor taste due to garishness but appreciated ironically.  
     - **Common Usage**: Moderately common in discussions of art, design, or cultural critique.  
-    - **Examples**: 
+    - **Examples**:   
       - The room was filled with kitsch memorabilia from the 70s.  
     - **Alternatives**: Tacky, gaudy, campy.  
 
 13. **Wayward**  
     - **Definition**: Difficult to control or predict due to unusual behavior.  
     - **Common Usage**: Moderately common, used to describe unpredictable or rebellious behavior.  
-    - **Examples**: 
+    - **Examples**:   
       - Her wayward nature often led her into trouble.  
     - **Alternatives**: Erratic, unruly, unpredictable.  
 
 ## Words Gallery  
 
-**solder, weld**, 
+**solder, weld**,   
 **extenuate, exonerate, exculpate**.  
 
 
 **daybreak, nightfall**  
-**pangolin, rhino, reptile**, 
+**pangolin, rhino, reptile**,   
 **bungle, botch, fumble, blunder, folly**.  
 
 ## Conversation  
