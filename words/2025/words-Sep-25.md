@@ -54,7 +54,7 @@ nitrite
 **goad**  
 
 
-### Special Words  
+## Special Words  
 
 **interim**  
 
@@ -74,7 +74,7 @@ nitrite
 
 **menial**  
 
-### Verb Words  
+## Verb Words  
 
 **juggle**  
 
@@ -92,17 +92,12 @@ nitrite
 
 -------------------------  
 
-test   
 
-**vilify, malign, Revile, defame, slander**   
-**disparage, badmouth, bash, condemn, attack**   
-**nitrite, nitrogen, ammonia nitrogen**.  
+There will be a massive **shakeout**.  
 
-immaculate, impeccable, spotless, flawless, superb.  
+I'm finding your **tenuous** **grasp** of the English language **folksy** and charming today.  
 
-Mr Trump’s critics have often accused him of **buffoonery** and isolationism.  
-
-**ureter**, **urethra**  
+Mr Trump’s critics have often accused him of **buffoonery** and isolationism. -   
 
 No great book is written quickly. Few fortunes are made in one **swoop**.  
 Resembling the steady advance of 2015–2017, so far without its late-stage **blow-off** rally.  
@@ -266,6 +261,16 @@ E.g.
 
 ## Words Gallery  
 
+
+
+**vilify, malign, Revile, defame, slander**   
+**disparage, badmouth, bash, condemn, attack**   
+**nitrite, nitrogen, ammonia nitrogen**.  
+**ureter**, **urethra**  
+**immaculate, impeccable, spotless, flawless, superb**.  
+puff, huff, puffer.  
+
+
 **solder, weld**,   
 **extenuate, exonerate, exculpate**.  
 
@@ -277,8 +282,18 @@ E.g.
 ## Conversation  
 > Happens in real life or media format that I can vivid recall with an imagery.  
 
+I'm finding your **tenuous** **grasp** of the English language **folksy** and charming today.  
+**kerosine** is jet fuel, **kerosene** lights up your house.  
 
 ## Interesting  
 > vivid, absurd, sensational words and sentences.  
+
+No great book is written quickly. Few fortunes are made in one **swoop**.  
+Resembling the steady advance of 2015–2017, so far without its late-stage **blow-off** rally.  
+
+The **indecorous** fight over a dead president's body. And what it says about African politics.  
+
+The crisis helped to **weld** the party together.  
+We were **welded into** a fighting collective. -    
 
 

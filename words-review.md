@@ -1,5 +1,7 @@
 ## words-Sep-25.md ##  
 words/2025/words-Sep-25.md  
+While Goddard didn't say it in this piece, the **subtext** should be that building the alternative on Substack or social media is not the answer, either. -  
+That's the thing with anger. It begs to stick around. So it can **fleece** you of your beauty. And leave you spent with now to offer. Makes you hurt the ones who love you. -  
 We were **welded into** a fighting collective. -  
 Why female pop stars are **lambasting** mediocre men. - The trend may reflect the growing **gulf** between young men and women. -  
 
