@@ -1,8 +1,7 @@
 # English_Learning
 
-Expanding vocabulary for a non native-speaker is taxing and time-consuming. I try to jot down the **words or phrases** I encounter day to day with minimal necessary context, hope it makes my English/Culture learning journey easier and more delight. If it can inspire someone else, that's even better 💖.  
+Improving English vocabulary for a non native-speaker is taxing and time-consuming. I try to jot down the **words or phrases** I encounter everyday with minimal context, hope it makes my English learning journey easier and more delight. If it can inspire someone else, that's even better 💖.  
 
-<!-- sync.sh -->
 <!-- variable -->
 <!-- .LfBookmarks -->
 <!-- Readme -->
@@ -11,6 +10,8 @@ Expanding vocabulary for a non native-speaker is taxing and time-consuming. I tr
 [Words Review](./words-review.md)
 
 ### 2025 
+
+[Oct](/words/2025/words-Oct-25.md) | 
 
 [Sept](/words/2025/words-Sep-25.md) | [August](./words/2025/words-Aug-25.md) | [July](./words/2025/words-Jul-25.md) 
 

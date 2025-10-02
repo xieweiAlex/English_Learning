@@ -1,17 +1,14 @@
 
 [Word Review](../../words-review.md)  
 
-[Seinfeld](../../media/seinfeld.md)  
-
 [Week 4](#week-4)| [Week 3](#week-3) | [Week 2](#week-2)| [Week 1](#week-1) |  
+
+[Week 38](#week-38) | [Week 36](#week-36) | [Newsletter](#economist-newsletter)  
+
 
 [Convo](#conversation) | [Interesting](#interesting) |  
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
-
-[Questions](#Question)   
-
-[Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
 ------------------  
 
@@ -55,8 +52,6 @@ nitrite
 
 
 ## Special Words  
-
-**interim**  
 
 **shorthand**  
 
@@ -110,12 +105,8 @@ That's the thing with anger. It begs to stick around. So it can **fleece** you o
 The **indecorous** fight over a dead president's body. And what it says about African politics.  
 He encountered controversy for using sometimes violent **corporal** punishment on both girls and boys.  
 
-### Economist Newsletter  
-Israeli Prime Minister Benjamin Netanyahu was full of **defiance** and **bluster** today at the UN General Assembly, even as he grows increasingly isolated on the world stage.  
-
 
 ### Week 38  
-
 **fess up**.  
 
 **kerosine** is jet fuel, **kerosene** lights up your house.  
@@ -131,6 +122,7 @@ The crisis helped to **weld** the party together.
 We were **welded into** a fighting collective. -    
 
 ### Economist Newsletter   
+Israeli Prime Minister Benjamin Netanyahu was full of **defiance** and **bluster** today at the UN General Assembly, even as he grows increasingly isolated on the world stage.  
 
 Why female pop stars are **lambasting** mediocre men. - The trend may reflect the growing **gulf** between young men and women. -  
 **Buns in ovens**: heatwaves and **maternal** health.  
@@ -145,7 +137,8 @@ Simply believing they had a scar caused the participants to interact with the wo
 **locus of focus**.  
 
 
-### Week 36, 2025-09-07  
+### Week 36  
+> 2025-09-07  
 
 > we are ‘distracted from distraction by distraction. -- T. S. Eliot  
 
@@ -295,5 +288,4 @@ The **indecorous** fight over a dead president's body. And what it says about Af
 
 The crisis helped to **weld** the party together.  
 We were **welded into** a fighting collective. -    
-
 
