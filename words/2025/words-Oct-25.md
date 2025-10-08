@@ -12,6 +12,8 @@
 
 ------------------  
 
+intransigent   
+
 addle.  
 cavil  
 milieu  
@@ -55,19 +57,29 @@ nitrite
 
 **interim**  
 
-
 ## Verb Words  
 
 **backfire**  
 
 **compel**   
 
+**blush**: v & n  
 
 -------------------------  
+
+tout, taunt, flout, flaunt  
+
+The first three bytes are the **coefficient** in little endian.  
+**huffy, puffy**.  
+
 
 ## Week 40  
 
 > we are ‘distracted from distraction by distraction. -- T. S. Eliot  
+> But what happened? You got distracted. You **fell prey to** perfectionism. You weren’t feeling it. Whatever it was—you procrastinated. You didn’t do it. You let it make you a liar.  
+
+Bipedal legs.  
+
 
 He lived his life with reckless abandon.  
 
@@ -77,8 +89,10 @@ And absolutely no dog jokes, **lest** she **cast aspersions** on Chinese eating 
 
 
 ### Economist Newsletter  
-
-
+What this year’s Ryder Cup says about America’s **duffers**. More local governments own courses and the demography of players is changing.  
+Schools should banish smartphones from the classroom.  
+Putin’s **botched** African adventure. Two years after Yevgeny Prigozhin’s death, the Wagner Group is in **meltdown** in Mali.  
+His colleagues reported that only three of 20 chemicals known or suspected to be human **carcinogens** actually induced **mutations** in mice.  
 
 
 ## Words Explain   
