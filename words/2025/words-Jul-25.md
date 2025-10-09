@@ -9,7 +9,7 @@
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
-[Questions](#Question) 
+[Questions](#Question)   
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
@@ -60,19 +60,19 @@
 
 **smite**  
 
-**commend** 
+**commend**   
 
 **leapfrog**  
 
 **flinch**  
 
-**exude** 
+**exude**   
 
 **fumble**  
 
 **marshal**  
 
-**slog** 
+**slog**   
 
 **quibble**  
 
@@ -120,7 +120,7 @@ In his latest book, Useful Not True, entrepreneur and author Derek Sivers argues
 
 Recently some in America have introduced another **baffling** trick: charging solo travellers more than couples.  
 Ukraine’s leader, Volodymyr Zelensky, should **junk** a very bad bill.  
-Donald Trump is suing the Wall Street Journal for reporting that in 2003 he sent a **lewd** birthday message to Jeffrey Epstein. 
+Donald Trump is suing the Wall Street Journal for reporting that in 2003 he sent a **lewd** birthday message to Jeffrey Epstein.   
 Elsewhere, we look at the **vertiginous** rise of Xiaomi, a Chinese tech giant. Only Apple and Samsung sell more smartphones worldwide.  
 And, with the successful release of its own EVs, the company has **pulled off** a **feat** that **eluded** Apple. Now it has its sights set on world domination.   
 I’m not usually much **fussed** about pomp and ceremony, but I’m pleased to see relations growing more cordial between these European democracies.   
@@ -135,7 +135,7 @@ IKEA’s **prints** have transformed how homes everywhere look.
 **Chances** are you have come across a “Strix” cushion or a “Rinnig” tea towel.  
 
 Armies are using lasers to **zap** things out of the sky.  
-These heat **beams** can’t destroy a warship or tank (or alien spacecraft, one presumes). They work pretty well against drones, though. 
+These heat **beams** can’t destroy a warship or tank (or alien spacecraft, one presumes). They work pretty well against drones, though.   
 In other news from a rapidly changing world, artificial intelligence, if it **lives up to its promise**, could supercharge global economic growth.  
 
 When economists tracked thousands of people from birth until age 55, the aspirations they formed as adolescents **foreshadowed** how their adult lives would unfold.  
@@ -149,7 +149,7 @@ Several colleagues **raved** about a literary agent, Richard Pine, who took me u
 
 **ostracize, banish, shun, exile**  
 **hackneyed, cliche, corny, abused/overused, contrived**.  
-**foreshadow, bode, prelude, foresee** 
+**foreshadow, bode, prelude, foresee**   
 
 In fact, you're like a **diamond in the rough**.  
 China and Europe’s savage **squabble**. - Tensions are high ahead of a big summit next week.  
@@ -181,9 +181,9 @@ One of the great failings of English and literature classes is forcing students 
 
 ## Week 2  
 
-She's a little **precocious**, but that's only because she says what's on her mind. -   -    
+She's a little **precocious**, but that's only because she says what's on her mind.   
 
-He’ll get a bad name for himself if he **ogles at** every girl he meets. -    
+He’ll get a bad name for himself if he **ogles at** every girl he meets.   
 He **ogled at** all the attractive girls in the office.  
 
 I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you. -    
@@ -203,7 +203,7 @@ He was always cheering from the bench. And he never **flinched**. That stuck wit
 If you watch Evelyn today, you’ll see that she **exudes** the same joy practicing alone as she expresses performing in front of the entire world.  
 
 Trump **disavows** "PAST supporters" who believed "Jeffrey Epstein Hoax".  
-**Out of spite**. 
+**Out of spite**.   
 It’s the **unfolding** laboratory of your own life. Its **faculty**? The people you choose to follow, the ideas you entertain, and the questions you dare to ask.  
 
 Even when he **fumbles**, people generally commend him for making an effort. And that motivates him to keep trying.  
@@ -213,7 +213,7 @@ Sea sponges don’t just **expunge** toxins. They also produce biochemicals that
 The central government’s **ardour** for lawmaking and punishment is **infectious**.  
 **beach shack**.  
 The usual excuse for India’s **surfeit** of laws and rules is colonialism’s legacy. -    
-Why follow the rules when everything is **verboten**? -     
+Why follow the rules when everything is **verboten**?   
 A growing body of research suggests creatine may be good for brains as well as **brawn**. -     
 The Licence Raj was believed by some to be **hindering** economic growth and preventing the Indian economy from reaching its full potential.  
 
@@ -299,7 +299,7 @@ Volatility is not an inherent part of bitcoin, like would be the case if its var
 > A trick for generating above market risk-adjusted returns that works for 10 or even 20 years, whereupon it suddenly stops working and you lose the capital.  
 
 
-## Words Explain 
+## Words Explain   
 
 > Can you help me understand the words below? Are they commonly used? If possible, give out few examples and alternatives, thanks!  
 
@@ -364,20 +364,20 @@ Volatility is not an inherent part of bitcoin, like would be the case if its var
 ## Words Gallery  
 
 **seismic, tectonic, monumental, seminal**.  
-**capricious, fickle, mercurial, erratic, whimsical, vacillate** 
-**ureter, urinal**. 
+**capricious, fickle, mercurial, erratic, whimsical, vacillate**   
+**ureter, urinal**.   
 
-**defray vs pay** 
+**defray vs pay**   
 **vial, potion, concoction, canister, nozzle**  
-**Massacre, carnage, bloodshed, atrocity, mayhem** 
+**Massacre, carnage, bloodshed, atrocity, mayhem**   
 **asteroid, comet, meteor, orbit**.  
 
 -------------  
 
 **prolific, proliferate, profligate**.  
 **thwack, thump, stomp, whack**   
-**askew, askance, canted, slant, tilted**. 
-**extemporize, improv, improvise** 
+**askew, askance, canted, slant, tilted**.   
+**extemporize, improv, improvise**   
 **decrepit, dilapidated**  
 **diner, eatery, bistro, cafe, tavern, pub**.  
 

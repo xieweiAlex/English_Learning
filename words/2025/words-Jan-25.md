@@ -76,7 +76,6 @@ Many organisms that die in the sea are soon buried by **sediment**.
 She felt like an **interloper** in her own family.  
 He seems like getting **railroaded**. They came up with some **phony**, **murder-for-hire** charge.  
 
-She felt like an **interloper** in her own family. -  
 Biden uses extraordinary executive **prerogative** as a shield against revenge by his incoming successor.  
 
 **snorkel**.  
@@ -146,7 +145,7 @@ The **customs** officials confiscated the **contraband**.
 "They each covet the other person's life," says Reynolds.  
 A **covetous** man is good to none but worse to himself.  
 
-The protesters carried **placards** with bold messages. -  
+The protesters carried **placards** with bold messages.   
 The **placard** on the wall listed the safety instructions.  
 > In casual speech, people might use alternatives like "sign," "poster," or "notice" instead  
 

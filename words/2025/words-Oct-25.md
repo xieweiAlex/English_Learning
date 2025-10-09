@@ -1,8 +1,7 @@
 
 [Word Review](../../words-review.md)  
 
-
-[Week 40](#week-40) | [Week 42](#week-42) | [Week 43](#week-43)  
+[Week 40](#week-40) | [Week 41](#week-41) | [Week 42](#week-42)  
 
 [Newsletter](#economist-newsletter)  
 
@@ -71,6 +70,8 @@ tout, taunt, flout, flaunt
 
 The first three bytes are the **coefficient** in little endian.  
 **huffy, puffy**.  
+
+We're getting **aggravated**. - Yes, we are.  
 
 
 ## Week 40  

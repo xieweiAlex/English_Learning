@@ -119,12 +119,12 @@ No forced **divestiture** of Chrome or Android, and Google is allowed to continu
 **spindle neurons**: These unique brain cells appear to be involved in emotional processing and social cognition.  
 
 The crisis helped to **weld** the party together.  
-We were **welded into** a fighting collective. -    
+We were **welded into** a fighting collective.    
 
 ### Economist Newsletter   
 Israeli Prime Minister Benjamin Netanyahu was full of **defiance** and **bluster** today at the UN General Assembly, even as he grows increasingly isolated on the world stage.  
 
-Why female pop stars are **lambasting** mediocre men. - The trend may reflect the growing **gulf** between young men and women. -  
+Why female pop stars are **lambasting** mediocre men. - The trend may reflect the growing **gulf** between young men and women.   
 **Buns in ovens**: heatwaves and **maternal** health.  
 The **ups and downs** of a **storied** British retailer, and clearing India’s **clogged roads**  
 Donald Trump is unpopular. Why is it so hard to **stand up to** him? - Republicans are **servile**. Courts are slow. Can the Democrats **rouse** themselves?  
@@ -287,5 +287,5 @@ Resembling the steady advance of 2015–2017, so far without its late-stage **bl
 The **indecorous** fight over a dead president's body. And what it says about African politics.  
 
 The crisis helped to **weld** the party together.  
-We were **welded into** a fighting collective. -    
+We were **welded into** a fighting collective.     
 

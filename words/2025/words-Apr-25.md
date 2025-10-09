@@ -9,32 +9,32 @@
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
-[Questions](#Question) 
+[Questions](#Question)   
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
 
-Special or Verb 
------------- 
+Special or Verb   
+------------   
 
 **martyr**  
 **affinity**  
 
-**antics** 
-**fall out of love**. 
-**hideous** 
+**antics**   
+**fall out of love**.   
+**hideous**   
 
-**reckless, feckless** 
+**reckless, feckless**   
 
-### Verb 
-**corral** 
-**charm** 
+### Verb   
+**corral**   
+**charm**   
 
 -------------------------  
 
 ## Week 4  
 
-The script is actually a **predicate**. It's just an equation that evaluates to true or false. Predicate is a long and unfamiliar word so I called it script. 
+The script is actually a **predicate**. It's just an equation that evaluates to true or false. Predicate is a long and unfamiliar word so I called it script.   
 
 My only **gripe** about the hotel was the food.   
 
@@ -64,7 +64,7 @@ Donald Trump’s **antics** mean new boldness is needed in UK-EU links.
 Taiwan **flogs** America drones “not made in China”.  
 The **Mauritius** miracle is losing its **sheen**.  
 Even Republicans are **falling out of love** with Tesla.  
-Just as people often stop to stare at an accident, investors are **transfixed** by the car crash occurring at Tesla. 
+Just as people often stop to stare at an accident, investors are **transfixed** by the car crash occurring at Tesla.   
 
 They can determine if icing your face is appropriate for your current health condition and any medications, especially **topical**, that you've been prescribed.  
 
@@ -85,14 +85,14 @@ To **sap** the strength or energy of; **enervate**.
 A hot climate **enervate** people who are not used to it.  
 **indigen, indigo**.  
 **assay, assailant**.  
-**apathy, apolitical**. 
+**apathy, apolitical**.   
 
 His skin felt cold and **clammy**.   
 
 He had attempted to **abduct** the three boys.   
 The hotel has a lovely **homely** feel to it.   
 
-**booby** 
+**booby**   
 It would be **folly** to turn the offer down.   
 
 The next president could **abrogate** the treaty.   
@@ -107,7 +107,7 @@ Overcome with shame and grief, they tried to cry and **bemoan** their fate.
 The takeaway is simple: impatience **impedes** learning. Whether teaching a child, a colleague, or a stranger, patience is the gift of genuine improvement.  
 > “It is not happiness that makes us grateful. It’s gratefulness that makes us happy.”  
 
-I'm **petrified** by some of those issues. 
+I'm **petrified** by some of those issues.   
 We are **misers** about money and property, Seneca writes in On The Shortness of Life but often so careless with the one thing we can’t get back: time.  
 That **flutter** in your stomach before meeting new people, that's your ancestor's survival instinct still protecting you.  
 Why the IMF should **bail out** a serial **deadbeat**.  
@@ -122,7 +122,7 @@ Brian took a **swig** of his beer.
 **glut, gluttonous**.  
 **concubine**.  
 
-Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**. -  
+Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**.   
 The next issue is that reviewing is generally dull and **vapid**. -  
 And you can **bestow** love upon things.  
 He is a **fervid** **orator**.  
@@ -161,7 +161,7 @@ The blue dye is obtained from the **indigo** plant.
 
 He wore an expensive, dark blue **pinstripe** suit.   
 
-**diuretic** 
+**diuretic**   
 You won't have to **shell out** a fortune for it.   
 Water **seethed** in the **caldron**.  
 
@@ -176,14 +176,14 @@ a **menial** job.
 Any country that can’t manufacture its own drones will be a **vassal state**.  
 
 To remove the intestines or **entrails** of; **eviscerate**. -  
-His **scruffy** appearance does not reflect his character. -  
+His **scruffy** appearance does not reflect his character.  
 
 **torque, torsion**  
 **skimp, skimpy**.  
 **Aloe Vera** gel is **anti-pyretic** as it reduces heat.  
 His father was a drunken **brute**.  
 
-### week 1 
+### week 1   
 It turned out to be his last **dalliance** with the education system.   
 His sharp **retort** clearly made an impact.   
 Spicy **tahini** sauce on brown rice, kale, black beans.   
@@ -233,7 +233,7 @@ He's been **in the doldrums** ever since she left him.
 
 Once it starts to look **clumpy**, it’s ready. After you gently strain out the liquid, the original kefir grains are left behind.  
 
-## Words Explain 
+## Words Explain   
 
 > Can you help me understand the words below? Are they commonly used? If they are, please give me a few examples, otherwise give me some alternatives, thanks!  
 
@@ -315,7 +315,7 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
       - It was crass to ask such a personal question.  
     - **Alternatives:** Insensitive, tactless, boorish.  
 
--------------- 
+--------------   
 
 1. **Garrulous**:  
    - **Meaning**: Excessively talkative, especially on trivial matters.  
@@ -356,7 +356,7 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 ----------------  
 
 1. **Couth**:  
-   - **Meaning**: If someone is described as "couth," they are polite, cultured, and well-mannered. 
+   - **Meaning**: If someone is described as "couth," they are polite, cultured, and well-mannered.   
    - **Common Usage**: The word "couth" is less commonly used as an adjective today, and is more often encountered in its negative form, "uncouth," which means lacking good manners or refinement.  
    - **Common Alternatives**: Polished, refined, cultured, well-mannered.  
 
@@ -406,9 +406,9 @@ Once it starts to look **clumpy**, it’s ready. After you gently strain out the
 
 ------  
 
-1. **Bootleg**: 
+1. **Bootleg**:   
    - **Definition**: This term originally referred to the illegal production, distribution, or sale of goods, typically alcoholic beverages. Now, it can mean any unauthorized or unlicensed product.  
-   - **Usage**: It's fairly common in discussions about illegal activities or piracy. 
+   - **Usage**: It's fairly common in discussions about illegal activities or piracy.   
 
 2. **Moonshine**:  
    - **Definition**: Historically, this refers to homemade, illegally produced liquor. It particularly referred to high-proof distilled spirits produced without government authorization.  
@@ -440,7 +440,7 @@ In summary:
 3. **Impassible**: Though it resembles "impassable," meaning something that cannot be passed or overcome, "impassible" is less commonly used and typically refers to someone who is unable to feel pain or emotion. This term is more likely found in specialized, philosophical, or religious contexts rather than in everyday speech.  
 
 4. **Avaricious**: This adjective describes someone who is excessively greedy or has an intense desire for wealth. It is more common in writing, especially in formal or literary contexts, than in everyday conversation.  
-> miser, scraper 
+> miser, scraper   
 
 5. **Illuminati**: Originally referring to people claiming to possess special enlightenment or knowledge, it often now refers to various real or fictitious secret societies. Discussions about the "Illuminati" can appear in both casual and formal contexts but are often associated with conspiracy theories.  
 > wiseacre  
@@ -500,20 +500,20 @@ In summary, **brandish** and **avaricious** are more common in both conversation
 
 
 Week 1-4  
------------- 
+------------   
 
 **sycophant, obsequence, supplicant**.   
-**cyan, indigo**, 
-**klutz, clumsy** 
+**cyan, indigo**,   
+**klutz, clumsy**   
 **hovel, hut, shack, shed**.  
 **debauch, depraved**.  
-**garment, apparel**, 
+**garment, apparel**,   
 **hoodlum, thug, goons, hoodlum, lad**.  
 **distend, swell, dilate**.  
-**dirk, dagger** 
+**dirk, dagger**   
 
 
-**twaddle, dawdle, loaf, drivel**, 
+**twaddle, dawdle, loaf, drivel**,   
 **hearse, coffin, casket, corpse, morgues, **sepulcher**, limo**  
 
 **stopgap, interim, makeshift, workaround**.  
@@ -522,44 +522,44 @@ Week 1-4
 
 **peevish, cranky, irritable, snarky**.  
 
-**doctrine, dogma, precepts**, 
+**doctrine, dogma, precepts**,   
 
 **flog, flagellate, whip, lash, slash, strap**.  
 **wistful, melancholy, nostalgic, sentimental, soulful**.  
-**tryout, shortlist, run-off, audition, scrimmage**, 
-**revery, reverie, reveler**. 
+**tryout, shortlist, run-off, audition, scrimmage**,   
+**revery, reverie, reveler**.   
 **mycology, mycologist, mycelial, mycelium**.   
 **pretext, pretense, guise, ruse**.  
-**galvanize, mobilize, incite, inspire** 
+**galvanize, mobilize, incite, inspire**   
 
 **Weary, wary**.  
-**bemoan, lament, mourn, grieve** 
+**bemoan, lament, mourn, grieve**   
 
 **perjury, perfidy**.  
 **supine, recumbent, incumbent**  
 **congee, porridge**.  
 
 **doofus, goof, lubber, dweeb, bozo, dummy**.   
-**decrepit, dilapidated, antiquated, tattered, decaying**. 
-**teensy, teensy-weensy, itsy-bitsy, teeny, puny** 
+**decrepit, dilapidated, antiquated, tattered, decaying**.   
+**teensy, teensy-weensy, itsy-bitsy, teeny, puny**   
 
-**sycophant, supplicant, , bootlicker, lickspittle, suck-up**. 
+**sycophant, supplicant, , bootlicker, lickspittle, suck-up**.   
 
 **deft, apt**  
-**gurgle, giggle, chuckle, smirk, grin**, 
-**fervid, fervent, ardent, zealous, fanatical** 
+**gurgle, giggle, chuckle, smirk, grin**,   
+**fervid, fervent, ardent, zealous, fanatical**   
 **stoop, swoop, swoon**  
 **outlast, outgrow, outfox, outsmart, outrank**,  
 Most religions **posit** the existence of life after death.   
 We couldn't stay out there in that **desolation** another day.  
-**Apostrophe** 
-**wimpy, meek, lame**, 
+**Apostrophe**   
+**wimpy, meek, lame**,   
 
 **wonk, geek, pundit**  
 **carefree, fancy-free, scot-free, unscathed**.  
-**aloof, indifferent, standoffish** 
+**aloof, indifferent, standoffish**   
 **acetic, acidic, ascetic**.  
-**midget, dwarf**. 
+**midget, dwarf**.   
 **wrangle, clash, quarrel, strife**.    
 **hatchet job**, **bury the hatchet**.   
 
@@ -569,7 +569,7 @@ We couldn't stay out there in that **desolation** another day.
 **spiel, intro, litany, monologue**.  
 **tumult, tumultuous, turmoil, upheaval, strife, commotion, uproar**.  
 
-**dillydally, fritter, dawdle, putter, bum, deadbeat** 
+**dillydally, fritter, dawdle, putter, bum, deadbeat**   
 
 **wayside, byway, sideway, sidewalk, curbside**.  
 
@@ -643,13 +643,13 @@ Donald Trump’s **antics** mean new boldness is needed in UK-EU links.
 Taiwan **flogs** America drones “not made in China”.  
 The **Mauritius** miracle is losing its **sheen**.  
 Even Republicans are **falling out of love** with Tesla.  
-Just as people often stop to stare at an accident, investors are **transfixed** by the car crash occurring at Tesla. 
+Just as people often stop to stare at an accident, investors are **transfixed** by the car crash occurring at Tesla.   
 So my salary does not **commensurate** with my effort.    
 
-**booby** 
+**booby**   
 The takeaway is simple: impatience **impedes** learning. Whether teaching a child, a colleague, or a stranger, patience is the gift of genuine improvement.  
 
-I'm **petrified** by some of those issues. 
+I'm **petrified** by some of those issues.   
 Why the IMF should **bail out** a serial **deadbeat**.  
 The **apostle** Paul.  
 
