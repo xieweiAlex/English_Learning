@@ -32,7 +32,6 @@ Ask if the funds have been **escheated** (turned over to the state) due to inact
 words/2025/words-Apr-25.md  
 Fees and **interdictions** by law enforcement reduce the overall take, but North Korea can expect to receive “definitely 80%, maybe 90%” of the funds it steals. -  
 Congress is **inert**, but a **deft** Supreme Court might contain him. -  
-So my salary does not **commensurate** with my effort. -  
 The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -  
 The next issue is that reviewing is generally dull and **vapid**. -  
 To remove the intestines or **entrails** of; **eviscerate**. -  

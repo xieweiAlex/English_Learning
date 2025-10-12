@@ -68,7 +68,7 @@ Just as people often stop to stare at an accident, investors are **transfixed** 
 
 They can determine if icing your face is appropriate for your current health condition and any medications, especially **topical**, that you've been prescribed.  
 
-So my salary does not **commensurate** with my effort. -    
+So my salary does not **commensurate** with my effort.     
 if you don't know what **commensurate** means, it basically means **makes up** for.  
 
 The minister preached a **sermon** on the **parable** of the lost sheep.   
