@@ -11,6 +11,8 @@
 
 ------------------  
 
+turbid  
+
 intransigent   
 
 addle.  
@@ -54,6 +56,8 @@ nitrite
 
 ## Special Words  
 
+**Promiscuous**  
+
 **resourceful**  
 
 **predatory**  
@@ -67,6 +71,10 @@ nitrite
 **lopsided**  
 
 ## Verb Words  
+
+**cloud**  
+
+**shovel**  
 
 **ostracize**  
 
@@ -82,24 +90,35 @@ nitrite
 
 **tout, taunt, flout, flaunt**  
 **huffy, puffy**.  
-**manufacture, manufactory**,   
+**manufacture, manufactory**  
+
+When it comes to cost, Calisthenics **wipes the floor**.  
+You feel dizzy or have a history of **eardrum** **perforation** (in that case, skip water rinsing).  
+
+**Promiscuous, depraved, scandalous, sleazy, lewd**.   
+**demented, deranged, deviant, perverted, subversive**.   
+
+The reptile's skin is tough and **scaly**.  
+The heartbeat was **feeble** and irregular. -   
+
+Players use a **haptic** device such as a **joystick** to control the game.  
+
+## Week 41  
 
 **predatory**: 1.characterized by plundering or pillaging or marauding. 2. Living by or given to victimizing others for personal gain.  
 
 ### High Agency  
 
-When Nadal warmed up, it was sheer aggression. He sprinted up and down like a man possessed with his shirt dripping in sweat.  
-When Federer warmed up, you could hear him giggling before he arrived. He was doing trick shots, caressing the ball and exploring his own creativity.  
-It was a lie — it took him 7 years but he wanted to play it down.  
-A low agency trap is to put these "adults" on pedestals. To turn flawed humans into a superior god class.  
+When Nadal warmed up, it was **sheer aggression**. He **sprinted up and down** like a man possessed with his shirt dripping in sweat.  
+When Federer warmed up, you could hear him **giggling** before he arrived. He was doing trick shots, caressing the ball and exploring his own creativity.  
+It was a lie — it took him 7 years but he wanted to **play it down**.  
+A low agency trap is to put these "adults" on **pedestals**. To turn flawed humans into a **superior** god class.  
 > Hidden for years by his heirs because they were too embarrassed to publish it.  
 
 The International Jew: The World's **Foremost** Problem.  
 
-
-
-You can’t equate passing examination and being intelligent.  
-He equates success with material wealth.  
+You can’t **equate** passing examination and being intelligent.  
+He **equates** success **with** material wealth.  
 
 
 “You are an old man,” Marcus Aurelius admonished himself in Meditations. “Stop allowing your mind to be a slave, to be jerked about by selfish impulses, to kick against fate and the present, and to mistrust the future.”  
