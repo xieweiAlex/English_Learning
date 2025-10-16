@@ -11,36 +11,6 @@
 
 ------------------  
 
-turbid  
-
-intransigent   
-
-addle.  
-cavil  
-milieu  
-carouse  
-adumbrate  
-
-sordid   
-
-atrium  
-
-clammy  
-
-enmity  
-
-petulant  
-
-philippic  
-
-prefigure  
-
-upbraid  
-
-jejune  
-
-exoteric  
-
 hackneyed  
 
 nitrite  
@@ -53,8 +23,13 @@ nitrite
 
 **goad**  
 
-
 ## Special Words  
+
+**turnout**  
+
+**timeless**   
+
+**edge**  
 
 **Promiscuous**  
 
@@ -72,6 +47,8 @@ nitrite
 
 ## Verb Words  
 
+**overlook**  
+
 **cloud**  
 
 **shovel**  
@@ -88,15 +65,27 @@ nitrite
 
 -------------------------  
 
-**tout, taunt, flout, flaunt**  
-**huffy, puffy**.  
-**manufacture, manufactory**  
+upbraid, chide, scold, reproach, rebuke, reprimand.  
+
+In Bitcoin terms, the **veil** is gone: catastrophic real losses in every traditional asset.  
+
+**rough on the edges**.  
+
+Get rid of this fear, approach her, practice, do it again and again. It's pretty **banal**. -    
+Try to **get the bottom of it**, what do you want to escape.  
+I've always been ready to **stand my ground** and say No, when I feel something is not right.  
+The **tides** of history would turn.   
+The news of the day, Whatever the **quarrel** is, everyone thinks the world will end because of this thing.  
+
+```  
+I know you've had a bad day, but you don't have to take it out on me!  
+No hard feelings.  
+Don't take it to heart.  
+Don't take it personally.  
+```  
 
 When it comes to cost, Calisthenics **wipes the floor**.  
 You feel dizzy or have a history of **eardrum** **perforation** (in that case, skip water rinsing).  
-
-**Promiscuous, depraved, scandalous, sleazy, lewd**.   
-**demented, deranged, deviant, perverted, subversive**.   
 
 The reptile's skin is tough and **scaly**.  
 The heartbeat was **feeble** and irregular. -   
@@ -105,7 +94,7 @@ Players use a **haptic** device such as a **joystick** to control the game.
 
 ## Week 41  
 
-**predatory**: 1.characterized by plundering or pillaging or marauding. 2. Living by or given to victimizing others for personal gain.  
+> **Predatory**: 1.characterized by plundering or pillaging or **marauding**. 2. Living by or given to victimizing others for personal gain.  
 
 ### High Agency  
 
@@ -142,8 +131,6 @@ He lived his life with **reckless abandon**.
 He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defamation. -    
 And absolutely no dog jokes, **lest** she **cast aspersions** on Chinese eating habits.  
 
-
-
 ### Economist Newsletter  
 
 The president’s economic team has **decamped to** Washington, trying desperately to confirm American support.  
@@ -168,8 +155,9 @@ His colleagues reported that only three of 20 chemicals known or suspected to be
 
 ## Words Explain   
 
-> Can you help me understand the words below? Give me a break down of "Definition", "Common usage", one or two "Examples" and Alternatives, thanks!  
-E.g.   
+Can you help me understand the words below? Give me a break down of "Definition", "Common usage", one or two "Examples" and Alternatives, also make sure to mention if the word is commonly used in the "Common usage", thank you!  
+
+An example like below for Somber:  
 
 **Somber**  
    - **Definition**: Dark or dull in tone; gloomy; serious or grave in mood.  
@@ -178,16 +166,157 @@ E.g.
      - The somber atmosphere of the funeral made everyone reflective.  
    - **Alternatives**: Gloomy, solemn, grave.  
 
+Here are the words I need help:  
+
 -----------------------  
+
+**Turbid**  
+- **Definition**: (Of a liquid) cloudy, opaque, or thick with suspended matter; unclear or confused.  
+- **Common Usage**: Used in scientific or descriptive writing to describe murky liquids, and metaphorically to describe confusion or obscurity.  
+- **Examples**:  
+  - The river's waters were turbid after the storm, making it impossible to see the bottom.  
+  - His thoughts were turbid, clouded by stress and fatigue.  
+- **Alternatives**: Murky, muddy, unclear.  
+
+**Intransigent**  
+- **Definition**: Unwilling or refusing to change one's views or to agree about something.  
+- **Common Usage**: Used to describe people or positions that are stubbornly inflexible or uncompromising.   
+- **Examples**:  
+  - The intransigent stance of both parties led to a stalemate in negotiations.  
+  - She remained intransigent on her views, despite all arguments to the contrary.  
+- **Alternatives**: Unyielding, stubborn, obstinate.  
+
+**Addle**  
+- **Definition**: To make (someone) unable to think clearly; to confuse.  
+- **Common Usage**: Used in both literal and metaphorical contexts to describe mental confusion or disorientation.   
+- **Examples**:  
+  - The complex instructions addled his brain.  
+  - Her constant chatter was enough to addle anyone’s thoughts.  
+- **Alternatives**: Confuse, muddle, bewilder.  
+
+**Cavil**  
+- **Definition**: To make petty or unnecessary objections.  
+- **Common Usage**: Often used in critical or argumentative contexts where minor flaws or details are being pointed out in an objectionable way.  
+- **Examples**:  
+  - The reviewer caviled at the film’s minor inaccuracies.  
+  - He caviled about the font size in the document instead of focusing on the content.  
+- **Alternatives**: Quibble, nitpick, find fault.  
+
+**Milieu**  
+- **Definition**: A person’s social environment or surroundings.  
+- **Common Usage**: Used in discussions of culture, society, and personal background to highlight the influence of environment on behavior or development.  
+- **Examples**:  
+  - She grew up in an artistic milieu, surrounded by painters and musicians.  
+  - His creative work is a reflection of his urban milieu.  
+- **Alternatives**: Environment, setting, surroundings.  
+
+**Carouse**  
+- **Definition**: To drink alcohol and enjoy oneself with others in a noisy, lively way.  
+- **Common Usage**: Typically refers to social gatherings or parties where excessive drinking and revelry occur.  
+- **Examples**:  
+  - They spent the evening carousing at the local pub.  
+  - After the victory, the team caroused well into the night.  
+- **Alternatives**: Revel, celebrate, party.  
+
+**Adumbrate**  
+- **Definition**: To report or represent in outline; to foreshadow or symbolize partially.  
+- **Common Usage**: Often used in academic or literary contexts to describe the outlining of ideas or the foreshadowing of events.  
+- **Examples**:  
+  - The early chapters of the book adumbrate the protagonist’s fate.  
+  - His speech adumbrated the key themes of the policy change.  
+- **Alternatives**: Outline, foreshadow, suggest.  
+
+**Sordid**  
+- **Definition**: Involving **ignoble** actions and motives; arousing moral distaste and contempt; dirty or squalid.  
+- **Common Usage**: Commonly refers to morally degrading or unpleasant scenarios, and sometimes describes physically dirty or degraded environments.  
+- **Examples**:  
+  - The **tabloid** exposed the sordid details of the scandal.  
+  - The apartment was in a sordid state, with trash covering the floor.  
+- **Alternatives**: Sleazy, filthy, ignoble.  
+
+**Atrium**  
+- **Definition**: An open-roofed entrance hall or central court in an ancient Roman house; a central hall usually containing a skylight or glass ceiling in a modern building.  
+- **Common Usage**: Frequently used in architectural contexts to describe an open space within a building structure designed for aesthetic or practical purposes.  
+- **Examples**:  
+  - The hotel’s lobby opened into a large atrium filled with natural light.  
+  - The ancient Roman villa featured a grand atrium at its center.  
+- **Alternatives**: Courtyard, foyer, hall.  
+
+**Enmity**  
+- **Definition**: The state or feeling of being actively opposed or hostile to someone or something.  
+- **Common Usage**: Commonly used in contexts involving conflict, rivalry, or hostility between individuals or groups.  
+- **Examples**:  
+  - Decades of enmity between the two families ended with the marriage of the young couple.  
+  - His actions stirred up enmity among his peers.  
+- **Alternatives**: Hostility, animosity, animus, antagonism.  
+
+**Petulant**  
+- **Definition**: Childishly sulky or bad-tempered.  
+- **Common Usage**: Often used to describe someone who is irritable or easily annoyed, particularly in a childish manner.  
+- **Examples**:  
+  - The petulant child pouted all afternoon because he didn’t get his way.  
+  - She became petulant when she didn’t receive immediate attention.  
+- **Alternatives**: Irritable, peevish, cranky.  
+
+**Philippic**  
+- **Definition**: A bitter attack or denunciation, especially a verbal one.  
+- **Common Usage**: Typically used to describe a passionate rant or speech intended to criticize or condemn someone or something.  
+- **Examples**:  
+  - The senator's philippic against corruption was met with applause.  
+  - His philippic left no doubt how he felt about the proposed policy.  
+- **Alternatives**: Tirade, diatribe, invective.  
+
+**Prefigure**  
+- **Definition**: To be an early indication or version of something; to foreshadow.  
+- **Common Usage**: Used in literary or analytical contexts to denote something that suggests or anticipates a future development.  
+- **Examples**:  
+  - The early chapters of the book subtly prefigure the protagonist's downfall.  
+  - His innovative work prefigured many modern techniques.  
+- **Alternatives**: Foreshadow, anticipate, herald.  
+
+**Upbraid**  
+- **Definition**: To find fault with (someone); scold.  
+- **Common Usage**: Often used in contexts where someone is being reprimanded or criticized harshly.  
+- **Examples**:  
+  - She upbraided her son for his reckless behavior.  
+  - The coach upbraided the team for not putting in their best effort.  
+- **Alternatives**: Scold, reproach, reprimand.  
+
+**Jejune**  
+- **Definition**: Naive, simplistic, and superficial; (of ideas or writings) dry and uninteresting.  
+- **Common Usage**: Used to critique ideas, discussions, or writings lacking in depth or maturity, or to describe something dull.  
+- **Examples**:  
+  - His lecture was filled with jejune generalities.  
+  - The essay was rejected for its jejune treatment of complex issues.  
+- **Alternatives**: Naive, insipid, simplistic.  
+
+**Exoteric**  
+- **Definition**: Suitable for or communicated to the general public; external.  
+- **Common Usage**: Typically used in contrast to esoteric, referring to knowledge that is readily accessible or understood by most people.  
+- **Examples**:  
+  - His exoteric approach to the topic made it easy for everyone to understand.  
+  - The book was written in an exoteric style, appealing to a broad audience.  
+- **Alternatives**: Accessible, public, general.  
 
 
 ## Words Gallery  
+**tout, taunt, flout, flaunt**  
+**huffy, puffy**.  
+**manufacture, manufactory**  
 
+upbraid, chide, scold, reproach, rebuke, reprimand.  
+
+**Promiscuous, depraved, scandalous, sleazy, lewd**.   
+**demented, deranged, deviant, perverted, subversive**.   
 
 ## Conversation  
-> Happens in real life or media format that I can vivid recall with an imagery.  
+> Words stumbled in real life or media format that I can recall with an imagery.  
 
 
 ## Interesting  
-> vivid, absurd, sensational words and sentences.  
+> Interesting, vivid, absurd, sensational words in sentences.  
+
+
+
+
 
