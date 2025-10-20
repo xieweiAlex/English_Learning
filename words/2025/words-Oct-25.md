@@ -11,6 +11,9 @@
 
 ------------------  
 
+
+abrogate  
+
 hackneyed  
 
 nitrite  
@@ -24,6 +27,16 @@ nitrite
 **goad**  
 
 ## Special Words  
+
+**desirable**  
+
+**rizz**  
+
+**neurotic**  
+
+**candid**  
+
+**flippant**  
 
 **turnout**  
 
@@ -47,6 +60,10 @@ nitrite
 
 ## Verb Words  
 
+**plgue**  
+
+**cite**  
+
 **overlook**  
 
 **cloud**  
@@ -65,7 +82,43 @@ nitrite
 
 -------------------------  
 
+Microstrategy is an **inert** holder of Bitcoin, but Bitmine is active and engaged in Ethereum ecosystem.  
+There is a question that's really **plaguing** Ethereum for a while, until its recent very dramatic turn in price.  
+
+In my view, you are a **menace** to the public.  
+You're such a little **menace** sometimes.   
+It's not an **even playing field**.  
+That's an insane behavior, **What now**?  
+
+**All else being equal**, a company will reinvest profits into itself and deliver consistently more efficient solutions, which will add to its profitability, which will increase its ability to self-invest, etc., in a positive spiral.  
+
+
+Last summer she began telling friends that a New Year marriage was **in the cards**.   
+**pep talk**.  
+
+> The Tractatus is a plea by a very **taciturn**, silent and precise Austrian philosopher to speak more carefully and less impulsively  
+
+
+If you would **care to join** us for some recognized form of social interaction, like a drink, then we'd be fine.  
+It's very amusing, **galling**, to be honest.   
+I came over here with no **subterfuge**, and presented my best offer.  
+The night is warm and **balmy**.  
+I don't think it's **in the cards** for us.  
+You're pretty much **home free**, unless you ... **blow it**.  
+It could anything from some **inane** comment, to wearing the wrong kind of shorts. -    
+You're very **hard to please**.  
+
+A **beguiling** **tragicomedy**, Vicky Cristina Barcelona charms with beautiful views of the Spanish city and a **marvelously** well-matched cast.  
+
+If anything, I was doing you a favor. - A favor? Yeah, I told you, he's a **hard ass**.  
+
+I submitted a refund request for a duplicate booking on [date], case number [if you have it]. I received an email confirmation that my claim was acknowledged, but I have not yet received the refund.  
+
 upbraid, chide, scold, reproach, rebuke, reprimand.  
+
+And almost no one is positioned for it because they’re still measuring their “returns” in the wrong **yardstick**.  
+
+
 
 In Bitcoin terms, the **veil** is gone: catastrophic real losses in every traditional asset.  
 
