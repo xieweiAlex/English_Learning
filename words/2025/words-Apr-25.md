@@ -175,7 +175,7 @@ a **menial** job.
 
 Any country that can’t manufacture its own drones will be a **vassal state**.  
 
-To remove the intestines or **entrails** of; **eviscerate**. -  
+To remove the intestines or **entrails** of; **eviscerate**.   
 His **scruffy** appearance does not reflect his character.  
 
 **torque, torsion**  

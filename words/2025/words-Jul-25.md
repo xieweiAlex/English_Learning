@@ -186,7 +186,7 @@ She's a little **precocious**, but that's only because she says what's on her mi
 He’ll get a bad name for himself if he **ogles at** every girl he meets.   
 He **ogled at** all the attractive girls in the office.  
 
-I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you. -    
+I generally don’t find that good investment ideas begin with emotional **ad hominems**, but you do you.    
 
 Here’s a small example. The Dalai Lama has shown remarkable **agency**. His most **striking** decision was in 1959 when he decided, **dramatically**, to flee Tibet.  
 He may say he is **emanating**—in effect nominating another adult to be recognised as the Tibetans’ leader.  

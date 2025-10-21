@@ -44,7 +44,7 @@ nitrite
 
 **edge**  
 
-**Promiscuous**  
+**promiscuous**  
 
 **resourceful**  
 
@@ -81,6 +81,8 @@ nitrite
 **blush**: v & n  
 
 -------------------------  
+
+Shellfish: meat of edible aquatic invertebrate with a shell (especially a mollusk or crustacean)  
 
 Microstrategy is an **inert** holder of Bitcoin, but Bitmine is active and engaged in Ethereum ecosystem.  
 There is a question that's really **plaguing** Ethereum for a while, until its recent very dramatic turn in price.  
@@ -185,6 +187,15 @@ He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defa
 And absolutely no dog jokes, **lest** she **cast aspersions** on Chinese eating habits.  
 
 ### Economist Newsletter  
+
+Barring the covid-19 pandemic, it has not been this high since the Napoleonic wars.  
+The America vs China spat reveals a dangerous dynamic.  
+
+Confidence is both magic and a **minefield**. - Self-doubt, **hubris** and everything in between.  
+A quarter-century ago Bill Clinton **scoffed** at the idea of China trying to control speech online.  
+Xi Jinping is personally involved in China's new five-year plan. - Wonks are falling over themselves to offer suggestions for **spurring** growth.  
+Diane Keaton brought an **offbeat charm** to every role.  
+
 
 The president’s economic team has **decamped to** Washington, trying desperately to confirm American support.  
 AI video: more than just “**slop**”. - The next big thing in AI may be pictures, not words.  

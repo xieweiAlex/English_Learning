@@ -97,7 +97,7 @@ Mr Trump’s critics have often accused him of **buffoonery** and isolationism. 
 No great book is written quickly. Few fortunes are made in one **swoop**.  
 Resembling the steady advance of 2015–2017, so far without its late-stage **blow-off** rally.  
 
-While Goddard didn't say it in this piece, the **subtext** should be that building the alternative on Substack or social media is not the answer, either. -  
+While Goddard didn't say it in this piece, the **subtext** should be that building the alternative on Substack or social media is not the answer, either.   
 
 Like Seneca warned, anger transforms us into something unrecognizable—**contorting** our faces, **tensing** our bodies, and hardening our hearts. The person in the mirror during rage isn't our true self, but a distorted version that has been robbed of grace and dignity.  
 

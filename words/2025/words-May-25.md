@@ -9,13 +9,13 @@
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
-[Questions](#Question) 
+[Questions](#Question)   
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
 
 Special Words  
------------- 
+------------   
 
 **Crosscurrents**  
 
@@ -39,11 +39,11 @@ Birds with feathers **flock** together.
 
 **dumpy, chunky, shrimpy, podgy**.  
 
-**die-hard, staunch, zealot, ardent, fervent, fanatic**, 
+**die-hard, staunch, zealot, ardent, fervent, fanatic**,   
 
 **Jovial, jubilant, joyous, rejoice, elated, thrilled, ecstatic, delighted**.  
 
-They wear simple clothes and shun modern **contrivances**. 
+They wear simple clothes and shun modern **contrivances**.   
 Despite all this, Tesla remains in an **enviable** financial position.  
 Bugs and identity theft, to **snaffle** the $30 of bitcoin for signing up, were rife.  
 **stake-out ops**.  
@@ -57,9 +57,9 @@ If America weakens its commitment to defending Taiwan, then Taiwan may lose the 
 Not long ago it made sense for Mr Xi to think he should wait to **wrest control** of Taiwan.  
 He may now **conclude** that he has an opportunity upon which he must **act soon**, before it **goes to waste**.  
 **hawker, busker**.  
-**spurious, dubious, bogus, unwarranted**, 
+**spurious, dubious, bogus, unwarranted**,   
 
-Ask if the funds have been **escheated** (turned over to the state) due to inactivity. -    
+Ask if the funds have been **escheated** (turned over to the state) due to inactivity.   
 **Non-disparagement**.  
 The capital, Willemstad, has **pastel-colored** **colonial** architecture.  
 
@@ -68,7 +68,7 @@ Now, the **beleaguered** residents of Birmingham are quite literally being **ove
 Now, **mounds** rubbish bags are **strewn around** the city, sparking public health concerns and a rodent infestation that's made global headlines.  
 Every **gust of wind** carries the **pungent** reminder of a crisis for which there's **no end in sight**.  
 The root cause of Britain’s decline to **rump-state** status is as easy to identify as it is difficult for most legacy media **outlets** to admit.  
-The steel industry, whose decades-long **slide into** irrelevance now appears headed for an imminent and **inglorious** conclusion. 
+The steel industry, whose decades-long **slide into** irrelevance now appears headed for an imminent and **inglorious** conclusion.   
 After **scouring** the world for new buyers, an agreement was reached to sell the company to the Jingye Group in November of 2019.  
 A **deciding factor** in favor of Jingye was its commitment to invest £1.2 billion to revive the company’s competitiveness.  
 While we are certainly no fans of how the Chinese conduct business, the **sheer audacity** here is **staggering**.  
@@ -76,7 +76,7 @@ Steel production fundamentally requires three inputs: **iron ore**, **coking coa
 Britain, in its **climate crusade**, now proudly mines none of the first two and just celebrated the closure of its last coal-fired power plant.  
 Not only would it mark one of the greatest **addition-by-subtraction** trades in British political history, but it would also give Miliband a rare opportunity to **grapple with** the practical consequences of the **very policies he has long espoused**.  
 
-**scour**. 
+**scour**.   
 
 **strew, scatter, sprinkle, lay**.  
 **fiasco, debacle, blunder, mishap**  
@@ -85,15 +85,15 @@ MicroStrategy is one of the best performing assets in the world right now, and t
 So I decided to ignore my **instinctual** **repulsion** to this parabolic price chart, and instead try to build a case for how I might need to think differently about MSTR.  
 
 **Crosscurrents** Of Inflation, Sentiment, And Taxes.  
-Australia is no longer lucky. - It needs to get its **mojo** back. 
+Australia is no longer lucky. - It needs to get its **mojo** back.   
 Nigeria has more people without electricity than any other country. -  Fixing that will be **fiendishly** difficult.  
 
-**Lumbar, lumber, slumber**. 
+**Lumbar, lumber, slumber**.   
 
 Fact-checkers forecast which **dodgy** claims will do most damage.  
 How to distinguish between **weapons-grade disinformation** and everyday **codswallop**.   
 
-**jamb, doorway, hallway, entryway** 
+**jamb, doorway, hallway, entryway**   
 
 **exonerate, exorable, exculpate, exculpatory**.  
 
@@ -146,7 +146,7 @@ Their affection for her soon increased almost to **idolatry**.
 I was **spoon over** Miss Talmadge to the point of **idolatry**.  
 Trump **revamps** "Schedule F," making it easier to cut federal workers.  
 
-## Words Explain 
+## Words Explain   
 
 > Can you help me understand the words below? Are they commonly used? If they are, please give me a few examples, otherwise give me some alternatives, thanks!  
 
@@ -168,14 +168,14 @@ Trump **revamps** "Schedule F," making it easier to cut federal workers.
    - **Alternatives**: passionate, fervent, ardent.  
 
 3. **Jettison / Jetty**  
-   - **Jettison**: 
+   - **Jettison**:   
      - **Meaning**: To throw or drop something from an aircraft or ship.  
      - **Common Use**: Used in both literal and metaphorical contexts to describe getting rid of something unwanted.  
      - **Examples**:  
        - "The crew had to jettison some cargo to lighten the ship."  
        - "The company decided to jettison its unprofitable division."  
      - **Alternatives**: discard, dump, eject.  
-   - **Jetty**: 
+   - **Jetty**:   
      - **Meaning**: A structure that projects from the land out into water, often used as a docking place for boats.  
      - **Common Use**: Commonly used in discussions related to marine or coastal contexts.  
      - **Examples**:  
@@ -196,7 +196,7 @@ Trump **revamps** "Schedule F," making it easier to cut federal workers.
    - **Examples**:  
      - "The olfactory senses are closely linked to memory and mood."  
      - "The chef's kitchen was an olfactory delight with the aroma of herbs and spices."  
-   - **Alternatives**: scent-related, aromatic (contextual synonyms). 
+   - **Alternatives**: scent-related, aromatic (contextual synonyms).   
 
 --------------------  
 
@@ -283,7 +283,7 @@ Trump **revamps** "Schedule F," making it easier to cut federal workers.
 
 **indigen, indigo**.  
 **assay, assailant**.  
-**apathy, apolitical**. 
+**apathy, apolitical**.   
 **resin, raisin, apricot**.  
 **zine, fanzine, magazine**.  
 **ambit, armpit**.  
@@ -291,17 +291,17 @@ Trump **revamps** "Schedule F," making it easier to cut federal workers.
 **allay, assail, assailant**.  
 **solder, weld**.  
 **girdle, griddle**.  
-**doodad, bauble, gadget, widget** 
-**prognosticator, prognosis**, 
+**doodad, bauble, gadget, widget**   
+**prognosticator, prognosis**,   
 
-**comportment, demeanor, manners** 
+**comportment, demeanor, manners**   
 
 **pergola, gazebo, patio, awning, pavilion, atrium**.  
-**emasculate, incapacitate, cripple, neutralize**, 
+**emasculate, incapacitate, cripple, neutralize**,   
 
-**mores, morose, morass**. 
-**miff, chafe, quarrel, strife** 
-**sieve, sift**. 
+**mores, morose, morass**.   
+**miff, chafe, quarrel, strife**   
+**sieve, sift**.   
 
 
 ### Question  
@@ -367,13 +367,13 @@ If we see no inflation, we see growth scare, possibly set him (Jerome Powel) up 
 
 -----  
 
-The script is actually a **predicate**. It's just an equation that evaluates to true or false. Predicate is a long and unfamiliar word so I called it script. 
+The script is actually a **predicate**. It's just an equation that evaluates to true or false. Predicate is a long and unfamiliar word so I called it script.   
 
 To **see off** the Trump challenge, Canada must fix its productivity problem, says Michael Ignatieff.  
 Two economic **apex predators** are playing a **game of chicken**, to see which great power **backs down** first.  
 
 The bond market is the one that calls **time out** on everything in finance, so I am taking moves like this one very seriously.  
-Ahead of anticipated talks, China is **corralling** allies and pressuring trade partners not to make a separate peace with Trump. 
+Ahead of anticipated talks, China is **corralling** allies and pressuring trade partners not to make a separate peace with Trump.   
 
 North Korea’s **plunder** is the pay off from a decades-long effort.  
 
@@ -382,9 +382,9 @@ Donald Trump’s **antics** mean new boldness is needed in UK-EU links.
 
 The **Mauritius** miracle is losing its **sheen**.  
 **imbecile**  
-**booby** 
+**booby**   
 
-I'm **petrified** by some of those issues. 
+I'm **petrified** by some of those issues.   
 The **apostle** Paul.  
 It's **borderline** reasonable.  
 
