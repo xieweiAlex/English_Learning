@@ -28,6 +28,8 @@ nitrite
 
 ## Special Words  
 
+**salient**  
+
 **desirable**  
 
 **rizz**  
@@ -81,6 +83,10 @@ nitrite
 **blush**: v & n  
 
 -------------------------  
+
+> Fleece as a verb: Yes, "to fleece" is a fairly common verb, meaning to cheat, swindle, or overcharge someone, often by tricking them. It is used frequently in informal contexts to describe dishonest or exploitative practices, especially those involving money. The verb is often used in the past tense, such as "he was fleeced"  
+
+
 
 Shellfish: meat of edible aquatic invertebrate with a shell (especially a mollusk or crustacean)  
 
@@ -233,6 +239,15 @@ An example like below for Somber:
 Here are the words I need help:  
 
 -----------------------  
+
+Fleece  
+- Meaning: To cheat, swindle, or overcharge someone dishonestly.   
+- Usage: Commonly used in informal situations when discussing financial deception.   
+- Examples:  
+  - "The company was accused of fleecing its customers".   
+  - "He was fleeced out of his life savings".   
+  - "Don't let that salesman fleece you".  
+
 
 **Turbid**  
 - **Definition**: (Of a liquid) cloudy, opaque, or thick with suspended matter; unclear or confused.  
