@@ -84,6 +84,10 @@ nitrite
 
 -------------------------  
 
+deft, apt, adroit, adept, adequate, neat.  
+
+Facile vs flippant   
+
 > Fleece as a verb: Yes, "to fleece" is a fairly common verb, meaning to cheat, swindle, or overcharge someone, often by tricking them. It is used frequently in informal contexts to describe dishonest or exploitative practices, especially those involving money. The verb is often used in the past tense, such as "he was fleeced"  
 
 

@@ -7,8 +7,6 @@ He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defa
 
 ## words-Sep-25.md ##  
 words/2025/words-Sep-25.md  
-Mr Trump’s critics have often accused him of **buffoonery** and isolationism. -  
-That's the thing with anger. It begs to stick around. So it can **fleece** you of your beauty. And leave you spent with now to offer. Makes you hurt the ones who love you. -  
 
 ## words-Aug-25.md ##  
 words/2025/words-Aug-25.md  
@@ -23,7 +21,6 @@ A growing body of research suggests creatine may be good for brains as well as *
 ## words-Jun-25.md ##  
 words/2025/words-Jun-25.md  
 Each Bitcoin mined under its **aegis** comes at a **steep cost**. -  
-The blue **dye** is obtained from the **indigo plant**. -  
 
 ## words-Apr-25.md ##  
 words/2025/words-Apr-25.md  

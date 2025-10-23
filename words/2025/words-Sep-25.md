@@ -92,7 +92,7 @@ There will be a massive **shakeout**.
 
 I'm finding your **tenuous** **grasp** of the English language **folksy** and charming today.  
 
-Mr Trump’s critics have often accused him of **buffoonery** and isolationism. -   
+Mr Trump’s critics have often accused him of **buffoonery** and isolationism.   
 
 No great book is written quickly. Few fortunes are made in one **swoop**.  
 Resembling the steady advance of 2015–2017, so far without its late-stage **blow-off** rally.  
@@ -101,7 +101,7 @@ While Goddard didn't say it in this piece, the **subtext** should be that buildi
 
 Like Seneca warned, anger transforms us into something unrecognizable—**contorting** our faces, **tensing** our bodies, and hardening our hearts. The person in the mirror during rage isn't our true self, but a distorted version that has been robbed of grace and dignity.  
 
-That's the thing with anger. It begs to stick around. So it can **fleece** you of your beauty. And leave you spent with now to offer. Makes you hurt the ones who love you. -    
+That's the thing with anger. It begs to stick around. So it can **fleece** you of your beauty. And leave you spent with now to offer. Makes you hurt the ones who love you.   
 The **indecorous** fight over a dead president's body. And what it says about African politics.  
 He encountered controversy for using sometimes violent **corporal** punishment on both girls and boys.  
 

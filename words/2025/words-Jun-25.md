@@ -9,7 +9,7 @@
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
-[Questions](#Question) 
+[Questions](#Question)   
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
@@ -37,7 +37,7 @@ Best-positioned
 
 **luxurious, luxuriant**  
 
-**vital** 
+**vital**   
 
 ## Verb Words  
 
@@ -87,7 +87,7 @@ Soft-power Europe is often **bested** by hard-nosed **autocrats**.
 Where success brings them fame, joy, tragedy, **duplicity**, and, ultimately, a kind of **immortality**.  
 
 
-Can Men and Women be friends 
+Can Men and Women be friends   
 ----------  
 
 Friendships between men and women, which begin with thoughts of **companionship** or **confiding** in one another, drag people into the pit of **adultery**.  
@@ -96,7 +96,7 @@ The **frostiness** between men and women in South Korea affects many things.
 **Celibate** men are nearly all **involuntarily** so; celibate women are choosing to **shun** men, perhaps because they don’t like their attitudes very much.  
 The idea that positive interactions between different groups can reduce the **prejudice** they feel about one another.  
 
-Economist News 
+Economist News   
 -----------  
 
 How OnlyFans transformed porn. - The platform, now **up for sale**, has made a **smutty** business far more lucrative.  
@@ -107,7 +107,7 @@ This week’s NATO summit will be all about **placating** Donald Trump.
 Why the **pro-natalist** plans of the right are **ill-conceived**. - Efforts to deliver a baby boom either fail or cost a fortune.  
 How Ireland became the Saudi Arabia of siphoned-off global profits. - The **Emerald** petro-state is riding high off tech and pharma—for now.  
 
-[Bitcoin mining in Iran](https://www.ncr-iran.org/en/publications/special-reports/bitcoin-mining-in-iran-irgc-operations-and-the-power-grid-crisis/) 
+[Bitcoin mining in Iran](https://www.ncr-iran.org/en/publications/special-reports/bitcoin-mining-in-iran-irgc-operations-and-the-power-grid-crisis/)   
 ------------  
 Now the government is in a **predicament**. Either cut the subsidies and push out the miners.  
 These **clandestine** or semi-official Bitcoin farms draw **colossal** amounts of power – often at heavily subsidized rates or with no payment at all – effectively diverting energy from the national grid for private gain.   
@@ -141,7 +141,7 @@ I delete it out of my own **volition**, out of my own will.
 It's like **old trope** - if you can't beat them, join them, there is some truth in that.   
 
 He took that money and **parlayed** it into his trading business, whole trading.  
-Bitcoin as a commodity, something I discussed **extensively** in both of my books. 
+Bitcoin as a commodity, something I discussed **extensively** in both of my books.   
 
 When it's time to leave your vacation, you start to **dread** it. It's like Sunday scary, but a lot of stronger.    
 
@@ -193,21 +193,21 @@ It will rapidly escalate into **Class IV hemorrhaging** due to speculative attac
 
 Speculators are unsure of the **amplitude** or **wavelength** of adoption, and **amateurish punters** let their excitement as well as subsequent fear overwhelm them.  
 
-> The reality is that money is fungible: if you buy bitcoins instead of paying down your mortgage’s principal, you are a leveraged bitcoin investor. 
+> The reality is that money is fungible: if you buy bitcoins instead of paying down your mortgage’s principal, you are a leveraged bitcoin investor.   
 > The BCB does not intervene to stabilize these intermittent hype-cycles because steady appreciation of the exchange rate would allow for an even greater buildup of speculative excesses and the BCB would lose the confidence that AMST gives to long-term holders of bitcoins.  
 
-The blue **dye** is obtained from the **indigo plant**. -    
+The blue **dye** is obtained from the **indigo plant**.   
 
-## Words Explain 
+## Words Explain   
 
 > Can you help me understand the words below? Are they commonly used? If possible, give out few examples and alternatives, thanks!  
 
 -----------------------  
 
 1. **Risqué, Racy**  
-   - **Meaning**: Both words imply something that is slightly indecent or suggestive of sexual content.  
+   - **Meaning**: Both words imply something that is slightly indecent or suggestive of sexual content.    
    - **Usage**: These terms are used when discussing something that might push the boundaries of acceptable propriety, such as in films, humor, or fashion.  
-   - **Examples**: 
+   - **Examples**:   
      - "The comedian's jokes were a bit risqué for a family audience."  
      - "The novel's racy scenes caught the attention of many readers."  
    - **Alternatives**: Suggestive, provocative, daring.  
@@ -215,7 +215,7 @@ The blue **dye** is obtained from the **indigo plant**. -
 2. **Libel**  
    - **Meaning**: Libel refers to a written defamation, which is the act of damaging someone's reputation through a false written statement.  
    - **Usage**: Common in legal contexts and discussions about media and journalism.  
-   - **Examples**: 
+   - **Examples**:   
      - "The newspaper was sued for libel after publishing false information."  
      - "He accused the magazine of libel for misrepresenting his actions."  
    - **Alternatives**: Defamation, slander (spoken defamation).  
@@ -223,7 +223,7 @@ The blue **dye** is obtained from the **indigo plant**. -
 3. **Clinch**  
    - **Meaning**: To secure or settle something decisively, sometimes used in the context of reaching a final agreement.  
    - **Usage**: Often used in informal discussions about deals or competitions.  
-   - **Examples**: 
+   - **Examples**:   
      - "The team clinched the championship with a last-minute goal."  
      - "They managed to clinch the deal after hours of negotiation."  
    - **Alternatives**: Secure, confirm, conclude.  
@@ -231,7 +231,7 @@ The blue **dye** is obtained from the **indigo plant**. -
 4. **Homolog**  
    - **Meaning**: In biology, a homolog is an organ, part, or gene that shares a common ancestry with another. It refers to similarity due to shared ancestry.  
    - **Usage**: Primarily used in scientific contexts like genetics and evolutionary biology.  
-   - **Examples**: 
+   - **Examples**:   
      - "The two species have several homologous structures."  
      - "Gene homologs can help trace evolutionary relationships."  
    - **Alternatives**: Equivalent (in a non-scientific context).  
@@ -239,7 +239,7 @@ The blue **dye** is obtained from the **indigo plant**. -
 5. **Valorize**  
    - **Meaning**: To give or ascribe value to something; to enhance its worth or status.  
    - **Usage**: Used in contexts of economics, culture, or academic discussion.  
-   - **Examples**: 
+   - **Examples**:   
      - "The government policy aims to valorize the national currency."  
      - "The museum exhibition seeks to valorize indigenous art forms."  
    - **Alternatives**: Appreciate, elevate, boost.  
@@ -247,7 +247,7 @@ The blue **dye** is obtained from the **indigo plant**. -
 6. **Venerate**  
    - **Meaning**: To regard with great respect or reverence.  
    - **Usage**: Commonly used when talking about religious figures, traditions, or historical figures.  
-   - **Examples**: 
+   - **Examples**:   
      - "She is venerated as a saint in the community."  
      - "The ancient texts are venerated for their wisdom."  
    - **Alternatives**: Reverence, honor, esteem.  
@@ -255,7 +255,7 @@ The blue **dye** is obtained from the **indigo plant**. -
 7. **Olfactory**  
    - **Meaning**: Related to the sense of smell.  
    - **Usage**: Used in contexts involving biology or discussions about senses and perception.  
-   - **Examples**: 
+   - **Examples**:   
      - "The olfactory experience of the flower garden was overwhelming."  
      - "The chef has an extraordinary olfactory sense."  
    - **Alternatives**: Aromatic (when talking about smell in a different way).  
@@ -375,7 +375,7 @@ The blue **dye** is obtained from the **indigo plant**. -
 
 1. **Treacly**  
    - **Meaning**: Overly **sentimental** or sweet, sometimes to the point of being **cloying**.  
-   - **Examples**: 
+   - **Examples**:   
      - "The movie was so treacly that it felt like watching a soap opera."  
      - "Her treacly smile made him suspicious of her intentions."  
    - **Usage**: Not very common in everyday conversation. Alternatives might include "saccharine" or "sugary" in the context of sentimentality.  
@@ -427,44 +427,44 @@ The blue **dye** is obtained from the **indigo plant**. -
 
 **prolific, proliferate, profligate**.  
 **thwack, thump, stomp, whack**   
-**askew, askance, canted, slant, tilted**. 
-**extemporize, improv, improvise** 
+**askew, askance, canted, slant, tilted**.   
+**extemporize, improv, improvise**   
 **decrepit, dilapidated**  
 **diner, eatery, bistro, cafe, tavern, pub**.  
 
-**heartfelt, heartwarming, emotive**, 
+**heartfelt, heartwarming, emotive**,   
 exonerate, inexorable, exculpurate,  
 frail, senile.  
 **sniff, sniffle, snuffle**.  
 **huckster, hawker**  
 
 **berserk, rampage, bonkers, enraged, frenzy, furious**.  
-**aptitude, amplitude**. 
+**aptitude, amplitude**.   
 **codswallop, baloney, crap, drivel**.  
 **abduct, abdicate, abrogate**  
-**prefigure, prelude, prologue, foretell, foresee, prophetic**, 
+**prefigure, prelude, prologue, foretell, foresee, prophetic**,   
 **parable, paragon**.  
 **desolate, desolation, disconsolate, consoling, consolation**.  
 **locus, locust**  
-**flaccid, placid, serene, tranquil, contented** 
+**flaccid, placid, serene, tranquil, contented**   
 **boisterous, raucous, rowdy, feisty, rousing**.  
-**Hijab, hajib, jihad** 
+**Hijab, hajib, jihad**   
 **doodad, gadget, bauble, trinket, ornament**. vv  
-**daze, dazzle** 
+**daze, dazzle**   
 
 **scour, scrounge, scape, scrap**  
 **peruse, cursive**  
 **vilify, discredit, undermine**  
-**sycophant, supplicant, obsequious, bootlicker, lickspittle, suck-up**. 
+**sycophant, supplicant, obsequious, bootlicker, lickspittle, suck-up**.   
 
 **fiery, incendiary, inflammatory, flammable**.  
-**Sulfur, sulphur, sulfide** 
+**Sulfur, sulphur, sulfide**   
 **Orchard, orchid**.  
 **assay, assail**.  
 
-**inseam, insole**. 
+**inseam, insole**.   
 **kook, hippie, wacko, psycho, lunatic**.  
-**didactic, autodidact, pedagogy, exposition/expo**, 
+**didactic, autodidact, pedagogy, exposition/expo**,   
 
 
 ## Conversation  
