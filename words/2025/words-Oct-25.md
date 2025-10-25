@@ -28,6 +28,8 @@ nitrite
 
 ## Special Words  
 
+**ingenious**  
+
 **salient**  
 
 **desirable**  
@@ -62,7 +64,9 @@ nitrite
 
 ## Verb Words  
 
-**plgue**  
+**assent**  
+
+**plague**  
 
 **cite**  
 
@@ -85,6 +89,10 @@ nitrite
 -------------------------  
 
 deft, apt, adroit, adept, adequate, neat.  
+
+dictum, doctrine, dogma, precept.  
+
+Unlike you, I do not have exalted ancestors, I make my living by trade, and I judge every trade by its merits.  
 
 Facile vs flippant   
 
@@ -197,6 +205,11 @@ He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defa
 And absolutely no dog jokes, **lest** she **cast aspersions** on Chinese eating habits.  
 
 ### Economist Newsletter  
+
+
+The terrifying reality of being a judge in America. Two **memoirs** hint at a Supreme Court **under siege**.  
+
+Fast forward to today, and America is **reeling** at the realisation that China could seriously hurt it by weaponising its dominance of rare earths, crucial ingredients in everything from cars to fighter jets.  
 
 Barring the covid-19 pandemic, it has not been this high since the Napoleonic wars.  
 The America vs China spat reveals a dangerous dynamic.  
