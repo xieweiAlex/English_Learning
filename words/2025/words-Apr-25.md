@@ -98,7 +98,7 @@ It would be **folly** to turn the offer down.
 The next president could **abrogate** the treaty.   
 **ink jet, printing ink**.  
 
-The disciples were absorbed in a discussion of Lao-tzu's **dictum**. -    
+The disciples were absorbed in a discussion of Lao-tzu's **dictum**.   
 Overcome with shame and grief, they tried to cry and **bemoan** their fate.   
 
 ### week 3  

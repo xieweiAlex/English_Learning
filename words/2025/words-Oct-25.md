@@ -11,6 +11,7 @@
 
 ------------------  
 
+**aegis**  
 
 abrogate  
 
@@ -88,19 +89,18 @@ nitrite
 
 -------------------------  
 
-deft, apt, adroit, adept, adequate, neat.  
+Whistleblowers exposed the signature "gold-leaf steaks," which commanded a premium price tag, as being fashioned from a surprisingly low-quality cut of meat, simply **shrouded** in **gold foil**. The revelation sparked immediate and widespread outrage online, sending the brand's reputation into a **tailspin**.  
+We are sitting on a **tinderbox** and need to address the elephant in the room: young men need help.  
 
-dictum, doctrine, dogma, precept.  
+Unlike you, I do not have **exalted** ancestors, I make my living by trade, and I judge every trade by its **merits**.  
 
-Unlike you, I do not have exalted ancestors, I make my living by trade, and I judge every trade by its merits.  
-
-Facile vs flippant   
+**Facile vs flippant**   
+- **Facile**: Easily achieved or superficial, often lacking depth or complexity.  
+- **Flippant**: Lacking proper respect or seriousness, often in a dismissive or casual manner.  
 
 > Fleece as a verb: Yes, "to fleece" is a fairly common verb, meaning to cheat, swindle, or overcharge someone, often by tricking them. It is used frequently in informal contexts to describe dishonest or exploitative practices, especially those involving money. The verb is often used in the past tense, such as "he was fleeced"  
 
-
-
-Shellfish: meat of edible aquatic invertebrate with a shell (especially a mollusk or crustacean)  
+**Shellfish**: meat of edible aquatic **invertebrate** with a shell (especially a mollusk or **crustacean**)  
 
 Microstrategy is an **inert** holder of Bitcoin, but Bitmine is active and engaged in Ethereum ecosystem.  
 There is a question that's really **plaguing** Ethereum for a while, until its recent very dramatic turn in price.  
@@ -125,20 +125,14 @@ I came over here with no **subterfuge**, and presented my best offer.
 The night is warm and **balmy**.  
 I don't think it's **in the cards** for us.  
 You're pretty much **home free**, unless you ... **blow it**.  
-It could anything from some **inane** comment, to wearing the wrong kind of shorts. -    
+It could anything from some **inane** comment, to wearing the wrong kind of shorts.   
 You're very **hard to please**.  
 
 A **beguiling** **tragicomedy**, Vicky Cristina Barcelona charms with beautiful views of the Spanish city and a **marvelously** well-matched cast.  
 
 If anything, I was doing you a favor. - A favor? Yeah, I told you, he's a **hard ass**.  
 
-I submitted a refund request for a duplicate booking on [date], case number [if you have it]. I received an email confirmation that my claim was acknowledged, but I have not yet received the refund.  
-
-upbraid, chide, scold, reproach, rebuke, reprimand.  
-
 And almost no one is positioned for it because they’re still measuring their “returns” in the wrong **yardstick**.  
-
-
 
 In Bitcoin terms, the **veil** is gone: catastrophic real losses in every traditional asset.  
 
@@ -161,7 +155,7 @@ When it comes to cost, Calisthenics **wipes the floor**.
 You feel dizzy or have a history of **eardrum** **perforation** (in that case, skip water rinsing).  
 
 The reptile's skin is tough and **scaly**.  
-The heartbeat was **feeble** and irregular. -   
+The heartbeat was **feeble** and irregular.   
 
 Players use a **haptic** device such as a **joystick** to control the game.  
 
@@ -206,13 +200,25 @@ And absolutely no dog jokes, **lest** she **cast aspersions** on Chinese eating 
 
 ### Economist Newsletter  
 
+Many observers (The Economist included) worried about the global economy when Donald Trump announced **swingeing** tariffs in April.  
+
+A **posthumous** memoir by Virginia Giuffre, a sex-trafficking victim who said she was made to sleep with the prince while just 17, promises new revelations.   
+Nobody knows for sure whether a really painful downturn is **on the way**, **let alone** when.  
+Savage drone warfare **engulfs** Ukraine’s front line. Casualties litter the Donbas amid a bloody Kremlin push.  
+If the EU doesn’t **woo** the Western Balkans, Russia or China might, writes a diplomat. -    
+Donald Trump has unleashed an M&A **bonanza**.  
+Middle managers, famed for holding meetings that could have been emails, are **on their way out**.  
+South-East Asia is being **swamped with** Chinese goods. It is adding to the pain from Trump’s tariffs.  
+President Donald Trump does not like being criticised when he thinks he should be **feted**. -    
+It should not need saying in the home of the First Amendment, but a craven press leads to rampant corruption, poor government and cynical, **disaffected** voters.  
+
 
 The terrifying reality of being a judge in America. Two **memoirs** hint at a Supreme Court **under siege**.  
 
 Fast forward to today, and America is **reeling** at the realisation that China could seriously hurt it by weaponising its dominance of rare earths, crucial ingredients in everything from cars to fighter jets.  
 
-Barring the covid-19 pandemic, it has not been this high since the Napoleonic wars.  
-The America vs China spat reveals a dangerous dynamic.  
+**Barring** the covid-19 pandemic, it has not been this high since the Napoleonic wars.  
+The America vs China **spat** reveals a dangerous dynamic.  
 
 Confidence is both magic and a **minefield**. - Self-doubt, **hubris** and everything in between.  
 A quarter-century ago Bill Clinton **scoffed** at the idea of China trying to control speech online.  
@@ -396,11 +402,15 @@ Fleece
 
 
 ## Words Gallery  
+
+**deft, apt, adroit, adept, adequate, neat**.  
+**dictum, doctrine, dogma, precept**.  
+
 **tout, taunt, flout, flaunt**  
 **huffy, puffy**.  
 **manufacture, manufactory**  
 
-upbraid, chide, scold, reproach, rebuke, reprimand.  
+**upbraid, chide, scold, reproach, rebuke, reprimand**.  
 
 **Promiscuous, depraved, scandalous, sleazy, lewd**.   
 **demented, deranged, deviant, perverted, subversive**.   
