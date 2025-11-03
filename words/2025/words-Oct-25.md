@@ -1,7 +1,7 @@
 
 [Word Review](../../words-review.md)  
 
-[Week 40](#week-40) | [Week 41](#week-41) | [Week 42](#week-42)  
+[Week 40](#week-40) | [Week 41](#week-41) | [Week 42](#week-42) | [Week 43](#week-43)  
 
 [Newsletter](#economist-newsletter)  
 
@@ -10,22 +10,6 @@
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
 ------------------  
-
-**aegis**  
-
-abrogate  
-
-hackneyed  
-
-nitrite  
-
-**venal**  
-
-**envisage**   
-
-**supercilious**  
-
-**goad**  
 
 ## Special Words  
 
@@ -88,6 +72,27 @@ nitrite
 **blush**: v & n  
 
 -------------------------  
+
+**prostrate, protract**.  
+
+A path **strewn with** roses.  
+**Strewn with** dead bodies.  
+
+In the Western world, the idea of not being productive is sacrilege. Productivity is society’s gold standard and it’s almost as if you’re not a good American if you’re not suffering at work.  
+
+There is growing public **disquiet** about the cost of such policing.  
+
+The White House has been thwarted so far in using the shutdown to extend its purge of the federal workforce.  
+
+
+These **fetish** videos are kind of goofy — I have to admit I even cracked up a little at the centaur one — but overall, it’s an **icky** and somewhat **menacing** feeling seeing a lot of them.  
+
+This choice betrays a deep conviction: no **dispersion**, no opportunism strategy. It’s not a diversification, it’s an **anchorage**.  
+
+Men are twice as likely to be suspended from school for the same **infraction** as girls (behavior-adjusted).  
+**tone-deaf**.  
+
+## Week-43  
 
 Whistleblowers exposed the signature "gold-leaf steaks," which commanded a premium price tag, as being fashioned from a surprisingly low-quality cut of meat, simply **shrouded** in **gold foil**. The revelation sparked immediate and widespread outrage online, sending the brand's reputation into a **tailspin**.  
 We are sitting on a **tinderbox** and need to address the elephant in the room: young men need help.  
@@ -176,7 +181,6 @@ The International Jew: The World's **Foremost** Problem.
 You can’t **equate** passing examination and being intelligent.  
 He **equates** success **with** material wealth.  
 
-
 “You are an old man,” Marcus Aurelius admonished himself in Meditations. “Stop allowing your mind to be a slave, to be jerked about by selfish impulses, to kick against fate and the present, and to mistrust the future.”  
 
 **stay through**, until you get there.   
@@ -192,13 +196,14 @@ We're getting **aggravated**. - Yes, we are.
 
 **Bipedal** legs.  
 
-
 He lived his life with **reckless abandon**.  
 
 He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defamation. -    
 And absolutely no dog jokes, **lest** she **cast aspersions** on Chinese eating habits.  
 
 ### Economist Newsletter  
+
+Could Donald Trump become president again in 2028? There is a legal case for a third term—but it is **strewn with** obstacles.  
 
 Many observers (The Economist included) worried about the global economy when Donald Trump announced **swingeing** tariffs in April.  
 

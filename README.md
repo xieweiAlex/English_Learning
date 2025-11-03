@@ -11,7 +11,7 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 
 ### 2025 
 
-[Oct](/words/2025/words-Oct-25.md) | 
+[Nov](/words/2025/words-Nov-25.md) | [Oct](/words/2025/words-Oct-25.md) | 
 
 [Sept](/words/2025/words-Sep-25.md) | [August](./words/2025/words-Aug-25.md) | [July](./words/2025/words-Jul-25.md) 
 
