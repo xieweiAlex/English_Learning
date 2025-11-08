@@ -12,6 +12,8 @@
 
 ------------------  
 
+fulminant  
+
 comport  
 
 **aegis**  
@@ -32,6 +34,10 @@ nitrite
 
 ## Special Words  
 
+**according**  
+
+**slanted**   
+
 **discerning**  
 
 **epiphany**  
@@ -39,10 +45,29 @@ nitrite
 
 ## Verb Words  
 
+**obsolete**  
+
 
 -------------------------  
 
 **prostrate, protract**.  
+
+Frivolous, flippant, facile.  
+
+Despite Rodriguez and his lawyer’s pleas for leniency, Cote was unmoved.  
+despite his lawyer’s protestations that Rodriguez and his wife had “no money left” after paying the forfeiture.  
+
+The letter indicated to me that you were very much still operating in a world with moral blinders on.  
+Upon his release, Cote ordered that 25% of Rodriguez’s gross monthly earnings would be garnished until his fine was paid.  
+
+Bitcoin Core has certainly been compromised, but all is not lost.  
+venn diagram.  
+
+
+
+cameo appearance/role.  
+If you could cameo on any TV show, what would it be?  
+nocturnal emission, wet dream.   
 
 A path **strewn with** roses.  
 **Strewn with** dead bodies.  
@@ -65,6 +90,8 @@ Men are twice as likely to be suspended from school for the same **infraction** 
 ### Economist Newsletter  
 
 Could Donald Trump become president again in 2028? There is a legal case for a third term—but it is **strewn with** obstacles.  
+Why China is winning the trade war. It has **rebuffed** America and rewritten the norms of global commerce.  
+Xi Jinping is at his boldest and **brashest**. How will Donald Trump **fare** this week?  
 
 
 
