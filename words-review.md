@@ -1,6 +1,6 @@
 ## words-Oct-25.md ##  
 words/2025/words-Oct-25.md  
-Get rid of this fear, approach her, practice, do it again and again. It's pretty **banal**. -  
+Get rid of this fear, approach her, practice, do it again and again. It's pretty **banal**.   
 He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defamation. -  
 If the EU doesn’t **woo** the Western Balkans, Russia or China might, writes a diplomat. -  
 President Donald Trump does not like being criticised when he thinks he should be **feted**. -  
