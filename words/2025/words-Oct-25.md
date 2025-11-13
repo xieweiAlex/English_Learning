@@ -73,29 +73,10 @@
 
 -------------------------  
 
-**prostrate, protract**.  
-
-A path **strewn with** roses.  
-**Strewn with** dead bodies.  
-
-In the Western world, the idea of not being productive is sacrilege. Productivity is society’s gold standard and it’s almost as if you’re not a good American if you’re not suffering at work.  
-
-There is growing public **disquiet** about the cost of such policing.  
-
-The White House has been thwarted so far in using the shutdown to extend its purge of the federal workforce.  
-
-
-These **fetish** videos are kind of goofy — I have to admit I even cracked up a little at the centaur one — but overall, it’s an **icky** and somewhat **menacing** feeling seeing a lot of them.  
-
-This choice betrays a deep conviction: no **dispersion**, no opportunism strategy. It’s not a diversification, it’s an **anchorage**.  
-
-Men are twice as likely to be suspended from school for the same **infraction** as girls (behavior-adjusted).  
-**tone-deaf**.  
-
 ## Week-43  
 
-Whistleblowers exposed the signature "gold-leaf steaks," which commanded a premium price tag, as being fashioned from a surprisingly low-quality cut of meat, simply **shrouded** in **gold foil**. The revelation sparked immediate and widespread outrage online, sending the brand's reputation into a **tailspin**.  
-We are sitting on a **tinderbox** and need to address the elephant in the room: young men need help.  
+Whistleblowers exposed the signature "gold-leaf steaks," which **commanded** a premium price tag, as being fashioned from a surprisingly low-quality cut of meat, simply **shrouded** in **gold foil**. The revelation sparked immediate and widespread outrage online, sending the brand's reputation into a **tailspin**.  
+We are sitting on a **tinderbox** and need to address **the elephant in the room**: young men need help.  
 
 Unlike you, I do not have **exalted** ancestors, I make my living by trade, and I judge every trade by its **merits**.  
 
@@ -117,12 +98,10 @@ That's an insane behavior, **What now**?
 
 **All else being equal**, a company will reinvest profits into itself and deliver consistently more efficient solutions, which will add to its profitability, which will increase its ability to self-invest, etc., in a positive spiral.  
 
-
 Last summer she began telling friends that a New Year marriage was **in the cards**.   
 **pep talk**.  
 
 > The Tractatus is a plea by a very **taciturn**, silent and precise Austrian philosopher to speak more carefully and less impulsively  
-
 
 If you would **care to join** us for some recognized form of social interaction, like a drink, then we'd be fine.  
 It's very amusing, **galling**, to be honest.   
@@ -136,14 +115,13 @@ You're very **hard to please**.
 A **beguiling** **tragicomedy**, Vicky Cristina Barcelona charms with beautiful views of the Spanish city and a **marvelously** well-matched cast.  
 
 If anything, I was doing you a favor. - A favor? Yeah, I told you, he's a **hard ass**.  
-
 And almost no one is positioned for it because they’re still measuring their “returns” in the wrong **yardstick**.  
 
 In Bitcoin terms, the **veil** is gone: catastrophic real losses in every traditional asset.  
 
 **rough on the edges**.  
 
-Get rid of this fear, approach her, practice, do it again and again. It's pretty **banal**. -    
+Get rid of this fear, approach her, practice, do it again and again. It's pretty **banal**.   
 Try to **get the bottom of it**, what do you want to escape.  
 I've always been ready to **stand my ground** and say No, when I feel something is not right.  
 The **tides** of history would turn.   
@@ -426,8 +404,4 @@ Fleece
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
-
-
-
-
 

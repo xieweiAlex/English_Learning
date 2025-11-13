@@ -1,6 +1,11 @@
+## words-Nov-25.md ##  
+words/2025/words-Nov-25.md  
+The White House has been **thwarted** so far in using the shutdown to extend its purge of the federal workforce. -  
+A new EU sanctions package being worked on, the 19th since the war started, includes Europe **weaning itself off** what little energy it still imports from Russia. -  
+These days the birds are once again a **common sight** **flitting** around both the cities and the countryside. -  
+
 ## words-Oct-25.md ##  
 words/2025/words-Oct-25.md  
-Get rid of this fear, approach her, practice, do it again and again. It's pretty **banal**.   
 He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defamation. -  
 If the EU doesn’t **woo** the Western Balkans, Russia or China might, writes a diplomat. -  
 President Donald Trump does not like being criticised when he thinks he should be **feted**. -  
