@@ -9,8 +9,11 @@
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
-
 ------------------  
+
+### Words with Questions  
+
+demur   
 
 calumny  
 
@@ -46,13 +49,22 @@ nitrite
 
 **epiphany**  
 
-
 ## Verb Words  
+
+**slip**  
 
 **obsolete**  
 
 -------------------------  
 
+So you have to be a bit more **discerning** and a bit more **attentive**.  
+You have the remotest **inkling** what that means?  
+He gave me an **inkling** of what was to come.  
+
+Only a human can invent something as **insipid** as love. -  
+Putting aside the **political slant** of Grokipedia, a 1,300-word article being better than a 7,000-word one **exemplifies** the current shortcomings of LLMs as creative engines.  
+
+**beige book**.   
 He uses the example of the **dynamo**, an old-fashioned term for a powerful electric motor. This power source completely changed the Industrial Revolution.  
 
 The **cognitive dissonance** is **palpable**.  
@@ -151,6 +163,8 @@ Here are the words I need help:
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
+
+Only a human can invent something as **insipid** as love.  
 
 Unlike you, I do not have **exalted** ancestors, I make my living by trade, and I judge every trade by its **merits**.  
 

@@ -1,5 +1,6 @@
 ## words-Nov-25.md ##  
 words/2025/words-Nov-25.md  
+Only a human can invent something as **insipid** as love. -  
 The White House has been **thwarted** so far in using the shutdown to extend its purge of the federal workforce. -  
 A new EU sanctions package being worked on, the 19th since the war started, includes Europe **weaning itself off** what little energy it still imports from Russia. -  
 These days the birds are once again a **common sight** **flitting** around both the cities and the countryside. -  
