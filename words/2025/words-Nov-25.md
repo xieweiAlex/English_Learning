@@ -13,6 +13,10 @@
 
 ### Words with Questions  
 
+vapid  
+
+nappy  
+
 demur   
 
 calumny  
@@ -51,11 +55,41 @@ nitrite
 
 ## Verb Words  
 
+**imply**, **entail**  
+
+**exemplify**  
+
 **slip**  
 
 **obsolete**  
 
 -------------------------  
+
+**transmit**  
+
+Notifications, emails, social media updates - a **tidal wave** of information before you've even had coffee.  
+It's **no wonder** you feel drained, reactive, and behind.  
+Taiwan's amazing economic achievements are yielding alarming **strains**.  
+
+A frenzy of financial innovation has **ensnared** America Inc. What could go wrong?  
+How markets could **topple** the global economy.  
+
+> The tree of liberty must be refreshed from time to time with the blood of patriots and tyrants. It is its natural **manure**  
+
+> Seventeen years in, crypto is leaving its adolescence and entering adulthood.   
+
+Phil is a tremendous young talent in the field of investment - and the most **prodigious** thinker I have ever encountered.  
+The AI sector is currently **perpetrating** an Enron-scale accounting **distortion**, and it is doing so in plain sight with full regulatory approval because the assets are novel and the rules are ambiguous.  
+And when the crisis finally arrived and he collected $100 million personally while his fund returned 489%, he shut everything down. The **vindication** was not worth the cost.  
+The Deregistration **Gambit**.  
+The positions became **spectacle**, and Burry became target.  
+By deregistering Scion as an RIA and restructuring as a family office, Burry has escaped this **panopticon**. -    
+The post **dripped with contempt** for institutions that cannot distinguish between exposure and cost, between **headline and substance**.  
+
+
+> **Defamation** is the general term for a false statement that harms someone's reputation, while **libel** and **slander** are two distinct types of defamation. Libel is written or published defamation, such as in a newspaper or online post, and slander is **spoken defamation**.  
+
+A **brash** newcomer disputed the **age-old rules** for **admission** to the club. -    
 
 So you have to be a bit more **discerning** and a bit more **attentive**.  
 You have the remotest **inkling** what that means?  
@@ -154,12 +188,17 @@ Here are the words I need help:
 
 ## Words Gallery  
 
+**Contentious, divisive, problematic, touchy, thorny**.   
+
+**dire, grim, bleak, dismal**   
+
+**sullen, somber, aloof, melancholy**   
+
 **prostrate, protract**.  
 **Frivolous, flippant, facile**.  
 
 **nocturnal emission, wet dream**.   
 **diurnal cycle, diurnal rhythm**  
-
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
@@ -195,10 +234,12 @@ When it comes to cost, Calisthenics **wipes the floor**.
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
+And when the crisis finally arrived and he collected $100 million personally while his fund returned 489%, he shut everything down. The **vindication** was not worth the cost.  
+
+So you have to be a bit more **discerning** and a bit more **attentive**.  
+
 In the Western world, the idea of not being productive is **sacrilege**. Productivity is society’s gold standard and **it’s almost as if** you’re not a good American if you’re not suffering at work.  
 
 **All else being equal**, a company will reinvest profits into itself and deliver consistently more efficient solutions, which will add to its profitability, which will increase its ability to self-invest, etc., in a positive spiral.  
-
-Last summer she began telling friends that a New Year marriage was **in the cards**.   
 
 
