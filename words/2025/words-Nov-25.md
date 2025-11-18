@@ -45,6 +45,8 @@ nitrite
 
 ## Special Words  
 
+**cesspool**  
+
 **according**  
 
 **slanted**   
@@ -66,6 +68,31 @@ nitrite
 -------------------------  
 
 **transmit**  
+
+Betting on horses is a mug's game-nobody ever wins in the long term.   
+
+Georgia is dousing the last embers of democracy. An oligarchic party outlaws the opposition and turns towards Russia.  
+American isolationism is a golden opportunity for China. Chinese leaders are playing a canny game.  
+The mystic, the cricketer and the spy: Pakistan’s game of thrones. - Imran Khan’s marriage to his spiritual adviser shocked the country. Now she could help decide whether he returns to office or stays in prison.  
+The contours of 21st-century geopolitics will become clearer in 2026. A new world is starting to emerge.  
+Prediction, notoriously, is a mug’s game.  
+The BBC’s boss quits over a “doctored” Trump speech. Shifts in politics and the media business are making the broadcaster more crisis-prone.  
+America’s health-care costs are shooting up.  
+
+
+November hasn't brought any **respite** so far as BTC trades only a little above $104,000. -    
+
+He arrives at 8am, leaves at 8pm, and when I asked what he actually did in those twelve hours, he couldn't point to a single **tangible** thing.  
+
+The structures remain. The offices still **gleam**. The meetings still happen. The emails still flow. But the faith that this activity means something, that it's building towards something worthwhile, that it justifies the life hours it consumes, that faith is evaporating.  
+You can show up, do the tasks, attend the meetings, but you don't have to believe in it. You don't have to **tie your identity to** your email signature.  
+
+People **wrote off** that GPUs as being irrelevant and all of a sudden we have a **chatgpt moment**.  
+
+> **bring to heel**: The phrase comes from the literal command in dog training, "heel," which is an order for the dog to stay close to and walk beside its owner's heels.  
+
+And so what happens in New Look Sparta after they've been **brought to heel**?  
+His constant tapping on the desk **drives me up the wall**.  
 
 Notifications, emails, social media updates - a **tidal wave** of information before you've even had coffee.  
 It's **no wonder** you feel drained, reactive, and behind.  
