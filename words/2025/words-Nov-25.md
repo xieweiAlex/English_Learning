@@ -13,6 +13,10 @@
 
 ### Words with Questions  
 
+bonhomie  
+
+marquee  
+
 vapid  
 
 nappy  
@@ -45,6 +49,14 @@ nitrite
 
 ## Special Words  
 
+**inordinate**  
+
+**compounding**  
+
+**pedestal**  
+
+**sought-after**  
+
 **cesspool**  
 
 **according**  
@@ -56,6 +68,10 @@ nitrite
 **epiphany**  
 
 ## Verb Words  
+
+**forgo**  
+
+**swish**  
 
 **imply**, **entail**  
 
@@ -69,6 +85,42 @@ nitrite
 
 **transmit**  
 
+**placate, appease, pacify, sooth, reassure**,   
+**slosh, slop**,   
+**manure, mulch, compost, fertilizer**   
+
+Bitcoin’s Academic **Pedigree**.  
+
+law of **diminishing marginal returns**  
+
+This "silent **reshaping**" approach allows BOC to experiment without public **fanfare**, focusing on interoperability with other blockchains and legacy systems.  
+
+**grand slam home run**  
+
+And within this script, which is now your new **harpoon**. I'm gonna teach each and everyone of you to be **Captain Ahab**.  
+**tooth fairy**.  
+Why would they? Look at you? A bunch of **sleazy** salesmen, right?  
+> In the United States, White **Anglo-Saxon Protestants** or Wealthy Anglo-Saxon Protestants (**WASP**) is a sociological term.  
+
+In fact, all meat contains tryptophan. So, consuming turkey at Thanksgiving shouldn't make you any more **drowsy** than eating other meats.  
+
+> Think deeply about the things you value (gratitude, love, romance, loyalty, ambition etc) -- channel your creativity and then operationalize them.  
+
+Men who use **steroids** are motivated by **sheer vanity**.  
+Her sarcasm wounded his **vanity**.  
+
+We could hear the **swish** and **gurgle** of water against the **hull**. -   -     
+The trees are vibrant and **swish** in the gentle breeze.  
+
+Dump the **slurry** into the trash (or toilet only if your pipes are good — coffee grounds are usually not recommended for drains).  
+
+
+There is a lot of tacit knowledge in operating a ship that never shows up in documentation.  
+Gen 1 felt gimmicky so I skipped it. Gen 2 is different. Eight hours of battery. A case that extends it.  
+
+A good man does everything in his power to **better** his family's **position**, regardless of his own selfish desires.   
+Does that **amuse** you?  
+
 Betting on horses is a mug's game-nobody ever wins in the long term.   
 
 Georgia is dousing the last embers of democracy. An oligarchic party outlaws the opposition and turns towards Russia.  
@@ -76,8 +128,8 @@ American isolationism is a golden opportunity for China. Chinese leaders are pla
 The mystic, the cricketer and the spy: Pakistan’s game of thrones. - Imran Khan’s marriage to his spiritual adviser shocked the country. Now she could help decide whether he returns to office or stays in prison.  
 The contours of 21st-century geopolitics will become clearer in 2026. A new world is starting to emerge.  
 Prediction, notoriously, is a mug’s game.  
-The BBC’s boss quits over a “doctored” Trump speech. Shifts in politics and the media business are making the broadcaster more crisis-prone.  
-America’s health-care costs are shooting up.  
+The BBC’s boss quits over a “**doctored**” Trump speech. Shifts in politics and the media business are making the broadcaster more crisis-prone.  
+America’s health-care costs are **shooting up**.  
 
 
 November hasn't brought any **respite** so far as BTC trades only a little above $104,000. -    
