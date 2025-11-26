@@ -13,6 +13,8 @@
 
 ### Words with Questions  
 
+pyretic  
+
 bonhomie  
 
 marquee  
@@ -49,6 +51,20 @@ nitrite
 
 ## Special Words  
 
+**bingo**  
+
+**blindsided**  
+
+**triangular**  
+
+**alarmist**  
+
+**excerpt**  
+
+**imbecile**  
+
+**gnawing**  
+
 **inordinate**  
 
 **compounding**  
@@ -69,13 +85,27 @@ nitrite
 
 ## Verb Words  
 
+**glean**  
+
+**complement**  
+
+**cave**   
+
+**perpetrate**  
+
+**straighten**  
+
+**transmit**  
+
+**flit**  
+
 **forgo**  
 
 **swish**  
 
 **imply**, **entail**  
 
-**exemplify**  
+**exemplify**, **demonstrate, demonstrative**  
 
 **slip**  
 
@@ -83,12 +113,34 @@ nitrite
 
 -------------------------  
 
-**transmit**  
+He's a kid, our **unsub** is a kid.  
 
-**placate, appease, pacify, sooth, reassure**,   
-**slosh, slop**,   
-**manure, mulch, compost, fertilizer**   
+**Blinds and antes** increase over time, forcing players to make decisions under growing pressure, and the prize pool is split among the top percentage of finishers, not just the final winner.   
 
+You want to pave a **golden road** behind your enemy to allow them to retreat.  
+Kennedy has **backchanneled** a plan to remove some American missiles from Turkey that he had already known to be **obsolete**.   
+
+**Caving to** Trump’s demands.  
+Look, at some point you’re going to have to **draw a line**.  
+
+
+> alarmist: a person who alarms others needlessly  
+
+I'd have just **kneecapped** that guy.  
+I need time to **straighten out** my finances.  
+That picture’s **out of true**. Can you **straighten** it up?  
+
+The Stoics believed that the four virtues are **interdependent** and you need them all.  
+During that time I was diagnosed with **anticipatory** anxiety disorder.  
+I can’t be everything to everyone. I kind of **made peace** with it years ago.  
+“How is it that you are advising me? Have you already advised yourself? Have you got yourself **straightened out**?”  
+
+
+> "Panties" is a more specific term for various styles of female underwear, such as briefs, thongs, and bikinis. "Underwear" is a general term that encompasses all undergarments for all genders.  
+> The suffix "-ies" likely served as a diminutive, turning "pants" into a new, specific term for women's version.  
+> Usage: While both terms are correct, "panties" allows for more specific conversation about women's underwear, just as "briefs" or "boxers" are used to describe specific styles of men's underwear.  
+
+It's **composite**, like plastic.   
 Bitcoin’s Academic **Pedigree**.  
 
 law of **diminishing marginal returns**  
@@ -109,31 +161,22 @@ In fact, all meat contains tryptophan. So, consuming turkey at Thanksgiving shou
 Men who use **steroids** are motivated by **sheer vanity**.  
 Her sarcasm wounded his **vanity**.  
 
-We could hear the **swish** and **gurgle** of water against the **hull**. -   -     
+We could hear the **swish** and **gurgle** of water against the **hull**. -  
 The trees are vibrant and **swish** in the gentle breeze.  
 
 Dump the **slurry** into the trash (or toilet only if your pipes are good — coffee grounds are usually not recommended for drains).  
 
 
-There is a lot of tacit knowledge in operating a ship that never shows up in documentation.  
-Gen 1 felt gimmicky so I skipped it. Gen 2 is different. Eight hours of battery. A case that extends it.  
+There is a lot of **tacit knowledge** in operating a ship that never shows up in documentation. -    
+Gen 1 felt **gimmicky** so I skipped it. Gen 2 is different. Eight hours of battery. A case that extends it.  
 
 A good man does everything in his power to **better** his family's **position**, regardless of his own selfish desires.   
 Does that **amuse** you?  
 
-Betting on horses is a mug's game-nobody ever wins in the long term.   
-
-Georgia is dousing the last embers of democracy. An oligarchic party outlaws the opposition and turns towards Russia.  
-American isolationism is a golden opportunity for China. Chinese leaders are playing a canny game.  
-The mystic, the cricketer and the spy: Pakistan’s game of thrones. - Imran Khan’s marriage to his spiritual adviser shocked the country. Now she could help decide whether he returns to office or stays in prison.  
-The contours of 21st-century geopolitics will become clearer in 2026. A new world is starting to emerge.  
-Prediction, notoriously, is a mug’s game.  
-The BBC’s boss quits over a “**doctored**” Trump speech. Shifts in politics and the media business are making the broadcaster more crisis-prone.  
-America’s health-care costs are **shooting up**.  
+Betting on horses is a **mug's game**-nobody ever wins in the long term.   
 
 
 November hasn't brought any **respite** so far as BTC trades only a little above $104,000. -    
-
 He arrives at 8am, leaves at 8pm, and when I asked what he actually did in those twelve hours, he couldn't point to a single **tangible** thing.  
 
 The structures remain. The offices still **gleam**. The meetings still happen. The emails still flow. But the faith that this activity means something, that it's building towards something worthwhile, that it justifies the life hours it consumes, that faith is evaporating.  
@@ -230,6 +273,14 @@ Men are twice as likely to be suspended from school for the same **infraction** 
 
 
 ### Economist Newsletter  
+Georgia is **dousing** the last embers of democracy. An **oligarchic** party **outlaws** the opposition and turns towards Russia.  
+American isolationism is a golden opportunity for China. Chinese leaders are playing a **canny** game.  
+The **mystic**, the **cricketer** and the spy: Pakistan’s game of thrones. - Imran Khan’s marriage to his spiritual adviser shocked the country. Now she could help decide whether he returns to office or stays in prison.  
+The **contours** of 21st-century geopolitics will become clearer in 2026. A new world is starting to emerge.  
+Prediction, notoriously, is a **mug’s game**.  
+The BBC’s boss quits over a “**doctored**” Trump speech. Shifts in politics and the media business are making the broadcaster more crisis-prone.  
+America’s health-care costs are **shooting up**.  
+
 
 Under her bold leadership, the EU has **impaled** itself on nearly all the foundational attributes that underpin economic and geopolitical power.  
 A constant **refrain** in these pages is that cheap and abundant energy is the bedrock of modern **prosperity**, and societies made poorer by **fumbling elites** tend to rebel.  
@@ -266,6 +317,13 @@ Here are the words I need help:
 -----------------------  
 
 ## Words Gallery  
+
+**coerce, coalesce**.  
+**ailment, malaise, slump, remedy, antidote**.    
+**placate, appease, pacify, sooth, reassure**,   
+**swish, slosh, slop**,   
+**manure, mulch, compost, fertilizer**   
+**holocaust, genocide, massacre, carnage, atrocity**.  
 
 **Contentious, divisive, problematic, touchy, thorny**.   
 
