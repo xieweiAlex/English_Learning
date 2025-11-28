@@ -51,6 +51,8 @@ nitrite
 
 ## Special Words  
 
+**brash**  
+
 **bingo**  
 
 **blindsided**  
@@ -85,7 +87,9 @@ nitrite
 
 ## Verb Words  
 
-**glean**  
+**discount**  
+
+**glean**, **gleam**  
 
 **complement**  
 
@@ -113,6 +117,8 @@ nitrite
 
 -------------------------  
 
+**unsubstantiated** claims from French law enforcement.  
+
 He's a kid, our **unsub** is a kid.  
 
 **Blinds and antes** increase over time, forcing players to make decisions under growing pressure, and the prize pool is split among the top percentage of finishers, not just the final winner.   
@@ -123,8 +129,7 @@ Kennedy has **backchanneled** a plan to remove some American missiles from Turke
 **Caving to** Trump’s demands.  
 Look, at some point you’re going to have to **draw a line**.  
 
-
-> alarmist: a person who alarms others needlessly  
+> alarmist: a person who alarms others **needlessly**  
 
 I'd have just **kneecapped** that guy.  
 I need time to **straighten out** my finances.  
@@ -136,11 +141,11 @@ I can’t be everything to everyone. I kind of **made peace** with it years ago.
 “How is it that you are advising me? Have you already advised yourself? Have you got yourself **straightened out**?”  
 
 
-> "Panties" is a more specific term for various styles of female underwear, such as briefs, thongs, and bikinis. "Underwear" is a general term that encompasses all undergarments for all genders.  
-> The suffix "-ies" likely served as a diminutive, turning "pants" into a new, specific term for women's version.  
+> "Panties" is a more specific term for various styles of female underwear, such as briefs, **thongs**, and **bikinis**. "Underwear" is a general term that **encompasses** all **undergarments** for all genders.  
+> The suffix "-ies" likely served as a **diminutive**, turning "pants" into a new, specific term for women's version.  
 > Usage: While both terms are correct, "panties" allows for more specific conversation about women's underwear, just as "briefs" or "boxers" are used to describe specific styles of men's underwear.  
 
-It's **composite**, like plastic.   
+It's **composite**, like plastic. -  
 Bitcoin’s Academic **Pedigree**.  
 
 law of **diminishing marginal returns**  
@@ -166,7 +171,6 @@ The trees are vibrant and **swish** in the gentle breeze.
 
 Dump the **slurry** into the trash (or toilet only if your pipes are good — coffee grounds are usually not recommended for drains).  
 
-
 There is a lot of **tacit knowledge** in operating a ship that never shows up in documentation. -    
 Gen 1 felt **gimmicky** so I skipped it. Gen 2 is different. Eight hours of battery. A case that extends it.  
 
@@ -174,13 +178,14 @@ A good man does everything in his power to **better** his family's **position**,
 Does that **amuse** you?  
 
 Betting on horses is a **mug's game**-nobody ever wins in the long term.   
-
-
 November hasn't brought any **respite** so far as BTC trades only a little above $104,000. -    
 He arrives at 8am, leaves at 8pm, and when I asked what he actually did in those twelve hours, he couldn't point to a single **tangible** thing.  
 
 The structures remain. The offices still **gleam**. The meetings still happen. The emails still flow. But the faith that this activity means something, that it's building towards something worthwhile, that it justifies the life hours it consumes, that faith is evaporating.  
 You can show up, do the tasks, attend the meetings, but you don't have to believe in it. You don't have to **tie your identity to** your email signature.  
+
+
+### Week 46, 47  
 
 People **wrote off** that GPUs as being irrelevant and all of a sudden we have a **chatgpt moment**.  
 
@@ -196,12 +201,14 @@ Taiwan's amazing economic achievements are yielding alarming **strains**.
 A frenzy of financial innovation has **ensnared** America Inc. What could go wrong?  
 How markets could **topple** the global economy.  
 
-> The tree of liberty must be refreshed from time to time with the blood of patriots and tyrants. It is its natural **manure**  
+> The tree of liberty must be refreshed from time to time with the blood of patriots and tyrants. It is its natural **manure**.  
 
 > Seventeen years in, crypto is leaving its adolescence and entering adulthood.   
 
+### Michael Burry Deregistration  
+
 Phil is a tremendous young talent in the field of investment - and the most **prodigious** thinker I have ever encountered.  
-The AI sector is currently **perpetrating** an Enron-scale accounting **distortion**, and it is doing so in plain sight with full regulatory approval because the assets are novel and the rules are ambiguous.  
+The AI sector is currently **perpetrating** an **Enron-scale** accounting **distortion**, and it is doing so in plain sight with full regulatory approval because the assets are novel and the rules are ambiguous.  
 And when the crisis finally arrived and he collected $100 million personally while his fund returned 489%, he shut everything down. The **vindication** was not worth the cost.  
 The Deregistration **Gambit**.  
 The positions became **spectacle**, and Burry became target.  
@@ -209,7 +216,7 @@ By deregistering Scion as an RIA and restructuring as a family office, Burry has
 The post **dripped with contempt** for institutions that cannot distinguish between exposure and cost, between **headline and substance**.  
 
 
-> **Defamation** is the general term for a false statement that harms someone's reputation, while **libel** and **slander** are two distinct types of defamation. Libel is written or published defamation, such as in a newspaper or online post, and slander is **spoken defamation**.  
+> **Defamation** is the general term for a false statement that harms someone's reputation, while **libel** and **slander** are two **distinct** types of defamation. Libel is written or published defamation, such as in a newspaper or online post, and slander is **spoken defamation**.  
 
 A **brash** newcomer disputed the **age-old rules** for **admission** to the club. -    
 
@@ -239,7 +246,7 @@ In its most extreme form, capitalism behaves like a **collectivist hive**. The J
 Much like the jackpot simulation, my victory stands on a pile of a thousand **corpses** of other traders. A **monument** to wasted human potential.  
 Underneath there is typically a scarcity mindset driving it, a **gnawing** sense of feeling “behind” where they should be and a compulsion to make it fast.  
 
-> My answer is always the same. build more edge rather than risk more size  
+> My answer is always the same. Build more **edge** rather than risk more size  
 
 ## Week 45  
 
@@ -340,6 +347,12 @@ Here are the words I need help:
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+Why would they? Look at you? A bunch of **sleazy** salesmen, right?  
+
+He's a kid, our **unsub** is a kid.  
+You want to pave a **golden road** behind your enemy to allow them to retreat.  
+Kennedy has **backchanneled** a plan to remove some American missiles from Turkey that he had already known to be **obsolete**.   
+
 Only a human can invent something as **insipid** as love.  
 
 Unlike you, I do not have **exalted** ancestors, I make my living by trade, and I judge every trade by its **merits**.  
@@ -370,6 +383,35 @@ When it comes to cost, Calisthenics **wipes the floor**.
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+A **brash** newcomer disputed the **age-old rules** for **admission** to the club. -    
+
+Phil is a tremendous young talent in the field of investment - and the most **prodigious** thinker I have ever encountered.  
+
+
+Notifications, emails, social media updates - a **tidal wave** of information before you've even had coffee.  
+It's **no wonder** you feel drained, reactive, and behind.  
+
+A frenzy of financial innovation has **ensnared** America Inc. What could go wrong?  
+
+The structures remain. The offices still **gleam**. The meetings still happen. The emails still flow. But the faith that this activity means something, that it's building towards something worthwhile, that it justifies the life hours it consumes, that faith is evaporating.  
+
+November hasn't brought any **respite** so far as BTC trades only a little above $104,000.   
+
+A good man does everything in his power to **better** his family's **position**, regardless of his own selfish desires.   
+Does that **amuse** you?  
+
+We could hear the **swish** and **gurgle** of water against the **hull**. -  
+
+Men who use **steroids** are motivated by **sheer vanity**.  
+
+I need time to **straighten out** my finances.  
+The Stoics believed that the four virtues are **interdependent** and you need them all.  
+
+I can’t be everything to everyone. I kind of **made peace** with it years ago.  
+“How is it that you are advising me? Have you already advised yourself? Have you got yourself **straightened out**?”  
+
+
 
 And when the crisis finally arrived and he collected $100 million personally while his fund returned 489%, he shut everything down. The **vindication** was not worth the cost.  
 
