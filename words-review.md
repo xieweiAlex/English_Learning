@@ -1,5 +1,6 @@
 ## words-Nov-25.md ##  
 words/2025/words-Nov-25.md  
+It's **composite**, like plastic. -  
 We could hear the **swish** and **gurgle** of water against the **hull**. -  
 There is a lot of **tacit knowledge** in operating a ship that never shows up in documentation. -  
 November hasn't brought any **respite** so far as BTC trades only a little above $104,000. -  
@@ -9,6 +10,7 @@ Only a human can invent something as **insipid** as love. -
 The White House has been **thwarted** so far in using the shutdown to extend its purge of the federal workforce. -  
 A new EU sanctions package being worked on, the 19th since the war started, includes Europe **weaning itself off** what little energy it still imports from Russia. -  
 These days the birds are once again a **common sight** **flitting** around both the cities and the countryside. -  
+We could hear the **swish** and **gurgle** of water against the **hull**. -  
 
 ## words-Oct-25.md ##  
 words/2025/words-Oct-25.md  

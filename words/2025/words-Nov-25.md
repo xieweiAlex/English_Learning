@@ -51,6 +51,10 @@ nitrite
 
 ## Special Words  
 
+**worthwhile**  
+
+**baseline**  
+
 **brash**  
 
 **bingo**  
@@ -87,6 +91,8 @@ nitrite
 
 ## Verb Words  
 
+**shortchange**  
+
 **discount**  
 
 **glean**, **gleam**  
@@ -117,8 +123,19 @@ nitrite
 
 -------------------------  
 
-**unsubstantiated** claims from French law enforcement.  
+Futures open interest is **unwinding** steadily, funding rates are neutral, and leverage across major assets has faded.  
 
+**vilify** savings and **deifying** consumption.  
+
+Every year, she hosts a big gathering of family, friends, and **a smattering of** my dad's students and mentees who don't have local family to visit **for the occasion**.  
+
+> Hedonic adaptation is the biological tendency to return to a baseline after positive events.  
+
+
+If your App looks like it was **cobbled together** in a few days, or you're trying to get your first practice App into the store to impress your friends, please **brace** yourself for rejection.  
+If I’m just unaware of **blatant** **rip-offs** running wild in the App Store, send examples my way.  
+
+**unsubstantiated** claims from French law enforcement.  
 He's a kid, our **unsub** is a kid.  
 
 **Blinds and antes** increase over time, forcing players to make decisions under growing pressure, and the prize pool is split among the top percentage of finishers, not just the final winner.   
@@ -328,7 +345,7 @@ Here are the words I need help:
 **coerce, coalesce**.  
 **ailment, malaise, slump, remedy, antidote**.    
 **placate, appease, pacify, sooth, reassure**,   
-**swish, slosh, slop**,   
+**swish, slosh, slop**, slurry.  
 **manure, mulch, compost, fertilizer**   
 **holocaust, genocide, massacre, carnage, atrocity**.  
 
@@ -360,15 +377,13 @@ Unlike you, I do not have **exalted** ancestors, I make my living by trade, and 
 Microstrategy is an **inert** holder of Bitcoin, but Bitmine is active and engaged in Ethereum ecosystem.  
 There is a question that's really **plaguing** Ethereum for a while, until its recent very dramatic turn in price.  
 
-It's very amusing, **galling**, to be honest.   
-
 If you would **care to join** us for some recognized form of social interaction, like a drink, then we'd be fine.  
 It's very amusing, **galling**, to be honest.   
 I came over here with no **subterfuge**, and presented my best offer.  
 The night is warm and **balmy**.  
 I don't think it's **in the cards** for us.  
 You're pretty much **home free**, unless you ... **blow it**.  
-It could anything from some **inane** comment, to wearing the wrong kind of shorts.   
+It could be anything from some **inane** comment, to wearing the wrong kind of shorts.   
 You're very **hard to please**.  
 
 **If anything**, I was doing you a favor. - A favor? Yeah, I told you, he's a **hard ass**.  
@@ -384,7 +399,7 @@ When it comes to cost, Calisthenics **wipes the floor**.
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
-A **brash** newcomer disputed the **age-old rules** for **admission** to the club. -    
+A **brash** newcomer disputed the **age-old rules** for **admission** to the club.  
 
 Phil is a tremendous young talent in the field of investment - and the most **prodigious** thinker I have ever encountered.  
 
@@ -394,7 +409,7 @@ It's **no wonder** you feel drained, reactive, and behind.
 
 A frenzy of financial innovation has **ensnared** America Inc. What could go wrong?  
 
-The structures remain. The offices still **gleam**. The meetings still happen. The emails still flow. But the faith that this activity means something, that it's building towards something worthwhile, that it justifies the life hours it consumes, that faith is evaporating.  
+The structures remain. The offices still **gleam**. The meetings still happen. The emails still flow. But the faith that this activity means something, that it's building towards something **worthwhile**, that it justifies the life hours it consumes, that faith is **evaporating**.  
 
 November hasn't brought any **respite** so far as BTC trades only a little above $104,000.   
 
