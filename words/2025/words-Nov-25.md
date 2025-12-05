@@ -1,53 +1,21 @@
 
-[Word Review](../../words-review.md)  
+## Regular  
 
-[Week 45](#week-45)  
-
-[Newsletter](#economist-newsletter)  
-
+[Word Review](../../words-review.md) |  
+[Words with Questions](#words-with-questions) |   
+[Special Words](#special-words) | [Verb Words](#verb-words) |  
 [Convo](#conversation) | [Interesting](#interesting) |  
-
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
+[Economist Newsletter](#economist-newsletter)  
+
+
+## Ad Hoc  
+
+[Week 46, 47](#week-46-47) | [Week 45](#week-45) | [Michael Burry Deregistration](#michael-burry-deregistration)  
 
 ------------------  
 
 ### Words with Questions  
-
-pyretic  
-
-bonhomie  
-
-marquee  
-
-vapid  
-
-nappy  
-
-demur   
-
-calumny  
-
-seedy  
-
-fulminant  
-
-comport  
-
-**aegis**  
-
-abrogate  
-
-hackneyed  
-
-nitrite  
-
-**venal**  
-
-**envisage**   
-
-**supercilious**  
-
-**goad**  
 
 ## Special Words  
 
@@ -123,6 +91,18 @@ nitrite
 
 -------------------------  
 
+> **Should** someone manage to gain access to your privte keys, they have your bitcoins.  
+
+California’s latest gold rush. The high gold price is **luring** **prospectors** to the mountains.  
+
+**flag as a verb**: **droop**, sink, or settle from or as if from pressure or loss of **tautness**  
+Google has pierced Nvidia’s **aura** of invulnerability.  
+What has **webbed feet**, a big **snout** and is adored on the internet? The **capybara** has a far better reputation than its fellow **rodents**.  
+
+America has dumped a messy, **sordid** “peace plan” on Ukraine.  
+How do you replace a CEO like Tim Cook or Warren Buffett? Some shoes seem just **too big to fill**.  
+**Vineyards** are disappearing in France. As wine-drinking slows, farmers are **uprooting** vines.  
+
 Futures open interest is **unwinding** steadily, funding rates are neutral, and leverage across major assets has faded.  
 
 **vilify** savings and **deifying** consumption.  
@@ -130,7 +110,6 @@ Futures open interest is **unwinding** steadily, funding rates are neutral, and 
 Every year, she hosts a big gathering of family, friends, and **a smattering of** my dad's students and mentees who don't have local family to visit **for the occasion**.  
 
 > Hedonic adaptation is the biological tendency to return to a baseline after positive events.  
-
 
 If your App looks like it was **cobbled together** in a few days, or you're trying to get your first practice App into the store to impress your friends, please **brace** yourself for rejection.  
 If I’m just unaware of **blatant** **rip-offs** running wild in the App Store, send examples my way.  
@@ -294,7 +273,6 @@ This choice betrays a deep conviction: no **dispersion**, no opportunism strateg
 
 Men are twice as likely to be suspended from school for the same **infraction** as girls (behavior-adjusted).  
 **tone-deaf**.  
-
 
 ### Economist Newsletter  
 Georgia is **dousing** the last embers of democracy. An **oligarchic** party **outlaws** the opposition and turns towards Russia.  

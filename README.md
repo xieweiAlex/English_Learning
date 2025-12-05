@@ -3,77 +3,59 @@
 Improving English vocabulary for a non native-speaker is taxing and time-consuming. I try to jot down the **words or phrases** I encounter everyday with minimal context, hope it makes my English learning journey easier and more delight. If it can inspire someone else, that's even better 💖.  
 
 <!-- variable -->
-<!-- .LfBookmarks -->
 <!-- Readme -->
 
-### Word Review 
+## Word Review
+
 [Words Review](./words-review.md)
 
-### 2025 
+## 2025
 
-[Nov](/words/2025/words-Nov-25.md) | [Oct](/words/2025/words-Oct-25.md) | 
+ [Dec](./words/2025/words-Dec-25.md) | [Nov](./words/2025/words-Nov-25.md) | [Oct](./words/2025/words-Oct-25.md) |
 
-[Sept](/words/2025/words-Sep-25.md) | [August](./words/2025/words-Aug-25.md) | [July](./words/2025/words-Jul-25.md) 
+ [Sep](./words/2025/words-Sep-25.md) | [Aug](./words/2025/words-Aug-25.md) | [Jul](./words/2025/words-Jul-25.md)
 
-[June](./words/2025/words-Jun-25.md)  | [May](./words/2025/words-May-25.md) | [April](./words/2025/words-Apr-25.md) |
+[Jun](./words/2025/words-Jun-25.md) | [May](./words/2025/words-May-25.md) | [Apr](./words/2025/words-Apr-25.md) |
 
-[March](./words/2025/words-Mar-25.md) | [Feb ](./words/2025/words-Feb-25.md) | [Jan Words](./words/2025/words-Jan-25.md) | 
+[Mar](./words/2025/words-Mar-25.md) | [Feb](./words/2025/words-Feb-25.md) | [Jan](./words/2025/words-Jan-25.md) |
 
 
 ### 2024 
 
-[Dec Words](./words/2024/words-Dec-24.md) |
-[Nov Words](./words/2024/words-Nov-24.md) |
-[Oct Words](./words/2024/words-Oct-24.md) |
+[Dec](./words/2024/words-Dec-24.md) | [Nov](./words/2024/words-Nov-24.md) | [Oct](./words/2024/words-Oct-24.md) |
 
-[Sep Words](./words/2024/words-Sep-24.md) |
-[Aug Words](./words/2024/words-Aug-24.md) |
-[July Words](./words/2024/words-Jul-24.md) |
+[Sep](./words/2024/words-Sep-24.md) | [Aug](./words/2024/words-Aug-24.md) | [Jul](./words/2024/words-Jul-24.md) |
 
-[June Words](./words/2024/words-Jun-24.md) |
-[May Words](./words/2024/words-May-24.md) |
-[Apr Words](./words/2024/words-Apr-24.md) |
+[Jun](./words/2024/words-Jun-24.md) | [May](./words/2024/words-May-24.md) | [Apr](./words/2024/words-Apr-24.md) |
 
-[Mar Words](./words/2024/words-Mar.md) |
-[Feb Words](./words/2024/words-Feb-24.md) |
-[Jan Words](./words/2024/words-Jan-24.md) |
+[Mar](./words/2024/words-Mar.md) | [Feb](./words/2024/words-Feb-24.md) | [Jan](./words/2024/words-Jan-24.md) |
 
 [Special words](./special/2024/special-words-24.md) |
 [Special Verbs](./special/2024/verb-24.md) |
 [Idioms](./special/2024/idiom.md) |
 
 
-#### Book
-[Poor Charlie's Almanac](./book/poor-charlie.md) |
-[Influence](./book/influence.md)
-
-
 ### 2023
-[Dec Words](./words/2023/words-Dec.md) |
-[Nov Words](./words/2023/words-Nov.md) |
-[Oct Words](./words/2023/words-October.md) |
-[Sep Words](./words/2023/words-September.md) |
-[Aug Words](./words/2023/words-August.md) |
-[Jul Words](./words/2023/words-July.md) |
+[Dec](./words/2023/words-Dec.md) | [Nov](./words/2023/words-Nov.md) | [Oct](./words/2023/words-October.md) |
+[Sep](./words/2023/words-September.md) | [Aug](./words/2023/words-August.md) | [Jul](./words/2023/words-July.md) |
 
-[June Words](./words/2023/words-June.md) |
-[May Words](./words/2023/words-May.md) |
-[April Words](./words/2023/words-April.md) |
-[Mar Words](./words/2023/words-March.md) |
-[Feb Words](./words/2023/words-Feb.md) |
-[Jan Words](./words/2023/words-Jan.md) |
+[Jun](./words/2023/words-June.md) | [May](./words/2023/words-May.md) | [Apr](./words/2023/words-April.md) |
+[Mar](./words/2023/words-March.md) | [Feb](./words/2023/words-Feb.md) | [Jan](./words/2023/words-Jan.md) |
 
 [Verb](./special/2023/verb-special-Q1.md) |
 [Phrases](./special/2023/phrase-Q1-23.md) |
 
 ### 2022  
 
-[Dec Words](./words/2022/words-Dec.md) |
-[Nov Words](./words/2022/words-Nov.md) |
-[Oct Words](./words/2022/words-Oct.md) |
+[Dec](./words/2022/words-Dec.md) | [Nov](./words/2022/words-Nov.md) | [Oct](./words/2022/words-Oct.md) |
 
-[Sep Words](./words/2022/words-Sep.md) |
-[Aug Words](./words/2022/words-Aug.md) |
+[Sep](./words/2022/words-Sep.md) | [Aug](./words/2022/words-Aug.md) |
+
+## Book
+[Poor Charlie's Almanac](./book/poor-charlie.md) |
+[Influence](./book/influence.md)
+
+## Media
 
 [SeinField](./media/seinfeld.md) |
 [F is for family](./media/f-family.md) |
@@ -156,6 +138,3 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 [words-2021-Feb]: ./words/2021/words-Feb.md
 [words-2021-March]: ./words/2021/words-Mar.md
 [words-2021-April]: ./words/2021/words-April.md
-
-
-
